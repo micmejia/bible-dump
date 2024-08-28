@@ -343,4 +343,4 @@ Practice _and_ cultivate _and_ meditate upon these duties; throw yourself wholly
 
 
 
-Look well to yourself [to your own personality] and to [your] teaching; persevere in these things [hold to them], for by so doing you will save both yourself and those who hear you. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Timothy 4:10 Some manuscripts so read.
+Look well to yourself [to your own personality] and to [your] teaching; persevere in these things [hold to them], for by so doing you will save both yourself and those who hear you.

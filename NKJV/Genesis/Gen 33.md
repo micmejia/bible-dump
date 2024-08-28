@@ -67,4 +67,4 @@ Then Jacob came [^e]safely to the city of Shechem, which _is_ in the land of Can
 And he bought the parcel of [^f]land, where he had pitched his tent, from the children of Hamor, Shechem's father, for one hundred pieces of money. 
 
 ###### 20 
-Then he erected an altar there and called it El[^g] Elohe Israel. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 33:11 Lit. _all_ [^b]: Genesis 33:14 _can stand_ [^c]: Genesis 33:17 _shelters_ [^d]: Genesis 33:17 Lit. _Booths_ [^e]: Genesis 33:18 Or _to Shalem, a city of_ [^f]: Genesis 33:19 Lit. _the field_ [^g]: Genesis 33:20 Lit. _God, the God of Israel_
+Then he erected an altar there and called it El[^g] Elohe Israel.

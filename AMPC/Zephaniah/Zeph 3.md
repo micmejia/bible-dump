@@ -426,4 +426,4 @@ Behold, at that time I will deal with all those who afflict you; I will save the
 
 
 
-At that time I will bring you in; yes, at that time I will gather you, for I will make you a name and a praise among all the nations of the earth when I reverse your captivity before your eyes, says the Lord. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+At that time I will bring you in; yes, at that time I will gather you, for I will make you a name and a praise among all the nations of the earth when I reverse your captivity before your eyes, says the Lord.

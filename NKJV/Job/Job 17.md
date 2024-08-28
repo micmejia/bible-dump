@@ -55,4 +55,4 @@ If I say to corruption, 'You _are_ my father,' And to the worm, 'You _are_ my mo
 Where then _is_ my hope? As for my hope, who can see it? 
 
 ###### 16 
-_Will_ they go down to the gates of [^d]Sheol? Shall _we have_ rest together in the dust?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 17:2 Lit. _lodge_ [^b]: Job 17:10 So with some Heb. mss., LXX, Syr., Vg.; MT, Tg. _all of them_ [^c]: Job 17:11 _desires_ [^d]: Job 17:16 The abode of the dead
+_Will_ they go down to the gates of [^d]Sheol? Shall _we have_ rest together in the dust?"

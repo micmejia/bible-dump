@@ -700,4 +700,4 @@ Ang nagsasabing mahal niya ang Dios ngunit napopoot naman sa kanyang kapatid ay 
 
 
 
-Kaya ito ang utos na ibinibigay sa atin ni Cristo: ang taong nagmamahal sa Dios ay dapat ding magmahal sa kanyang kapatid. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 4:9 _kaisa-isang_<i class="alternate">:_ o, <i class="alternate">bukod-tanging._
+Kaya ito ang utos na ibinibigay sa atin ni Cristo: ang taong nagmamahal sa Dios ay dapat ding magmahal sa kanyang kapatid.

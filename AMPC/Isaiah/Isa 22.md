@@ -532,4 +532,4 @@ And they will hang on him the honor _and_ the whole weight of [responsibility fo
 
 
 
-In that day, says the Lord of hosts, the nail _or_ peg that was fastened into the sure place shall give way _and_ be moved and be hewn down and fall, and the burden that was upon it shall be cut off; for the Lord has spoken it. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+In that day, says the Lord of hosts, the nail _or_ peg that was fastened into the sure place shall give way _and_ be moved and be hewn down and fall, and the burden that was upon it shall be cut off; for the Lord has spoken it.

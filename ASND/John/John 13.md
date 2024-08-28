@@ -1261,4 +1261,4 @@ Nagtanong pa si Pedro, "Panginoon, bakit hindi ako maaaring sumama sa inyo ngayo
 
 
 
-Sumagot si Jesus, "Talaga bang handa kang mamatay para sa akin? Sinasabi ko sa iyo ang totoo, bago tumilaok ang manok, tatlong beses mong ikakaila na kilala mo ako." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 13:18 Salmo 41:9.
+Sumagot si Jesus, "Talaga bang handa kang mamatay para sa akin? Sinasabi ko sa iyo ang totoo, bago tumilaok ang manok, tatlong beses mong ikakaila na kilala mo ako."

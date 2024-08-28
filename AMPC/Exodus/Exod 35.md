@@ -742,4 +742,4 @@ And God has put in Bezalel's heart that he may teach, both he and Aholiab son of
 
 
 
-He has filled them with wisdom of heart _and_ ability to do all manner of craftsmanship, of the engraver, of the skillful workman, of the embroiderer in blue, purple, and scarlet [stuff] and in fine linen, and of the weaver, even of those who do or design any skilled work. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He has filled them with wisdom of heart _and_ ability to do all manner of craftsmanship, of the engraver, of the skillful workman, of the embroiderer in blue, purple, and scarlet [stuff] and in fine linen, and of the weaver, even of those who do or design any skilled work.

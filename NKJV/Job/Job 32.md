@@ -73,4 +73,4 @@ I will speak, that I may find relief; I must open my lips and answer.
 Let me not, I pray, show partiality to anyone; Nor let me flatter any man. 
 
 ###### 22 
-For I do not know how to flatter, _Else_ my Maker would soon take me away. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 32:4 Vg. _till Job had spoken_ [^b]: Job 32:7 Lit. _Days,_ i.e., years [^c]: Job 32:9 Or _Men of many years_ [^d]: Job 32:14 _ordered_ [^e]: Job 32:19 _bosom_ [^f]: Job 32:19 _opening_
+For I do not know how to flatter, _Else_ my Maker would soon take me away.

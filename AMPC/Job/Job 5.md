@@ -574,4 +574,4 @@ You shall come to your grave in ripe old age, and as a shock of grain goes up [t
 
 
 
-This is what we have searched out; it is true. Hear _and_ heed it and know for yourself [for your good]. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 5:2 This was written many centuries ago, but physicians and psychiatrists today are continually emphasizing the importance of recognizing the principle it lays down if one would avoid being among the constantly increasing number of the mentally ill and those killed by avoidable illnesses.
+This is what we have searched out; it is true. Hear _and_ heed it and know for yourself [for your good].

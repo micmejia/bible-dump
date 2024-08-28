@@ -363,4 +363,4 @@ Solomon's horses were brought out of Egypt; the king's merchants received them i
 
 
 
-They imported from Egypt a chariot for 600 shekels of silver, and a horse for 150; so they brought out horses for all the Hittite and Syrian kings as export agents. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Chronicles 1:16 Solomon’s actions were in violation of the commands given through Moses in Deut. 17:16, 17 (see also I Kings 4:26; I Kings 10:26-11:1-4).
+They imported from Egypt a chariot for 600 shekels of silver, and a horse for 150; so they brought out horses for all the Hittite and Syrian kings as export agents.

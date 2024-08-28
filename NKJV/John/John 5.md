@@ -148,4 +148,4 @@ Do not think that I shall accuse you to the Father; there is _one_ who accuses y
 For if you believed Moses, you would believe Me; for he wrote about Me. 
 
 ###### 47 
-But if you do not believe his writings, how will you believe My words?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: John 5:2 NU _Bethzatha_ [^b]: John 5:3 _withered_ [^c]: John 5:3 NU omits the rest of v. [3] and all of v. [4]. [^d]: John 5:16 NU omits _and sought to kill Him_ [^e]: John 5:31 _valid_ as testimony
+But if you do not believe his writings, how will you believe My words?"

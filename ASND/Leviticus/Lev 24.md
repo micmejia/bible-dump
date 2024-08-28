@@ -436,4 +436,4 @@ Ang mga utos na itoʼy para sa inyong lahat, katutubong Israelita man o dayuhan.
 
 
 
-Pagkatapos itong sabihin ni Moises sa mga Israelita, dinala nila ang taong iyon na lumapastangan sa Dios doon sa labas ng kampo at binato ayon sa iniutos ng Panginoon kay Moises. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 24:7 _gilid_<i class="alternate">:_ o, <i class="alternate">itaas._
+Pagkatapos itong sabihin ni Moises sa mga Israelita, dinala nila ang taong iyon na lumapastangan sa Dios doon sa labas ng kampo at binato ayon sa iniutos ng Panginoon kay Moises.

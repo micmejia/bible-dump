@@ -385,4 +385,4 @@ Because he did not slay me in the womb, so that my mother might have been my gra
 
 
 
-Why did I come out of the womb to see labor and sorrow, that my days should be consumed in shame? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Why did I come out of the womb to see labor and sorrow, that my days should be consumed in shame?

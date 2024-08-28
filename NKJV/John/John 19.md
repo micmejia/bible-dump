@@ -133,4 +133,4 @@ Then they took the body of Jesus, and bound it in strips of linen with the spice
 Now in the place where He was crucified there was a garden, and in the garden a new tomb in which no one had yet been laid. 
 
 ###### 42 
-So there they laid Jesus, because of the Jews' Preparation _Day,_ for the tomb was nearby. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: John 19:3 NU _And they came up to Him and said_ [^b]: John 19:7 NU _the law_ [^c]: John 19:10 _authority_ [^d]: John 19:16 NU omits _and led Him away_ [^e]: John 19:28 M _seeing_
+So there they laid Jesus, because of the Jews' Preparation _Day,_ for the tomb was nearby.

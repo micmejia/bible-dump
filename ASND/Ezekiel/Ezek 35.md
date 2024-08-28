@@ -502,4 +502,4 @@ Nagmalaki kayo sa akin. Kinutya nʼyo ako at narinig ko ito.
 
 
 
-dahil natuwa kayo nang naging mapanglaw ang lupaing ipinamana ko sa mga mamamayan ng Israel. Kaya ito rin ang mangyayari sa inyo. Magiging mapanglaw ang bundok ng Seir at ang buong lupain ng Edom. At malalaman ninyo na ako ang Panginoon." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 35:2 _Bundok ng Seir_<i class="alternate">:_ Isa pang tawag sa <i class="alternate">Edom._
+dahil natuwa kayo nang naging mapanglaw ang lupaing ipinamana ko sa mga mamamayan ng Israel. Kaya ito rin ang mangyayari sa inyo. Magiging mapanglaw ang bundok ng Seir at ang buong lupain ng Edom. At malalaman ninyo na ako ang Panginoon."

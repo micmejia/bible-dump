@@ -85,4 +85,4 @@ Then the Lord spoke to Moses, saying,
 and at the age of fifty years they must cease performing this work, and shall work no more. 
 
 ###### 26 
-They may minister with their brethren in the tabernacle of meeting, to attend to needs, but they _themselves_ shall do no work. Thus you shall do to the Levites regarding their duties." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Numbers 8:7 Heb. _let them cause a razor to pass over_ [^b]: Numbers 8:11 _present_ [^c]: Numbers 8:17 _set them apart_
+They may minister with their brethren in the tabernacle of meeting, to attend to needs, but they _themselves_ shall do no work. Thus you shall do to the Levites regarding their duties."

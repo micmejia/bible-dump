@@ -175,4 +175,4 @@ And one of the four living creatures [then] gave the seven angels seven golden b
 
 
 
-And the sanctuary was filled with smoke from the glory (the radiance, the splendor) of God and from His might _and_ power, and no one was able to go into the sanctuary until the seven plagues (afflictions, calamities) of the seven angels were ended. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Revelation 15:3 Many manuscripts read “nations.”
+And the sanctuary was filled with smoke from the glory (the radiance, the splendor) of God and from His might _and_ power, and no one was able to go into the sanctuary until the seven plagues (afflictions, calamities) of the seven angels were ended.

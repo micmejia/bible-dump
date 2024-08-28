@@ -37,4 +37,4 @@ Then I will give them a heart to know Me, that I _am_ the Lord; and they shall b
 I will deliver them to trouble into all the kingdoms of the earth, for _their_ harm, _to be_ a reproach and a byword, a taunt and a curse, in all places where I shall drive them. 
 
 ###### 10 
-And I will send the sword, the famine, and the pestilence among them, till they are [^b]consumed from the land that I gave to them and their fathers.' " ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Jeremiah 24:5 _regard_ [^b]: Jeremiah 24:10 _destroyed_
+And I will send the sword, the famine, and the pestilence among them, till they are [^b]consumed from the land that I gave to them and their fathers.' "

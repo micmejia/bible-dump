@@ -73,4 +73,4 @@ Behold, God will not [^e]cast away the blameless, Nor will He uphold the evildoe
 He will yet fill your mouth with laughing, And your lips with [^f]rejoicing. 
 
 ###### 22 
-Those who hate you will be clothed with shame, And the dwelling place of the wicked [^g]will come to nothing." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 8:4 Lit. _into the hand of their transgression_ [^b]: Job 8:6 _arise_ [^c]: Job 8:9 Lit. _not_ [^d]: Job 8:14 Lit. _a spider’s house_ [^e]: Job 8:20 _reject_ [^f]: Job 8:21 Lit. _shouts of joy_ [^g]: Job 8:22 Lit. _will not be_
+Those who hate you will be clothed with shame, And the dwelling place of the wicked [^g]will come to nothing."

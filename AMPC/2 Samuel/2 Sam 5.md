@@ -532,4 +532,4 @@ And when you hear the sound of marching in the tops of the mulberry trees, then 
 
 
 
-And David did as the Lord had commanded him, and smote the Philistines from Geba to Gezer. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Samuel 5:21 The Israelites took as spoil the images of the Philistines, perhaps to display in triumphal procession, though they were afterward burned (I Chron. 14:12) in compliance with the law of Deut. 7:5, 25. Thus the old disgrace of the capture of the ark by the Philistines was avenged (I Sam. 4:4, 10, 11) (_The Cambridge Bible_).
+And David did as the Lord had commanded him, and smote the Philistines from Geba to Gezer.

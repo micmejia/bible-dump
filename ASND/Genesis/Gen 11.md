@@ -997,4 +997,4 @@ Umalis si Tera sa Ur na sakop ng mga Caldeo. Kasama niya ang anak niyang si Abra
 
 
 
-Doon namatay si Tera sa edad na 205.[^d] ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 11:3-4 _tisa_<i class="alternate">:_ sa Ingles, <i class="alternate">“brick.”_ [^b]: 11:9 _Babel_<i class="alternate">:_ o, <i class="alternate">Babilonia._ Maaaring ang ibig sabihin, “ibaʼt iba.” [^c]: 11:28 _Caldeo_<i class="alternate">:_ Mga taong nakatira noon sa timog ng Babilonia. Nang bandang huli, naging Caldeo ang tawag sa mga taga-Babilonia. [^d]: 11:32 _205_<i class="alternate">:_ sa tekstong Samaritan, <i class="alternate">145._
+Doon namatay si Tera sa edad na 205.[^d]

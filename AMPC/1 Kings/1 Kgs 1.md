@@ -1119,4 +1119,4 @@ Solomon said, If he will show himself to be a worthy man, not a hair of him shal
 
 
 
-So King Solomon sent, and they brought Adonijah down from the altar [in front of the tabernacle]. He came and bowed himself to King Solomon, and Solomon said to him, Go to your house. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Kings 1:2 Josephus, _Antiquities of the Jews_ 14, 3. [^b]: 1 Kings 1:7 The commander of Israel’s army.
+So King Solomon sent, and they brought Adonijah down from the altar [in front of the tabernacle]. He came and bowed himself to King Solomon, and Solomon said to him, Go to your house.

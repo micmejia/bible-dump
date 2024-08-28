@@ -574,4 +574,4 @@ And I will make your tongue cleave to the roof of your mouth so that you cannot 
 
 
 
-But when I speak with you, I will open your mouth and you shall say to the people, Thus says the Lord God; he who hears, let him hear, and he who refuses to hear, let him refuse; for they are a rebellious house. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But when I speak with you, I will open your mouth and you shall say to the people, Thus says the Lord God; he who hears, let him hear, and he who refuses to hear, let him refuse; for they are a rebellious house.

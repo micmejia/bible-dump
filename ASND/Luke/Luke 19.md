@@ -1591,4 +1591,4 @@ Nagtuturo si Jesus sa templo araw-araw, habang pinagsisikapan naman ng mga namam
 
 
 
-Pero wala silang makitang paraan upang maisagawa ito dahil nakikinig nang mabuti ang mga tao sa mga itinuturo niya. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 19:21 _inaani … itinanim_<i class="alternate">:_ o, <i class="alternate">kinukuha ninyo ang kita ng iba._ [^b]: 19:38 Salmo 118:26. [^c]: 19:38 _magandang relasyon_<i class="alternate">:_ o, <i class="alternate">kapayapaan._ [^d]: 19:46 Isa. 56:7. [^e]: 19:46 Jer. 7:11.
+Pero wala silang makitang paraan upang maisagawa ito dahil nakikinig nang mabuti ang mga tao sa mga itinuturo niya.

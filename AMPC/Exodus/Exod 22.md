@@ -658,4 +658,4 @@ Likewise shall you do with your oxen _and_ your sheep. Seven days the firstborn 
 
 
 
-And you shall be holy men [consecrated] to Me; therefore you shall not eat any flesh that is torn by beasts in the field; you shall throw it to the dogs. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And you shall be holy men [consecrated] to Me; therefore you shall not eat any flesh that is torn by beasts in the field; you shall throw it to the dogs.

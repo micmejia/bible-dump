@@ -997,4 +997,4 @@ Ito ang tanda na parurusahan ko kayo sa lugar na ito para malaman ninyo na talag
 
 
 
-Ibibigay ko si Faraon Hofra na hari ng Egipto sa mga kaaway niya na nais pumatay sa kanya katulad ng ginawa ko kay Zedekia ng Juda sa kaaway niyang si Haring Nebucadnezar ng Babilonia na nais ding pumatay sa kanya. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito.' " ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Ibibigay ko si Faraon Hofra na hari ng Egipto sa mga kaaway niya na nais pumatay sa kanya katulad ng ginawa ko kay Zedekia ng Juda sa kaaway niyang si Haring Nebucadnezar ng Babilonia na nais ding pumatay sa kanya. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito.' "

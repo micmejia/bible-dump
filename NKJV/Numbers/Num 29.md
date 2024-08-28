@@ -127,4 +127,4 @@ also one goat _as_ a sin offering, besides the regular burnt offering, its grain
 'These you shall present to the Lord at your appointed feasts (besides your vowed offerings and your freewill offerings) as your burnt offerings and your grain offerings, as your drink offerings and your peace offerings.' " 
 
 ###### 40 
-So Moses told the children of Israel everything, just as the Lord commanded Moses. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Numbers 29:35 _solemn_
+So Moses told the children of Israel everything, just as the Lord commanded Moses.

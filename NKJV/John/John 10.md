@@ -133,4 +133,4 @@ And He went away again beyond the Jordan to the place where John was baptizing a
 Then many came to Him and said, "John performed no sign, but all the things that John spoke about this Man were true." 
 
 ###### 42 
-And many believed in Him there. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: John 10:8 M omits _before Me_ [^b]: John 10:12 _hired man_ [^c]: John 10:20 _insane_ [^d]: John 10:24 Suspense [^e]: John 10:26 NU omits _as I said to you_ [^f]: John 10:38 NU _understand_
+And many believed in Him there.

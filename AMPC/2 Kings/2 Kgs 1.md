@@ -384,4 +384,4 @@ So Ahaziah died according to the word of the Lord which Elijah had spoken. [^a]J
 
 
 
-Now the rest of the acts of Ahaziah, are they not written in the Book of the Chronicles of the Kings of Israel? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Kings 1:17 Hebrew _Jehoram_, a variant of _Joram_.
+Now the rest of the acts of Ahaziah, are they not written in the Book of the Chronicles of the Kings of Israel?

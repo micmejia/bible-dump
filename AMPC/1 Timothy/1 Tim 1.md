@@ -426,4 +426,4 @@ Holding fast to faith ([^c]that leaning of the entire human personality on God i
 
 
 
-Among them are Hymenaeus and Alexander, whom I have delivered to Satan in order that they may be disciplined [by punishment and learn] not to blaspheme. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Timothy 1:4 Alexander Souter, _Pocket Lexicon of the Greek New Testament_. [^b]: 1 Timothy 1:18 Marvin Vincent, _Word Studies in the New Testament_. [^c]: 1 Timothy 1:19 Alexander Souter, _Pocket Lexicon_.
+Among them are Hymenaeus and Alexander, whom I have delivered to Satan in order that they may be disciplined [by punishment and learn] not to blaspheme.

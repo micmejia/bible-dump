@@ -1129,4 +1129,4 @@ Sumagot sila, "Panginoon, gusto po naming makakita."
 
 
 
-Naawa si Jesus sa kanila, kaya hinipo niya ang kanilang mga mata. Agad silang nakakita at sumunod kay Jesus. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 20:22 _Kaya ba … titiisin ko_<i class="alternate">:_ sa literal, <i class="alternate">Maiinom ba ninyo ang kopa na iinumin ko?_ [^b]: 20:30 _Anak ni David_<i class="alternate">:_ Ito ang tawag ng mga Judio sa Mesias o Cristo dahil sa paniniwalang siyaʼy mula sa angkan ni David.
+Naawa si Jesus sa kanila, kaya hinipo niya ang kanilang mga mata. Agad silang nakakita at sumunod kay Jesus.

@@ -47,4 +47,4 @@ Demetrius has a _good_ testimony from all, and from the truth itself. And we als
 I had many things to write, but I do not wish to write to you with pen and ink; 
 
 ###### 14 
-but I hope to see you shortly, and we shall speak face to face. Peace to you. Our friends greet you. Greet the friends by name. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 3 John 1:4 NU _the truth_ [^b]: 3 John 1:5 NU _and especially for_ [^c]: 3 John 1:8 NU _support_ [^d]: 3 John 1:10 _talking nonsense_ [^e]: 3 John 1:11 NU, M omit _but_ [^f]: 3 John 1:12 _testify_
+but I hope to see you shortly, and we shall speak face to face. Peace to you. Our friends greet you. Greet the friends by name.

@@ -82,4 +82,4 @@ Much food _is in_ the [^c]fallow _ground_ of the poor, And for lack of justice t
 He who spares his rod hates his son, But he who loves him disciplines him [^e]promptly. 
 
 ###### 25 
-The righteous eats to the satisfying of his soul, But the stomach of the wicked shall be in want. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Proverbs 13:15 _gives_ [^b]: Proverbs 13:18 Lit. _ignores_ [^c]: Proverbs 13:23 _uncultivated_ [^d]: Proverbs 13:23 Lit. _what is swept away_ [^e]: Proverbs 13:24 _early_
+The righteous eats to the satisfying of his soul, But the stomach of the wicked shall be in want.

@@ -72,4 +72,4 @@ Amminadab begot Nahshon, and Nahshon begot Salmon;[^h]
 Salmon begot Boaz, and Boaz begot Obed; 
 
 ###### 22 
-Obed begot Jesse, and Jesse begot David. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Ruth 4:1 Heb. _peloni almoni,_ lit. _so and so_ [^b]: Ruth 4:4 Lit. _uncover your ear_ [^c]: Ruth 4:4 So with many Heb. mss., LXX, Syr., Tg., Vg.; MT _he_ [^d]: Ruth 4:5 Lit. _raise up_ [^e]: Ruth 4:10 Probably his civic office [^f]: Ruth 4:14 _redeemer,_ Heb. _goel_ [^g]: Ruth 4:15 _sustainer_ [^h]: Ruth 4:20 Heb. _Salmah_
+Obed begot Jesse, and Jesse begot David.

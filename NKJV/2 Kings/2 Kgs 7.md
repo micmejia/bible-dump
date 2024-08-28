@@ -67,4 +67,4 @@ So it happened just as the man of God had spoken to the king, saying, "Two seahs
 Then that officer had answered the man of God, and said, "Now look, _if_ the Lord would make windows in heaven, could such a thing be?" And he had said, "In fact, you shall see _it_ with your eyes, but you shall not eat of it." 
 
 ###### 20 
-And so it happened to him, for the people trampled him in the gate, and he died. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Kings 7:1 A third of an ephah, or about 8 gallons [^b]: 2 Kings 7:9 Calamity [^c]: 2 Kings 7:12 Hide themselves in ambush
+And so it happened to him, for the people trampled him in the gate, and he died.

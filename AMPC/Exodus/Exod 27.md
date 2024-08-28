@@ -448,4 +448,4 @@ You shall command the Israelites to provide you with pure oil of crushed olives 
 
 
 
-In the Tent of Meeting [of God with His people], outside the veil which sets apart the Testimony, Aaron and his sons shall keep it burning from evening to morning before the Lord. It shall be a statute to be observed on behalf of the Israelites throughout their generations. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+In the Tent of Meeting [of God with His people], outside the veil which sets apart the Testimony, Aaron and his sons shall keep it burning from evening to morning before the Lord. It shall be a statute to be observed on behalf of the Israelites throughout their generations.

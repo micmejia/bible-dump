@@ -427,4 +427,4 @@ But when Sanballat the Horonite and Tobiah the servant, the Ammonite, and Geshem
 
 
 
-I answered them, The God of heaven will prosper us; therefore we His servants will arise and build, but you have no portion or right or memorial in Jerusalem. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+I answered them, The God of heaven will prosper us; therefore we His servants will arise and build, but you have no portion or right or memorial in Jerusalem.

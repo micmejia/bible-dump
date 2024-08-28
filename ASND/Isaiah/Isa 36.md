@@ -733,4 +733,4 @@ Hindi sumagot ang mga tao dahil inutusan sila ni Haring Hezekia na huwag sumagot
 
 
 
-Pagkatapos, pinunit nina Eliakim, Shebna, at Joa ang damit nila <i class="trans-change">sa sobrang kalungkutan_. Bumalik sila kay Hezekia at ipinaalam ang lahat ng sinabi ng kumander ng mga sundalo. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 36:7 _sambahan niya sa matataas na lugar_<i class="alternate">:_ Tingnan sa Talaan ng mga Salita sa likod.
+Pagkatapos, pinunit nina Eliakim, Shebna, at Joa ang damit nila <i class="trans-change">sa sobrang kalungkutan_. Bumalik sila kay Hezekia at ipinaalam ang lahat ng sinabi ng kumander ng mga sundalo.

@@ -898,4 +898,4 @@ At ibibigay ko rin sa kanila ang tala sa umaga.[^c]
 
 
 
-"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng <i class="trans-change">Banal na_ Espiritu sa mga iglesya." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2:6 _Nicolaita_<i class="alternate">:_ Tingnan sa Talaan ng mga Salita sa likod. [^b]: 2:26-27 Tingnan ang Salmo 2:8-9. [^c]: 2:28 _tala sa umaga_<i class="alternate">:_ sa Ingles, <i class="alternate">“morning star.”_
+"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng <i class="trans-change">Banal na_ Espiritu sa mga iglesya."

@@ -502,4 +502,4 @@ Ang totoo, para silang mga dayaming madaling nasusunog. Ni hindi nga nila mailil
 
 
 
-Ano ngayon ang magagawa ng mga taong hinihingan mo ng payo mula nang bata ka pa? Ang bawat isa sa kanilaʼy naligaw ng landas at hindi makakapagligtas sa iyo. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 47:8 _Inaakala … anak_<i class="alternate">:_ Maaaring ang ibig sabihin ay inaakala niyang hindi siya mawawalan ng tagapagtanggol o tagatulong.
+Ano ngayon ang magagawa ng mga taong hinihingan mo ng payo mula nang bata ka pa? Ang bawat isa sa kanilaʼy naligaw ng landas at hindi makakapagligtas sa iyo.

@@ -1195,4 +1195,4 @@ Bawat panahon na dadalhin ang Kahon ng Kasunduan, sinasabi ni Moises, "O Pangino
 
 
 
-At kapag inihihinto na nila sa paglalakbay ang Kahon ng Kasunduan, sinasabi ni Moises, "Panginoon, bumalik na po kayo rito sa libu-libong mamamayan ng Israel." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 10:10 _Pista ng Pagsisimula ng Buwan_<i class="alternate">:_ Tingnan sa Talaan ng mga Salita sa likod.
+At kapag inihihinto na nila sa paglalakbay ang Kahon ng Kasunduan, sinasabi ni Moises, "Panginoon, bumalik na po kayo rito sa libu-libong mamamayan ng Israel."

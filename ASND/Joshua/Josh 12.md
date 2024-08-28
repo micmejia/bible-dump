@@ -667,4 +667,4 @@ ang hari ng Dor (sa Nafat Dor) ang hari ng Goyim (sa Gilgal)
 
 
 
-ang hari ng Tirza. Ang mga haring ito ay 31 lahat. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 12:1-2 _Lambak ng Jordan_<i class="alternate">:_ Tingnan ang “footnote” sa 11:2a. Ganito rin sa talatang 3 at 7. [^b]: 12:3 _Dagat na Patay_<i class="alternate">:_ sa Hebreo, <i class="alternate">Dagat ng Araba, ang pinakamaalat na dagat._ [^c]: 12:7-8 _kaburulan sa kanluran_<i class="alternate">:_ sa Hebreo, <i class="alternate">Shefela._
+ang hari ng Tirza. Ang mga haring ito ay 31 lahat.

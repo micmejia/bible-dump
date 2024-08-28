@@ -721,4 +721,4 @@ Now therefore, I pray you, let your servant remain instead of the youth [to be] 
 
 
 
-For how can I go up to my father if the lad is not with me?--lest I witness the woe _and_ the evil that will come upon my father. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For how can I go up to my father if the lad is not with me?--lest I witness the woe _and_ the evil that will come upon my father.

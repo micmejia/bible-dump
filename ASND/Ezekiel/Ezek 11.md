@@ -832,4 +832,4 @@ Pagkatapos, nakita ko sa pangitaing ibinigay sa akin ng Espiritu ng Dios, na ibi
 
 
 
-At isinalaysay ko sa mga bihag ang lahat ng <i class="trans-change">pangitain na_ ipinakita sa akin ng Panginoon. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 11:8 _digmaan_<i class="alternate">:_ sa literal, <i class="alternate">espada._
+At isinalaysay ko sa mga bihag ang lahat ng <i class="trans-change">pangitain na_ ipinakita sa akin ng Panginoon.

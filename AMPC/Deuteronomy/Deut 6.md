@@ -532,4 +532,4 @@ And the Lord commanded us to do all these statutes, to [reverently] fear the Lor
 
 
 
-And it will be accounted as righteousness (conformity to God's will in word, thought, and action) for us if we are watchful to do all this commandment before the Lord our God, as He has commanded us. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And it will be accounted as righteousness (conformity to God's will in word, thought, and action) for us if we are watchful to do all this commandment before the Lord our God, as He has commanded us.

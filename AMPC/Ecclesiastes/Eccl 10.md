@@ -427,4 +427,4 @@ Through indolence the rafters [of state affairs] decay _and_ the roof sinks in, 
 
 
 
-Curse not the king, no, not even in your thoughts, and curse not the rich in your bedchamber, for a bird of the air will carry the voice, and a winged creature will tell the matter. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Curse not the king, no, not even in your thoughts, and curse not the rich in your bedchamber, for a bird of the air will carry the voice, and a winged creature will tell the matter.

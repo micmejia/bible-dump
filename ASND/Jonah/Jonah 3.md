@@ -337,4 +337,4 @@ Baka sakaling magbago ang isip ng Dios at mawala ang kanyang galit sa atin at hi
 
 
 
-Nakita ng Dios ang kanilang ginawa, kung paano nila tinalikuran ang kanilang masamang pamumuhay. Kaya nagbago ang kanyang isip, at hindi na niya nilipol ang mga taga-Nineve gaya ng kanyang sinabi noon. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 3:5 _damit na panluksa_<i class="alternate">:_ sa Hebreo, <i class="alternate">sakong damit._ Ganito rin sa talatang 6 at 8.
+Nakita ng Dios ang kanilang ginawa, kung paano nila tinalikuran ang kanilang masamang pamumuhay. Kaya nagbago ang kanyang isip, at hindi na niya nilipol ang mga taga-Nineve gaya ng kanyang sinabi noon.

@@ -1393,4 +1393,4 @@ Kung hindi siya makakalaya at ang mga anak niya sa ganoong paraan, maaari pa rin
 
 
 
-<i class="trans-change">Kaya hindi kayo magiging alipin ng inyong mga kababayan magpakailanman,_ dahil alipin ko kayo, ako ang naglabas sa inyo mula sa Egipto. Ako ang Panginoon na inyong Dios. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 25:8-9 _Tuwing ika-49 na taon_<i class="alternate">:_ sa literal, <i class="alternate">pitong taon na Pamamahinga._
+<i class="trans-change">Kaya hindi kayo magiging alipin ng inyong mga kababayan magpakailanman,_ dahil alipin ko kayo, ako ang naglabas sa inyo mula sa Egipto. Ako ang Panginoon na inyong Dios.

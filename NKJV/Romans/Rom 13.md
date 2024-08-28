@@ -49,4 +49,4 @@ The night is far spent, the day is at hand. Therefore let us cast off the works 
 Let us walk [^c]properly, as in the day, not in revelry and drunkenness, not in lewdness and lust, not in strife and envy. 
 
 ###### 14 
-But put on the Lord Jesus Christ, and make no provision for the flesh, to _fulfill its_ lusts. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Romans 13:2 Lit. _receive_ [^b]: Romans 13:9 NU omits _“You shall not bear false witness,”_ [^c]: Romans 13:13 _decently_
+But put on the Lord Jesus Christ, and make no provision for the flesh, to _fulfill its_ lusts.

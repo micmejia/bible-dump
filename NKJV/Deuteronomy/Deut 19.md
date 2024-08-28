@@ -70,4 +70,4 @@ then you shall do to him as he thought to have done to his brother; so you shall
 And those who remain shall hear and fear, and hereafter they shall not again commit such evil among you. 
 
 ###### 21 
-Your eye shall not pity: life _shall be_ for life, eye for eye, tooth for tooth, hand for hand, foot for foot. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Deuteronomy 19:4 _ignorantly,_ lit. _without knowledge_ [^b]: Deuteronomy 19:13 _purge the blood of the innocent_
+Your eye shall not pity: life _shall be_ for life, eye for eye, tooth for tooth, hand for hand, foot for foot.

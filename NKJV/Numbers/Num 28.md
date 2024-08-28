@@ -100,4 +100,4 @@ and one-tenth for each of the seven lambs;
 _also_ one kid of the goats, to make [^e]atonement for you. 
 
 ###### 31 
-Be sure they are without [^f]blemish. You shall present _them_ with their drink offerings, besides the regular burnt offering with its grain offering. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Numbers 28:8 _pleasing_ [^b]: Numbers 28:18 _assembly_ or _gathering_ [^c]: Numbers 28:18 _occupational_ [^d]: Numbers 28:22 Lit. _covering_ [^e]: Numbers 28:30 Lit. _covering_ [^f]: Numbers 28:31 _defect_
+Be sure they are without [^f]blemish. You shall present _them_ with their drink offerings, besides the regular burnt offering with its grain offering.

@@ -535,4 +535,4 @@ Patutuyuin ng Panginoon ang Dagat ng Egipto at paiihipin ang mainit na hangin sa
 
 
 
-Kung paanong may malapad na daan na dinaanan ng mga mamamayan ng Israel noong umalis sila sa Egipto, mayroon ding malapad na daan para sa mga natitira niyang mga mamamayan sa Asiria. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 11:1 _David_<i class="alternate">:_ sa Hebreo, <i class="alternate">Jesse._ Siya ang ama ni David. [^b]: 11:11 _Etiopia_<i class="alternate">:_ sa Hebreo, <i class="alternate">Cush._
+Kung paanong may malapad na daan na dinaanan ng mga mamamayan ng Israel noong umalis sila sa Egipto, mayroon ding malapad na daan para sa mga natitira niyang mga mamamayan sa Asiria.

@@ -172,4 +172,4 @@ Sinabi ni Jeremias, "Baruc, ito ang sinabi sa iyo ng Panginoon, ang Dios ng Isra
 
 
 
-Huwag ka nang maghahangad pa ng mga dakilang bagay. Sapagkat pasasapitin ko ang kapahamakan sa lahat ng tao, pero ikaw ay ililigtas ko kahit saan ka pumunta. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito.' " ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Huwag ka nang maghahangad pa ng mga dakilang bagay. Sapagkat pasasapitin ko ang kapahamakan sa lahat ng tao, pero ikaw ay ililigtas ko kahit saan ka pumunta. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito.' "

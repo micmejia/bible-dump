@@ -97,4 +97,4 @@ They _are_ all stubborn rebels, walking as slanderers. _They are_ bronze and iro
 The bellows blow fiercely, The lead is consumed by the fire; The smelter refines in vain, For the wicked are not drawn off. 
 
 ###### 30 
-_People_ will call them rejected silver, Because the Lord has rejected them." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Jeremiah 6:7 _gushes_ [^b]: Jeremiah 6:7 _sickness_ [^c]: Jeremiah 6:14 Lit. _crushing_ [^d]: Jeremiah 6:14 Superficially [^e]: Jeremiah 6:24 _childbirth_
+_People_ will call them rejected silver, Because the Lord has rejected them."

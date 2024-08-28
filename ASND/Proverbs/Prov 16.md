@@ -1096,4 +1096,4 @@ Higit na mabuti ang taong mapagpasensya kaysa sa taong makapangyarihan. Higit na
 
 
 
-Nagpapalabunutan ang mga tao <i class="trans-change">upang malaman kung ano ang kanilang gagawin_, ngunit nasa Panginoon ang kapasyahan. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 16:31 _Ang katandaan … karangalan_<i class="alternate">:_ sa literal, <i class="alternate">Ang mga uban ay korona ng karangalan._
+Nagpapalabunutan ang mga tao <i class="trans-change">upang malaman kung ano ang kanilang gagawin_, ngunit nasa Panginoon ang kapasyahan.

@@ -931,4 +931,4 @@ Rekem, Irpeel, Tarala,
 
 
 
-Zela, Haelef, Jebus (na siyang Jerusalem), Gibea at Kiriat Jearim[^b] – 14 na bayan, kasama ang mga baryo nito. Ito ang natanggap ng lahi ni Benjamin na hinati-hati ayon sa bawat sambahayan. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 18:18 _Lambak ng Jordan_<i class="alternate">:_ sa Hebreo, <i class="alternate">Araba._ [^b]: 18:28 _Kiriat Jearim_<i class="alternate">:_ Ito ang nasa tekstong Griego. Sa Hebreo, <i class="alternate">Kiriat._
+Zela, Haelef, Jebus (na siyang Jerusalem), Gibea at Kiriat Jearim[^b] – 14 na bayan, kasama ang mga baryo nito. Ito ang natanggap ng lahi ni Benjamin na hinati-hati ayon sa bawat sambahayan.

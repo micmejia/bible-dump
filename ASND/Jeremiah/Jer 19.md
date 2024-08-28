@@ -502,4 +502,4 @@ Nang masabi na ni Jeremias ang ipinapasabi ng Panginoon, umalis siya sa Tofet at
 
 
 
-"Makinig kayo, dahil ito ang sinasabi ng Panginoong Makapangyarihan, ang Dios ng Israel: Ipapadala ko sa lungsod na ito at sa mga baryo sa palibot ang sinabi kong parusa dahil matigas ang ulo nila at ayaw nilang makinig sa mga sinabi ko." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+"Makinig kayo, dahil ito ang sinasabi ng Panginoong Makapangyarihan, ang Dios ng Israel: Ipapadala ko sa lungsod na ito at sa mga baryo sa palibot ang sinabi kong parusa dahil matigas ang ulo nila at ayaw nilang makinig sa mga sinabi ko."

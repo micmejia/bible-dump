@@ -964,4 +964,4 @@ Huwag mong aalisin ang mga muhon[^b] na inilagay noon ng mga ninuno mo.
 
 
 
-Ang taong mahusay magtrabaho ay maglilingkod sa mga hari at hindi sa pangkaraniwang tao. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 22:21 _magtatanong sa iyo_<i class="alternate">:_ sa literal, <i class="alternate">nagsugo sa iyo._ [^b]: 22:28 _muhon_<i class="alternate">:_ Tanda ito ng hangganan ng lupa. Kung sa Ingles, <i class="alternate">landmark o boundary marker._
+Ang taong mahusay magtrabaho ay maglilingkod sa mga hari at hindi sa pangkaraniwang tao.

@@ -1030,4 +1030,4 @@ Ngayon, sinabi ni Jacob kina Simeon at Levi, "Binigyan ninyo ako ng malaking pro
 
 
 
-Pero sumagot ang dalawa, "Pababayaan lang ba namin na tratuhin ang kapatid namin na parang isang babaeng bayaran?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 34:7 _pamilya ni Jacob_<i class="alternate">:_ sa literal, <i class="alternate">mga Israelita._
+Pero sumagot ang dalawa, "Pababayaan lang ba namin na tratuhin ang kapatid namin na parang isang babaeng bayaran?"

@@ -337,4 +337,4 @@ Kasama nito ang mga bayan at baryo na sakop sa lupain ni Manase.
 
 
 
-Hindi nila pinalayas ang mga Cananeo na nakatira sa Gezer; kaya may mga Cananeo na nakatira kasama ng mga taga-Efraim hanggang ngayon, pero ginawa silang mga alipin. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 16:2 _na siyang Luz_<i class="alternate">:_ Ito ang nasa tekstong Griegong (tingnan din sa 18:13). Sa Hebreo, <i class="alternate">papunta sa Luz._
+Hindi nila pinalayas ang mga Cananeo na nakatira sa Gezer; kaya may mga Cananeo na nakatira kasama ng mga taga-Efraim hanggang ngayon, pero ginawa silang mga alipin.

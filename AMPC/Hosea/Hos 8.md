@@ -301,4 +301,4 @@ My sacrificial gifts they sacrifice [as a mere form]; yes, they sacrifice flesh 
 
 
 
-For Israel has forgotten his Maker and built palaces _and_ idol temples, and Judah has multiplied fortified cities; but I will send a fire upon his cities and it shall devour his palaces _and_ fortified buildings. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For Israel has forgotten his Maker and built palaces _and_ idol temples, and Judah has multiplied fortified cities; but I will send a fire upon his cities and it shall devour his palaces _and_ fortified buildings.

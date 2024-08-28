@@ -469,4 +469,4 @@ His sons come to honor, and he knows it not; they are brought low, and he percei
 
 
 
-But his body [lamenting its decay in the grave] shall grieve over him, and his soul shall mourn [over the body of clay which it once enlivened]. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But his body [lamenting its decay in the grave] shall grieve over him, and his soul shall mourn [over the body of clay which it once enlivened].

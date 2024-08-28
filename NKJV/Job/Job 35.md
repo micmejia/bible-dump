@@ -55,4 +55,4 @@ Although you say you do not see Him, _Yet_ justice _is_ before Him, and you must
 And now, because He has not punished in His anger, Nor taken much notice of folly, 
 
 ###### 16 
-Therefore Job opens his mouth in vain; He multiplies words without knowledge." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Therefore Job opens his mouth in vain; He multiplies words without knowledge."

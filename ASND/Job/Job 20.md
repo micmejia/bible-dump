@@ -964,4 +964,4 @@ Tatangayin ng baha ang bahay niya sa araw na ibuhos ng Dios ang kanyang galit.
 
 
 
-Iyan ang kapalaran ng taong masama ayon sa itinakda ng Dios sa kanya." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 20:16 _pangil_<i class="alternate">:_ sa literal, <i class="alternate">dila._ [^b]: 20:26 _tirahan_<i class="alternate">:_ sa literal, <i class="alternate">tolda._
+Iyan ang kapalaran ng taong masama ayon sa itinakda ng Dios sa kanya."

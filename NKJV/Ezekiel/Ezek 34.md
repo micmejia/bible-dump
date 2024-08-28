@@ -100,4 +100,4 @@ I will raise up for them a garden[^d] of renown, and they shall no longer be con
 Thus they shall know that I, the Lord their God, _am_ with them, and they, the house of Israel, _are_ My people," says the Lord God.' 
 
 ###### 31 
-"You are My flock, the flock of My pasture; you _are_ men, _and_ I _am_ your God," says the Lord God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Ezekiel 34:4 _harshness_ or _rigor_ [^b]: Ezekiel 34:13 Or _by the streams_ [^c]: Ezekiel 34:18 _remainder_ [^d]: Ezekiel 34:29 Lit. _planting place_
+"You are My flock, the flock of My pasture; you _are_ men, _and_ I _am_ your God," says the Lord God.

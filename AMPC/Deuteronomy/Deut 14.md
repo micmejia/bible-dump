@@ -616,4 +616,4 @@ At the end of every three years you shall bring forth all the tithe of your incr
 
 
 
-And the Levite [because he has no part or inheritance with you] and the stranger _or_ temporary resident, and the fatherless and the widow who are in your towns shall come and eat and be satisfied, so that the Lord your God may bless you in all the work of your hands that you do. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the Levite [because he has no part or inheritance with you] and the stranger _or_ temporary resident, and the fatherless and the widow who are in your towns shall come and eat and be satisfied, so that the Lord your God may bless you in all the work of your hands that you do.

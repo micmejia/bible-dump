@@ -406,4 +406,4 @@ Your holy people possessed Your sanctuary but a little while; our adversaries ha
 
 
 
-We have become [to You] like those over whom You never exercised rule, like those who were not called by Your name. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Isaiah 63:9 See footnote on Genesis 16:7.
+We have become [to You] like those over whom You never exercised rule, like those who were not called by Your name.

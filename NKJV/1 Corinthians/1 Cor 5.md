@@ -46,4 +46,4 @@ But now I have written to you not to keep company with anyone named a brother, w
 For what _have_ I _to do_ with judging those also who are outside? Do you not judge those who are inside? 
 
 ###### 13 
-But those who are outside God judges. Therefore "put away from yourselves the evil person." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Corinthians 5:1 NU omits _named_ [^b]: 1 Corinthians 5:2 _arrogant_ [^c]: 1 Corinthians 5:5 NU omits _Jesus_ [^d]: 1 Corinthians 5:7 _clean out_ [^e]: 1 Corinthians 5:7 NU omits _for us_ [^f]: 1 Corinthians 5:9 _associate_
+But those who are outside God judges. Therefore "put away from yourselves the evil person."

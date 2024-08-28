@@ -511,4 +511,4 @@ As for Titus, he is my colleague and shares my work in your service; and as for 
 
 
 
-Show to these men, therefore, in the sight of the churches, the reality _and_ plain truth of your love (your affection, goodwill, and benevolence) and what [good reasons] I had for boasting about _and_ being proud of you. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Corinthians 8:5 Joseph Thayer, _A Greek-English Lexicon_.
+Show to these men, therefore, in the sight of the churches, the reality _and_ plain truth of your love (your affection, goodwill, and benevolence) and what [good reasons] I had for boasting about _and_ being proud of you.

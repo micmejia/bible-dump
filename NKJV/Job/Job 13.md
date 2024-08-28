@@ -91,4 +91,4 @@ For You write bitter things against me, And make me inherit the iniquities of my
 You put my feet in the stocks, And watch closely all my paths. You [^d]set a limit for the [^e]soles of my feet. 
 
 ###### 28 
-"_Man_[^f] decays like a rotten thing, Like a garment that is moth-eaten. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 13:7 _unrighteously_ [^b]: Job 13:11 Lit. _exaltation_ [^c]: Job 13:13 _Be silent_ [^d]: Job 13:27 Lit. _inscribe a print_ [^e]: Job 13:27 Lit. _roots_ [^f]: Job 13:28 Lit. _He_
+"_Man_[^f] decays like a rotten thing, Like a garment that is moth-eaten.

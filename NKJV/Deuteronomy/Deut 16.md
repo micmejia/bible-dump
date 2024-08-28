@@ -73,4 +73,4 @@ You shall follow what is altogether just, that you may live and inherit the land
 "You shall not plant for yourself any tree, as a [^f]wooden image, near the altar which you build for yourself to the Lord your God. 
 
 ###### 22 
-You shall not set up a _sacred_ pillar, which the Lord your God hates. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Deuteronomy 16:8 Lit. _restraint_ [^b]: Deuteronomy 16:14 _towns_ [^c]: Deuteronomy 16:18 _towns_ [^d]: Deuteronomy 16:19 Lit. _regard faces_ [^e]: Deuteronomy 16:19 _perverts_ [^f]: Deuteronomy 16:21 Or _Asherah_
+You shall not set up a _sacred_ pillar, which the Lord your God hates.

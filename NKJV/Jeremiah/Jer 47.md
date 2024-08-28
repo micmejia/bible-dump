@@ -28,4 +28,4 @@ Baldness has come upon Gaza, Ashkelon is cut off _With_ the remnant of their val
 "O you sword of the Lord, How long until you are quiet? Put yourself up into your scabbard, Rest and be still! 
 
 ###### 7 
-How can [^c]it be quiet, Seeing the Lord has given it a charge Against Ashkelon and against the seashore? There He has appointed it." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Jeremiah 47:3 Lit. _From sinking hands_ [^b]: Jeremiah 47:4 Crete [^c]: Jeremiah 47:7 Lit. _you_
+How can [^c]it be quiet, Seeing the Lord has given it a charge Against Ashkelon and against the seashore? There He has appointed it."

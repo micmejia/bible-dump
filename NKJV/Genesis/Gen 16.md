@@ -55,4 +55,4 @@ Therefore the well was called Beer Lahai Roi;[^g] observe, _it is_ between Kades
 So Hagar bore Abram a son; and Abram named his son, whom Hagar bore, Ishmael. 
 
 ###### 16 
-Abram _was_ eighty-six years old when Hagar bore Ishmael to Abram. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 16:2 Lit. _be built up from_ [^b]: Genesis 16:4 _sight_ [^c]: Genesis 16:5 _The wrong done to me be_ [^d]: Genesis 16:11 Lit. _God Hears_ [^e]: Genesis 16:13 Heb. _El Roi_ [^f]: Genesis 16:13 Seen the back of [^g]: Genesis 16:14 Lit. _Well of the One Who Lives and Sees Me_
+Abram _was_ eighty-six years old when Hagar bore Ishmael to Abram.

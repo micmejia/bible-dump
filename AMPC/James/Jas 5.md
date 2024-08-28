@@ -426,4 +426,4 @@ And [then] he prayed again and the heavens supplied rain and the land produced i
 
 
 
-Let the [latter] one be sure that whoever turns a sinner from his evil course will save [that one's] soul from death and will cover a multitude of sins [[^a]procure the pardon of the many sins committed by the convert]. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: James 5:20 Adam Clarke, _The Holy Bible with A Commentary_ and many other translators.
+Let the [latter] one be sure that whoever turns a sinner from his evil course will save [that one's] soul from death and will cover a multitude of sins [[^a]procure the pardon of the many sins committed by the convert].

@@ -52,4 +52,4 @@ The sea gave up the dead who were in it, and Death and Hades delivered up the de
 Then Death and Hades were cast into the lake of fire. This is the second [^d]death. 
 
 ###### 15 
-And anyone not found written in the Book of Life was cast into the lake of fire. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Revelation 20:4 M _the_ [^b]: Revelation 20:10 NU, M _where also_ [^c]: Revelation 20:12 NU, M _the throne_ [^d]: Revelation 20:14 NU, M _death, the lake of fire._
+And anyone not found written in the Book of Life was cast into the lake of fire.

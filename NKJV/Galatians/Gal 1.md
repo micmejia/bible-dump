@@ -78,4 +78,4 @@ And I was unknown by face to the churches of Judea which _were_ in Christ.
 But they were hearing only, "He who formerly persecuted us now preaches the faith which he once _tried to_ destroy." 
 
 ###### 24 
-And they glorified God in me. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Galatians 1:7 _distort_ [^b]: Galatians 1:8 Gr. _anathema_ [^c]: Galatians 1:18 NU _Cephas_
+And they glorified God in me.

@@ -964,4 +964,4 @@ Ginamit ito sa paggawa ng mga pundasyon <i class="trans-change">ng mga haligi_ s
 
 
 
-Ginamit din ang mga tanso sa paggawa ng mga pundasyon <i class="trans-change">ng mga haligi_ sa palibot ng bakuran at ng pintuan nito, at sa paggawa ng lahat ng tulos ng Tolda at ng mga kurtina sa palibot nito. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 38:8 _Toldang Tipanan_<i class="alternate">:_ na tinatawag din na Toldang Sambahan.
+Ginamit din ang mga tanso sa paggawa ng mga pundasyon <i class="trans-change">ng mga haligi_ sa palibot ng bakuran at ng pintuan nito, at sa paggawa ng lahat ng tulos ng Tolda at ng mga kurtina sa palibot nito.

@@ -742,4 +742,4 @@ But now go, lead the people to the place of which I have told you. Behold, My [^
 
 
 
-And the Lord sent a plague upon the people because they made the calf which Aaron fashioned for them. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Exodus 32:34 See footnote on Gen. 16:7.
+And the Lord sent a plague upon the people because they made the calf which Aaron fashioned for them.

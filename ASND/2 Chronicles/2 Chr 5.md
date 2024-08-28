@@ -403,4 +403,4 @@ Ang mga mang-aawit ay nagpuri at nagpasalamat sa Panginoon na tinutugtugan ng mg
 
 
 
-Hindi na makaganap ang mga pari ng kanilang gawain <i class="trans-change">sa templo_ dahil sa ulap, dahil binalot ng makapangyarihang presensya ng Panginoon ang kanyang templo. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Hindi na makaganap ang mga pari ng kanilang gawain <i class="trans-change">sa templo_ dahil sa ulap, dahil binalot ng makapangyarihang presensya ng Panginoon ang kanyang templo.

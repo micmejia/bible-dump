@@ -535,4 +535,4 @@ Nadarama rin ng ating punong pari ang lahat ng kahinaan natin, dahil naranasan d
 
 
 
-Kaya huwag tayong mag-atubiling lumapit sa trono ng maawaing Dios para matanggap natin ang awa at biyayang makakatulong sa atin sa panahon ng pangangailangan. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 4:3 Salmo 95:11. [^b]: 4:4 Gen. 2:2. [^c]: 4:7 Salmo 95:7-8.
+Kaya huwag tayong mag-atubiling lumapit sa trono ng maawaing Dios para matanggap natin ang awa at biyayang makakatulong sa atin sa panahon ng pangangailangan.

@@ -784,4 +784,4 @@ Why do you gad _or_ wander about so much to change your way? You shall be put to
 
 
 
-From [Egypt] also you will come away with your hands upon your head, for the Lord has rejected those in whom you confide, and you will not prosper with [respect to] them. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Jeremiah 2:20 Another translation of the previous statement.
+From [Egypt] also you will come away with your hands upon your head, for the Lord has rejected those in whom you confide, and you will not prosper with [respect to] them.

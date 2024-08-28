@@ -259,4 +259,4 @@ Serve the Lord with reverent awe _and_ worshipful fear; rejoice _and_ be in high
 
 
 
-Kiss the Son [pay homage to Him in purity], lest He be angry and you perish in the way, for soon shall His wrath be kindled. O blessed (happy, fortunate, and to be envied) are all those who seek refuge _and_ put their trust in Him! ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Kiss the Son [pay homage to Him in purity], lest He be angry and you perish in the way, for soon shall His wrath be kindled. O blessed (happy, fortunate, and to be envied) are all those who seek refuge _and_ put their trust in Him!

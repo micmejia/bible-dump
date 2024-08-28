@@ -666,4 +666,4 @@ Ito ang mga lupaing tatanggapin ng mga lahi ng Israel na kanilang mamanahin. <i 
 
 
 
-Kaya ang kabuuang haba ng pader ay 9,000 metro. At mula sa araw na iyon, ang lungsod ay tatawaging, "Naroon ang Panginoon!" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 48:28 _Meribat Kadesh_<i class="alternate">:_ o, <i class="alternate">Meriba sa Kadesh._
+Kaya ang kabuuang haba ng pader ay 9,000 metro. At mula sa araw na iyon, ang lungsod ay tatawaging, "Naroon ang Panginoon!"

@@ -1063,4 +1063,4 @@ Alisin nʼyo ang anumang samaan ng loob, galit, pag-aaway, pambubulyaw, paninira
 
 
 
-Sa halip, maging mabait kayo at maawain sa isaʼt isa. At magpatawad kayo sa isaʼt isa gaya ng pagpapatawad ng Dios sa inyo dahil kay Cristo. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 4:8 Salmo 68:18. [^b]: 4:12 _pinabanal_<i class="alternate">:_ sa Griego, <i class="alternate">hagios._ Tingnan ang “footnote” sa 1:1. [^c]: 4:25 Zac. 8:16. [^d]: 4:26 Salmo 4:4.
+Sa halip, maging mabait kayo at maawain sa isaʼt isa. At magpatawad kayo sa isaʼt isa gaya ng pagpapatawad ng Dios sa inyo dahil kay Cristo.

@@ -832,4 +832,4 @@ may makakatakas <i class="trans-change">mula sa Jerusalem_ na siyang magbabalita
 
 
 
-Sa araw na iyon, muli kang makakapagsalita at makakapag-usap kayong dalawa. Magiging babala ka sa mga tao, at malalaman nilang ako ang Panginoon." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 24:10 _hanggang sa matuyo_<i class="alternate">:_ Ito ang nasa Septuagint. Sa Hebreo, <i class="alternate">at lagyan ng pampalasa._
+Sa araw na iyon, muli kang makakapagsalita at makakapag-usap kayong dalawa. Magiging babala ka sa mga tao, at malalaman nilang ako ang Panginoon."

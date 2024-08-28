@@ -58,4 +58,4 @@ And Samuel judged Israel all the days of his life.
 He went from year to year on a circuit to Bethel, Gilgal, and Mizpah, and judged Israel in all those places. 
 
 ###### 17 
-But he always returned to Ramah, for his home _was_ there. There he judged Israel, and there he built an altar to the Lord. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Samuel 7:3 Images of Canaanite goddesses [^b]: 1 Samuel 7:4 Images of Canaanite goddesses [^c]: 1 Samuel 7:11 _struck them down_ [^d]: 1 Samuel 7:12 Lit. _Stone of Help_
+But he always returned to Ramah, for his home _was_ there. There he judged Israel, and there he built an altar to the Lord.

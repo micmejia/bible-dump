@@ -58,4 +58,4 @@ Catch us the foxes, The little foxes that spoil the vines, For our vines _have_ 
 My beloved _is_ mine, and I _am_ his. He feeds _his flock_ among the lilies. 
 
 ###### 17 
-Until the day breaks And the shadows flee away, Turn, my beloved, And be like a gazelle Or a young stag Upon the mountains of [^d]Bether. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Song of Solomon 2:4 Lit. _house of wine_ [^b]: Song of Solomon 2:7 _adjure_ [^c]: Song of Solomon 2:14 Lit. _appearance_ [^d]: Song of Solomon 2:17 Lit. _Separation_
+Until the day breaks And the shadows flee away, Turn, my beloved, And be like a gazelle Or a young stag Upon the mountains of [^d]Bether.

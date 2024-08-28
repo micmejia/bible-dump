@@ -106,4 +106,4 @@ And he said, "Indeed now, I have taken it upon myself to speak to the Lord: Supp
 Then he said, "Let not the Lord be angry, and I will speak but once more: Suppose ten should be found there?" And He said, "I will not destroy _it_ for the sake of ten." 
 
 ###### 33 
-So the Lord went His way as soon as He had finished speaking with Abraham; and Abraham returned to his place. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 18:1 Heb. _Alon Mamre_ [^b]: Genesis 18:11 Lit. _the manner of women had ceased to be with Sarah_
+So the Lord went His way as soon as He had finished speaking with Abraham; and Abraham returned to his place.

@@ -60,4 +60,4 @@ Now may the Lord of peace Himself give you peace always in every way. The Lord _
 The salutation of Paul with my own hand, which is a sign in every [^f]epistle; so I write. 
 
 ###### 18 
-The grace of our Lord Jesus Christ _be_ with you all. Amen. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Thessalonians 3:6 NU, M _they_ [^b]: 2 Thessalonians 3:8 Lit. _for nothing_ [^c]: 2 Thessalonians 3:12 _encourage_ [^d]: 2 Thessalonians 3:14 _letter_ [^e]: 2 Thessalonians 3:15 _warn_ [^f]: 2 Thessalonians 3:17 _letter_
+The grace of our Lord Jesus Christ _be_ with you all. Amen.

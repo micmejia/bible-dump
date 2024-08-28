@@ -832,4 +832,4 @@ Kapag narinig nʼyo na parang may nagmamartsang mga sundalo sa taas na bahagi ng
 
 
 
-Ginawa nga ni David ang iniutos ng Panginoon sa kanya, at pinagpapatay nila ang mga Filisteo mula sa Geba[^b] hanggang sa Gezer. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 5:20 _Baal Perazim_<i class="alternate">:_ Ang ibig sabihin, <i class="alternate">ang Panginoon na sumasalakay._ [^b]: 5:25 _Geba_<i class="alternate">:_ Ito ang nasa tekstong Hebreo. Sa Septuagint at 1 Cro. 14:16, <i class="alternate">Gibeon._
+Ginawa nga ni David ang iniutos ng Panginoon sa kanya, at pinagpapatay nila ang mga Filisteo mula sa Geba[^b] hanggang sa Gezer.

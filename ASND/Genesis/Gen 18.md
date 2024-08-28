@@ -1096,4 +1096,4 @@ Muling nagsalita si Abraham, "Panginoon, huwag po sana kayong magagalit; huling 
 
 
 
-Pagkatapos nilang mag-usap, umalis ang Panginoon at si Abraham ay umuwi sa kanila. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 18:1 _malalaking puno_<i class="alternate">:_ Tingnan ang “footnote” sa 12:6. [^b]: 18:3 _Panginoon_<i class="alternate">:_ o, <i class="alternate">Ginoo._ Malalaman natin sa susunod na mga talata na ang nagpakita kay Abraham ay ang Panginoon kasama ang dalawang anghel.
+Pagkatapos nilang mag-usap, umalis ang Panginoon at si Abraham ay umuwi sa kanila.

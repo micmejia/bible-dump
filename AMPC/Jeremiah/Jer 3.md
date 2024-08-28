@@ -532,4 +532,4 @@ Truly in vain is the hope of salvation from the hills and from the tumult _and_ 
 
 
 
-Let us lie prostrate in our shame, and let our dishonor _and_ confusion cover us; for we have sinned against the Lord our God, we and our fathers; from our youth even to this day we have not obeyed the voice of the Lord our God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Let us lie prostrate in our shame, and let our dishonor _and_ confusion cover us; for we have sinned against the Lord our God, we and our fathers; from our youth even to this day we have not obeyed the voice of the Lord our God.

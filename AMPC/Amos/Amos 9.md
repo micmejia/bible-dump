@@ -321,4 +321,4 @@ And I will bring back the exiles of My people Israel, and they shall build the w
 
 
 
-And I will plant them upon their land, and they shall no more be torn up out of their land which I gave them, says the Lord your God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I will plant them upon their land, and they shall no more be torn up out of their land which I gave them, says the Lord your God.

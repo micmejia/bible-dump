@@ -535,4 +535,4 @@ Ibibigay ko sila sa mga kaaway nila na nagnanais pumatay sa kanila. At magiging 
 
 
 
-uutusan ko sila na muli kayong salakayin, sakupin at sunugin. Gagawin kong mapanglaw ang mga bayan ng Juda at wala nang maninirahan dito." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 34:6 _Haring Zedekia_<i class="alternate">:_ sa Hebreo, <i class="alternate">Haring Zedekia ng Juda._ [^b]: 34:18-19 _guya_<i class="alternate">:_ sa Ingles, <i class="alternate">“calf.”_
+uutusan ko sila na muli kayong salakayin, sakupin at sunugin. Gagawin kong mapanglaw ang mga bayan ng Juda at wala nang maninirahan dito."

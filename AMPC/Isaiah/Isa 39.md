@@ -175,4 +175,4 @@ And some of your own sons who are born to you shall be taken away, and they shal
 
 
 
-Then said Hezekiah to Isaiah, The word of the Lord which you have spoken is good. And he added, For there will be peace and faithfulness [to His promises to us] in my days. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then said Hezekiah to Isaiah, The word of the Lord which you have spoken is good. And he added, For there will be peace and faithfulness [to His promises to us] in my days.

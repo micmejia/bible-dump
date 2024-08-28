@@ -963,4 +963,4 @@ Hindi ninyo ito dapat piliin o palitan. Kung papalitan ninyo ito, ang inyong ipi
 
 
 
-Ito ang mga utos na ibinigay ng Panginoon kay Moises doon sa bundok ng Sinai para sa mga Israelita. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 27:12 _bibigyan … halaga_<i class="alternate">:_ Upang ito ay maipagbili at ang pera ay gagamitin sa Tolda o sa Toldang Tipanan. [^b]: 27:28 _lubusang itinalaga_<i class="alternate">:_ Ang ibig sabihin, ang anumang bagay na itinalaga sa Panginoon ay hindi na maaaring bawiin pa dahil itoʼy sa mga pari na magpakailanman.
+Ito ang mga utos na ibinigay ng Panginoon kay Moises doon sa bundok ng Sinai para sa mga Israelita.

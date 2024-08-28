@@ -448,4 +448,4 @@ Come, my people, enter your chambers and shut your doors behind you; hide yourse
 
 
 
-For behold, the Lord is coming out of His place [heaven] to punish the inhabitants of the earth for their iniquity; the earth also will disclose the blood shed upon her and will no longer cover her slain _and_ conceal her guilt. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Isaiah 26:1 _The Dead Sea Scrolls_ read, “You [Lord] have been to me a strong wall.”
+For behold, the Lord is coming out of His place [heaven] to punish the inhabitants of the earth for their iniquity; the earth also will disclose the blood shed upon her and will no longer cover her slain _and_ conceal her guilt.

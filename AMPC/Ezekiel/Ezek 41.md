@@ -553,4 +553,4 @@ And there were carved on them, on the doors of the temple, cherubim and palm tre
 
 
 
-And there were recessed windows and palm trees on the one side and on the other side of the porch. Thus were the side chambers and the canopies of the house. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Ezekiel 41:1 _The Septuagint_ (Greek translation of the Old Testament) does not contain this phrase, “which was the breadth of the tabernacle,” but most Hebrew manuscripts do contain it.
+And there were recessed windows and palm trees on the one side and on the other side of the porch. Thus were the side chambers and the canopies of the house.

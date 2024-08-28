@@ -616,4 +616,4 @@ Ahaziah went with Joram son of Ahab to war against Hazael king of Syria in Ramot
 
 
 
-King Joram returned to Jezreel to be healed of the wounds which the Syrians had given him at Ramah when he fought against Hazael king of Syria. And Ahaziah son of Jehoram king of Judah went down to see Joram son of Ahab in Jezreel, because he was sick. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+King Joram returned to Jezreel to be healed of the wounds which the Syrians had given him at Ramah when he fought against Hazael king of Syria. And Ahaziah son of Jehoram king of Judah went down to see Joram son of Ahab in Jezreel, because he was sick.

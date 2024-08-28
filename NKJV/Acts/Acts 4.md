@@ -118,4 +118,4 @@ and laid _them_ at the apostles' feet; and they distributed to each as anyone ha
 And [^d]Joses, who was also named Barnabas by the apostles (which is translated Son of [^e]Encouragement), a Levite of the country of Cyprus, 
 
 ###### 37 
-having land, sold _it,_ and brought the money and laid _it_ at the apostles' feet. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Acts 4:16 _remarkable sign_ [^b]: Acts 4:16 _well known_ [^c]: Acts 4:25 NU _through the Holy Spirit, by the mouth of our father, Your servant David,_ [^d]: Acts 4:36 NU _Joseph_ [^e]: Acts 4:36 Or _Consolation_
+having land, sold _it,_ and brought the money and laid _it_ at the apostles' feet.

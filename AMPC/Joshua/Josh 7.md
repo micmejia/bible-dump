@@ -553,4 +553,4 @@ And Joshua said, Why have you brought trouble on us? The Lord will trouble you t
 
 
 
-And they raised over him a great heap of stones that remains to this day. Then the Lord turned from the fierceness of His anger. Therefore the name of that place has been called the Valley of Achor _or_ Troubling to this day. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And they raised over him a great heap of stones that remains to this day. Then the Lord turned from the fierceness of His anger. Therefore the name of that place has been called the Valley of Achor _or_ Troubling to this day.

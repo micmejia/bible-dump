@@ -22,4 +22,4 @@ And I said to her, "You shall stay with me many days; you shall not play the har
 For the children of Israel shall abide many days without king or prince, without sacrifice or _sacred_ pillar, without ephod or teraphim. 
 
 ###### 5 
-Afterward the children of Israel shall return and seek the Lord their God and David their king. They shall fear the Lord and His goodness in the latter days. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Hosea 3:1 Lit. _friend_ or _husband_
+Afterward the children of Israel shall return and seek the Lord their God and David their king. They shall fear the Lord and His goodness in the latter days.

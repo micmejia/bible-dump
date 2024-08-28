@@ -831,4 +831,4 @@ Ikumusta nʼyo kami sa mga namumuno sa inyo at sa lahat ng mga pinabanal[^c] <i 
 
 
 
-Pagpalain nawa kayong lahat <i class="trans-change">ng Dios_. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 13:5 Deu. 31:6-8. [^b]: 13:6 Salmo 118:6. [^c]: 13:24 _pinabanal_<i class="alternate">:_ sa Griego, <i class="alternate">hagios,_ na ang ibig sabihin ay itinuring ng Dios para sa kanya.
+Pagpalain nawa kayong lahat <i class="trans-change">ng Dios_.

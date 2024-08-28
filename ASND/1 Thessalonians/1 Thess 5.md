@@ -930,4 +930,4 @@ Iniuutos ko sa inyo, sa pangalan ng Panginoon, na basahin ninyo ang liham na ito
 
 
 
-Pagpalain nawa kayo ng Panginoong Jesu-Cristo. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 5:7 sa literal, <i class="alternate">Sapagkat ang taong natutulog ay sa gabi natutulog; at ang taong naglalasing ay sa gabi naglalasing._ [^b]: 5:26 sa literal, <i class="alternate">Batiin nʼyo ng banal na halik ang lahat ng mga kapatid._
+Pagpalain nawa kayo ng Panginoong Jesu-Cristo.

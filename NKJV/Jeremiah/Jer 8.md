@@ -73,4 +73,4 @@ Listen! The voice, The cry of the daughter of my people From a far country: "_Is
 For the hurt of the daughter of my people I am hurt. I am mourning; Astonishment has taken hold of me. 
 
 ###### 22 
-_Is there_ no balm in Gilead, _Is there_ no physician there? Why then is there no recovery For the health of the daughter of my people? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Jeremiah 8:3 _remnant_ [^b]: Jeremiah 8:11 Superficially [^c]: Jeremiah 8:13 Or _take them away_ [^d]: Jeremiah 8:14 Bitter or poisonous water
+_Is there_ no balm in Gilead, _Is there_ no physician there? Why then is there no recovery For the health of the daughter of my people?

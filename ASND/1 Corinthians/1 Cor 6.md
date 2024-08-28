@@ -601,4 +601,4 @@ Hindi baʼt ang katawan ninyo ay templo ng Banal na Espiritung nasa inyo at tina
 
 
 
-dahil tinubos kayo ng Dios sa napakalaking halaga. Kaya gamitin ninyo ang inyong katawan sa paraang ikapupuri ng Dios. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 6:1 _sumasampalataya sa Dios_<i class="alternate">:_ o, <i class="alternate">banal._ Sa Griego, <i class="alternate">hagios,_ na ang ibig sabihin ay itinuring ng Dios na sa kanya. [^b]: 6:9-10 _imoral_<i class="alternate">:_ Ang ibig sabihin dito ay ang gumagawa ng sekswal na imoralidad. [^c]: 6:16 Gen. 2:24.
+dahil tinubos kayo ng Dios sa napakalaking halaga. Kaya gamitin ninyo ang inyong katawan sa paraang ikapupuri ng Dios.

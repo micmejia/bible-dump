@@ -868,4 +868,4 @@ When they couch in their dens or lie in wait in their hiding place?
 
 
 
-Who provides for the raven its prey when its young ones cry to God and wander about for lack of food? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 38:19 How, except by divine inspiration, could Job have known that light does not dwell in a place, but a way? For light, as modern man has discovered, involves motion (wave motion). Traveling 186,000 miles a second, it can only dwell in a way.
+Who provides for the raven its prey when its young ones cry to God and wander about for lack of food?

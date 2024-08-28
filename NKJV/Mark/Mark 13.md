@@ -118,4 +118,4 @@ Watch therefore, for you do not know when the master of the house is coming--in 
 lest, coming suddenly, he find you sleeping. 
 
 ###### 37 
-And what I say to you, I say to all: Watch!" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Mark 13:8 NU omits _and troubles_ [^b]: Mark 13:8 Lit. _birth pangs_ [^c]: Mark 13:9 NU, M _stand_ [^d]: Mark 13:11 NU omits _or premeditate_ [^e]: Mark 13:13 _bears patiently_ [^f]: Mark 13:14 NU omits _spoken of by Daniel the prophet_ [^g]: Mark 13:22 _chosen ones_ [^h]: Mark 13:27 _chosen ones_ [^i]: Mark 13:29 Or _He_
+And what I say to you, I say to all: Watch!"

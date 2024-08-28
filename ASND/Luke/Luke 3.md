@@ -1195,4 +1195,4 @@ Si Lamec ay anak ni Metusela, na anak ni Enoc. Si Enoc ay anak ni Jared, na anak
 
 
 
-Si Enosh ay anak ni Set, na anak ni Adan. At si Adan ay anak ng Dios. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 3:6 Isa. 40:3-5. [^b]: 3:16 _Ni hindi ako karapat-dapat na maging alipin niya_<i class="alternate">:_ sa literal, <i class="alternate">Hindi man lang ako karapat-dapat na magkalag ng tali ng kanyang sandalyas._
+Si Enosh ay anak ni Set, na anak ni Adan. At si Adan ay anak ng Dios.

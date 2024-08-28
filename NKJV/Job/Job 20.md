@@ -94,4 +94,4 @@ The heavens will reveal his iniquity, And the earth will rise up against him.
 The increase of his house will depart, _And his goods_ will flow away in the day of His wrath. 
 
 ###### 29 
-This _is_ the portion from God for a wicked man, The heritage appointed to him by God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 20:3 Lit. _of my insulting correction_ [^b]: Job 20:13 Lit. _palate_ [^c]: Job 20:19 _crushed_ [^d]: Job 20:20 Lit. _belly_ [^e]: Job 20:22 Or _the wretched_ or _sufferer_ [^f]: Job 20:25 Gallbladder
+This _is_ the portion from God for a wicked man, The heritage appointed to him by God."

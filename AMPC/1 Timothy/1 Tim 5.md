@@ -532,4 +532,4 @@ The sins of some men are conspicuous (openly evident to all eyes), going before 
 
 
 
-So also, good deeds are evident _and_ conspicuous, and even when they are not, they cannot remain hidden [indefinitely]. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Timothy 5:17 Marvin Vincent, _Word Studies_.
+So also, good deeds are evident _and_ conspicuous, and even when they are not, they cannot remain hidden [indefinitely].

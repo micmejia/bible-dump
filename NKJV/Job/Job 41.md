@@ -109,4 +109,4 @@ He leaves a shining wake behind him; _One_ would think the deep had white hair.
 On earth there is nothing like him, Which is made without fear. 
 
 ###### 34 
-He beholds every high _thing;_ He _is_ king over all the children of pride." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 41:1 A large sea creature, exact identity unknown [^b]: Job 41:2 _thorn_ [^c]: Job 41:6 Or _bargain over him_ [^d]: Job 41:12 Lit. _keep silent about_ [^e]: Job 41:13 Lit. _take off the face of his garment_ [^f]: Job 41:15 Lit. _shields_ [^g]: Job 41:22 _despair_ [^h]: Job 41:25 Or _purify themselves_
+He beholds every high _thing;_ He _is_ king over all the children of pride."

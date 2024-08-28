@@ -634,4 +634,4 @@ At sino ba ang isinumpa ng Dios na hindi makakamtan ang kapahingahan? Hindi baʼ
 
 
 
-Kaya malinaw na hindi nila nakamtan <i class="trans-change">ang kapahingahan_ dahil sa kawalan ng pananampalataya <i class="trans-change">sa Dios_. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 3:4 _Ngunit_<i class="alternate">:_ o, <i class="alternate">At._ [^b]: 3:11 <i class="alternate">Salmo 95:7-11._ [^c]: 3:15 Salmo 95:7-8.
+Kaya malinaw na hindi nila nakamtan <i class="trans-change">ang kapahingahan_ dahil sa kawalan ng pananampalataya <i class="trans-change">sa Dios_.

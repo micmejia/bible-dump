@@ -154,4 +154,4 @@ O you sword of the Lord, how long will it be before you are quiet? Put yourself 
 
 
 
-How can it [the sword of the Lord] be quiet when the Lord has given it an assignment to discharge? Against Ashkelon and against the [whole Philistine] seashore He has appointed it. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+How can it [the sword of the Lord] be quiet when the Lord has given it an assignment to discharge? Against Ashkelon and against the [whole Philistine] seashore He has appointed it.

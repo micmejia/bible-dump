@@ -343,4 +343,4 @@ So Miriam was shut up without the camp for seven days, and the people did not jo
 
 
 
-Afterward [they] removed from Hazeroth and encamped in the Wilderness of Paran. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Numbers 12:1 Zipporah, Moses’ wife, seems to have died some time before. Marriage with a Canaanite was forbidden, but not with an Egyptian or Cushite. Joseph’s wife was an Egyptian (Gen. 41:45).
+Afterward [they] removed from Hazeroth and encamped in the Wilderness of Paran.

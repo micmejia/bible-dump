@@ -145,4 +145,4 @@ I was a stranger and you did not take Me in, naked and you did not clothe Me, si
 Then He will answer them, saying, 'Assuredly, I say to you, inasmuch as you did not do _it_ to one of the least of these, you did not do _it_ to Me.' 
 
 ###### 46 
-And these will go away into everlasting punishment, but the righteous into eternal life." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Matthew 25:6 NU omits _is coming_ [^b]: Matthew 25:13 NU omits the rest of v. [13]. [^c]: Matthew 25:31 NU omits _holy_ [^d]: Matthew 25:44 NU, M omit _Him_
+And these will go away into everlasting punishment, but the righteous into eternal life."

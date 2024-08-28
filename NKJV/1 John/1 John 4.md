@@ -70,4 +70,4 @@ We love [^c]Him because He first loved us. ## Obedience by Faith
 If someone says, "I love God," and hates his brother, he is a liar; for he who does not love his brother whom he has seen, [^d]how can he love God whom he has not seen? 
 
 ###### 21 
-And this commandment we have from Him: that he who loves God _must_ love his brother also. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 John 4:3 NU omits _that_ [^b]: 1 John 4:3 NU omits _Christ has come in the flesh_ [^c]: 1 John 4:19 NU omits _Him_ [^d]: 1 John 4:20 NU _he cannot_
+And this commandment we have from Him: that he who loves God _must_ love his brother also.

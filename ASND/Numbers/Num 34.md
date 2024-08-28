@@ -568,4 +568,4 @@ At pumili ka ng isang pinuno sa bawat lahi para tulungan sila sa paghahati ng lu
 
 
 
-Sila ang mga pinili ng Panginoon para tumulong sa paghahati-hati ng lupain ng Canaan bilang mana ng mga Israelita. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 34:3 _Dagat na Patay_<i class="alternate">:_ sa literal, <i class="alternate">napakaalat na dagat._ Ganito rin sa talatang 12. [^b]: 34:11 _Lawa ng Galilea_<i class="alternate">:_ sa Hebreo, <i class="alternate">Lawa ng Kineret._
+Sila ang mga pinili ng Panginoon para tumulong sa paghahati-hati ng lupain ng Canaan bilang mana ng mga Israelita.

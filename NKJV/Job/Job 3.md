@@ -85,4 +85,4 @@ For my sighing comes before [^h]I eat, And my groanings pour out like water.
 For the thing I greatly feared has come upon me, And what I dreaded has happened to me. 
 
 ###### 26 
-I am not at ease, nor am I quiet; I have no rest, for trouble comes." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 3:2 Lit. _answered_ [^b]: Job 3:6 LXX, Syr., Tg., Vg. _be joined_ [^c]: Job 3:9 _eyelids of the dawn_ [^d]: Job 3:11 _expire_ [^e]: Job 3:17 Lit. _weary of strength_ [^f]: Job 3:18 _are at ease_ [^g]: Job 3:21 Lit. _wait_ [^h]: Job 3:24 Lit. _my bread_
+I am not at ease, nor am I quiet; I have no rest, for trouble comes."

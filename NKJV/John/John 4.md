@@ -169,4 +169,4 @@ Then he inquired of them the hour when he got better. And they said to him, "Yes
 So the father knew that _it was_ at the same hour in which Jesus said to him, "Your son lives." And he himself believed, and his whole household. 
 
 ###### 54 
-This again _is_ the second sign Jesus did when He had come out of Judea into Galilee. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: John 4:42 NU omits _the Christ_ [^b]: John 4:46 _royal official_
+This again _is_ the second sign Jesus did when He had come out of Judea into Galilee.

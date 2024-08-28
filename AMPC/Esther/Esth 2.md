@@ -490,4 +490,4 @@ And this was known to Mordecai, who told it to Queen Esther, and Esther told the
 
 
 
-When it was investigated and found to be true, both men were hanged on the gallows. And it was recorded in the Book of the Chronicles in the king's presence. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Esther 2:11 So says _The Septuagint_ (Greek translation of the Old Testament). [^b]: Esther 2:20 So _The Septuagint_ (Greek translation of the Old Testament) reads. The name of God is nowhere mentioned directly in the Hebrew text.
+When it was investigated and found to be true, both men were hanged on the gallows. And it was recorded in the Book of the Chronicles in the king's presence.

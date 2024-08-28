@@ -448,4 +448,4 @@ The Hittites, the Perizzites, the Rephaim,
 
 
 
-The Amorites, the Canaanites, the Girgashites, and the Jebusites. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 15:1 The reference is to the Lord as Abram’s King. [^b]: Genesis 15:16 This prophecy was literally fulfilled. Moses, for example, who led the Israelites back to Canaan after their 400 years in Egypt, was “in the fourth generation” from Jacob—Levi, Kohath, Amram, Moses. [^c]: Genesis 15:16 The most important and powerful group of that region. The name “Amorite” later became virtually synonymous with that of the inhabitants of Canaan generally.
+The Amorites, the Canaanites, the Girgashites, and the Jebusites.

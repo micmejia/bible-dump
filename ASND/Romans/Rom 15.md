@@ -1096,4 +1096,4 @@ Sa ganoon, masaya akong darating diyan sa inyo kung loloobin ng Dios, at makakap
 
 
 
-Patnubayan nawa kayo ng Dios na nagbibigay ng kapayapaan. Amen. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 15:3 Salmo 69:9. [^b]: 15:9 2 Sam. 22:50; Salmo 18:49. [^c]: 15:10 Deu. 32:43. [^d]: 15:11 Salmo 117:1. [^e]: 15:12 Isa. 11:10. [^f]: 15:21 Isa. 52:15. [^g]: 15:25 _pinabanal_<i class="alternate">:_ sa Griego, <i class="alternate">hagios,_ na ang ibig sabihin ay itinuring ng Dios na sa kanya. Ganito rin sa mga talatang 26 at 31.
+Patnubayan nawa kayo ng Dios na nagbibigay ng kapayapaan. Amen.

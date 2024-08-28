@@ -865,4 +865,4 @@ At ito <i class="trans-change">ang mga lahi_ na tatayo sa Bundok ng Ebal para su
 
 
 
-"Sumpain ang tao na hindi susunod o gagawa sa lahat ng utos na ito." At sasagot ang lahat ng tao, "Amen!" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 27:3 _maganda at masaganang lupain_<i class="alternate">:_ sa literal, <i class="alternate">lupain na dumadaloy ang gatas at pulot._ [^b]: 27:15 _Amen_<i class="alternate">:_ Ang ibig sabihin, <i class="alternate">Siya nawa._
+"Sumpain ang tao na hindi susunod o gagawa sa lahat ng utos na ito." At sasagot ang lahat ng tao, "Amen!"

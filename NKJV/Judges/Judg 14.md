@@ -67,4 +67,4 @@ So the men of the city said to him on the seventh day before the sun went down: 
 Then the Spirit of the Lord came upon him mightily, and he went down to Ashkelon and killed thirty of their men, took their apparel, and gave the changes _of clothing_ to those who had explained the riddle. So his anger was aroused, and he went back up to his father's house. 
 
 ###### 20 
-And Samson's wife was _given_ to his companion, who had been his best man. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Judges 14:3 Lit. _she is right in my eyes_ [^b]: Judges 14:15 So with MT, Tg., Vg.; LXX, Syr. _fourth_
+And Samson's wife was _given_ to his companion, who had been his best man.

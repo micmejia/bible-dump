@@ -91,4 +91,4 @@ From there they sailed to Antioch, where they had been commended to the grace of
 Now when they had come and gathered the church together, they reported all that God had done with them, and that He had opened the door of faith to the Gentiles. 
 
 ###### 28 
-So they stayed there a long time with the disciples. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Acts 14:2 _embittered_ [^b]: Acts 14:2 Lit. _souls_ [^c]: Acts 14:9 Lit. _Who_ [^d]: Acts 14:12 _Jupiter_ [^e]: Acts 14:12 _Mercury_
+So they stayed there a long time with the disciples.

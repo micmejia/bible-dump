@@ -637,4 +637,4 @@ And Balaam said to Balak, Build me here seven altars, and prepare me here seven 
 
 
 
-And Balak did as Balaam had said, and offered a bull and a ram on each altar. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Numbers 23:9 The literal fulfillment of this prophecy has been obvious during the more than thirty-four centuries since it was spoken. The Jews have always been separate as a nation from other peoples. Though conquered many times, they have never been absorbed by their conquerors or lost their identity. The prophecy had to become true, for “the Lord put [it]... in Balaam’s mouth” (Num. 23:5).
+And Balak did as Balaam had said, and offered a bull and a ram on each altar.

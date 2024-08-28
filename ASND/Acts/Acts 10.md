@@ -1525,4 +1525,4 @@ Dahil narinig nilang nagsasalita sila ng ibaʼt ibang wika <i class="trans-chang
 
 
 
-At iniutos ni Pedro na bautismuhan sila sa pangalan ni Jesu-Cristo. Pagkatapos noon, pinakiusapan nila si Pedro na manatili muna sa kanila ng ilang araw. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 10:6 _mangungulti ng balat_<i class="alternate">:_ sa Ingles, <i class="alternate">tanner._ [^b]: 10:9 Ang kanilang mga bubong noon ay pantay, at minsan doon sila nagpapahinga.
+At iniutos ni Pedro na bautismuhan sila sa pangalan ni Jesu-Cristo. Pagkatapos noon, pinakiusapan nila si Pedro na manatili muna sa kanila ng ilang araw.

@@ -742,4 +742,4 @@ But when Pharaoh saw that the rain, the hail, and the thunder had ceased, he sin
 
 
 
-So Pharaoh's heart was strong _and_ obstinate; he would not let the Israelites go, just as the Lord had said by Moses. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So Pharaoh's heart was strong _and_ obstinate; he would not let the Israelites go, just as the Lord had said by Moses.

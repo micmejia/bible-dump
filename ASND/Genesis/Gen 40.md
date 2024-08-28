@@ -700,4 +700,4 @@ Pero <i class="trans-change">ipinapatay niya_ ang pinuno ng mga panadero, <i cla
 
 
 
-Pero hindi naalala ng pinuno ng mga tagasilbi ng alak si Jose. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 40:1-2 _Faraon_<i class="alternate">:_ o, <i class="alternate">hari ng Egipto. Ganoon din sa talatang 5, 11, 13, 14, 17, 19, at 20._
+Pero hindi naalala ng pinuno ng mga tagasilbi ng alak si Jose.

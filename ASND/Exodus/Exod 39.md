@@ -1360,4 +1360,4 @@ Ginawa ng mga Israelita ang lahat ng gawain ayon sa iniutos ng Panginoon kay Moi
 
 
 
-Tiningnan ni Moises ang trabaho nila, at nakita niya na ginawa nilang lahat iyon ayon sa iniutos ng Panginoon. Kaya binasbasan sila ni Moises. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 39:2 _espesyal na damit_<i class="alternate">:_ sa Hebreo, <i class="alternate">efod._ [^b]: 39:6 _Jacob_<i class="alternate">:_ sa Hebreo, <i class="alternate">Israel._
+Tiningnan ni Moises ang trabaho nila, at nakita niya na ginawa nilang lahat iyon ayon sa iniutos ng Panginoon. Kaya binasbasan sila ni Moises.

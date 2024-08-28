@@ -616,4 +616,4 @@ And now, O Lord God, You are God, and Your words are truth, and You have promise
 
 
 
-Therefore now let it please You to bless the house of Your servant, that it may continue forever before You; for You, O Lord God, have spoken it, and with Your blessing let [his] house be blessed forever. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Samuel 7:13 “Name” is equivalent to “Me” in II Sam. 7:5. See also footnote on Deut. 12:5.
+Therefore now let it please You to bless the house of Your servant, that it may continue forever before You; for You, O Lord God, have spoken it, and with Your blessing let [his] house be blessed forever.

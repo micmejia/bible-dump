@@ -1261,4 +1261,4 @@ Pagkaahon nila sa tubig, bigla na lang kinuha si Felipe ng Espiritu ng Panginoon
 
 
 
-Namalayan na lang ni Felipe na siyaʼy nasa lugar na ng Azotus.[^b] Nangaral siya ng Magandang Balita sa mga bayan na dinadaanan niya hanggang makarating siya sa Cesarea. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 8:28 _karwahe_<i class="alternate">:_ sa Ingles, <i class="alternate">“chariot.”_ [^b]: 8:40 _Azotus_<i class="alternate">:_ o, <i class="alternate">Ashdod._
+Namalayan na lang ni Felipe na siyaʼy nasa lugar na ng Azotus.[^b] Nangaral siya ng Magandang Balita sa mga bayan na dinadaanan niya hanggang makarating siya sa Cesarea.

@@ -1063,4 +1063,4 @@ Nagtanim si Abraham ng isang punongkahoy na tamarisko roon sa Beersheba at sumam
 
 
 
-Nanirahan si Abraham sa lupain ng mga Filisteo sa mahabang panahon. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 21:22 _Nang panahong iyon_<i class="alternate">:_ Nang pinaalis ni Abraham si Hagar at si Ishmael; o, <i class="alternate">Nang namumuhay na sila sa ilang ng Paran._ [^b]: 21:31 _Beersheba_<i class="alternate">:_ Ang ibig sabihin, <i class="alternate">pinanumpaang balon._
+Nanirahan si Abraham sa lupain ng mga Filisteo sa mahabang panahon.

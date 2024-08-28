@@ -1657,4 +1657,4 @@ Ang mga kasama niya sa pagkain ay nagtanong sa kanilang sarili, "Sino kaya ito n
 
 
 
-Sinabi ni Jesus sa babae, "Iniligtas ka ng iyong pananampalataya. Umuwi kang mapayapa." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 7:23 _nagdududa_<i class="alternate">:_ o, <i class="alternate">nabibigo._ [^b]: 7:27 Tingnan ang Mal. 3:1. [^c]: 7:35 o, <i class="alternate">Gayunman, ang karunungan_ na ipinangangaral namin ay napatunayang totoo sa buhay ng mga taong tumanggap nito.
+Sinabi ni Jesus sa babae, "Iniligtas ka ng iyong pananampalataya. Umuwi kang mapayapa."

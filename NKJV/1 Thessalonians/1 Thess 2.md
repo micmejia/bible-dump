@@ -67,4 +67,4 @@ Therefore we wanted to come to you--even I, Paul, time and again--but Satan hind
 For what _is_ our hope, or joy, or crown of rejoicing? _Is it_ not even you in the presence of our Lord Jesus Christ at His coming? 
 
 ###### 20 
-For you are our glory and joy. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Thessalonians 2:2 NU, M omit _even_ [^b]: 1 Thessalonians 2:5 _pretext for greed_ [^c]: 1 Thessalonians 2:11 NU, M _implored_ [^d]: 1 Thessalonians 2:15 _hostile_
+For you are our glory and joy.

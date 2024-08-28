@@ -369,4 +369,4 @@ Sinabi sa kanya ng Panginoon, "Nanghinayang ka nga sa halamang iyon na tumubo sa
 
 
 
-Ako pa kaya ang hindi manghinayang sa malaking lungsod ng Nineve na may mahigit 120,000 tao na walang alam tungkol sa aking mga kautusan[^a] at marami ring mga hayop?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 4:11 _na walang alam … mga kautusan_<i class="alternate">:_ sa literal, <i class="alternate">na hindi alam kung alin ang kanilang kanan o kaliwang kamay._
+Ako pa kaya ang hindi manghinayang sa malaking lungsod ng Nineve na may mahigit 120,000 tao na walang alam tungkol sa aking mga kautusan[^a] at marami ring mga hayop?"

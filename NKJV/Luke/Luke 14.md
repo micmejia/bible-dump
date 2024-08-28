@@ -112,4 +112,4 @@ So likewise, whoever of you does not forsake all that he has cannot be My discip
 "Salt _is_ good; but if the salt has lost its flavor, how shall it be seasoned? 
 
 ###### 35 
-It is neither fit for the land nor for the [^g]dunghill, _but_ men throw it out. He who has ears to hear, let him hear!" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Luke 14:3 NU adds _or not_ [^b]: Luke 14:5 NU, M _son_ [^c]: Luke 14:11 _put down_ [^d]: Luke 14:13 _crippled_ [^e]: Luke 14:15 M _dinner_ [^f]: Luke 14:21 _crippled_ [^g]: Luke 14:35 _rubbish heap_
+It is neither fit for the land nor for the [^g]dunghill, _but_ men throw it out. He who has ears to hear, let him hear!"

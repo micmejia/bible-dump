@@ -997,4 +997,4 @@ At ang sinumang nag-iwan ng kanyang bahay, mga kapatid, mga magulang, mga anak, 
 
 
 
-Maraming dakila ngayon na magiging hamak, at maraming hamak ngayon na magiging dakila." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 19:4 Gen. 1:27; 5:2. [^b]: 19:5 Gen. 2:24. [^c]: 19:7 Deu. 24:1. [^d]: 19:19 Exo. 20:12-16; Deu. 5:16-20. [^e]: 19:19 Lev. 19:18. [^f]: 19:28 _husgahan_<i class="alternate">:_ o, <i class="alternate">pamumunuan._
+Maraming dakila ngayon na magiging hamak, at maraming hamak ngayon na magiging dakila."

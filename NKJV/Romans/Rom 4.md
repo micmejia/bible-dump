@@ -82,4 +82,4 @@ Now it was not written for his sake alone that it was imputed to him,
 but also for us. It shall be imputed to us who believe in Him who raised up Jesus our Lord from the dead, 
 
 ###### 25 
-who was delivered up because of our offenses, and was raised because of our justification. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Romans 4:1 Or _(fore)father according to the flesh has found?_ [^b]: Romans 4:3 _imputed, credited, reckoned, counted_ [^c]: Romans 4:4 _according to_ [^d]: Romans 4:16 _certain_
+who was delivered up because of our offenses, and was raised because of our justification.

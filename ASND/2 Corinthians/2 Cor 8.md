@@ -799,4 +799,4 @@ Tungkol naman kay Tito, siya ang kasama at katulong ko sa aking mga gawain diyan
 
 
 
-Kaya ipakita ninyo sa kanila ang inyong pagmamahal para mapatunayan nila na talagang totoo ang pagmamalaki namin sa inyo, at malaman din ito ng ibang iglesya <i class="trans-change">sa pamamagitan nila_. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 8:4 _mga mananampalataya_<i class="alternate">:_ sa Griego, <i class="alternate">hagios,_ na ang ibig sabihin ay itinuring ng Dios na sa kanya.
+Kaya ipakita ninyo sa kanila ang inyong pagmamahal para mapatunayan nila na talagang totoo ang pagmamalaki namin sa inyo, at malaman din ito ng ibang iglesya <i class="trans-change">sa pamamagitan nila_.

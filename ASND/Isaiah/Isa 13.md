@@ -733,4 +733,4 @@ Magiging tirahan na lang ito ng mga hayop sa gubat. Titirhan ng mga kuwago at ng
 
 
 
-Aalulong doon sa mga tore nila at mga palasyo ang mga asong-gubat.[^b] Nalalapit na ang wakas ng Babilonia; hindi na ito magtatagal. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 13:19 _ng kanyang mga mamamayan_<i class="alternate">:_ sa literal, <i class="alternate">ng mga taga-Caldeo._ Isa ito sa mga tawag sa mga taga-Babilonia. [^b]: 13:22 _asong-gubat_<i class="alternate">:_ sa Ingles, <i class="alternate">jackal._
+Aalulong doon sa mga tore nila at mga palasyo ang mga asong-gubat.[^b] Nalalapit na ang wakas ng Babilonia; hindi na ito magtatagal.

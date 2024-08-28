@@ -448,4 +448,4 @@ Then he said, Do you know why I have come to you? And now I will return to fight
 
 
 
-But I will tell you what is inscribed in the writing of truth _or_ the Book of Truth. There is no one who holds with me _and_ strengthens himself against these [hostile spirit forces] except Michael, your prince [national guardian angel]. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But I will tell you what is inscribed in the writing of truth _or_ the Book of Truth. There is no one who holds with me _and_ strengthens himself against these [hostile spirit forces] except Michael, your prince [national guardian angel].

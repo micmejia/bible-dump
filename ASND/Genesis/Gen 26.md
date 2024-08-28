@@ -1162,4 +1162,4 @@ Nang 40 taong gulang na si Esau, napangasawa niya si Judit na anak ni Beeri na H
 
 
 
-Ang dalawang babaeng ito ay nagbigay ng kalungkutan kina Isaac at Rebeka. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 26:20 _Esek_<i class="alternate">:_ Ang ibig sabihin, <i class="alternate">pakikipagtalo._ [^b]: 26:21 _Sitna_<i class="alternate">:_ Ang ibig sabihin, <i class="alternate">pag-aaway._ [^c]: 26:22 _Rehobot_<i class="alternate">:_ Ang ibig sabihin, <i class="alternate">malawak na lugar._ [^d]: 26:33 _Beersheba_<i class="alternate">:_ Tingnan ang “footnote” sa 21:31.
+Ang dalawang babaeng ito ay nagbigay ng kalungkutan kina Isaac at Rebeka.

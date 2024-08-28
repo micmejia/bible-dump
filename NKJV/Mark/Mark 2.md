@@ -91,4 +91,4 @@ how he went into the house of God _in the days_ of Abiathar the high priest, and
 And He said to them, "The Sabbath was made for man, and not man for the Sabbath. 
 
 ###### 28 
-Therefore the Son of Man is also Lord of the Sabbath." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Mark 2:2 NU omits _Immediately_ [^b]: Mark 2:10 _authority_ [^c]: Mark 2:16 NU _of the_ [^d]: Mark 2:17 NU omits _to repentance_ [^e]: Mark 2:19 Lit. _sons of the bridechamber_
+Therefore the Son of Man is also Lord of the Sabbath."

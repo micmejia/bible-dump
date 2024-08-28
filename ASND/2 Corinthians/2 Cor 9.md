@@ -502,4 +502,4 @@ Buong puso silang mananalangin para sa inyo dahil sa dakilang biyaya ng Dios na 
 
 
 
-Pasalamatan natin ang Dios sa kanyang kaloob na hindi natin kayang ipaliwanag. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 9:1 _pinabanal_<i class="alternate">:_ Tingnan ang “footnote” sa 1:1. [^b]: 9:12 _mga mananampalataya_<i class="alternate">:_ sa Griego, <i class="alternate">hagios,_ tingnan ang “footnote” sa 8:4.
+Pasalamatan natin ang Dios sa kanyang kaloob na hindi natin kayang ipaliwanag.

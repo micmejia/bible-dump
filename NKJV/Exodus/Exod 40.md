@@ -120,4 +120,4 @@ Whenever the cloud was taken up from above the tabernacle, the children of Israe
 But if the cloud was not taken up, then they did not journey till the day that it was taken up. 
 
 ###### 38 
-For the cloud of the Lord _was_ above the tabernacle by day, and fire was over it by night, in the sight of all the house of Israel, throughout all their journeys. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Exodus 40:3 _screen_ [^b]: Exodus 40:4 _set up_ [^c]: Exodus 40:17 _erected_ [^d]: Exodus 40:36 _journey_
+For the cloud of the Lord _was_ above the tabernacle by day, and fire was over it by night, in the sight of all the house of Israel, throughout all their journeys.

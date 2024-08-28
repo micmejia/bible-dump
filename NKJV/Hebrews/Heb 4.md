@@ -55,4 +55,4 @@ Seeing then that we have a great High Priest who has passed through the heavens,
 For we do not have a High Priest who cannot sympathize with our weaknesses, but was in all _points_ tempted as _we are,_ _yet_ without sin. 
 
 ###### 16 
-Let us therefore come boldly to the throne of grace, that we may obtain mercy and find grace to help in time of need. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Hebrews 4:2 NU, M _since they were not united by faith with those who heeded it_ [^b]: Hebrews 4:8 Gr. _Jesus,_ same as Heb. _Joshua_
+Let us therefore come boldly to the throne of grace, that we may obtain mercy and find grace to help in time of need.

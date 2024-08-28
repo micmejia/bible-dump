@@ -574,4 +574,4 @@ But I found nothing that he had done deserving of death. Still, as he himself ap
 
 
 
-For it seems to me senseless _and_ absurd to send a prisoner and not state the accusations against him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Acts 25:9 Marvin Vincent, _Word Studies_. [^b]: Acts 25:10 Marvin Vincent, _Word Studies_. [^c]: Acts 25:11 G. Abbott-Smith, _Manual Greek Lexicon_. [^d]: Acts 25:12 Marvin Vincent, _Word Studies_. [^e]: Acts 25:16 G. Abbott-Smith, _Manual Greek Lexicon_.
+For it seems to me senseless _and_ absurd to send a prisoner and not state the accusations against him.

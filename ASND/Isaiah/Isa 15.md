@@ -304,4 +304,4 @@ Ang iyakan nila ay maririnig sa hangganan ng Moab, mula sa Eglaim hanggang sa Be
 
 
 
-Naging pula sa dugo ang tubig ng Dibon,[^b] pero higit pa riyan ang gagawin ko: Magpapadala ako ng mga leon na lalapa sa mga nagsisitakas sa Moab at sa mga naiwan doon. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 15:3 _nakadamit sila ng sako_<i class="alternate">:_ Tanda ng pagsisisi. [^b]: 15:9 _Dibon_<i class="alternate">:_ o, <i class="alternate">Dimon._
+Naging pula sa dugo ang tubig ng Dibon,[^b] pero higit pa riyan ang gagawin ko: Magpapadala ako ng mga leon na lalapa sa mga nagsisitakas sa Moab at sa mga naiwan doon.

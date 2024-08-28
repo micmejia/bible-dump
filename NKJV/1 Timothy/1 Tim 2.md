@@ -52,4 +52,4 @@ For Adam was formed first, then Eve.
 And Adam was not deceived, but the woman being deceived, fell into transgression. 
 
 ###### 15 
-Nevertheless she will be saved in childbearing if they continue in faith, love, and holiness, with self-control. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Timothy 2:1 _encourage_ [^b]: 1 Timothy 2:2 _a prominent place_ [^c]: 1 Timothy 2:2 _dignity_ [^d]: 1 Timothy 2:7 NU omits _in Christ_ [^e]: 1 Timothy 2:9 _discretion_
+Nevertheless she will be saved in childbearing if they continue in faith, love, and holiness, with self-control.

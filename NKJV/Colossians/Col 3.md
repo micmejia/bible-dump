@@ -82,4 +82,4 @@ And whatever you do, do it heartily, as to the Lord and not to men,
 knowing that from the Lord you will receive the reward of the inheritance; for[^a] you serve the Lord Christ. 
 
 ###### 25 
-But he who does wrong will be repaid for what he has done, and there is no partiality. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Colossians 3:24 NU omits _for_
+But he who does wrong will be repaid for what he has done, and there is no partiality.

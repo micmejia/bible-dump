@@ -616,4 +616,4 @@ And I will give him the Morning Star.
 
 
 
-He who is able to hear, let him listen to _and_ heed what the [Holy] Spirit says to the assemblies (churches). ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Revelation 2:22 Marvin Vincent, _Word Studies_. [^b]: Revelation 2:22 Literal translation. [^c]: Revelation 2:22 Many ancient manuscripts so read.
+He who is able to hear, let him listen to _and_ heed what the [Holy] Spirit says to the assemblies (churches).

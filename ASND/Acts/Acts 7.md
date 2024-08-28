@@ -1954,4 +1954,4 @@ Habang binabato nila si Esteban, nananalangin siya. Sinabi niya, "Panginoong Jes
 
 
 
-Pagkatapos, lumuhod siya at sumigaw nang malakas, "Panginoon, huwag nʼyo silang papanagutin sa kasalanang ito na ginawa nila." At pagkasabi niya nito, namatay siya. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 7:3 Gen. 12:1. [^b]: 7:41 _guya_<i class="alternate">:_ sa Ingles, <i class="alternate">“calf.”_ [^c]: 7:52 _Matuwid na Lingkod_<i class="alternate">:_ Ang ibig sabihin, <i class="alternate">si Jesus._
+Pagkatapos, lumuhod siya at sumigaw nang malakas, "Panginoon, huwag nʼyo silang papanagutin sa kasalanang ito na ginawa nila." At pagkasabi niya nito, namatay siya.

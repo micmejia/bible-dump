@@ -799,4 +799,4 @@ Sabihin nʼyo sa kanila na pinatuyo ng Panginoon na inyong Dios ang <i class="tr
 
 
 
-Ginawa niya ito para kilalanin ng lahat ng mga tao sa mundo na makapangyarihan ang Panginoon at upang lagi kayong magkaroon ng takot sa Panginoon na inyong Dios." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 4:13 <i class="alternate">presensya ng Panginoon:_ Maaring ang ibig sabihin, <i class="alternate">Kahon ng Kasunduan._
+Ginawa niya ito para kilalanin ng lahat ng mga tao sa mundo na makapangyarihan ang Panginoon at upang lagi kayong magkaroon ng takot sa Panginoon na inyong Dios."

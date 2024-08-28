@@ -865,4 +865,4 @@ Ang kinatatakutan koʼy nangyari sa akin.
 
 
 
-Wala akong kapayapaan at katahimikan. Wala akong kapahingahan, pawang kabagabagan ang nararanasan ko." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 3:8 _Leviatan_<i class="alternate">:_ Maaaring dambuhalang hayop, buwaya, ahas, o balyena. [^b]: 3:14 _palasyo_<i class="alternate">:_ o, <i class="alternate">gusali._ [^c]: 3:14 _giba na ngayon_<i class="alternate">:_ o, <i class="alternate">na muling itatayo._
+Wala akong kapayapaan at katahimikan. Wala akong kapahingahan, pawang kabagabagan ang nararanasan ko."

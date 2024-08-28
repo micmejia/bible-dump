@@ -76,4 +76,4 @@ And the Lord said, "Here is a place by Me, and you shall stand on the rock.
 So it shall be, while My glory passes by, that I will put you in the cleft of the rock, and will cover you with My hand while I pass by. 
 
 ###### 23 
-Then I will take away My hand, and you shall see My back; but My face shall not be seen." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Exodus 33:3 _destroy_ [^b]: Exodus 33:3 _stubborn_ [^c]: Exodus 33:5 _jewelry_
+Then I will take away My hand, and you shall see My back; but My face shall not be seen."

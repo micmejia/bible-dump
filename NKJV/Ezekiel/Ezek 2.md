@@ -37,4 +37,4 @@ But you, son of man, hear what I say to you. Do not be rebellious like that rebe
 Now when I looked, there was a hand stretched out to me; and behold, a scroll of a book _was_ in it. 
 
 ###### 10 
-Then He spread it before me; and _there was_ writing on the inside and on the outside, and written on it _were_ lamentations and mourning and woe. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Ezekiel 2:4 Lit. _stiff-faced and hard-hearted sons_
+Then He spread it before me; and _there was_ writing on the inside and on the outside, and written on it _were_ lamentations and mourning and woe.

@@ -91,4 +91,4 @@ Moreover I will [^c]make a covenant of peace with them, and it shall be an everl
 My tabernacle also shall be with them; indeed I will be their God, and they shall be My people. 
 
 ###### 28 
-The nations also will know that I, the Lord, sanctify Israel, when My sanctuary is in their midst forevermore." ' " ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Ezekiel 37:9 Breath of life [^b]: Ezekiel 37:10 Breath of life [^c]: Ezekiel 37:26 Lit. _cut_
+The nations also will know that I, the Lord, sanctify Israel, when My sanctuary is in their midst forevermore." ' "

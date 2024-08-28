@@ -145,4 +145,4 @@ So I will consecrate the tabernacle of meeting and the altar. I will also consec
 I will dwell among the children of Israel and will be their God. 
 
 ###### 46 
-And they shall know that I _am_ the Lord their God, who brought them up out of the land of Egypt, that I may dwell among them. I _am_ the Lord their God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Exodus 29:30 _sanctuary_ [^b]: Exodus 29:39 Lit. _between the two evenings_ [^c]: Exodus 29:41 Lit. _between the two evenings_
+And they shall know that I _am_ the Lord their God, who brought them up out of the land of Egypt, that I may dwell among them. I _am_ the Lord their God.

@@ -805,4 +805,4 @@ The son of Methuselah, the son of Enoch, the son of Jared, the son of Mahalaleel
 
 
 
-The son of Enos, the son of Seth, the son of Adam, the son of God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Luke 3:2 Joseph Thayer, _A Greek-English Lexicon_. [^b]: Luke 3:3 Joseph Thayer, _A Greek-English Lexicon_. [^c]: Luke 3:6 James Gray and George Adams, _Bible Commentary_. [^d]: Luke 3:6 Joseph Thayer, _A Greek-English Lexicon_. [^e]: Luke 3:7 Literal translation. [^f]: Luke 3:8 Joseph Thayer, _A Greek-English Lexicon_. [^g]: Luke 3:14 Marvin Vincent, _Word Studies_. [^h]: Luke 3:19 Marvin Vincent, _Word Studies_.
+The son of Enos, the son of Seth, the son of Adam, the son of God.

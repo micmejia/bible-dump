@@ -61,4 +61,4 @@ And what agreement has the temple of God with idols? For you[^f] are the temple 
 Therefore "Come out from among them And be separate, says the Lord. Do not touch what is unclean, And I will receive you." 
 
 ###### 18 
-"I will be a Father to you, And you shall be My sons and daughters, Says the Lord Almighty." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Corinthians 6:4 _endurance_ [^b]: 2 Corinthians 6:6 Lit. _unhypocritical_ [^c]: 2 Corinthians 6:11 Lit. _Our mouth is open_ [^d]: 2 Corinthians 6:14 _in common_ [^e]: 2 Corinthians 6:14 _fellowship_ [^f]: 2 Corinthians 6:16 NU _we_
+"I will be a Father to you, And you shall be My sons and daughters, Says the Lord Almighty."

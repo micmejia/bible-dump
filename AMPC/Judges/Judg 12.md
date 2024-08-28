@@ -322,4 +322,4 @@ And he had forty sons and thirty grandsons who rode on seventy donkey colts; and
 
 
 
-Then Abdon son of Hillel the Pirathonite died, and was buried at Pirathon in the land of Ephraim, in the hill country of the Amalekites. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then Abdon son of Hillel the Pirathonite died, and was buried at Pirathon in the land of Ephraim, in the hill country of the Amalekites.

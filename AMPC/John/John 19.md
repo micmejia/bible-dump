@@ -889,4 +889,4 @@ Now there was a garden in the place where He was crucified, and in the garden a 
 
 
 
-So there, because of the Jewish day of Preparation [and] since the tomb was near by, they laid Jesus. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: John 19:5 Capitalized because of what He is, the spotless Son of God, not what the speaker may have thought He was. [^b]: John 19:26 G. Abbott-Smith, _Manual Greek Lexicon_: “A term of respect and endearment.”
+So there, because of the Jewish day of Preparation [and] since the tomb was near by, they laid Jesus.

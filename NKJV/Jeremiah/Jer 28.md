@@ -58,4 +58,4 @@ Then the prophet Jeremiah said to Hananiah the prophet, "Hear now, Hananiah, the
 Therefore thus says the Lord: 'Behold, I will cast you from the face of the earth. This year you shall die, because you have taught rebellion against the Lord.' " 
 
 ###### 17 
-So Hananiah the prophet died the same year in the seventh month. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Jeremiah 28:4 _Jehoiachin,_ [2 Kin. 24:12]
+So Hananiah the prophet died the same year in the seventh month.

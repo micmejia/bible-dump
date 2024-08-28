@@ -931,4 +931,4 @@ Nang dumating sina Pablo at Bernabe sa Antioc, tinipon nila ang mga mananampalat
 
 
 
-At nanatili sila nang matagal sa Antioc kasama ang mga tagasunod <i class="trans-change">ni Jesus_ doon. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 14:14 <i class="alternate">pinunit nila ang kanilang damit_ para ipakita sa mga tao na hindi tama ang kanilang gagawin. [^b]: 14:27 _mga mananampalataya_<i class="alternate">:_ sa literal, <i class="alternate">iglesya._
+At nanatili sila nang matagal sa Antioc kasama ang mga tagasunod <i class="trans-change">ni Jesus_ doon.

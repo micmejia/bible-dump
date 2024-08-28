@@ -73,4 +73,4 @@ So he blessed them that day, saying, "By you Israel will bless, saying, 'May God
 Then Israel said to Joseph, "Behold, I am dying, but God will be with you and bring you back to the land of your fathers. 
 
 ###### 22 
-Moreover I have given to you one [^d]portion above your brothers, which I took from the hand of the Amorite with my sword and my bow." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 48:2 Collected his strength [^b]: Genesis 48:6 _children_ [^c]: Genesis 48:6 Who are born to you [^d]: Genesis 48:22 Lit. _shoulder_
+Moreover I have given to you one [^d]portion above your brothers, which I took from the hand of the Amorite with my sword and my bow."

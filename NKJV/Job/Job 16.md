@@ -73,4 +73,4 @@ My friends scorn me; My eyes pour out _tears_ to God.
 Oh, that one might plead for a man with God, As a man _pleads_ for his [^g]neighbor! 
 
 ###### 22 
-For when a few years are finished, I shall go the way of no return. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 16:2 _Troublesome_ [^b]: Job 16:3 Empty words [^c]: Job 16:13 Lit. _kidneys_ [^d]: Job 16:14 Vg. _giant_ [^e]: Job 16:15 Lit. _horn_ [^f]: Job 16:16 Lit. _red_ [^g]: Job 16:21 _friend_
+For when a few years are finished, I shall go the way of no return.

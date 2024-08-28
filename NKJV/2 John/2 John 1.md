@@ -44,4 +44,4 @@ for he who greets him shares in his evil deeds. ## John's Farewell Greeting
 Having many things to write to you, I did not wish _to do so_ with paper and ink; but I hope to come to you and speak face to face, that our joy may be full. 
 
 ###### 13 
-The children of your elect sister greet you. Amen. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 John 1:1 _chosen_ [^b]: 2 John 1:3 NU, M _us_ [^c]: 2 John 1:8 NU _you_ [^d]: 2 John 1:9 NU _goes ahead_
+The children of your elect sister greet you. Amen.

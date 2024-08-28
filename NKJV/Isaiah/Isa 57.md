@@ -70,4 +70,4 @@ I have seen his ways, and will heal him; I will also lead him, And restore comfo
 But the wicked _are_ like the troubled sea, When it cannot rest, Whose waters cast up mire and dirt. 
 
 ###### 21 
-"_There_ _is_ no peace," Says my God, "for the wicked." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Isaiah 57:1 Lit. _the face of evil_ [^b]: Isaiah 57:8 Lit. _cut_ [^c]: Isaiah 57:8 Lit. _hand,_ a euphemism [^d]: Isaiah 57:11 _remained silent_ [^e]: Isaiah 57:17 Or _turning back_
+"_There_ _is_ no peace," Says my God, "for the wicked."

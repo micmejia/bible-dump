@@ -67,4 +67,4 @@ See! Its blood was not brought inside [^e]the holy _place;_ indeed you should ha
 And Aaron said to Moses, "Look, this day they have offered their sin offering and their burnt offering before the Lord, and such things have befallen me! _If_ I had eaten the sin offering today, would it have been accepted in the sight of the Lord?" 
 
 ###### 20 
-So when Moses heard _that_, he was content. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Leviticus 10:4 _in front of_ [^b]: Leviticus 10:6 An act of mourning [^c]: Leviticus 10:6 _weep bitterly_ [^d]: Leviticus 10:13 _portion_ [^e]: Leviticus 10:18 The Most Holy Place when capitalized
+So when Moses heard _that_, he was content.

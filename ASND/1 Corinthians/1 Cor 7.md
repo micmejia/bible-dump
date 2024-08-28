@@ -1261,4 +1261,4 @@ Ang babaeʼy nakatali sa kanyang asawa habang nabubuhay pa ito. Ngunit kung pata
 
 
 
-Para sa akin, mas maligaya siya kung hindi na lang siya mag-asawang muli. Opinyon ko lang naman ito, ngunit sa tingin koʼy ito rin ang itinuturo ng Espiritu ng Dios na nasa akin. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 7:17 _tinawag siya ng Dios_<i class="alternate">:_ Tingnan sa 1:2.
+Para sa akin, mas maligaya siya kung hindi na lang siya mag-asawang muli. Opinyon ko lang naman ito, ngunit sa tingin koʼy ito rin ang itinuturo ng Espiritu ng Dios na nasa akin.

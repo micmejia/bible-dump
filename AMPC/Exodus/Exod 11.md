@@ -217,4 +217,4 @@ Then the Lord said to Moses, Pharaoh will not listen to you, that My wonders _an
 
 
 
-Moses and Aaron did all these wonders _and_ miracles before Pharaoh; and the Lord hardened Pharaoh's stubborn heart, and he did not let the Israelites go out of his land. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Moses and Aaron did all these wonders _and_ miracles before Pharaoh; and the Lord hardened Pharaoh's stubborn heart, and he did not let the Israelites go out of his land.

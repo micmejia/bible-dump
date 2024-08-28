@@ -52,4 +52,4 @@ Your carved images I will also cut off, And your _sacred_ pillars from your mids
 I will pluck your [^h]wooden images from your midst; Thus I will destroy your cities. 
 
 ###### 15 
-And I will execute vengeance in anger and fury On the nations that have not [^i]heard." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Micah 5:2 Lit. _the days of eternity_ [^b]: Micah 5:4 _shepherd_ [^c]: Micah 5:6 _devastate_ [^d]: Micah 5:7 _wait_ [^e]: Micah 5:7 _delay_ [^f]: Micah 5:9 _destroyed_ [^g]: Micah 5:10 _destroy_ [^h]: Micah 5:14 Heb. _Asherim,_ Canaanite deities [^i]: Micah 5:15 _obeyed_
+And I will execute vengeance in anger and fury On the nations that have not [^i]heard."

@@ -52,4 +52,4 @@ They also set up false witnesses who said, "This man does not cease to speak [^c
 for we have heard him say that this Jesus of Nazareth will destroy this place and change the customs which Moses delivered to us." 
 
 ###### 15 
-And all who sat in the council, looking steadfastly at him, saw his face as the face of an angel. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Acts 6:1 Greek-speaking Jews [^b]: Acts 6:8 NU _grace_ [^c]: Acts 6:13 NU omits _blasphemous_
+And all who sat in the council, looking steadfastly at him, saw his face as the face of an angel.

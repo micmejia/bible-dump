@@ -115,4 +115,4 @@ Oh, the depth of the riches both of the wisdom and knowledge of God! How unsearc
 "Or who has first given to Him And it shall be repaid to him?" 
 
 ###### 36 
-For of Him and through Him and to Him _are_ all things, to whom _be_ glory forever. Amen. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Romans 11:6 NU omits the rest of v. [6]. [^b]: Romans 11:11 _trespass_ [^c]: Romans 11:12 _trespass_ [^d]: Romans 11:17 _richness_ [^e]: Romans 11:22 NU adds _of God_ [^f]: Romans 11:25 _estimation_ [^g]: Romans 11:26 Or _delivered_ [^h]: Romans 11:32 _shut them all up in_
+For of Him and through Him and to Him _are_ all things, to whom _be_ glory forever. Amen.

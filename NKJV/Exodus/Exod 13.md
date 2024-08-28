@@ -73,4 +73,4 @@ So they took their journey from Succoth and camped in Etham at the edge of the w
 And the Lord went before them by day in a pillar of cloud to lead the way, and by night in a pillar of fire to give them light, so as to go by day and night. 
 
 ###### 22 
-He did not take away the pillar of cloud by day or the pillar of fire by night _from_ before the people. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Exodus 13:2 _Set apart_ [^b]: Exodus 13:3 Lit. _slaves_ [^c]: Exodus 13:10 _regulation_ [^d]: Exodus 13:12 Lit. _cause to pass over_ [^e]: Exodus 13:19 _give attention to_
+He did not take away the pillar of cloud by day or the pillar of fire by night _from_ before the people.

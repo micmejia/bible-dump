@@ -61,4 +61,4 @@ And I will make your descendants as the dust of the earth; so that if a man coul
 Arise, walk in the land through its length and its width, for I give it to you." 
 
 ###### 18 
-Then Abram moved _his_ tent, and went and dwelt by [^d]the terebinth trees of Mamre, which _are_ in Hebron, and built an altar there to the Lord. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 13:1 Heb. _Negev_ [^b]: Genesis 13:6 Lit. _bear_ [^c]: Genesis 13:15 Lit. _seed_ [^d]: Genesis 13:18 Heb. _Alon Mamre_
+Then Abram moved _his_ tent, and went and dwelt by [^d]the terebinth trees of Mamre, which _are_ in Hebron, and built an altar there to the Lord.

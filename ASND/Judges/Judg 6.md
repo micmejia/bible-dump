@@ -1327,4 +1327,4 @@ Pagkatapos, sinabi ni Gideon sa Dios, "Huwag po kayong magalit sa akin; may isa 
 
 
 
-Kinagabihan, ginawa nga ito ng Dios. Tuyo ang balahibo ng tupa pero basa naman ng hamog ang lupa sa paligid nito. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 6:8 _inyong Dios_<i class="alternate">:_ sa Hebreo, <i class="alternate">Dios ng Israel._ [^b]: 6:13 Sa Hebreo ang sagot ni Gideon ay nagsisimula sa salitang “adonai”, na maaaring isalin na “Ginoo” o “Panginoon”. Ganoon din sa talatang 15.
+Kinagabihan, ginawa nga ito ng Dios. Tuyo ang balahibo ng tupa pero basa naman ng hamog ang lupa sa paligid nito.

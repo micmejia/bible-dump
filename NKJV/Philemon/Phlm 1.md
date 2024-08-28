@@ -80,4 +80,4 @@ Epaphras, my fellow prisoner in Christ Jesus, greets you,
 _as do_ Mark, Aristarchus, Demas, Luke, my fellow laborers. 
 
 ###### 25 
-The grace of our Lord Jesus Christ _be_ with your spirit. Amen. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Philemon 1:2 NU _our sister Apphia_ [^b]: Philemon 1:6 NU, M _us_ [^c]: Philemon 1:7 NU _had_ [^d]: Philemon 1:7 M _thanksgiving_ [^e]: Philemon 1:7 _comfort_ [^f]: Philemon 1:7 Lit. _inward parts,_ heart, liver, and lungs [^g]: Philemon 1:12 NU _back to you in person, that is, my own heart,_ [^h]: Philemon 1:12 See v. [7].
+The grace of our Lord Jesus Christ _be_ with your spirit. Amen.

@@ -82,4 +82,4 @@ He gives them security, and they rely _on it;_ Yet His eyes _are_ on their ways.
 They are exalted for a little while, Then they are gone. They are brought low; They are [^e]taken out of the way like all _others;_ They dry out like the heads of grain. 
 
 ###### 25 
-"Now if _it is_ not _so,_ who will prove me a liar, And make my speech worth nothing?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 24:15 Lit. _puts a covering on his face_ [^b]: Job 24:19 Lit. _seize_ [^c]: Job 24:19 Or _Sheol_ [^d]: Job 24:21 Lit. _feeds on_ [^e]: Job 24:24 Lit. _gathered up_
+"Now if _it is_ not _so,_ who will prove me a liar, And make my speech worth nothing?"

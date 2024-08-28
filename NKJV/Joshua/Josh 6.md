@@ -88,4 +88,4 @@ And Joshua spared Rahab the harlot, her father's household, and all that she had
 Then Joshua [^d]charged _them_ at that time, saying, "Cursed _be_ the man before the Lord who rises up and builds this city Jericho; he shall lay its foundation with his firstborn, and with his youngest he shall set up its gates." 
 
 ###### 27 
-So the Lord was with Joshua, and his fame spread throughout all the country. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Joshua 6:11 _spent the night_ [^b]: Joshua 6:19 _set apart_ [^c]: Joshua 6:19 _shall go_ [^d]: Joshua 6:26 _warned_
+So the Lord was with Joshua, and his fame spread throughout all the country.

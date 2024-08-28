@@ -73,4 +73,4 @@ that we also may be like all the nations, and that our king may judge us and go 
 And Samuel heard all the words of the people, and he repeated them in the hearing of the Lord. 
 
 ###### 22 
-So the Lord said to Samuel, "Heed their voice, and make them a king." And Samuel said to the men of Israel, "Every man go to his city." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Samuel 8:16 LXX _cattle_
+So the Lord said to Samuel, "Heed their voice, and make them a king." And Samuel said to the men of Israel, "Every man go to his city."

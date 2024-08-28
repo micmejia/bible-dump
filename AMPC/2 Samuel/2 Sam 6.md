@@ -490,4 +490,4 @@ I will be still more lightly esteemed than this, and will humble _and_ lower mys
 
 
 
-And Michal the daughter of Saul had no child to the day of her death. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Samuel 6:3 How long had the ark been in the house of Abinadab (see I Sam. 7:2)?
+And Michal the daughter of Saul had no child to the day of her death.

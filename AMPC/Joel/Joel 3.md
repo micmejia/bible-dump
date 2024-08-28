@@ -447,4 +447,4 @@ But Judah shall remain _and_ be inhabited forever, and Jerusalem from generation
 
 
 
-And I will cleanse _and_ hold as innocent their blood _and_ avenge it, blood which I have not cleansed, held innocent, _and_ avenged, for the Lord dwells in Zion. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I will cleanse _and_ hold as innocent their blood _and_ avenge it, blood which I have not cleansed, held innocent, _and_ avenged, for the Lord dwells in Zion.

@@ -31,4 +31,4 @@ Then Isaiah said to Hezekiah, "Hear the word of the Lord of hosts:
 'And they shall take away _some_ of your sons who will descend from you, whom you will beget; and they shall be eunuchs in the palace of the king of Babylon.' " 
 
 ###### 8 
-So Hezekiah said to Isaiah, "The word of the Lord which you have spoken _is_ good!" For he said, "At least there will be peace and truth in my days." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Isaiah 39:1 _Berodach-Baladan,_ [2 Kin. 20:12]
+So Hezekiah said to Isaiah, "The word of the Lord which you have spoken _is_ good!" For he said, "At least there will be peace and truth in my days."

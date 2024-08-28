@@ -742,4 +742,4 @@ Having read the letter, he asked to what province [Paul] belonged. When he disco
 
 
 
-He said, I will hear your case [^b]fully when your accusers also have come. And he ordered that an eye be kept on him in Herod's palace (the Praetorium). ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Acts 23:1 Marvin Vincent, _Word Studies_. [^b]: Acts 23:35 Marvin Vincent, _Word Studies_.
+He said, I will hear your case [^b]fully when your accusers also have come. And he ordered that an eye be kept on him in Herod's palace (the Praetorium).

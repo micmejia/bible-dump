@@ -67,4 +67,4 @@ And you would be secure, because there is hope; Yes, you would dig _around you, 
 You would also lie down, and no one would make _you_ afraid; _Yes,_ many would court your favor. 
 
 ###### 20 
-But the eyes of the wicked will fail, And they shall not escape, And their hope--[^f]loss of life!" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 11:2 Lit. _a man of lips_ [^b]: Job 11:3 _be silent_ [^c]: Job 11:6 Lit. _forgets some of your iniquity for you_ [^d]: Job 11:8 The abode of the dead [^e]: Job 11:10 _restrain_ [^f]: Job 11:20 Lit. _the breathing out of life_
+But the eyes of the wicked will fail, And they shall not escape, And their hope--[^f]loss of life!"

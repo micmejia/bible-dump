@@ -1096,4 +1096,4 @@ Lulusubin niya sila. At sa bawat hampas ng Panginoon sa kanila, sasabay ito sa t
 
 
 
-Matagal nang nakahanda ang lugar na pagsusunugan sa hari ng Asiria. Maluwang ito at malalim, at handa na ang napakaraming panggatong. Ang hininga ng Panginoon na parang nagniningas na asupre ang magpapaningas ng mga panggatong. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 30:7 _Dragon_<i class="alternate">:_ sa Hebreo, <i class="alternate">Rahab._
+Matagal nang nakahanda ang lugar na pagsusunugan sa hari ng Asiria. Maluwang ito at malalim, at handa na ang napakaraming panggatong. Ang hininga ng Panginoon na parang nagniningas na asupre ang magpapaningas ng mga panggatong.

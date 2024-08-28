@@ -96,4 +96,4 @@ and not in any way terrified by your adversaries, which is to them a proof of pe
 For to you it has been granted on behalf of Christ, not only to believe in Him, but also to suffer for His sake, 
 
 ###### 30 
-having the same conflict which you saw in me and now hear _is_ in me. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Philippians 1:1 Lit. _overseers_ [^b]: Philippians 1:13 Or _Praetorium_ [^c]: Philippians 1:16 NU reverses vv. [16] and [17]. [^d]: Philippians 1:22 _do not know_ [^e]: Philippians 1:23 NU, M _But_ [^f]: Philippians 1:28 NU _of your salvation_
+having the same conflict which you saw in me and now hear _is_ in me.

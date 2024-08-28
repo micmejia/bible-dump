@@ -79,4 +79,4 @@ All in whose nostrils _was_ the breath [^d]of the spirit of life, all that _was_
 So He destroyed all living things which were on the face of the ground: both man and cattle, creeping thing and bird of the air. They were destroyed from the earth. Only Noah and those who _were_ with him in the ark remained _alive._ 
 
 ###### 24 
-And the waters prevailed on the earth one hundred and fifty days. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 7:3 Lit. _seed_ [^b]: Genesis 7:4 Lit. _blot out_ [^c]: Genesis 7:21 _the land_ [^d]: Genesis 7:22 LXX, Vg. omit _of the spirit_
+And the waters prevailed on the earth one hundred and fifty days.

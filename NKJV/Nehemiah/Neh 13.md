@@ -99,4 +99,4 @@ Remember them, O my God, because they have defiled the priesthood and the covena
 Thus I cleansed them of everything pagan. I also assigned duties to the priests and the Levites, each to his service, 
 
 ###### 31 
-and _to bringing_ the wood offering and the firstfruits at appointed times. Remember me, O my God, for good! ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Nehemiah 13:7 Temple [^b]: Nehemiah 13:20 _merchandise_ [^c]: Nehemiah 13:20 _spent the night_ [^d]: Nehemiah 13:21 Lit. _before_ [^e]: Nehemiah 13:25 _pronounced them cursed_
+and _to bringing_ the wood offering and the firstfruits at appointed times. Remember me, O my God, for good!

@@ -85,4 +85,4 @@ An altar of earth you shall make for Me, and you shall sacrifice on it your burn
 And if you make Me an altar of stone, you shall not build it of hewn stone; for if you use your tool on it, you have profaned it. 
 
 ###### 26 
-Nor shall you go up by steps to My altar, that your nakedness may not be exposed on it.' ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Exodus 20:2 _slaves_ [^b]: Exodus 20:5 _worship_ [^c]: Exodus 20:5 _punishing_ [^d]: Exodus 20:24 _cause My name to be remembered_
+Nor shall you go up by steps to My altar, that your nakedness may not be exposed on it.'

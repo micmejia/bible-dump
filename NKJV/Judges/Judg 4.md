@@ -79,4 +79,4 @@ And then, as Barak pursued Sisera, Jael came out to meet him, and said to him, "
 So on that day God subdued Jabin king of Canaan in the presence of the children of Israel. 
 
 ###### 24 
-And the hand of the children of Israel grew stronger and stronger against Jabin king of Canaan, until they had destroyed Jabin king of Canaan. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Judges 4:6 _march_ [^b]: Judges 4:7 Lit. _draw_ [^c]: Judges 4:10 Lit. _at his feet_ [^d]: Judges 4:14 _Arise!_ [^e]: Judges 4:18 _rug_
+And the hand of the children of Israel grew stronger and stronger against Jabin king of Canaan, until they had destroyed Jabin king of Canaan.

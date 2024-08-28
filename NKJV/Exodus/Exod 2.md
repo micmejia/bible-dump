@@ -82,4 +82,4 @@ Now it happened in the process of time that the king of Egypt died. Then the chi
 So God heard their groaning, and God remembered His covenant with Abraham, with Isaac, and with Jacob. 
 
 ###### 25 
-And God looked upon the children of Israel, and God acknowledged _them._ ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Exodus 2:10 Heb. _Mosheh,_ lit. _Drawn Out_ [^b]: Exodus 2:15 _the presence of Pharaoh_ [^c]: Exodus 2:18 _Jethro,_ [Ex. 3:1] [^d]: Exodus 2:22 Lit. _Stranger There_ [^e]: Exodus 2:22 _sojourner,_ temporary resident
+And God looked upon the children of Israel, and God acknowledged _them._

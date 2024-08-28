@@ -46,4 +46,4 @@ And because of your knowledge shall the weak brother perish, for whom Christ die
 But when you thus sin against the brethren, and wound their weak conscience, you sin against Christ. 
 
 ###### 13 
-Therefore, if food makes my brother stumble, I will never again eat meat, lest I make my brother stumble. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Corinthians 8:1 _makes arrogant_ [^b]: 1 Corinthians 8:1 _builds up_ [^c]: 1 Corinthians 8:9 _cause of offense_
+Therefore, if food makes my brother stumble, I will never again eat meat, lest I make my brother stumble.

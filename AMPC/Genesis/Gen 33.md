@@ -427,4 +427,4 @@ Then he bought the piece of land on which he had encamped from the sons of Hamor
 
 
 
-There he erected an altar and called it El-Elohe-Israel [God, the God of Israel]. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 33:14 Ever the deceiver, Jacob had no intention of following Esau to Seir. In fact, he heads in the opposite direction.
+There he erected an altar and called it El-Elohe-Israel [God, the God of Israel].

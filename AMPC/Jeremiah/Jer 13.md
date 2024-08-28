@@ -574,4 +574,4 @@ Therefore I Myself will [retaliate], throwing your skirts up over your face, tha
 
 
 
-I have seen your detestable acts, even your adulteries and your lustful neighings [after idols], and the lewdness of your harlotry on the hills in the field. Woe to you, O Jerusalem! For how long a time yet will you not [meet My conditions and] be made clean? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+I have seen your detestable acts, even your adulteries and your lustful neighings [after idols], and the lewdness of your harlotry on the hills in the field. Woe to you, O Jerusalem! For how long a time yet will you not [meet My conditions and] be made clean?

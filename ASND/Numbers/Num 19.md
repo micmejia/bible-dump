@@ -733,4 +733,4 @@ Ang tuntuning ito ay dapat nilang sundin magpakailanman. "Ang taong nagwisik ng 
 
 
 
-Ang sinuman o anuman na hahawak o hihipo sa maruming tao ay magiging marumi rin hanggang hapon." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 19:2 _hindi pa nagagamit sa pag-aararo_<i class="alternate">:_ sa literal, <i class="alternate">hindi pa ito nakakabitan ng pamatok._ [^b]: 19:13 _hindi naglinis ng kanyang sarili_<i class="alternate">:_ Ang ibig sabihin, <i class="alternate">hindi ginawa ang seremonya upang maging karapat-dapat sa Dios._
+Ang sinuman o anuman na hahawak o hihipo sa maruming tao ay magiging marumi rin hanggang hapon."

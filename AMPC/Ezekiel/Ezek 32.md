@@ -679,4 +679,4 @@ When Pharaoh sees them, he will comfort himself for all his multitude--even Phar
 
 
 
-For I have put his _and_ My terror in the land of the living, and he shall be laid in the midst of the uncircumcised (the heathen) with those slain by the sword, even Pharaoh and all his multitude, says the Lord God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Ezekiel 32:29 The Edomites observed the rite of circumcision, but they were not spared because of that.
+For I have put his _and_ My terror in the land of the living, and he shall be laid in the midst of the uncircumcised (the heathen) with those slain by the sword, even Pharaoh and all his multitude, says the Lord God.

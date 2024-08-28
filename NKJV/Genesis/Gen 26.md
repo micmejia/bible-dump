@@ -112,4 +112,4 @@ So he called it [^g]Shebah. Therefore the name of the city _is_ [^h]Beersheba to
 When Esau was forty years old, he took as wives Judith the daughter of Beeri the Hittite, and Basemath the daughter of Elon the Hittite. 
 
 ###### 35 
-And they were a grief of mind to Isaac and Rebekah. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 26:8 _caressing_ [^b]: Genesis 26:17 _camped_ [^c]: Genesis 26:20 Lit. _Quarrel_ [^d]: Genesis 26:21 Lit. _Enmity_ [^e]: Genesis 26:22 Lit. _Spaciousness_ [^f]: Genesis 26:28 _treaty_ [^g]: Genesis 26:33 Lit. _Oath_ or _Seven_ [^h]: Genesis 26:33 Lit. _Well of the Oath_ or _Well of the Seven_
+And they were a grief of mind to Isaac and Rebekah.

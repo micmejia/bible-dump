@@ -73,4 +73,4 @@ You prevail forever against him, and he passes on; You change his countenance an
 His sons come to honor, and he does not know _it;_ They are brought low, and he does not perceive _it._ 
 
 ###### 22 
-But his flesh will be in pain over it, And his soul will mourn over it." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 14:1 _turmoil_ [^b]: Job 14:3 LXX, Syr., Vg. _him_ [^c]: Job 14:6 Lit. _cease_ [^d]: Job 14:10 _lies prostrate_ [^e]: Job 14:10 _expires_ [^f]: Job 14:17 Lit. _plaster over_
+But his flesh will be in pain over it, And his soul will mourn over it."

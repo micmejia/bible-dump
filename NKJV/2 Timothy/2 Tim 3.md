@@ -58,4 +58,4 @@ and that from childhood you have known the Holy Scriptures, which are able to ma
 All Scripture _is_ given by inspiration of God, and _is_ profitable for doctrine, for reproof, for correction, for [^c]instruction in righteousness, 
 
 ###### 17 
-that the man of God may be complete, thoroughly equipped for every good work. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Timothy 3:1 _times of stress_ [^b]: 2 Timothy 3:3 _irreconcilable_ [^c]: 2 Timothy 3:16 _training, discipline_
+that the man of God may be complete, thoroughly equipped for every good work.

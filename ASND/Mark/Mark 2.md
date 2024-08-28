@@ -865,4 +865,4 @@ At sinabi pa ni Jesus sa kanila, "Ginawa ang Araw ng Pamamahinga para sa <i clas
 
 
 
-Kaya <i class="trans-change">ako na_ Anak ng Tao ang makapagsasabi kung ano ang nararapat gawin sa Araw ng Pamamahinga." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2:21 _uurong_<i class="alternate">:_ sa Ingles, <i class="alternate">“shrink.”_ [^b]: 2:22 Sinabi ni Jesus ang mga paghahambing na ito upang ituro sa kanila na hindi maaaring paghaluin ang mga itinuturo niya at ang mga lumang katuruan ng mga Judio.
+Kaya <i class="trans-change">ako na_ Anak ng Tao ang makapagsasabi kung ano ang nararapat gawin sa Araw ng Pamamahinga."

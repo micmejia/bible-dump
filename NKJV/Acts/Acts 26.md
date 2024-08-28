@@ -103,4 +103,4 @@ When he had said these things, the king stood up, as well as the governor and Be
 and when they had gone aside, they talked among themselves, saying, "This man is doing nothing deserving of death or chains." 
 
 ###### 32 
-Then Agrippa said to Festus, "This man might have been set free if he had not appealed to Caesar." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Acts 26:9 _against_ [^b]: Acts 26:17 _rescue_ [^c]: Acts 26:17 NU, M omit _now_ [^d]: Acts 26:18 _set apart_ [^e]: Acts 26:25 _out of my mind_
+Then Agrippa said to Festus, "This man might have been set free if he had not appealed to Caesar."

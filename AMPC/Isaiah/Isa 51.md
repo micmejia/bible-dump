@@ -490,4 +490,4 @@ Thus says your Lord, the Lord, and your God, Who pleads the cause of His people:
 
 
 
-And I will put it into the hands of your tormentors _and_ oppressors, those who said to you, Bow down, that we may ride _or_ tread over you; and you have made your back like the ground and like the street for them to pass over. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I will put it into the hands of your tormentors _and_ oppressors, those who said to you, Bow down, that we may ride _or_ tread over you; and you have made your back like the ground and like the street for them to pass over.

@@ -37,4 +37,4 @@ But let man and beast be covered with sackcloth, and cry mightily to God; yes, l
 Who can tell _if_ God will turn and relent, and turn away from His fierce anger, so that we may not perish? 
 
 ###### 10 
-Then God saw their works, that they turned from their evil way; and God relented from the disaster that He had said He would bring upon them, and He did not do it. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Jonah 3:3 Exact meaning unknown [^b]: Jonah 3:7 Lit. _great ones_
+Then God saw their works, that they turned from their evil way; and God relented from the disaster that He had said He would bring upon them, and He did not do it.

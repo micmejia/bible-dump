@@ -732,4 +732,4 @@ Sinabi niya, "Ipinanganak akong walang dala at mamamatay din akong walang dala. 
 
 
 
-Sa kabila ng lahat ng nangyari, hindi nagkasala si Job. Hindi niya sinisi ang Dios. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1:5 _handog na sinusunog_<i class="alternate">:_ Tingnan sa Talaan ng mga Salita sa likod. [^b]: 1:6 _anghel_<i class="alternate">:_ sa literal, <i class="alternate">mga anak ng Dios._
+Sa kabila ng lahat ng nangyari, hindi nagkasala si Job. Hindi niya sinisi ang Dios.

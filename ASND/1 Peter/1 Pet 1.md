@@ -765,4 +765,4 @@ dahil ipinanganak na kayong muli. At ang kapanganakang itoʼy hindi sa pamamagit
 
 
 
-ngunit ang salita ng Panginoon ay nananatili magpakailanman."[^c] At ang salitang ito ay ang Magandang Balitang ipinangaral sa inyo. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1:12 _atin_<i class="alternate">:_ sa literal, <i class="alternate">inyo._ [^b]: 1:16 Lev. 11:44, 45; 19:2. [^c]: 1:25 Isa. 40:6-8.
+ngunit ang salita ng Panginoon ay nananatili magpakailanman."[^c] At ang salitang ito ay ang Magandang Balitang ipinangaral sa inyo.

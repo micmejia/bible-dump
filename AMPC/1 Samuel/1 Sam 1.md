@@ -594,4 +594,4 @@ For this child I prayed, and the Lord has granted my petition made to Him.
 
 
 
-Therefore I have given him to the Lord; as long as he lives he is given to the Lord. And they worshiped the Lord there. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Samuel 1:24 He would then be two or three years old. There were women engaged in tabernacle service to whose care he might have been committed. It was important that he should be dedicated as soon as possible. The earliest impressions of his boyhood were to be those of the house of God (_The Cambridge Bible_).
+Therefore I have given him to the Lord; as long as he lives he is given to the Lord. And they worshiped the Lord there.

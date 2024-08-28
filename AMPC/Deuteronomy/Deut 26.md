@@ -406,4 +406,4 @@ And the Lord has declared this day that you are His peculiar people as He promis
 
 
 
-And He will make you high above all nations which He has made, in praise and in fame and in honor, and that you shall be a holy people to the Lord your God, as He has spoken. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And He will make you high above all nations which He has made, in praise and in fame and in honor, and that you shall be a holy people to the Lord your God, as He has spoken.

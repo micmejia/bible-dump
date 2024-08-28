@@ -100,4 +100,4 @@ I am a brother of jackals, And a companion of ostriches.
 My skin grows black and falls from me; My bones burn with fever. 
 
 ###### 31 
-My harp is _turned_ to mourning, And my flute to the voice of those who weep. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 30:1 Lit. _of fewer days_ [^b]: Job 30:4 A plant of the salty marshes [^c]: Job 30:6 _wadis_ [^d]: Job 30:6 Lit. _holes_ [^e]: Job 30:11 So with MT, Syr., Tg.; LXX, Vg. _His_ [^f]: Job 30:27 _I seethe inside_
+My harp is _turned_ to mourning, And my flute to the voice of those who weep.

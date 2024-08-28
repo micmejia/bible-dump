@@ -46,4 +46,4 @@ Now may our God and Father Himself, and our Lord Jesus Christ, direct our way to
 And may the Lord make you increase and abound in love to one another and to all, just as we _do_ to you, 
 
 ###### 13 
-so that He may establish your hearts blameless in holiness before our God and Father at the coming of our Lord Jesus Christ with all His saints. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+so that He may establish your hearts blameless in holiness before our God and Father at the coming of our Lord Jesus Christ with all His saints.

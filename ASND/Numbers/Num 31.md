@@ -1261,4 +1261,4 @@ Itoʼy mula sa mga nasamsam ng bawat sundalo sa labanan.
 
 
 
-Ang mga gintong alahas na tinanggap nina Moises at Eleazar mula sa mga opisyal ng libu-libo at daan-daang sundalo ay dinala nila ito sa Toldang Tipanan para alalahanin ng Panginoon ang mga Israelita. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 31:36-40 _dalaga_<i class="alternate">:_ o, <i class="alternate">tao._ [^b]: 31:42-46 _dalaga_<i class="alternate">:_ o, <i class="alternate">tao._
+Ang mga gintong alahas na tinanggap nina Moises at Eleazar mula sa mga opisyal ng libu-libo at daan-daang sundalo ay dinala nila ito sa Toldang Tipanan para alalahanin ng Panginoon ang mga Israelita.

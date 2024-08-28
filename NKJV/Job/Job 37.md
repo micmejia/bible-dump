@@ -79,4 +79,4 @@ He comes from the north _as_ golden _splendor;_ With God _is_ awesome majesty.
 _As for_ the Almighty, we cannot find Him; _He is_ excellent in power, _In_ judgment and abundant justice; He does not oppress. 
 
 ###### 24 
-Therefore men fear Him; He shows no partiality to any _who are_ wise of heart." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 37:3 Or _light_ [^b]: Job 37:6 Lit. _shower of rain_ [^c]: Job 37:11 _clouds of light_ [^d]: Job 37:12 Lit. _the world of the earth_ [^e]: Job 37:13 Lit. _a rod_ [^f]: Job 37:15 _places them_
+Therefore men fear Him; He shows no partiality to any _who are_ wise of heart."

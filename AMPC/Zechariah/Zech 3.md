@@ -217,4 +217,4 @@ For behold, upon the stone which I have set before Joshua, upon that one stone a
 
 
 
-In that day, says the Lord of hosts, you shall invite each man his neighbor under his own vine and his own fig tree. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Zechariah 3:1 See footnote on Zechariah 1:11. [^b]: Zechariah 3:8 A Messianic title.
+In that day, says the Lord of hosts, you shall invite each man his neighbor under his own vine and his own fig tree.

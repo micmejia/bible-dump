@@ -531,4 +531,4 @@ Then Joseph, being aroused from his sleep, did as the angel of the Lord had comm
 
 
 
-But he had no union with her as her husband until she had borne _her firstborn_ Son; and he called His name Jesus. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Matthew 1:21 Marvin Vincent, _Word Studies in the New Testament_.
+But he had no union with her as her husband until she had borne _her firstborn_ Son; and he called His name Jesus.

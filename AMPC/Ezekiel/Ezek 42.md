@@ -427,4 +427,4 @@ He turned about to the west side and measured five hundred reeds with the measur
 
 
 
-He measured it on the four sides; it had a wall round about, the length five hundred reeds and the breadth five hundred, to make a separation between that which was holy [the temple proper] and that which was common [the outer area]. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He measured it on the four sides; it had a wall round about, the length five hundred reeds and the breadth five hundred, to make a separation between that which was holy [the temple proper] and that which was common [the outer area].

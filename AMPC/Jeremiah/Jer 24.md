@@ -217,4 +217,4 @@ I will even give them up to be a dismay _and_ a horror _and_ to be tossed to and
 
 
 
-And I will send the sword, famine, and pestilence among them until they are consumed from off the land that I gave to them and to their fathers. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I will send the sword, famine, and pestilence among them until they are consumed from off the land that I gave to them and to their fathers.

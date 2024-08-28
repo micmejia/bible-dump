@@ -574,4 +574,4 @@ They arose early and about dawn Samuel called Saul [who was sleeping] on the top
 
 
 
-And as they were going down to the outskirts of the city, Samuel said to Saul, Bid the servant pass on before us--and he passed on--but you stand still, first, that I may cause you to hear the word of God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And as they were going down to the outskirts of the city, Samuel said to Saul, Bid the servant pass on before us--and he passed on--but you stand still, first, that I may cause you to hear the word of God.

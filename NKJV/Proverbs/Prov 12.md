@@ -91,4 +91,4 @@ The righteous should choose his friends carefully, For the way of the wicked lea
 The lazy _man_ does not roast what he took in hunting, But diligence _is_ man's precious possession. 
 
 ###### 28 
-In the way of righteousness _is_ life, And in _its_ pathway _there is_ no death. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Proverbs 12:4 Lit. _A wife of valor_ [^b]: Proverbs 12:9 _lightly esteemed_ [^c]: Proverbs 12:11 _works_ or _cultivates_ [^d]: Proverbs 12:11 Lit. _vain things_ [^e]: Proverbs 12:11 Lit. _heart_ [^f]: Proverbs 12:21 _harm_
+In the way of righteousness _is_ life, And in _its_ pathway _there is_ no death.

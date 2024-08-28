@@ -196,4 +196,4 @@ And in all the land, says the Lord, two-thirds shall be cut off and perish, but 
 
 
 
-And I will bring the third part through the fire, and will refine them as silver is refined and will test them as gold is tested. They will call on My name, and I will hear _and_ answer them. I will say, It is My people; and they will say, The Lord is my God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I will bring the third part through the fire, and will refine them as silver is refined and will test them as gold is tested. They will call on My name, and I will hear _and_ answer them. I will say, It is My people; and they will say, The Lord is my God.

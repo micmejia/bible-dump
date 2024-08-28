@@ -73,4 +73,4 @@ having been built on the foundation of the apostles and prophets, Jesus Christ H
 in whom the whole building, being fitted together, grows into a holy temple in the Lord, 
 
 ###### 22 
-in whom you also are being built together for a dwelling place of God in the Spirit. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Ephesians 2:2 Gr. _aion,_ aeon
+in whom you also are being built together for a dwelling place of God in the Spirit.

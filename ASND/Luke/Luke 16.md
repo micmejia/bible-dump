@@ -1030,4 +1030,4 @@ Sumagot ang mayaman, 'Hindi po sila makikinig doon, amang Abraham. Pero kung may
 
 
 
-Pero sinabi ni Abraham, 'Kung ayaw nilang makinig sa mga isinulat ni Moises at ng mga propeta, hindi rin sila maniniwala kahit may patay pa na muling mabuhay at mangaral sa kanila.' " ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 16:6 _100 banga_<i class="alternate">:_ o, <i class="alternate">800 galon._ [^b]: 16:23 _lugar ng mga patay_<i class="alternate">:_ sa Griego, <i class="alternate">Hades._
+Pero sinabi ni Abraham, 'Kung ayaw nilang makinig sa mga isinulat ni Moises at ng mga propeta, hindi rin sila maniniwala kahit may patay pa na muling mabuhay at mangaral sa kanila.' "

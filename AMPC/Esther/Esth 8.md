@@ -364,4 +364,4 @@ The Jews had light [a dawn of new hope] and gladness and joy and honor.
 
 
 
-And in every province and in every city, wherever the king's command and his decree came, the Jews had gladness and joy, a feast and a holiday. And many from among the peoples of the land [submitted themselves to Jewish rite and] became Jews, for the fear of the Jews had fallen upon them. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And in every province and in every city, wherever the king's command and his decree came, the Jews had gladness and joy, a feast and a holiday. And many from among the peoples of the land [submitted themselves to Jewish rite and] became Jews, for the fear of the Jews had fallen upon them.

@@ -406,4 +406,4 @@ How he did not fear God, but when you were faint and weary he attacked you along
 
 
 
-Therefore when the Lord your God has given you rest from all your enemies round about in the land which the Lord your God gives you to possess as an inheritance, you shall blot out the remembrance of Amalek from under the heavens; you must not forget. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Therefore when the Lord your God has given you rest from all your enemies round about in the land which the Lord your God gives you to possess as an inheritance, you shall blot out the remembrance of Amalek from under the heavens; you must not forget.

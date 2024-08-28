@@ -70,4 +70,4 @@ that is, that God was in Christ reconciling the world to Himself, not [^d]imputi
 Now then, we are ambassadors for Christ, as though God were pleading through us: we implore _you_ on Christ's behalf, be reconciled to God. 
 
 ###### 21 
-For He made Him who knew no sin _to be_ sin for us, that we might become the righteousness of God in Him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Corinthians 5:1 Physical body [^b]: 2 Corinthians 5:2 _dwelling_ [^c]: 2 Corinthians 5:5 _down payment, earnest_ [^d]: 2 Corinthians 5:19 _reckoning_
+For He made Him who knew no sin _to be_ sin for us, that we might become the righteousness of God in Him.

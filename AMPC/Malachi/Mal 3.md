@@ -385,4 +385,4 @@ And they shall be Mine, says the Lord of hosts, in that day when I publicly reco
 
 
 
-Then shall you return and discern between the righteous and the wicked, between him who serves God and him who does not serve Him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Malachi 3:1 This is fulfilled in John the Baptist (Matt. 11:10; Mark 1:2; Luke 1:76). [^b]: Malachi 3:1 The Messiah as God’s representative will confirm and establish the covenant (see Isa. 42:6).
+Then shall you return and discern between the righteous and the wicked, between him who serves God and him who does not serve Him.

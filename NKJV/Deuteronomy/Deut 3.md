@@ -94,4 +94,4 @@ Go up to the top of Pisgah, and lift your eyes toward the west, the north, the s
 But command[^f] Joshua, and encourage him and strengthen him; for he shall go over before this people, and he shall cause them to inherit the land which you will see.' 
 
 ###### 29 
-"So we stayed in the valley opposite Beth Peor. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Deuteronomy 3:3 _struck_ [^b]: Deuteronomy 3:11 Heb. _rephaim_ [^c]: Deuteronomy 3:13 Heb. _rephaim_ [^d]: Deuteronomy 3:14 Lit. _Towns of Jair_ [^e]: Deuteronomy 3:24 _strong_ [^f]: Deuteronomy 3:28 _charge_
+"So we stayed in the valley opposite Beth Peor.

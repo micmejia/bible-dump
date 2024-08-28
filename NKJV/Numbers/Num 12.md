@@ -55,4 +55,4 @@ Then the Lord said to Moses, "If her father had but spit in her face, would she 
 So Miriam was shut out of the camp seven days, and the people did not journey till Miriam was brought in _again._ 
 
 ###### 16 
-And afterward the people moved from Hazeroth and camped in the Wilderness of Paran. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Numbers 12:1 _criticized_ [^b]: Numbers 12:1 _Cushite_ [^c]: Numbers 12:8 _appearing_ [^d]: Numbers 12:8 _riddles_ [^e]: Numbers 12:11 _the penalty for this_ [^f]: Numbers 12:14 _exiled_
+And afterward the people moved from Hazeroth and camped in the Wilderness of Paran.

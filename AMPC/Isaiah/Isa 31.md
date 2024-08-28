@@ -196,4 +196,4 @@ Then the Assyrian shall fall by a sword not of man; and a sword, not of men [but
 
 
 
-[In his flight] he shall pass beyond his rock [refuge and stronghold] because of terror; even his officers shall desert the standard in fear _and_ panic, says the Lord, Whose fire is in Zion and Whose furnace is in Jerusalem. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+[In his flight] he shall pass beyond his rock [refuge and stronghold] because of terror; even his officers shall desert the standard in fear _and_ panic, says the Lord, Whose fire is in Zion and Whose furnace is in Jerusalem.

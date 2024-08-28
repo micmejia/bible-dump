@@ -1063,4 +1063,4 @@ at ginawa ng Panginoon ang pakiusap ni Moises. Umalis ang mga langaw sa lahat ng
 
 
 
-Pero nagmatigas pa rin ang Faraon at hindi niya pinaalis ang mga Israelita. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 8:16 _lamok_<i class="alternate">:_ o, <i class="alternate">kuto._
+Pero nagmatigas pa rin ang Faraon at hindi niya pinaalis ang mga Israelita.

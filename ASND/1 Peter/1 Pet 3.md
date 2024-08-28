@@ -667,4 +667,4 @@ Ang tubig na itoʼy larawan ng bautismong nagliligtas sa atin sa pamamagitan ng 
 
 
 
-Si Jesu-Cristo ay nasa langit na ngayon, sa kanan ng Dios,[^b] at ipinasakop sa kanya ang lahat ng anghel at ang lahat ng <i class="trans-change">espiritung_ namumuno at may kapangyarihan. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 3:12 Salmo 34:12-16. [^b]: 3:22 _sa kanan ng Dios_<i class="alternate">:_ Ang ibig sabihin, <i class="alternate">si Jesus ang pinakadakila at pinakamakapangyarihan sa lahat._
+Si Jesu-Cristo ay nasa langit na ngayon, sa kanan ng Dios,[^b] at ipinasakop sa kanya ang lahat ng anghel at ang lahat ng <i class="trans-change">espiritung_ namumuno at may kapangyarihan.

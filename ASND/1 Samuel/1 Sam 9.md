@@ -832,4 +832,4 @@ at doon natulog si Saul. Kinaumagahan, tinawag ni Samuel si Saul kung saan siya 
 
 
 
-Nang palabas na sila ng bayan, sinabi ni Samuel kay Saul, "Paunahin mo ang utusan mo, may sasabihin lang ako sa iyo mula sa Dios." Kaya nauna ang utusan. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Nang palabas na sila ng bayan, sinabi ni Samuel kay Saul, "Paunahin mo ang utusan mo, may sasabihin lang ako sa iyo mula sa Dios." Kaya nauna ang utusan.

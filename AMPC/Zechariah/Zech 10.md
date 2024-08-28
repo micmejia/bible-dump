@@ -259,4 +259,4 @@ And [the Lord] will pass through the sea of distress _and_ affliction [at the he
 
 
 
-And I will strengthen [Israel] in the Lord, and they shall walk up and down _and_ glory in His name, says the Lord. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Zechariah 10:4 This Messianic referent reminds one of the “Cornerstone” imagery of Ps. 118:22-23; Isa. 28:16; Matt. 21:42; Acts 4:11; Eph. 2:19-22; I Pet. 2:6-8.
+And I will strengthen [Israel] in the Lord, and they shall walk up and down _and_ glory in His name, says the Lord.

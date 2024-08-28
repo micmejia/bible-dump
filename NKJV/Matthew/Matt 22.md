@@ -145,4 +145,4 @@ He said to them, "How then does David in the Spirit call Him 'Lord,' saying:
 If David then calls Him 'Lord,' how is He his Son?" 
 
 ###### 46 
-And no one was able to answer Him a word, nor from that day on did anyone dare question Him anymore. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Matthew 22:6 _insolently_ [^b]: Matthew 22:13 NU omits _take him away, and_ [^c]: Matthew 22:16 Lit. _look at the face of_ [^d]: Matthew 22:18 _knew_ [^e]: Matthew 22:21 _Pay_ [^f]: Matthew 22:29 _deceived_ [^g]: Matthew 22:30 NU omits _of God_
+And no one was able to answer Him a word, nor from that day on did anyone dare question Him anymore.

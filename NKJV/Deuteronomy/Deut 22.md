@@ -97,4 +97,4 @@ For he found her in the countryside, _and_ the betrothed young woman cried out, 
 then the man who lay with her shall give to the young woman's father fifty _shekels_ of silver, and she shall be his wife because he has humbled her; he shall not be permitted to divorce her all his days. 
 
 ###### 30 
-"A man shall not take his father's wife, nor uncover his father's bed. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Deuteronomy 22:1 _ignore them_ [^b]: Deuteronomy 22:3 _may not avoid responsibility_ [^c]: Deuteronomy 22:5 _detestable_ [^d]: Deuteronomy 22:21 _purge the evil person_
+"A man shall not take his father's wife, nor uncover his father's bed.

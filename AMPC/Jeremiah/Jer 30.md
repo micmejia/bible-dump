@@ -511,4 +511,4 @@ Behold, the tempest of the Lord has gone forth with wrath, a sweeping _and_ gath
 
 
 
-The fierce anger _and_ indignation of the Lord shall not turn back until He has executed _and_ accomplished the thoughts _and_ intents of His mind _and_ heart. In the latter days you shall understand this. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+The fierce anger _and_ indignation of the Lord shall not turn back until He has executed _and_ accomplished the thoughts _and_ intents of His mind _and_ heart. In the latter days you shall understand this.

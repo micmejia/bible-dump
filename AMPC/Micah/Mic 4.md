@@ -280,4 +280,4 @@ But they know not the thoughts of the Lord, neither do they understand His plan,
 
 
 
-Arise and thresh, O Daughter of Zion! For I will make your horn iron and I will make your hoofs bronze; you shall beat in pieces many peoples, and I will devote their gain to the Lord and their treasure to the Lord of all the earth. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Arise and thresh, O Daughter of Zion! For I will make your horn iron and I will make your hoofs bronze; you shall beat in pieces many peoples, and I will devote their gain to the Lord and their treasure to the Lord of all the earth.

@@ -616,4 +616,4 @@ For I look [upon the heathen prophets and the priests of pagan practices] and th
 
 
 
-Behold, these [pagan prophets and priests] are all emptiness (falseness and futility)! Their works are worthless; their molten images are empty wind (confusion and waste). ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Isaiah 41:25 Cyrus came from the east (Isa. 41:2), but defeated a number of kingdoms north of Babylon early in his reign. Palestinian authors frequently perceived invasions as coming primarily from the north.
+Behold, these [pagan prophets and priests] are all emptiness (falseness and futility)! Their works are worthless; their molten images are empty wind (confusion and waste).

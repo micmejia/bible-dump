@@ -67,4 +67,4 @@ Then he became very thirsty; so he cried out to the Lord and said, "You have giv
 So God split the hollow place that _is_ in [^d]Lehi, and water came out, and he drank; and his spirit returned, and he revived. Therefore he called its name [^e]En Hakkore, which is in Lehi to this day. 
 
 ###### 20 
-And he judged Israel twenty years in the days of the Philistines. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Judges 15:10 Lit. _bind_ [^b]: Judges 15:14 Lit. _were melted_ [^c]: Judges 15:17 Lit. _Jawbone Height_ [^d]: Judges 15:19 Lit. _Jawbone,_ [Judg. 15:14] [^e]: Judges 15:19 Lit. _Spring of the Caller_
+And he judged Israel twenty years in the days of the Philistines.

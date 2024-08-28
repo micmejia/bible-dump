@@ -196,4 +196,4 @@ For the cry [of distress] has gone round the borders of Moab; the wailing has re
 
 
 
-For the waters of Dimon are full of blood; yet I [the Lord] will bring even more on Dimon--a lion upon those of Moab who escape and upon the remnant of the land. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For the waters of Dimon are full of blood; yet I [the Lord] will bring even more on Dimon--a lion upon those of Moab who escape and upon the remnant of the land.

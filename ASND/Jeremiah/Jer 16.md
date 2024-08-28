@@ -700,4 +700,4 @@ Ang tao baʼy makakagawa ng kanyang dios? Kung makakagawa siya, hindi iyon totoo
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Kaya ngayon, ipapakita ko sa kanila ang kapangyarihan at kakayahan ko para malaman nila na ako nga ang Panginoon." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 16:19 _buong mundo_<i class="alternate">:_ sa literal, <i class="alternate">sa dulo ng mundo._
+<i class="trans-change">Sinabi ng Panginoon,_ "Kaya ngayon, ipapakita ko sa kanila ang kapangyarihan at kakayahan ko para malaman nila na ako nga ang Panginoon."

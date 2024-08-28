@@ -511,4 +511,4 @@ The poor man uses entreaties, but the rich answers roughly.
 
 
 
-The man of many friends [a friend of all the world] will prove himself a bad friend, but there is a friend who sticks closer than a brother. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Proverbs 18:9 This verse so reads in _The Septuagint_ (Greek translation of the Old Testament). Its statement squarely addresses the problem of whether one has a moral right to neglect his body by “letting nature take its unhindered course” in illness.
+The man of many friends [a friend of all the world] will prove himself a bad friend, but there is a friend who sticks closer than a brother.

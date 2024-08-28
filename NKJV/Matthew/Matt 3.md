@@ -58,4 +58,4 @@ But Jesus answered and said to him, "Permit _it to be so_ now, for thus it is fi
 When He had been baptized, Jesus came up immediately from the water; and behold, the heavens were opened to Him, and [^b]He saw the Spirit of God descending like a dove and alighting upon Him. 
 
 ###### 17 
-And suddenly a voice _came_ from heaven, saying, "This is My beloved Son, in whom I am well pleased." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Matthew 3:11 M omits _and fire_ [^b]: Matthew 3:16 Or _he_
+And suddenly a voice _came_ from heaven, saying, "This is My beloved Son, in whom I am well pleased."

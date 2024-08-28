@@ -511,4 +511,4 @@ On the mountain height of Israel will I plant it, that it may bring forth boughs
 
 
 
-And all the trees of the field shall know (understand and realize) that I the Lord have brought low the high tree, have exalted the low tree, have dried up the green tree, and have made the dry tree flourish. I the Lord have spoken, and I will do it. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And all the trees of the field shall know (understand and realize) that I the Lord have brought low the high tree, have exalted the low tree, have dried up the green tree, and have made the dry tree flourish. I the Lord have spoken, and I will do it.

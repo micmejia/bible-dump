@@ -733,4 +733,4 @@ Hindi na niya malalaman kung ang mga anak niyaʼy nagtamo ng karangalan o kahihi
 
 
 
-Ang tanging madarama na lang niya ay ang sarili niyang paghihirap at kalungkutan." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 14:3 _siyang_<i class="alternate">:_ Itoʼy nasa teksto ng Septuagint, Vulgate at Syriac. Sa Hebreo, <i class="alternate">akong._
+Ang tanging madarama na lang niya ay ang sarili niyang paghihirap at kalungkutan."

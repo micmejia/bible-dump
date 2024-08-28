@@ -370,4 +370,4 @@ Nababalot sa pilak ang haligi nito at palamuting ginto ang tumatakip dito. Ang k
 
 
 
-Lumabas kayo, kayong mga dalaga ng Jerusalem,[^a] at tingnan ninyo si Haring Solomon na may korona. Ipinutong ito sa kanya ng kanyang ina sa araw ng kanyang kasal – ang araw na buong puso niyang ikinagalak. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 3:11 _Jerusalem_<i class="alternate">:_ sa Hebreo, <i class="alternate">Zion._
+Lumabas kayo, kayong mga dalaga ng Jerusalem,[^a] at tingnan ninyo si Haring Solomon na may korona. Ipinutong ito sa kanya ng kanyang ina sa araw ng kanyang kasal – ang araw na buong puso niyang ikinagalak.

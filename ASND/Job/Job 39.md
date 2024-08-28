@@ -997,4 +997,4 @@ Mula roon naghahanap siya ng madadagit, kahit ang malayo ay naaabot ng kanyang p
 
 
 
-At kapag may nakita siyang bangkay ay pinupuntahan niya, at ang dugo nito ang iniinom ng kanyang mga inakay." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 39:13 _malaking ibon_<i class="alternate">:_ o, <i class="alternate">“ostrich.”_ Ganito rin sa talatang 14. [^b]: 39:19 _kiling_<i class="alternate">:_ o, <i class="alternate">buhok ng kabayo sa kanyang leeg._ [^c]: 39:22 _espada_<i class="alternate">:_ o, <i class="alternate">labanan._
+At kapag may nakita siyang bangkay ay pinupuntahan niya, at ang dugo nito ang iniinom ng kanyang mga inakay."

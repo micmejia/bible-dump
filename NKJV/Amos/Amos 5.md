@@ -88,4 +88,4 @@ But let justice run down like water, And righteousness like a mighty stream.
 You also carried [^e]Sikkuth[^f] your king And Chiun, your idols, The star of your gods, Which you made for yourselves. 
 
 ###### 27 
-Therefore I will send you into captivity beyond Damascus," Says the Lord, whose name _is_ the God of hosts. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Amos 5:9 Or _flashes forth destruction_ [^b]: Amos 5:11 _trample_ [^c]: Amos 5:11 Or _tribute_ [^d]: Amos 5:11 _desirable_ [^e]: Amos 5:26 LXX, Vg. _tabernacle of Moloch_ [^f]: Amos 5:26 A pagan deity
+Therefore I will send you into captivity beyond Damascus," Says the Lord, whose name _is_ the God of hosts.

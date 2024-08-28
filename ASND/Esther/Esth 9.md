@@ -997,4 +997,4 @@ at itinalaga na ipagdiwang ang Pista ng Purim sa takdang panahon, ayon sa iniuto
 
 
 
-At ang utos ni Ester na nagpapatibay ng pagganap ng Pista ng Purim ay isinulat sa aklat ng kasaysayan. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 9:19 _regalo_<i class="alternate">:_ o, <i class="alternate">regalong pagkain._ [^b]: 9:22 _regalo_<i class="alternate">:_ Tingnan ang “footnote” sa talatang 19. [^c]: 9:26 _Purim_<i class="alternate">:_ Ito ang tawag sa higit sa isang “pur”; kung sa Ingles, plural of “pur”.
+At ang utos ni Ester na nagpapatibay ng pagganap ng Pista ng Purim ay isinulat sa aklat ng kasaysayan.

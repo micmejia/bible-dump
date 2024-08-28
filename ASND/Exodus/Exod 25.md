@@ -1261,4 +1261,4 @@ Ang kailangan mo sa pagpapagawa ng lalagyan ng ilaw at sa lahat ng kagamitan nit
 
 
 
-Siguraduhin mong ipapagawa mo ang lahat ng ito ayon sa planong ipinakita ko sa iyo rito sa bundok. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 25:7 _espesyal na damit_<i class="alternate">:_ sa Hebreo, <i class="alternate">“efod.”_ [^b]: 25:12 _argolya_<i class="alternate">:_ korteng singsing. [^c]: 25:33 _almendro_<i class="alternate">:_ sa Ingles, <i class="alternate">“almond.”_
+Siguraduhin mong ipapagawa mo ang lahat ng ito ayon sa planong ipinakita ko sa iyo rito sa bundok.

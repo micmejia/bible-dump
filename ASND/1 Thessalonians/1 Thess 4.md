@@ -601,4 +601,4 @@ pagkatapos, ang mga buhay pa sa atin sa araw na iyon ay kasama nilang dadalhin s
 
 
 
-Kaya nga, <i class="trans-change">mga kapatid,_ pasiglahin ninyo ang isaʼt isa sa pamamagitan ng mga aral na ito. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 4:4 o, <i class="alternate">Dapat ay matutong magpigil ang bawat isa sa sarili niyang katawan._
+Kaya nga, <i class="trans-change">mga kapatid,_ pasiglahin ninyo ang isaʼt isa sa pamamagitan ng mga aral na ito.

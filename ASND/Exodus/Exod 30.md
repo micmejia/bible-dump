@@ -1096,4 +1096,4 @@ Huwag kayong gagawa ng mga insensong ito para sa inyong sarili. Ituring nʼyo it
 
 
 
-Ang sinumang gagawa nito para gagamiting pabango ay huwag na ninyong ituring na kababayan." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 30:29 _Ibubukod … makakahawak nito_<i class="alternate">:_ Tingnan ang Lev. 6:18 at ang “footnote” nito.
+Ang sinumang gagawa nito para gagamiting pabango ay huwag na ninyong ituring na kababayan."

@@ -76,4 +76,4 @@ He shall stand before Eleazar the priest, who shall inquire before the Lord for 
 So Moses did as the Lord commanded him. He took Joshua and set him before Eleazar the priest and before all the congregation. 
 
 ###### 23 
-And he laid his hands on him and [^e]inaugurated him, just as the Lord commanded by the hand of Moses. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Numbers 27:4 _withdrawn_ [^b]: Numbers 27:4 _inheritance_ [^c]: Numbers 27:13 Die and join your ancestors [^d]: Numbers 27:19 _commission_ [^e]: Numbers 27:23 _commissioned_
+And he laid his hands on him and [^e]inaugurated him, just as the Lord commanded by the hand of Moses.

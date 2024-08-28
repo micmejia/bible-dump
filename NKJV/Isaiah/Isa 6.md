@@ -46,4 +46,4 @@ Then I said, "Lord, how long?" And He answered: "Until the cities are laid waste
 The Lord has removed men far away, And the forsaken places _are_ many in the midst of the land. 
 
 ###### 13 
-But yet a tenth _will be_ in it, And will return and be for consuming, As a terebinth tree or as an oak, Whose stump _remains_ when it is cut down. So the holy seed _shall be_ its stump." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Isaiah 6:5 _destroyed, cut off_ [^b]: Isaiah 6:7 _atoned for_
+But yet a tenth _will be_ in it, And will return and be for consuming, As a terebinth tree or as an oak, Whose stump _remains_ when it is cut down. So the holy seed _shall be_ its stump."

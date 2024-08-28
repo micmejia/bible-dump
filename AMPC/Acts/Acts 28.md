@@ -657,4 +657,4 @@ After this Paul lived there for two entire years [at his own expense] in his own
 
 
 
-Preaching to them the kingdom of God and teaching them about the Lord Jesus Christ with boldness _and_ quite openly, and without being molested _or_ hindered. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Acts 28:4 Alexander Souter, _Pocket Lexicon_. [^b]: Acts 28:29 Many manuscripts do not contain this verse.
+Preaching to them the kingdom of God and teaching them about the Lord Jesus Christ with boldness _and_ quite openly, and without being molested _or_ hindered.

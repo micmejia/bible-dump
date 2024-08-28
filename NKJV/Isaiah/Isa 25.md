@@ -43,4 +43,4 @@ For on this mountain the hand of the Lord will rest, And Moab shall be trampled 
 And He will spread out His hands in their midst As a swimmer reaches out to swim, And He will bring down their pride Together with the trickery of their hands. 
 
 ###### 12 
-The fortress of the high fort of your walls He will bring down, lay low, _And_ bring to the ground, down to the dust. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Isaiah 25:3 _terrifying_ [^b]: Isaiah 25:5 _humbled_ [^c]: Isaiah 25:6 Lit. _fat things_ [^d]: Isaiah 25:6 _wines matured on the sediment_
+The fortress of the high fort of your walls He will bring down, lay low, _And_ bring to the ground, down to the dust.

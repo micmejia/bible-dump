@@ -1096,4 +1096,4 @@ Inilagay ang pundasyon ng templo ng Panginoon nang <i class="trans-change">ikala
 
 
 
-Natapos ang templo nang ikawalong buwan, na siyang buwan ng Bul, noong ika-11 taon <i class="trans-change">ng paghahari ni Solomon_. Pitong taon ang pagpapatayo ng templo, at sinunod ang mga detalye nito ayon sa plano. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 6:23 _kerubin_<i class="alternate">:_ Isang uri ng anghel.
+Natapos ang templo nang ikawalong buwan, na siyang buwan ng Bul, noong ika-11 taon <i class="trans-change">ng paghahari ni Solomon_. Pitong taon ang pagpapatayo ng templo, at sinunod ang mga detalye nito ayon sa plano.

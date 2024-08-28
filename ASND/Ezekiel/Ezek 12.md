@@ -931,4 +931,4 @@ Sinabi sa akin ng Panginoon,
 
 
 
-Kaya sabihin mo sa kanila: '<i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi na sa lalong madaling panahon ay magaganap na ang mga sinabi ko. <i class="trans-change">Oo_, mangyayari na ito.' " ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 12:13 _hindi niya ito makikita_<i class="alternate">:_ Ayon sa 2 Kings 25:6-7, si Zedekia na hari ng Juda ay binulag bago dalhin bilang bihag sa Babilonia.
+Kaya sabihin mo sa kanila: '<i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi na sa lalong madaling panahon ay magaganap na ang mga sinabi ko. <i class="trans-change">Oo_, mangyayari na ito.' "

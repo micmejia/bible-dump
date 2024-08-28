@@ -91,4 +91,4 @@ A righteous _man_ who falters before the wicked _Is like_ a murky spring and a [
 _It is_ not good to eat much honey; So to seek one's own glory _is not_ glory. 
 
 ###### 28 
-Whoever _has_ no rule over his own spirit _Is like_ a city broken down, without walls. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Proverbs 25:8 Lit. _contend_ or _bring a lawsuit_ [^b]: Proverbs 25:10 _the evil report concerning you not pass away_ [^c]: Proverbs 25:26 _ruined_
+Whoever _has_ no rule over his own spirit _Is like_ a city broken down, without walls.

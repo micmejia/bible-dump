@@ -1294,4 +1294,4 @@ Sa pamamagitan ng mga palawit na ito, maaalala ninyo ang pagtupad sa aking kasun
 
 
 
-Ako ang Panginoon na inyong Dios na naglabas sa inyo sa Egipto para maging inyong Dios. Ako ang Panginoon na inyong Dios." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 15:3 _handog … apoy_<i class="alternate">:_ Hindi malinaw ang ibig sabihin ng salitang Hebreo nito. Pero ayon sa gamit nito sa Lumang Tipan, itoʼy tawag sa ibaʼt ibang klase ng mga handog. Tinatawag din itong “pagkain ng Dios” sa Lev. 21:6, 21 at Bil. 28:2.
+Ako ang Panginoon na inyong Dios na naglabas sa inyo sa Egipto para maging inyong Dios. Ako ang Panginoon na inyong Dios."

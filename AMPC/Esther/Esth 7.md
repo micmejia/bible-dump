@@ -217,4 +217,4 @@ Then said Harbonah, one of the attendants serving the king, Behold, the gallows 
 
 
 
-So they hanged Haman on the gallows that he had prepared for Mordecai. Then the king's wrath was pacified. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So they hanged Haman on the gallows that he had prepared for Mordecai. Then the king's wrath was pacified.

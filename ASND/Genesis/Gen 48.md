@@ -733,4 +733,4 @@ Kaya sinabi ni Israel kay Jose, "Malapit na akong mamatay, pero <i class="trans-
 
 
 
-At ikaw <i class="trans-change">Jose_ ang magmamana ng Shekem, at hindi ang mga kapatid mo. Ang lupain na iyon na napasaakin dahil sa pakikipaglaban ko sa mga Amoreo sa pamamagitan ng espada at pana." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 48:8 _Israel_<i class="alternate">:_ na siya ring si Jacob.
+At ikaw <i class="trans-change">Jose_ ang magmamana ng Shekem, at hindi ang mga kapatid mo. Ang lupain na iyon na napasaakin dahil sa pakikipaglaban ko sa mga Amoreo sa pamamagitan ng espada at pana."

@@ -97,4 +97,4 @@ Come to Me, all _you_ who labor and are heavy laden, and I will give you rest.
 Take My yoke upon you and learn from Me, for I am [^f]gentle and lowly in heart, and you will find rest for your souls. 
 
 ###### 30 
-For My yoke _is_ easy and My burden is light." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Matthew 11:2 NU _sent by his_ [^b]: Matthew 11:17 Lit. _beat your breast_ [^c]: Matthew 11:19 _wine drinker_ [^d]: Matthew 11:19 NU _works_ [^e]: Matthew 11:23 NU _will you be exalted to heaven? No, you will be_ [^f]: Matthew 11:29 _meek_
+For My yoke _is_ easy and My burden is light."

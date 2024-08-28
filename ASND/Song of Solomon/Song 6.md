@@ -436,4 +436,4 @@ Hindi ko namalayan, ako palaʼy nandoon na sa maharlikang higaan kasama ang akin
 
 
 
-Bumalik ka, dalagang taga-Shulam, bumalik ka para makita ka namin.[^b] Bakit gusto ninyong makita ang dalaga ng Shulam na sumasayaw sa gitna ng mga manonood? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 6:10 _mga bituin_<i class="alternate">:_ o, <i class="alternate">mga kawal na may dalang mga bandila._ [^b]: 6:13 o, <i class="alternate">Umikot ka, dalaga ng Shulam, umikot ka. Ipakita mo sa amin ang iyong pagsayaw._
+Bumalik ka, dalagang taga-Shulam, bumalik ka para makita ka namin.[^b] Bakit gusto ninyong makita ang dalaga ng Shulam na sumasayaw sa gitna ng mga manonood?

@@ -469,4 +469,4 @@ Do not abhor, condemn, _and_ spurn us, for Your name's sake; do not dishonor, de
 
 
 
-Are there any among the false gods of the nations who can cause rain? Or can the heavens [of their own will] give showers? Are You [alone] not He, O Lord our God? Therefore we will wait [expectantly] for You, for You have made all these things [the heavens and the rain]. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Are there any among the false gods of the nations who can cause rain? Or can the heavens [of their own will] give showers? Are You [alone] not He, O Lord our God? Therefore we will wait [expectantly] for You, for You have made all these things [the heavens and the rain].

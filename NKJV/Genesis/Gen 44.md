@@ -109,4 +109,4 @@ For your servant became surety for the lad to my father, saying, 'If I do not br
 Now therefore, please let your servant remain instead of the lad as a slave to my lord, and let the lad go up with his brothers. 
 
 ###### 34 
-For how shall I go up to my father if the lad _is_ not with me, lest perhaps I see the evil that would [^c]come upon my father?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 44:1 Lit. _the one over_ [^b]: Genesis 44:12 _finished with_ [^c]: Genesis 44:34 Lit. _find_
+For how shall I go up to my father if the lad _is_ not with me, lest perhaps I see the evil that would [^c]come upon my father?"

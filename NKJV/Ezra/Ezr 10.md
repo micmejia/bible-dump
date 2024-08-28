@@ -138,4 +138,4 @@ Shallum, Amariah, _and_ Joseph;
 of the sons of Nebo: Jeiel, Mattithiah, Zabad, Zebina, [^h]Jaddai, Joel, _and_ Benaiah. 
 
 ###### 44 
-All these had taken pagan wives, and _some_ of them had wives _by whom_ they had children. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Ezra 10:2 _been unfaithful to_ [^b]: Ezra 10:10 _acted unfaithfully_ [^c]: Ezra 10:10 Heb. _have caused to dwell_ or _have brought back_ [^d]: Ezra 10:18 _Jehozadak,_ [1 Chr. 6:14] [^e]: Ezra 10:29 Or _Jeremoth_ [^f]: Ezra 10:35 Or _Cheluhi_ or _Cheluhu_ [^g]: Ezra 10:37 Or _Jaasu_ [^h]: Ezra 10:43 Or _Jaddu_
+All these had taken pagan wives, and _some_ of them had wives _by whom_ they had children.

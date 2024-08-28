@@ -427,4 +427,4 @@ Do you not know that your body is the temple (the very sanctuary) of the Holy Sp
 
 
 
-You were bought with a price [purchased with a [^b]preciousness and paid for, [^c]made His own]. So then, honor God _and_ bring glory to Him in your body. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Corinthians 6:13 _The Cambridge Bible_. See also Rom. 8:11; I Cor. 15:35-54. [^b]: 1 Corinthians 6:20 Joseph Thayer, _A Greek-English Lexicon_. [^c]: 1 Corinthians 6:20 Joseph Thayer, _A Greek-English Lexicon_.
+You were bought with a price [purchased with a [^b]preciousness and paid for, [^c]made His own]. So then, honor God _and_ bring glory to Him in your body.

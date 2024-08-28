@@ -280,4 +280,4 @@ The Israelites said to Moses, Behold, we perish, we are undone, all undone!
 
 
 
-Everyone who comes near, who comes near the tabernacle of the Lord, dies _or_ shall die! Are we all to perish? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Everyone who comes near, who comes near the tabernacle of the Lord, dies _or_ shall die! Are we all to perish?

@@ -931,4 +931,4 @@ Makinig kayo! Ang Panginoong Makapangyarihan ang wawasak sa mga taga-Asiria sa p
 
 
 
-Pababagsakin niya sila katulad ng pagputol ng mga puno sa kagubatan sa pamamagitan ng palakol. Silang mga katulad ng puno sa Lebanon ay pababagsakin ng Makapangyarihang Dios. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 10:27 _dahil magiging makapangyarihan kayo_<i class="alternate">:_ sa literal, <i class="alternate">dahil magiging mataba kayo._
+Pababagsakin niya sila katulad ng pagputol ng mga puno sa kagubatan sa pamamagitan ng palakol. Silang mga katulad ng puno sa Lebanon ay pababagsakin ng Makapangyarihang Dios.

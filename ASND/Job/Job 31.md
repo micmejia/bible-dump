@@ -1327,4 +1327,4 @@ o kung pinasama ko ang loob ng mga manggagawa sa aking lupain dahil kinuha ko an
 
 
 
-tumubo nawa sa lupain ko ang mga matitinik na halaman at mga damo sa halip na trigo at sebada." Dito natapos ang mga sinabi ni Job. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 31:38 _Kung … iba_<i class="alternate">:_ sa literal, <i class="alternate">Kung magrereklamo ang lupain ko laban sa akin at inaararo ito na basa sa luha._
+tumubo nawa sa lupain ko ang mga matitinik na halaman at mga damo sa halip na trigo at sebada." Dito natapos ang mga sinabi ni Job.

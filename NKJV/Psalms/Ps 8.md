@@ -34,4 +34,4 @@ All sheep and oxen-- Even the beasts of the field,
 The birds of the air, And the fish of the sea That pass through the paths of the seas. 
 
 ###### 9 
-O Lord, our Lord, How excellent _is_ Your name in all the earth! ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Psalm 8:1 Heb. _Al Gittith_ [^b]: Psalm 8:2 _established_ [^c]: Psalm 8:4 _give attention to_ or _care for_ [^d]: Psalm 8:5 Heb. _Elohim, God;_ LXX, Syr., Tg., Jewish tradition _angels_
+O Lord, our Lord, How excellent _is_ Your name in all the earth!

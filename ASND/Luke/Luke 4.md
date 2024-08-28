@@ -1459,4 +1459,4 @@ Pero sinabi sa kanila ni Jesus, "Kailangang ipangaral ko rin ang Magandang Balit
 
 
 
-Kaya nagpatuloy siya sa pangangaral sa mga sambahan ng mga Judio sa Judea. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 4:4 Deu. 8:3. [^b]: 4:8 Deu. 6:13. [^c]: 4:11 Salmo 91:11-12. [^d]: 4:12 Deu. 6:16. [^e]: 4:19 Isa. 61:1-2. [^f]: 4:27 _malubhang sakit sa balat_<i class="alternate">:_ sa ibang salin ng Biblia, <i class="alternate">ketong._ Ang Griegong salita nito ay ginamit sa ibaʼt ibang klase ng sakit sa balat na itinuturing na marumi ayon sa Lev. 13.
+Kaya nagpatuloy siya sa pangangaral sa mga sambahan ng mga Judio sa Judea.

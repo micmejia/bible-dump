@@ -121,4 +121,4 @@ _the son_ of Cainan, _the son_ of Arphaxad, _the son_ of Shem, _the son_ of Noah
 _the son_ of Methuselah, _the son_ of Enoch, _the son_ of Jared, _the son_ of Mahalalel, _the son_ of Cainan, 
 
 ###### 38 
-_the son_ of Enosh, _the son_ of Seth, _the son_ of Adam, _the son_ of God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Luke 3:2 NU, M _in the high priesthood of Annas and Caiaphas_ [^b]: Luke 3:7 _Offspring_ [^c]: Luke 3:14 Lit. _shake down_ for money [^d]: Luke 3:19 NU _brother’s wife_
+_the son_ of Enosh, _the son_ of Seth, _the son_ of Adam, _the son_ of God.

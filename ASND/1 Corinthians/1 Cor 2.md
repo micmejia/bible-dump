@@ -535,4 +535,4 @@ Sa taong pinananahanan ng Espiritu, nauunawaan niya ang mga bagay na ito, ngunit
 
 
 
-<i class="trans-change">Ayon nga sa sinasabi ng Kasulatan,_ "Sino ba ang nakakaalam ng isip ng Panginoon? Sino ba ang makakapagpayo sa kanya?" Ngunit tayo, taglay natin ang pag-iisip ni Cristo, <i class="trans-change">kaya nakakaunawa tayo._ ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2:9 Isa. 64:4.
+<i class="trans-change">Ayon nga sa sinasabi ng Kasulatan,_ "Sino ba ang nakakaalam ng isip ng Panginoon? Sino ba ang makakapagpayo sa kanya?" Ngunit tayo, taglay natin ang pag-iisip ni Cristo, <i class="trans-change">kaya nakakaunawa tayo._

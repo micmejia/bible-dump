@@ -34,4 +34,4 @@ For in that day every man shall throw away his idols of silver and his idols of 
 "Then Assyria shall fall by a sword not of man, And a sword not of mankind shall devour him. But he shall flee from the sword, And his young men shall become forced labor. 
 
 ###### 9 
-He shall cross over to his stronghold for fear, And his princes shall be afraid of the banner," Says the Lord, Whose fire _is_ in Zion And whose furnace _is_ in Jerusalem. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Isaiah 31:2 _retract_
+He shall cross over to his stronghold for fear, And his princes shall be afraid of the banner," Says the Lord, Whose fire _is_ in Zion And whose furnace _is_ in Jerusalem.

@@ -48,4 +48,4 @@ Like a cloak You will fold them up, And they will be changed. But You are the sa
 But to which of the angels has He ever said: "Sit at My right hand, Till I make Your enemies Your footstool"? 
 
 ###### 14 
-Are they not all ministering spirits sent forth to minister for those who will inherit salvation? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Hebrews 1:1 Or _in many portions_ [^b]: Hebrews 1:2 Or _ages,_ Gr. _aiones,_ aeons [^c]: Hebrews 1:3 NU omits _by Himself_ [^d]: Hebrews 1:3 _cleansed_ [^e]: Hebrews 1:3 NU omits _our_ [^f]: Hebrews 1:8 A ruler’s staff
+Are they not all ministering spirits sent forth to minister for those who will inherit salvation?

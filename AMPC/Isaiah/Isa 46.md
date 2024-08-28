@@ -280,4 +280,4 @@ Listen to Me, you stiff-hearted _and_ you who have lost heart, you who are far f
 
 
 
-I bring near My righteousness [in the deliverance of Israel], it will not be far off; and My salvation shall not tarry. And I will put salvation in Zion, for Israel My glory [yes, give salvation in Zion and My glory to Israel]. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+I bring near My righteousness [in the deliverance of Israel], it will not be far off; and My salvation shall not tarry. And I will put salvation in Zion, for Israel My glory [yes, give salvation in Zion and My glory to Israel].

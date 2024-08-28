@@ -106,4 +106,4 @@ To bring back his soul from the Pit, That he may be enlightened with the light o
 If you have anything to say, answer me; Speak, for I desire to justify you. 
 
 ###### 33 
-If not, listen to me; [^g]Hold your peace, and I will teach you wisdom." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 33:6 Lit. _as your mouth_ [^b]: Job 33:8 Lit. _in my ears_ [^c]: Job 33:18 Lit. _passing_ [^d]: Job 33:20 _desirable_ [^e]: Job 33:24 _an atonement_ [^f]: Job 33:28 Kt. _my_ [^g]: Job 33:33 _Keep silent_
+If not, listen to me; [^g]Hold your peace, and I will teach you wisdom."

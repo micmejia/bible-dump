@@ -567,4 +567,4 @@ Pagkatapos nitoʼy nabuhay pa si Job ng 140 taon. Nakita pa niya ang kanyang mga
 
 
 
-Matandang-matanda na si Job nang siya ay namatay. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 42:6 _ako po ngayon ay … alikabok_<i class="alternate">:_ o, <i class="alternate">pinagsisisihan ko na ang pag-upo sa abo at alikabok._ [^b]: 42:15 _sa buong lupain_<i class="alternate">:_ o, <i class="alternate">sa buong mundo._
+Matandang-matanda na si Job nang siya ay namatay.

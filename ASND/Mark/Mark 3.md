@@ -1162,4 +1162,4 @@ Tiningnan niya ang mga taong nakapalibot sa kanya at sinabi, "Ang mga ito ang ak
 
 
 
-Ang sinumang sumusunod sa kalooban ng Dios ang siya kong ina at mga kapatid." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 3:18 _makabayan_<i class="alternate">:_ Si Simon ay naging kabilang sa grupo ng mga Judiong lumalaban sa mga taga-Roma. [^b]: 3:22 _Satanas_<i class="alternate">:_ sa Griego, <i class="alternate">Beelzebul._ [^c]: 3:27 Ang ibig sabihin ni Jesus, nilupig na niya si Satanas at kaya na niyang palayasin ang mga sakop nito.
+Ang sinumang sumusunod sa kalooban ng Dios ang siya kong ina at mga kapatid."

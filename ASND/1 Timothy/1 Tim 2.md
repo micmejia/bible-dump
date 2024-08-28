@@ -502,4 +502,4 @@ at hindi si Adan ang nadaya, kundi si Eva ang nadaya at lumabag sa utos ng Dios.
 
 
 
-Ganoon pa man, maliligtas ang mga babae sa pamamagitan ng panganganak nila, kung magpapatuloy sila sa pananampalataya, pag-ibig, kabanalan, at tamang pag-uugali. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2:8 _lahat ng pagtitipon-tipon_<i class="alternate">:_ o, <i class="alternate">lahat ng lugar._
+Ganoon pa man, maliligtas ang mga babae sa pamamagitan ng panganganak nila, kung magpapatuloy sila sa pananampalataya, pag-ibig, kabanalan, at tamang pag-uugali.

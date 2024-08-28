@@ -31,4 +31,4 @@ Indeed, when it was whole, no object could be made from it. How much less will i
 and I will set My face against them. They will go out from _one_ fire, but _another_ fire shall devour them. Then you shall know that I _am_ the Lord, when I set My face against them. 
 
 ###### 8 
-Thus I will make the land desolate, because they have persisted in unfaithfulness,' says the Lord God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Thus I will make the land desolate, because they have persisted in unfaithfulness,' says the Lord God."

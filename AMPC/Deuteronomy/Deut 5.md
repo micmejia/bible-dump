@@ -700,4 +700,4 @@ Therefore you people shall be watchful to do as the Lord your God has commanded 
 
 
 
-You shall walk in all the ways which the Lord your God has commanded you, that you may live and that it may go well with you and that you may live long in the land which you shall possess. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+You shall walk in all the ways which the Lord your God has commanded you, that you may live and that it may go well with you and that you may live long in the land which you shall possess.

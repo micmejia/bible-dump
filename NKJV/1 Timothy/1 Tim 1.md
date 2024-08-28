@@ -66,4 +66,4 @@ This [^f]charge I commit to you, son Timothy, according to the prophecies previo
 having faith and a good conscience, which some having rejected, concerning the faith have suffered shipwreck, 
 
 ###### 20 
-of whom are Hymenaeus and Alexander, whom I delivered to Satan that they may learn not to blaspheme. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Timothy 1:3 _command_ [^b]: 1 Timothy 1:5 Lit. _unhypocritical_ [^c]: 1 Timothy 1:10 _opposed_ [^d]: 1 Timothy 1:13 _violently arrogant_ [^e]: 1 Timothy 1:17 NU _the only God,_ [^f]: 1 Timothy 1:18 _command_
+of whom are Hymenaeus and Alexander, whom I delivered to Satan that they may learn not to blaspheme.

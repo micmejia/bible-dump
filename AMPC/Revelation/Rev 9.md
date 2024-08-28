@@ -448,4 +448,4 @@ And the rest of humanity who were not killed by these plagues even then did not 
 
 
 
-And they did not repent of their murders or their practice of magic (sorceries) or their sexual vice or their thefts. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Revelation 9:1 Marvin Vincent, _Word Studies_. [^b]: Revelation 9:2 Marvin Vincent, _Word Studies_. [^c]: Revelation 9:2 Marvin Vincent, _Word Studies_.
+And they did not repent of their murders or their practice of magic (sorceries) or their sexual vice or their thefts.

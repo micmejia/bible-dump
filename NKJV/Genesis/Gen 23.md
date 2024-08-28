@@ -67,4 +67,4 @@ to Abraham as a possession in the presence of the sons of Heth, before all who w
 And after this, Abraham buried Sarah his wife in the cave of the field of Machpelah, before Mamre (that _is,_ Hebron) in the land of Canaan. 
 
 ###### 20 
-So the field and the cave that _is_ in it were deeded to Abraham by the sons of Heth as property for a burial place. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 23:6 Lit. _prince of God_ [^b]: Genesis 23:8 _entreat_
+So the field and the cave that _is_ in it were deeded to Abraham by the sons of Heth as property for a burial place.

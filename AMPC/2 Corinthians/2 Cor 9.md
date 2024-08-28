@@ -322,4 +322,4 @@ And they yearn for you while they pray for you, because of the surpassing measur
 
 
 
-Now thanks be to God for His Gift, [precious] beyond telling [His indescribable, inexpressible, free Gift]! ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Corinthians 9:6 Joseph Thayer, _A Greek-English Lexicon_. [^b]: 2 Corinthians 9:7 Joseph Thayer, _A Greek-English Lexicon_. [^c]: 2 Corinthians 9:8 Joseph Thayer, _A Greek-English Lexicon_. [^d]: 2 Corinthians 9:8 Marvin Vincent, _Word Studies_. [^e]: 2 Corinthians 9:10 Joseph Thayer, _A Greek-English Lexicon_.
+Now thanks be to God for His Gift, [precious] beyond telling [His indescribable, inexpressible, free Gift]!

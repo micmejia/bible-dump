@@ -82,4 +82,4 @@ They waited for me _as_ for the rain, And they opened their mouth wide _as_ for 
 _If_ I mocked at them, they did not believe _it,_ And the light of my countenance they did not cast down. 
 
 ###### 25 
-I chose the way for them, and sat as chief; So I dwelt as a king in the army, As one _who_ comforts mourners. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 29:6 So with ancient vss. and a few Heb. mss. (cf. [Job 20:17]); MT _wrath_
+I chose the way for them, and sat as chief; So I dwelt as a king in the army, As one _who_ comforts mourners.

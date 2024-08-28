@@ -595,4 +595,4 @@ Who says to the deep, Be dry, and I will dry up your rivers,
 
 
 
-Who says of Cyrus, He is My shepherd (ruler), and he shall perform all My pleasure _and_ fulfill all My purpose--even saying of Jerusalem, She shall [again] be built, and of the temple, Your foundation shall [again] be laid. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Who says of Cyrus, He is My shepherd (ruler), and he shall perform all My pleasure _and_ fulfill all My purpose--even saying of Jerusalem, She shall [again] be built, and of the temple, Your foundation shall [again] be laid.

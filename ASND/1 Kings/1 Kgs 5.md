@@ -601,4 +601,4 @@ At sa utos niya, nagtabas sila ng malalakiʼt magagandang uri ng bato para sa pu
 
 
 
-Kaya inihanda ng mga tauhan nina Solomon at Hiram, kasama ng mga taga-Gebal,[^b] ang mga bato at mga kahoy para sa pagpapatayo ng templo. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 5:8 _sipres_<i class="alternate">:_ o, <i class="alternate">“pine tree.”_ [^b]: 5:18 _Gebal_<i class="alternate">:_ Kinalaunan, ang lugar na ito ay tinatawag na Biblos.
+Kaya inihanda ng mga tauhan nina Solomon at Hiram, kasama ng mga taga-Gebal,[^b] ang mga bato at mga kahoy para sa pagpapatayo ng templo.

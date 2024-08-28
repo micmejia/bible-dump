@@ -82,4 +82,4 @@ And the glory of the Lord went up from the midst of the city and stood on the mo
 Then the Spirit took me up and brought me in a vision by the Spirit of God into [^f]Chaldea, to those in captivity. And the vision that I had seen went up from me. 
 
 ###### 25 
-So I spoke to those in captivity of all the things the Lord had shown me. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Ezekiel 11:2 Advice [^b]: Ezekiel 11:3 Pot [^c]: Ezekiel 11:11 Pot [^d]: Ezekiel 11:16 _holy place_ [^e]: Ezekiel 11:19 Lit. _you_ (pl.) [^f]: Ezekiel 11:24 Or _Babylon,_ and so elsewhere in the book
+So I spoke to those in captivity of all the things the Lord had shown me.

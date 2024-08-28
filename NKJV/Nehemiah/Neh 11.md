@@ -115,4 +115,4 @@ in Hadid, Zeboim, Neballat;
 in Lod, Ono, _and_ the Valley of Craftsmen. 
 
 ###### 36 
-Some of the Judean divisions of Levites _were_ in Benjamin. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Nehemiah 11:9 Or _Hassenuah_ [^b]: Nehemiah 11:14 Or _the son of Haggedolim_ [^c]: Nehemiah 11:16 Temple [^d]: Nehemiah 11:17 Or _Michah_ [^e]: Nehemiah 11:22 _work_ [^f]: Nehemiah 11:22 Temple [^g]: Nehemiah 11:23 _fixed share_ [^h]: Nehemiah 11:24 Lit. _at the king’s hand_
+Some of the Judean divisions of Levites _were_ in Benjamin.

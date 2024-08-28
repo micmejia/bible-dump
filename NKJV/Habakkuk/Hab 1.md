@@ -57,4 +57,4 @@ They take up all of them with a hook, They catch them in their net, And gather t
 Therefore they sacrifice to their net, And burn incense to their dragnet; Because by them their share _is_ [^f]sumptuous And their food plentiful. 
 
 ###### 17 
-Shall they therefore empty their net, And continue to slay nations without pity? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Habakkuk 1:1 _oracle, prophecy_ [^b]: Habakkuk 1:3 Or _toil_ [^c]: Habakkuk 1:8 Lit. _horsemen_ [^d]: Habakkuk 1:8 Lit. _spring about_ [^e]: Habakkuk 1:11 Lit. _spirit_ or _wind_ [^f]: Habakkuk 1:16 Lit. _fat_
+Shall they therefore empty their net, And continue to slay nations without pity?

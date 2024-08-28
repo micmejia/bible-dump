@@ -469,4 +469,4 @@ For never to have obtained a [full, personal] knowledge of the way of righteousn
 
 
 
-There has befallen them the thing spoken of in the true proverb, The dog turns back to his own vomit, and, The sow is washed only to wallow again in the mire. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Peter 2:13 Some ancient manuscripts read “love feasts.” [^b]: 2 Peter 2:14 Joseph Thayer, _A Greek-English Lexicon_.
+There has befallen them the thing spoken of in the true proverb, The dog turns back to his own vomit, and, The sow is washed only to wallow again in the mire.

@@ -45,4 +45,4 @@ Many shall be purified, made white, and refined, but the wicked shall do wickedl
 Blessed _is_ he who waits, and comes to the one thousand three hundred and thirty-five days. 
 
 ###### 13 
-"But you, go _your way_ till the end; for you shall rest, and will arise to your inheritance at the end of the days." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Daniel 12:2 Lit. _abhorrence_
+"But you, go _your way_ till the end; for you shall rest, and will arise to your inheritance at the end of the days."

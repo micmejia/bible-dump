@@ -42,4 +42,4 @@ But since then there has not arisen in Israel a prophet like Moses, whom the Lor
 in all the signs and wonders which the Lord sent him to do in the land of Egypt, before Pharaoh, before all his servants, and in all his land, 
 
 ###### 12 
-and by all that mighty power and all the great terror which Moses performed in the sight of all Israel. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Deuteronomy 34:2 Mediterranean [^b]: Deuteronomy 34:7 _eyesight was not weakened_ [^c]: Deuteronomy 34:7 _reduced_
+and by all that mighty power and all the great terror which Moses performed in the sight of all Israel.

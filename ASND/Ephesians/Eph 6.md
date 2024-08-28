@@ -798,4 +798,4 @@ Mga kapatid, sumainyo nawa ang kapayapaan, pag-ibig at pananampalatayang mula sa
 
 
 
-Pagpalain nawa ng Panginoong Jesu-Cristo ang lahat ng nagmamahal sa kanya nang tapat. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 6:3 Exo. 20:12; Deu. 5:16. [^b]: 6:4 _magulang_<i class="alternate">:_ sa literal, <i class="alternate">mga ama._ [^c]: 6:18 _pinabanal_<i class="alternate">:_ Tingnan ang “footnote” sa 1:15.
+Pagpalain nawa ng Panginoong Jesu-Cristo ang lahat ng nagmamahal sa kanya nang tapat.

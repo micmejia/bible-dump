@@ -78,4 +78,4 @@ whom I have sent to you for this very purpose, that you may know our affairs, an
 Peace to the brethren, and love with faith, from God the Father and the Lord Jesus Christ. 
 
 ###### 24 
-Grace _be_ with all those who love our Lord Jesus Christ in sincerity. Amen. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Ephesians 6:9 NU _He who is both their Master and yours is_ [^b]: Ephesians 6:11 _schemings_ [^c]: Ephesians 6:12 NU _this darkness,_
+Grace _be_ with all those who love our Lord Jesus Christ in sincerity. Amen.

@@ -58,4 +58,4 @@ Instead you _ought_ to say, "If the Lord wills, we shall live and do this or tha
 But now you boast in your arrogance. All such boasting is evil. 
 
 ###### 17 
-Therefore, to him who knows to do good and does not do _it,_ to him it is sin. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: James 4:1 _battles_ [^b]: James 4:2 _battle_ [^c]: James 4:2 NU, M omit _Yet_ [^d]: James 4:4 NU omits _Adulterers and_ [^e]: James 4:12 NU adds _and Judge_ [^f]: James 4:12 NU, M _But who_ [^g]: James 4:12 NU _a neighbor_ [^h]: James 4:13 M _let us_
+Therefore, to him who knows to do good and does not do _it,_ to him it is sin.

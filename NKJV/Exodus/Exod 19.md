@@ -82,4 +82,4 @@ But Moses said to the Lord, "The people cannot come up to Mount Sinai; for You w
 Then the Lord said to him, "Away! Get down and then come up, you and Aaron with you. But do not let the priests and the people break through to come up to the Lord, lest He break out against them." 
 
 ###### 25 
-So Moses went down to the people and spoke to them. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Exodus 19:4 _sustained_ [^b]: Exodus 19:7 _set_ [^c]: Exodus 19:18 LXX _all the people_
+So Moses went down to the people and spoke to them.

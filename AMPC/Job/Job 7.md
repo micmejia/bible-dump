@@ -448,4 +448,4 @@ If I have sinned, what [harm] have I done You, O You Watcher _and_ Keeper of men
 
 
 
-And why do You not pardon my transgression and take away my iniquity? For now shall I lie down in the dust; and [even if] You will seek me diligently, [it will be too late, for] I shall not be. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And why do You not pardon my transgression and take away my iniquity? For now shall I lie down in the dust; and [even if] You will seek me diligently, [it will be too late, for] I shall not be.

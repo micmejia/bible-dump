@@ -658,4 +658,4 @@ And I sought a man among them who should build up the wall and stand in the gap 
 
 
 
-Therefore have I poured out My indignation upon them; I have consumed them with the fire of My wrath; their own way have I repaid [by bringing it] upon their own heads, says the Lord God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Therefore have I poured out My indignation upon them; I have consumed them with the fire of My wrath; their own way have I repaid [by bringing it] upon their own heads, says the Lord God.

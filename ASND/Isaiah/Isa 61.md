@@ -304,4 +304,4 @@ Nalulugod ako sa Panginoon kong Dios, dahil para niya akong binihisan ng kaligta
 
 
 
-Sapagkat kung papaanong <i class="trans-change">tiyak_ na sa lupa tumutubo ang mga binhi, ang tagumpay at katuwiran naman ay <i class="trans-change">tiyak_ na manggagaling sa Panginoong Dios, at pupurihin siya ng mga bansa. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Sapagkat kung papaanong <i class="trans-change">tiyak_ na sa lupa tumutubo ang mga binhi, ang tagumpay at katuwiran naman ay <i class="trans-change">tiyak_ na manggagaling sa Panginoong Dios, at pupurihin siya ng mga bansa.

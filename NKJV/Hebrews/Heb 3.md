@@ -64,4 +64,4 @@ Now with whom was He angry forty years? _Was it_ not with those who sinned, whos
 And to whom did He swear that they would not enter His rest, but to those who did not obey? 
 
 ###### 19 
-So we see that they could not enter in because of unbelief. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Hebrews 3:6 NU omits _firm to the end_ [^b]: Hebrews 3:13 _encourage_
+So we see that they could not enter in because of unbelief.

@@ -49,4 +49,4 @@ And the land shall mourn, every family by itself: the family of the house of Dav
 the family of the house of Levi by itself, and their wives by themselves; the family of Shimei by itself, and their wives by themselves; 
 
 ###### 14 
-all the families that remain, every family by itself, and their wives by themselves. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Zechariah 12:1 _oracle, prophecy_ [^b]: Zechariah 12:2 Lit. _reeling_ [^c]: Zechariah 12:11 Heb. _Megiddon_
+all the families that remain, every family by itself, and their wives by themselves.

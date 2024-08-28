@@ -75,4 +75,4 @@ Greet every saint in Christ Jesus. The brethren who are with me greet you.
 All the saints greet you, but especially those who are of Caesar's household. 
 
 ###### 23 
-The grace of our Lord Jesus Christ be with [^h]you all. Amen. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Philippians 4:3 NU, M _Yes_ [^b]: Philippians 4:5 _graciousness_ or _forbearance_ [^c]: Philippians 4:10 _you have revived your care_ [^d]: Philippians 4:12 _live humbly_ [^e]: Philippians 4:12 _live in prosperity_ [^f]: Philippians 4:13 NU _Him who_ [^g]: Philippians 4:18 Or _have received all_ [^h]: Philippians 4:23 NU _your spirit_
+The grace of our Lord Jesus Christ be with [^h]you all. Amen.

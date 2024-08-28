@@ -1294,4 +1294,4 @@ Ang bilang ng mga lalaking kumain ay mga 4,000 maliban pa sa mga babae at mga ba
 
 
 
-Matapos pauwiin ni Jesus ang mga tao, sumakay siya sa bangka at pumunta sa lupain ng Magadan. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 15:4 Exo. 20:12; Deu. 5:16. [^b]: 15:4 Exo. 21:17; Lev. 20:9. [^c]: 15:9 Isa. 29:13. [^d]: 15:22 _Anak ni David_<i class="alternate">:_ Ito ang tawag ng mga Judio sa Mesias o Cristo dahil sa paniniwalang siyaʼy mula sa angkan ni David.
+Matapos pauwiin ni Jesus ang mga tao, sumakay siya sa bangka at pumunta sa lupain ng Magadan.

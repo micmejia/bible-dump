@@ -94,4 +94,4 @@ He made two rings of gold for it under its molding, by its two corners on both s
 And he made the poles of acacia wood, and overlaid them with gold. ## Making the Anointing Oil and the Incense 
 
 ###### 29 
-He also made the holy anointing oil and the pure incense of sweet spices, according to the work of the perfumer. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+He also made the holy anointing oil and the pure incense of sweet spices, according to the work of the perfumer.

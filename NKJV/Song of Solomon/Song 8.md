@@ -48,4 +48,4 @@ My own vineyard _is_ before me. You, O Solomon, _may have_ a thousand, And those
 You who dwell in the gardens, The companions listen for your voice-- Let me hear it! 
 
 ###### 14 
-Make[^d] haste, my beloved, And be like a gazelle Or a young stag On the mountains of spices. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Song of Solomon 8:6 _severe,_ lit. _hard_ [^b]: Song of Solomon 8:6 Or _Sheol_ [^c]: Song of Solomon 8:6 Lit. _A flame of Yah_, poetic form of _YHWH, the Lord_ [^d]: Song of Solomon 8:14 _Hurry,_ lit. _Flee_
+Make[^d] haste, my beloved, And be like a gazelle Or a young stag On the mountains of spices.

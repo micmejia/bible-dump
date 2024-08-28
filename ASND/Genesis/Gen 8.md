@@ -733,4 +733,4 @@ Nang naamoy ng Panginoon ang mabangong samyo nito, sinabi niya sa kanyang sarili
 
 
 
-Habang nagpapatuloy ang mundo, may panahon ng pagtatanim at pag-ani. May taglamig at may tag-init, may tag-ulan at may tag-araw, at may araw at may gabi." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 8:20 _malinis_<i class="alternate">:_ Ang ibig sabihin, <i class="alternate">maaaring ihandog_ o, <i class="alternate">kainin._
+Habang nagpapatuloy ang mundo, may panahon ng pagtatanim at pag-ani. May taglamig at may tag-init, may tag-ulan at may tag-araw, at may araw at may gabi."

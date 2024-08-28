@@ -70,4 +70,4 @@ Beloved, do not avenge yourselves, but _rather_ give place to wrath; for it is w
 Therefore "If your enemy is hungry, feed him; If he is thirsty, give him a drink; For in so doing you will heap coals of fire on his head." 
 
 ###### 21 
-Do not be overcome by evil, but overcome evil with good. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Romans 12:1 _urge_ [^b]: Romans 12:1 _rational_ [^c]: Romans 12:12 _persevering_ [^d]: Romans 12:13 Lit. _pursuing_ [^e]: Romans 12:17 Or _Provide good_
+Do not be overcome by evil, but overcome evil with good.

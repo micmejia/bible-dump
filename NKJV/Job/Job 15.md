@@ -112,4 +112,4 @@ He will shake off his unripe grape like a vine, And cast off his blossom like an
 For the company of hypocrites _will be_ barren, And fire will consume the tents of bribery. 
 
 ###### 35 
-They conceive trouble and bring forth futility; Their womb prepares deceit." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 15:2 Lit. _his belly_ [^b]: Job 15:4 _meditation_ or _complaint_ [^c]: Job 15:11 Or _a secret thing_ [^d]: Job 15:12 Or _why do your eyes flash_ [^e]: Job 15:19 Or _earth_ [^f]: Job 15:21 _Terrifying_ [^g]: Job 15:24 _attack_
+They conceive trouble and bring forth futility; Their womb prepares deceit."

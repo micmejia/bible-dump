@@ -535,4 +535,4 @@ May pag-asa pa kaya ako? Sinong makapagsasabi na may pag-asa pa ako?
 
 
 
-Kasama kong malilibing ang pag-asa ko. Magkakasama kami roon sa ilalim ng lupa." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 17:5 _paghihirap_<i class="alternate">:_ sa literal, <i class="alternate">pagkabulag._
+Kasama kong malilibing ang pag-asa ko. Magkakasama kami roon sa ilalim ng lupa."

@@ -52,4 +52,4 @@ while, through the proof of this ministry, they glorify God for the obedience of
 and by their prayer for you, who long for you because of the exceeding grace of God in you. 
 
 ###### 15 
-Thanks _be_ to God for His indescribable gift! ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Corinthians 9:4 NU _confidence._ [^b]: 2 Corinthians 9:5 _encourage_ [^c]: 2 Corinthians 9:5 Lit. _covetousness_ [^d]: 2 Corinthians 9:6 _with blessings_ [^e]: 2 Corinthians 9:6 _with blessings_ [^f]: 2 Corinthians 9:7 _compulsion_ [^g]: 2 Corinthians 9:10 NU omits _may_ [^h]: 2 Corinthians 9:10 NU _will supply_
+Thanks _be_ to God for His indescribable gift!

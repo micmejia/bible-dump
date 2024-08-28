@@ -70,4 +70,4 @@ But I will come to you shortly, if the Lord wills, and I will know, not the word
 For the kingdom of God _is_ not in word but in power. 
 
 ###### 21 
-What do you want? Shall I come to you with a rod, or in love and a spirit of gentleness? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Corinthians 4:3 Lit. _day_ [^b]: 1 Corinthians 4:5 _motives_ [^c]: 1 Corinthians 4:6 _arrogant_ [^d]: 1 Corinthians 4:7 _distinguishes you_ [^e]: 1 Corinthians 4:9 Lit. _theater_ [^f]: 1 Corinthians 4:13 _exhort, encourage_ [^g]: 1 Corinthians 4:18 _arrogant_
+What do you want? Shall I come to you with a rod, or in love and a spirit of gentleness?

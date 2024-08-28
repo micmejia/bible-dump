@@ -427,4 +427,4 @@ The captain had told the man of God, If the Lord should make windows in heaven, 
 
 
 
-And so it was fulfilled to him, for the people trampled on him in the gate, and he died. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And so it was fulfilled to him, for the people trampled on him in the gate, and he died.

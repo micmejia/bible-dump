@@ -385,4 +385,4 @@ Then Solomon took a census of all the aliens in the land of Israel, like the cen
 
 
 
-And he assigned 70,000 of them to be burden bearers, 80,000 to work in the mountain quarries, and 3,600 as overseers to direct the people's work. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Chronicles 2:1 See footnote on Deut. 12:5. [^b]: 2 Chronicles 2:14 I Kings 7:14 says that this woman was of the tribe of Naphtali. Doubtless her mother’s marriage identified her with a tribe of which she was not a native.
+And he assigned 70,000 of them to be burden bearers, 80,000 to work in the mountain quarries, and 3,600 as overseers to direct the people's work.

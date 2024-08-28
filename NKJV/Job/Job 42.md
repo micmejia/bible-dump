@@ -57,4 +57,4 @@ In all the land were found no women _so_ beautiful as the daughters of Job; and 
 After this Job lived one hundred and forty years, and saw his children and grandchildren _for_ four generations. 
 
 ###### 17 
-So Job died, old and full of days. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 42:6 _despise_ [^b]: Job 42:8 Lit. _his face_ [^c]: Job 42:9 Lit. _lifted up the face of Job_ [^d]: Job 42:10 Lit. _turned the captivity of Job,_ what was captured from Job [^e]: Job 42:14 Lit. _Handsome as the Day_ [^f]: Job 42:14 _Cassia,_ a fragrance [^g]: Job 42:14 Lit. _The Horn of Color_ or _The Colorful Ray_
+So Job died, old and full of days.

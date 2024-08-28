@@ -205,4 +205,4 @@ Pagkatapos, lilikha ang Panginoon ng ulap na lililim sa ibabaw ng Jerusalem[^b] 
 
 
 
-at parang kubol na magsisilbing lilim sa init ng araw at kublihan sa panahon ng bagyo at ulan. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 4:2 _mga pananim_<i class="alternate">:_ sa literal, <i class="alternate">mga sanga._ [^b]: 4:5 _Jerusalem_<i class="alternate">:_ sa Hebreo, <i class="alternate">Bundok ng Zion._
+at parang kubol na magsisilbing lilim sa init ng araw at kublihan sa panahon ng bagyo at ulan.

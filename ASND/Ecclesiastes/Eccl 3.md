@@ -733,4 +733,4 @@ Sino ang nakakaalam kung ang espiritu ng taoʼy umaakyat sa itaas at ang espirit
 
 
 
-Kaya naisip ko na ang pinakamabuting gawin ng tao ay magpakasaya sa pinaghirapan niya, dahil para sa kanya iyon. Walang sinumang makapagsasabi sa kanya kung ano ang mangyayari kapag siya ay namatay. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 3:5 _pagsasama_<i class="alternate">:_ sa literal, <i class="alternate">pagyayakapan._
+Kaya naisip ko na ang pinakamabuting gawin ng tao ay magpakasaya sa pinaghirapan niya, dahil para sa kanya iyon. Walang sinumang makapagsasabi sa kanya kung ano ang mangyayari kapag siya ay namatay.

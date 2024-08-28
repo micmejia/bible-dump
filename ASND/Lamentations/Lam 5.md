@@ -732,4 +732,4 @@ Ibalik nʼyo kami sa inyo, at kami ay babalik. Ibalik nʼyo kami sa dati naming 
 
 
 
-Talaga bang sobra na ang galit nʼyo sa amin kaya itinakwil nʼyo na kami? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Talaga bang sobra na ang galit nʼyo sa amin kaya itinakwil nʼyo na kami?

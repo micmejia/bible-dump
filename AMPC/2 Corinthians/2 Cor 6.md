@@ -385,4 +385,4 @@ So, come out from among [unbelievers], and separate (sever) yourselves from them
 
 
 
-And I will be a Father to you, and you shall be My sons and daughters, says the Lord Almighty. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Corinthians 6:1 Joseph Thayer, _A Greek-English Lexicon_.
+And I will be a Father to you, and you shall be My sons and daughters, says the Lord Almighty.

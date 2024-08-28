@@ -384,4 +384,4 @@ I, Paul, write you this final greeting with my own hand. This is the mark _and_ 
 
 
 
-The grace (spiritual blessing and favor) of our Lord Jesus Christ (the Messiah) be with you all. _Amen (so be it)._ ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Thessalonians 3:5 Joseph Thayer, _A Greek-English Lexicon of the New Testament_. [^b]: 2 Thessalonians 3:12 Robert Jamieson, A.R. Fausset and David Brown, _A Commentary_.
+The grace (spiritual blessing and favor) of our Lord Jesus Christ (the Messiah) be with you all. _Amen (so be it)._

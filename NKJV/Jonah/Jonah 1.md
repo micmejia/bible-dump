@@ -57,4 +57,4 @@ So they picked up Jonah and threw him into the sea, and the sea ceased from its 
 Then the men feared the Lord exceedingly, and offered a sacrifice to the Lord and took vows. ## Jonah's Prayer and Deliverance 
 
 ###### 17 
-Now the Lord had prepared a great fish to swallow Jonah. And Jonah was in the belly of the fish three days and three nights. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Jonah 1:4 Lit. _hurled_ [^b]: Jonah 1:5 Lit. _from upon them_ [^c]: Jonah 1:9 Heb. _YHWH_ [^d]: Jonah 1:12 Lit. _hurl_
+Now the Lord had prepared a great fish to swallow Jonah. And Jonah was in the belly of the fish three days and three nights.

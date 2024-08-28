@@ -490,4 +490,4 @@ And the earth shall respond to the grain and the wine and the oil [which beseech
 
 
 
-And I will sow her for Myself anew in the land, and I will have love, pity, _and_ mercy for her who had not obtained love, pity, _and_ mercy; and I will say to those who were not My people, You are My people, and they shall say, You are my God! ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I will sow her for Myself anew in the land, and I will have love, pity, _and_ mercy for her who had not obtained love, pity, _and_ mercy; and I will say to those who were not My people, You are My people, and they shall say, You are my God!

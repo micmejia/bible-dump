@@ -766,4 +766,4 @@ Gagamitin ko ang mga bansang ito para subukin ang mga Israelita kung talagang tu
 
 
 
-Ito ang dahilan kung bakit hindi agad itinaboy ng Panginoon ang natirang mga bansa at hindi niya pinahintulutang matalo ito ni Josue. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2:5 _Bokim_<i class="alternate">:_ Ang ibig sabihin, <i class="alternate">mga umiiyak._ [^b]: 2:16 _pinuno_<i class="alternate">:_ Sa ibang mga salin, hukom. Pero hindi sila mga hukom (judges) lang, kundi sila ay mga pinakapinuno sa buong Israel dahil wala pang mga hari noon.
+Ito ang dahilan kung bakit hindi agad itinaboy ng Panginoon ang natirang mga bansa at hindi niya pinahintulutang matalo ito ni Josue.

@@ -109,4 +109,4 @@ And He said to them, "Go." So when they had come out, they went into the herd of
 Then those who kept _them_ fled; and they went away into the city and told everything, including what _had happened_ to the demon-possessed _men._ 
 
 ###### 34 
-And behold, the whole city came out to meet Jesus. And when they saw Him, they begged _Him_ to depart from their region. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Matthew 8:15 NU, M _Him_ [^b]: Matthew 8:27 Lit. _What sort of man is this_ [^c]: Matthew 8:28 NU _Gadarenes_ [^d]: Matthew 8:31 NU _send us into_
+And behold, the whole city came out to meet Jesus. And when they saw Him, they begged _Him_ to depart from their region.

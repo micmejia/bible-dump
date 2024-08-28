@@ -1036,4 +1036,4 @@ Thus will I cause lewdness to cease out of the land, that all women may be taugh
 
 
 
-Thus your lewdness shall be recompensed upon you and you shall suffer the penalty for your sinful idolatry; and you shall know (understand and realize) that I am the Lord God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Thus your lewdness shall be recompensed upon you and you shall suffer the penalty for your sinful idolatry; and you shall know (understand and realize) that I am the Lord God.

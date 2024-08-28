@@ -67,4 +67,4 @@ My people will dwell in a peaceful habitation, In secure dwellings, and in quiet
 Though hail comes down on the forest, And the city is brought low in humiliation. 
 
 ###### 20 
-Blessed _are_ you who sow beside all waters, Who send out freely the feet of the ox and the donkey. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Isaiah 32:2 _shelter_ [^b]: Isaiah 32:4 _hasty_ [^c]: Isaiah 32:5 _noble_ [^d]: Isaiah 32:8 _noble_
+Blessed _are_ you who sow beside all waters, Who send out freely the feet of the ox and the donkey.

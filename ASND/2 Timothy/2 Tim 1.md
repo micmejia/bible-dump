@@ -600,4 +600,4 @@ Sa katunayan, nang dumating siya sa Roma, sinikap niya akong hanapin hanggang sa
 
 
 
-At alam na alam mo kung paano niya ako tinulungan noong nasa Efeso ako. Kaawaan sana siya ng Panginoon sa Araw ng Paghuhukom. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1:12 _ipinagkatiwala ko sa kanya_<i class="alternate">:_ o, <i class="alternate">ipinagkatiwala niya sa akin._ [^b]: 1:16 _tinutulungan_<i class="alternate">:_ o, <i class="alternate">inaaliw._
+At alam na alam mo kung paano niya ako tinulungan noong nasa Efeso ako. Kaawaan sana siya ng Panginoon sa Araw ng Paghuhukom.

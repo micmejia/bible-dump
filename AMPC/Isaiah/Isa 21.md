@@ -364,4 +364,4 @@ For the Lord has said this to me, Within a year, according to the years of a hir
 
 
 
-And the remainder of the number of archers _and_ their bows, the mighty men of the sons of Kedar, will be diminished _and_ few; for the Lord, the God of Israel, has spoken it. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And the remainder of the number of archers _and_ their bows, the mighty men of the sons of Kedar, will be diminished _and_ few; for the Lord, the God of Israel, has spoken it.

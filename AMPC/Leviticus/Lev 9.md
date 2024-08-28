@@ -511,4 +511,4 @@ Moses and Aaron went into the Tent of Meeting, and when they came out they bless
 
 
 
-Then there came a fire out from before the Lord and consumed the burnt offering and the fat on the altar; and when all the people saw it, they shouted and fell on their faces. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then there came a fire out from before the Lord and consumed the burnt offering and the fat on the altar; and when all the people saw it, they shouted and fell on their faces.

@@ -61,4 +61,4 @@ Then to Sarah he said, "Behold, I have given your brother a thousand _pieces_ of
 So Abraham prayed to God; and God healed Abimelech, his wife, and his female servants. Then they bore _children;_ 
 
 ###### 18 
-for the Lord had closed up all the wombs of the house of Abimelech because of Sarah, Abraham's wife. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 20:3 Lit. _married to a husband_ [^b]: Genesis 20:5 _innocence_ [^c]: Genesis 20:9 _sinned against_ [^d]: Genesis 20:16 Lit. _is a covering of the eyes for you to all_ [^e]: Genesis 20:16 Or _justified_
+for the Lord had closed up all the wombs of the house of Abimelech because of Sarah, Abraham's wife.

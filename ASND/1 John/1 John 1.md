@@ -336,4 +336,4 @@ Ngunit kung ipinagtatapat natin sa Dios ang ating mga kasalanan, maaasahan natin
 
 
 
-Kung sinasabi nating wala tayong kasalanan, ginagawa nating sinungaling ang Dios, at wala sa atin ang kanyang salita. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1:1 _nariyan na_<i class="alternate">:_ o, <i class="alternate">nabubuhay na._ [^b]: 1:4 _aming_<i class="alternate">:_ o, <i class="alternate">ating._
+Kung sinasabi nating wala tayong kasalanan, ginagawa nating sinungaling ang Dios, at wala sa atin ang kanyang salita.

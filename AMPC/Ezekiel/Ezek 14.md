@@ -490,4 +490,4 @@ And yet, behold, in it shall be left a remnant (an escaped portion), both sons a
 
 
 
-And they shall console you when you see their evil ways and their rebellious actions. Then you shall know (understand and realize) that I have not done without cause all that I have done in Jerusalem, says the Lord God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And they shall console you when you see their evil ways and their rebellious actions. Then you shall know (understand and realize) that I have not done without cause all that I have done in Jerusalem, says the Lord God.

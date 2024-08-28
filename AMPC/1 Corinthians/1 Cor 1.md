@@ -657,4 +657,4 @@ But it is from Him that you have your life in Christ Jesus, Whom God made our Wi
 
 
 
-So then, as it is written, Let him who boasts _and_ proudly rejoices _and_ glories, boast _and_ proudly rejoice _and_ glory in the Lord. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Corinthians 1:7 Joseph Thayer, _A Greek-English Lexicon of the New Testament_.
+So then, as it is written, Let him who boasts _and_ proudly rejoices _and_ glories, boast _and_ proudly rejoice _and_ glory in the Lord.

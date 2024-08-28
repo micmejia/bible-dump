@@ -832,4 +832,4 @@ Dumating ang panahon na nanganak ang asawa ni Manoa. Lalaki ang anak niya at pin
 
 
 
-Ang Espiritu ng Panginoon ay nagsimulang kumilos sa kanya habang naroon siya sa kampo ng Dan,[^a] sa kalagitnaan ng Zora at Estaol. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 13:25 _kampo ng Dan_<i class="alternate">:_ o, <i class="alternate">Mahane Dan._
+Ang Espiritu ng Panginoon ay nagsimulang kumilos sa kanya habang naroon siya sa kampo ng Dan,[^a] sa kalagitnaan ng Zora at Estaol.

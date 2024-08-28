@@ -1078,4 +1078,4 @@ According to the word of the Lord they gave him the city for which he asked--Tim
 
 
 
-These are the inheritances which Eleazar the priest, Joshua son of Nun, and the heads of the fathers' houses of the tribes of Israel distributed by lot in Shiloh before the Lord at the door of the Tent of Meeting. So they finished dividing the land. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+These are the inheritances which Eleazar the priest, Joshua son of Nun, and the heads of the fathers' houses of the tribes of Israel distributed by lot in Shiloh before the Lord at the door of the Tent of Meeting. So they finished dividing the land.

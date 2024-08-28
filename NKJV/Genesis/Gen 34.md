@@ -100,4 +100,4 @@ and all their wealth. All their little ones and their wives they took captive; a
 Then Jacob said to Simeon and Levi, "You have troubled me by making me obnoxious among the inhabitants of the land, among the Canaanites and the Perizzites; and since I _am_ few in number, they will gather themselves together against me and kill me. I shall be destroyed, my household and I." 
 
 ###### 31 
-But they said, "Should he treat our sister like a harlot?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 34:3 Lit. _clung to_ [^b]: Genesis 34:3 _tenderly_ [^c]: Genesis 34:5 _kept silent_ [^d]: Genesis 34:12 _bride-price_
+But they said, "Should he treat our sister like a harlot?"

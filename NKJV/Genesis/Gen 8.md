@@ -73,4 +73,4 @@ Then Noah built an altar to the Lord, and took of every clean animal and of ever
 And the Lord smelled a soothing aroma. Then the Lord said in His heart, "I will never again curse the ground for man's sake, although the imagination[^a] of man's heart _is_ evil from his youth; nor will I again destroy every living thing as I have done. 
 
 ###### 22 
-"While the earth remains, Seedtime and harvest, Cold and heat, Winter and summer, And day and night Shall not cease." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 8:21 _intent_ or _thought_
+"While the earth remains, Seedtime and harvest, Cold and heat, Winter and summer, And day and night Shall not cease."

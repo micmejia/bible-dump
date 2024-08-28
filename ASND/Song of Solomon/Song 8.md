@@ -468,4 +468,4 @@ O irog kong namamasyal sa hardin, mabuti pa ang mga kaibigan mo, naririnig nila 
 
 
 
-Halika, aking mahal. <i class="trans-change">Tumakbo ka nang mabilis_ gaya ng usa sa kabundukan na punong-puno ng mga halamang ginagawang pabango. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 8:9 sa literal, <i class="alternate">Kung pader man siya, patatayuan namin ito ng mga toreng pilak. Kung siya namaʼy pintuan, igagawa namin siya ng trangka na yari sa kahoy na sedro._
+Halika, aking mahal. <i class="trans-change">Tumakbo ka nang mabilis_ gaya ng usa sa kabundukan na punong-puno ng mga halamang ginagawang pabango.

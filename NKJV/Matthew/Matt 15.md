@@ -124,4 +124,4 @@ So they all ate and were filled, and they took up seven large baskets full of th
 Now those who ate were four thousand men, besides women and children. 
 
 ###### 39 
-And He sent away the multitude, got into the boat, and came to the region of [^f]Magdala. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Matthew 15:6 NU omits _or mother_ [^b]: Matthew 15:6 NU _word_ [^c]: Matthew 15:8 NU omits _draw near to Me with their mouth, And_ [^d]: Matthew 15:30 _crippled_ [^e]: Matthew 15:31 _crippled_ [^f]: Matthew 15:39 NU _Magadan_
+And He sent away the multitude, got into the boat, and came to the region of [^f]Magdala.

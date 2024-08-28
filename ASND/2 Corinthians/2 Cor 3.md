@@ -601,4 +601,4 @@ Ngayon, ang binabanggit ditong Panginoon ay ang <i class="trans-change">Banal na
 
 
 
-At dahil naalis na ang takip sa ating isipan, nakikita na natin ang kapangyarihan ng Panginoon. At ang kapangyarihang ito ay mula sa Panginoon, na siyang <i class="trans-change">Banal na_ Espiritu, ang siyang unti-unting bumabago sa atin hanggang tayoʼy maging katulad niya. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+At dahil naalis na ang takip sa ating isipan, nakikita na natin ang kapangyarihan ng Panginoon. At ang kapangyarihang ito ay mula sa Panginoon, na siyang <i class="trans-change">Banal na_ Espiritu, ang siyang unti-unting bumabago sa atin hanggang tayoʼy maging katulad niya.

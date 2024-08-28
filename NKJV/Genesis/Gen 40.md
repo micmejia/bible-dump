@@ -76,4 +76,4 @@ Then he restored the chief butler to his butlership again, and he placed the cup
 But he hanged the chief baker, as Joseph had interpreted to them. 
 
 ###### 23 
-Yet the chief butler did not remember Joseph, but forgot him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 40:6 _dejected_ [^b]: Genesis 40:13 _position_ [^c]: Genesis 40:16 Or _baskets of white bread_ [^d]: Genesis 40:19 Lit. _up_
+Yet the chief butler did not remember Joseph, but forgot him.

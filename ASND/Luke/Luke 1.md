@@ -2481,4 +2481,4 @@ upang maliwanagan ang mga taong nasa kadiliman at takot sa kamatayan. At tuturua
 
 
 
-Lumaki ang batang si Juan at lumakas sa espiritu. Nanirahan siya sa ilang hanggang sa araw na nagsimula siyang mangaral sa mga Israelita. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1:17 _magulang_<i class="alternate">:_ sa literal, <i class="alternate">ama._ [^b]: 1:27 _birhen_<i class="alternate">:_ o, <i class="alternate">dalaga._ [^c]: 1:28 _Matuwa ka_<i class="alternate">:_ o, <i class="alternate">Binabati kita._
+Lumaki ang batang si Juan at lumakas sa espiritu. Nanirahan siya sa ilang hanggang sa araw na nagsimula siyang mangaral sa mga Israelita.

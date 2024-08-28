@@ -490,4 +490,4 @@ Let a cry be heard from their houses when You suddenly bring a troop upon them, 
 
 
 
-Yet, Lord, You know all their plotting against me to slay me. Forgive not their iniquity, nor blot out their sin from Your sight. But let them be overthrown before You; deal with them in the time of Your anger. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Yet, Lord, You know all their plotting against me to slay me. Forgive not their iniquity, nor blot out their sin from Your sight. But let them be overthrown before You; deal with them in the time of Your anger.

@@ -52,4 +52,4 @@ And Joshua blessed him, and gave Hebron to Caleb the son of Jephunneh as an inhe
 Hebron therefore became the inheritance of Caleb the son of Jephunneh the Kenizzite to this day, because he wholly followed the Lord God of Israel. 
 
 ###### 15 
-And the name of Hebron formerly was Kirjath Arba (_Arba was_ the greatest man among the Anakim). Then the land had rest from war. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Joshua 14:8 _courage of the people fail_ [^b]: Joshua 14:10 Lit. _walked_
+And the name of Hebron formerly was Kirjath Arba (_Arba was_ the greatest man among the Anakim). Then the land had rest from war.

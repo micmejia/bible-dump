@@ -64,4 +64,4 @@ O Lord, why have You made us stray from Your ways, _And_ hardened our heart from
 Your holy people have possessed _it_ but a little while; Our adversaries have trodden down Your sanctuary. 
 
 ###### 19 
-We have become _like_ those of old, over whom You never ruled, Those who were never called by Your name. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Isaiah 63:1 Or _adorned_ [^b]: Isaiah 63:9 Kt., LXX, Syr. _not afflicted_ [^c]: Isaiah 63:11 MT, Vg. _shepherds_
+We have become _like_ those of old, over whom You never ruled, Those who were never called by Your name.

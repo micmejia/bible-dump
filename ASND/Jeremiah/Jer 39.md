@@ -601,4 +601,4 @@ Pero ililigtas kita sa mga panahong iyon. Hindi kita ibibigay sa mga taong kinat
 
 
 
-Ililigtas kita. Hindi ka mamamatay sa digmaan. Maliligtas ka dahil nagtitiwala ka sa akin. <i class="trans-change">Ako_, ang Panginoon, ang nagsasabi nito.' " ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 39:3 _umupo sa Gitnang Pintuan_<i class="alternate">:_ Para ipakita na nasakop na nila ang lungsod at sila na ang namumuno rito. [^b]: 39:4 _Lambak ng Jordan_<i class="alternate">:_ sa Hebreo, <i class="alternate">Araba._
+Ililigtas kita. Hindi ka mamamatay sa digmaan. Maliligtas ka dahil nagtitiwala ka sa akin. <i class="trans-change">Ako_, ang Panginoon, ang nagsasabi nito.' "

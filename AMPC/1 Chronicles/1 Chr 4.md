@@ -910,4 +910,4 @@ And some of them from the sons of Simeon, 500 men, went to Mount Seir, having fo
 
 
 
-They destroyed the remnant of the Amalekites who had escaped, and they have dwelt there to this day. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Chronicles 4:17 This clause, “These are the sons of Bithiah daughter of Pharaoh, whom Mered married,” has been transposed from I Chron. 4:18 to I Chron. 4:17.
+They destroyed the remnant of the Amalekites who had escaped, and they have dwelt there to this day.

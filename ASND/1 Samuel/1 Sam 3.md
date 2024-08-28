@@ -700,4 +700,4 @@ Kaya kinilala si Samuel na propeta ng Panginoon mula Dan hanggang sa Beersheba.[
 
 
 
-Patuloy na nagpapakita ang Panginoon kay Samuel doon sa Shilo, at doon ay ipinakikilala ng Panginoon ang kanyang sarili sa pamamagitan ng pakikipag-usap sa kanya. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 3:20 _mula Dan … sa Beersheba_<i class="alternate">:_ Ang ibig sabihin, <i class="alternate">sa buong Israel._
+Patuloy na nagpapakita ang Panginoon kay Samuel doon sa Shilo, at doon ay ipinakikilala ng Panginoon ang kanyang sarili sa pamamagitan ng pakikipag-usap sa kanya.

@@ -79,4 +79,4 @@ Therefore thus says the Lord, who redeemed Abraham, concerning the house of Jaco
 But when he sees his children, The work of My hands, in his midst, They will hallow My name, And hallow the Holy One of Jacob, And fear the God of Israel. 
 
 ###### 24 
-These also who erred in spirit will come to understanding, And those who complained will learn doctrine." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Isaiah 29:1 Jerusalem, lit. _Lion of God_ [^b]: Isaiah 29:7 Jerusalem [^c]: Isaiah 29:11 _scroll_ [^d]: Isaiah 29:12 Lit. _does not know books_ [^e]: Isaiah 29:20 _terrifying_
+These also who erred in spirit will come to understanding, And those who complained will learn doctrine."

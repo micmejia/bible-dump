@@ -552,4 +552,4 @@ And Joseph took an oath from the sons of Israel, saying, God will surely visit y
 
 
 
-So Joseph died, being 110 years old; and they embalmed him, and he was put [^a]in a coffin in Egypt. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 50:26 Joseph’s body remained in Egypt until the exodus to the promised land of Canaan about 200 years later. Its final resting-place was Shechem, near Samaria, “in the parcel of ground which Jacob bought from the sons of Hamor, the father of Shechem” (Josh. 24:32). Here each of his brothers was also buried (Acts 7:15, 16).
+So Joseph died, being 110 years old; and they embalmed him, and he was put [^a]in a coffin in Egypt.

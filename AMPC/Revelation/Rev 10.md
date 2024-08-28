@@ -238,4 +238,4 @@ So I took the little book from the angel's hand and ate _and_ swallowed it; it w
 
 
 
-Then they said to me, You are to make a fresh prophecy concerning many peoples _and_ races and nations and languages and kings. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Revelation 10:5 G. Abbott-Smith, _Manual Greek Lexicon_. [^b]: Revelation 10:6 G. Abbott-Smith, _Manual Greek Lexicon_.
+Then they said to me, You are to make a fresh prophecy concerning many peoples _and_ races and nations and languages and kings.

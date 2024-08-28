@@ -73,4 +73,4 @@ Are not my days few? Cease! Leave me alone, that I may take a little comfort,
 Before I go _to the place from which_ I shall not return, To the land of darkness and the shadow of death, 
 
 ###### 22 
-A land as dark as darkness _itself,_ As the shadow of death, without any order, _Where_ even the light _is_ like darkness.' " ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 10:1 Lit. _leave on myself_ [^b]: Job 10:15 Lit. _will not_
+A land as dark as darkness _itself,_ As the shadow of death, without any order, _Where_ even the light _is_ like darkness.' "

@@ -94,4 +94,4 @@ But the Lord hardened Pharaoh's heart, and he would not let them go.
 Then Pharaoh said to him, "Get away from me! Take heed to yourself and see my face no more! For in the day you see my face you shall die!" 
 
 ###### 29 
-So Moses said, "You have spoken well. I will never see your face again." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Exodus 10:17 _make supplication to_ [^b]: Exodus 10:21 Lit. _that one may feel the darkness_ [^c]: Exodus 10:25 Lit. _into our hands_
+So Moses said, "You have spoken well. I will never see your face again."

@@ -468,4 +468,4 @@ Do hasten _and_ try your best to come to me before winter. Eubulus wishes to be 
 
 
 
-The Lord _Jesus Christ_ be with your spirit. Grace (God's favor and blessing) be with you. _Amen (so be it)._ ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Timothy 4:18 Joseph Thayer, _A Greek-English Lexicon of the New Testament_: A primary meaning of the Greek _ruomai_: “draw to one’s self.”
+The Lord _Jesus Christ_ be with your spirit. Grace (God's favor and blessing) be with you. _Amen (so be it)._

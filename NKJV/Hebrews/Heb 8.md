@@ -46,4 +46,4 @@ None of them shall teach his neighbor, and none his brother, saying, 'Know the L
 For I will be merciful to their unrighteousness, and their sins [^b]and their lawless deeds I will remember no more." 
 
 ###### 13 
-In that He says, "A new _covenant_," He has made the first obsolete. Now what is becoming obsolete and growing old is ready to vanish away. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Hebrews 8:2 Lit. _holies_ [^b]: Hebrews 8:12 NU omits _and their lawless deeds_
+In that He says, "A new _covenant_," He has made the first obsolete. Now what is becoming obsolete and growing old is ready to vanish away.

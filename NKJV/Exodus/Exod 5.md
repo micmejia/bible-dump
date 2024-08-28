@@ -76,4 +76,4 @@ And they said to them, "Let the Lord look on you and judge, because you have mad
 So Moses returned to the Lord and said, "Lord, why have You brought trouble on this people? Why _is_ it You have sent me? 
 
 ###### 23 
-For since I came to Pharaoh to speak in Your name, he has done evil to this people; neither have You delivered Your people at all." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Exodus 5:1 _keep a pilgrim-feast_ [^b]: Exodus 5:21 Lit. _our scent to stink before_
+For since I came to Pharaoh to speak in Your name, he has done evil to this people; neither have You delivered Your people at all."

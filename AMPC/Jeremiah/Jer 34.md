@@ -469,4 +469,4 @@ And Zedekiah king of Judah and his princes will I give into the hands of their e
 
 
 
-Behold, I will command, says the Lord, and cause them [the Chaldeans] to return to this city; and they shall fight against it and take it and burn it with fire. I will make the cities of Judah a desolation without inhabitant. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Jeremiah 34:15 See footnote on Deut. 12:5.
+Behold, I will command, says the Lord, and cause them [the Chaldeans] to return to this city; and they shall fight against it and take it and burn it with fire. I will make the cities of Judah a desolation without inhabitant.

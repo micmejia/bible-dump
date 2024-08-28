@@ -54,4 +54,4 @@ not giving heed to Jewish fables and commandments of men who turn from the truth
 To the pure all things are pure, but to those who are defiled and unbelieving nothing is pure; but even their mind and conscience are defiled. 
 
 ###### 16 
-They profess to know God, but in works they deny _Him,_ being [^d]abominable, disobedient, and disqualified for every good work. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Titus 1:4 NU _Christ Jesus_ [^b]: Titus 1:6 _debauchery,_ lit. _incorrigibility_ [^c]: Titus 1:7 Lit. _overseer_ [^d]: Titus 1:16 _detestable_
+They profess to know God, but in works they deny _Him,_ being [^d]abominable, disobedient, and disqualified for every good work.

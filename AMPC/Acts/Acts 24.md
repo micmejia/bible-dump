@@ -574,4 +574,4 @@ At the same time he hoped to get money from Paul, for which reason he continued 
 
 
 
-But when two years had gone by, Felix was succeeded in office by Porcius Festus; and wishing to gain favor with the Jews, Felix left Paul still a prisoner in chains. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Acts 24:4 Marvin Vincent, _Word Studies_. [^b]: Acts 24:5 Marvin Vincent, _Word Studies_. [^c]: Acts 24:6 Many manuscripts do not contain the remainder of verse 6, all of verse 7, and the first part of verse 8.
+But when two years had gone by, Felix was succeeded in office by Porcius Festus; and wishing to gain favor with the Jews, Felix left Paul still a prisoner in chains.

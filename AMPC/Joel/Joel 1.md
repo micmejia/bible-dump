@@ -426,4 +426,4 @@ O Lord, to You will I cry, for the fire has devoured the pastures _and_ folds of
 
 
 
-Even the wild beasts of the field pant _and_ cry to You, for the water brooks are dried up and fire has consumed the pastures _and_ folds of the wilderness _and_ the plain. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Joel 1:1 Joel was a prophet of Judah and possibly a contemporary of Elisha.
+Even the wild beasts of the field pant _and_ cry to You, for the water brooks are dried up and fire has consumed the pastures _and_ folds of the wilderness _and_ the plain.

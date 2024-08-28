@@ -868,4 +868,4 @@ But Paul selected Silas and set out, being commended by the brethren to the grac
 
 
 
-And he passed through Syria and Cilicia, establishing _and_ strengthening the churches. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Acts 15:3 Joseph Thayer, _A Greek-English Lexicon_. [^b]: Acts 15:5 Joseph Thayer, _A Greek-English Lexicon_. [^c]: Acts 15:7 Joseph Thayer, _A Greek-English Lexicon_. [^d]: Acts 15:9 Joseph Thayer, _A Greek-English Lexicon_. [^e]: Acts 15:24 Marvin Vincent, _Word Studies_. [^f]: Acts 15:35 Joseph Thayer, _A Greek-English Lexicon_.
+And he passed through Syria and Cilicia, establishing _and_ strengthening the churches.

@@ -280,4 +280,4 @@ Therefore thus will I do to you, O Israel; and because I will do this to you, pr
 
 
 
-For behold, He Who forms the mountains and creates the wind and declares to man what is his thought, Who makes the morning darkness and treads on the heights of the earth--the Lord, the God of hosts, is His name! ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+For behold, He Who forms the mountains and creates the wind and declares to man what is his thought, Who makes the morning darkness and treads on the heights of the earth--the Lord, the God of hosts, is His name!

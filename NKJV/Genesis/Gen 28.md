@@ -73,4 +73,4 @@ Then Jacob made a vow, saying, "If God will be with me, and keep me in this way 
 so that I come back to my father's house in peace, then the Lord shall be my God. 
 
 ###### 22 
-And this stone which I have set as a pillar shall be God's house, and of all that You give me I will surely give a [^e]tenth to You." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 28:1 _commanded_ [^b]: Genesis 28:4 Lit. _Of your sojournings_ [^c]: Genesis 28:15 _protect_ [^d]: Genesis 28:19 Lit. _House of God_ [^e]: Genesis 28:22 _tithe_
+And this stone which I have set as a pillar shall be God's house, and of all that You give me I will surely give a [^e]tenth to You."

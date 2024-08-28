@@ -97,4 +97,4 @@ You will also declare a thing, And it will be established for you; So light will
 When they cast _you_ down, and you say, 'Exaltation _will come!_' Then He will save the humble _person._ 
 
 ###### 30 
-He will _even_ deliver one who is not innocent; Yes, he will be delivered by the purity of your hands." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 22:8 Lit. _man of arm_ [^b]: Job 22:9 Lit. _arms_ [^c]: Job 22:17 LXX, Syr. _us_ [^d]: Job 22:20 LXX _substance is_ [^e]: Job 22:25 Ancient vss. suggest _defense;_ MT _gold,_ as in v. [24]
+He will _even_ deliver one who is not innocent; Yes, he will be delivered by the purity of your hands."

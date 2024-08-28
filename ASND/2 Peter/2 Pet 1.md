@@ -699,4 +699,4 @@ Higit sa lahat, dapat ninyong tandaan na ang lahat ng isinulat ng mga propeta sa
 
 
 
-Sapagkat hindi galing sa sarili nilang kalooban ang mga ipinangaral nila kundi sa Banal na Espiritu na nag-udyok sa kanila upang sabihin ang salita ng Dios. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1:19 _hanggang sa araw … isipan ninyo_<i class="alternate">:_ sa literal, <i class="alternate">hanggang sa pagsapit ng bukang-liwayway, at pagsinag ng tala ng umaga sa mga puso ninyo._
+Sapagkat hindi galing sa sarili nilang kalooban ang mga ipinangaral nila kundi sa Banal na Espiritu na nag-udyok sa kanila upang sabihin ang salita ng Dios.

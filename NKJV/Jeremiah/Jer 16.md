@@ -70,4 +70,4 @@ O Lord, my strength and my fortress, My refuge in the day of affliction, The Gen
 Will a man make gods for himself, Which _are_ not gods? 
 
 ###### 21 
-"Therefore behold, I will this once cause them to know, I will cause them to know My hand and My might; And they shall know that My name _is_ the Lord. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Jeremiah 16:9 _rejoicing_ [^b]: Jeremiah 16:12 _walks after the stubbornness_ or _imagination_
+"Therefore behold, I will this once cause them to know, I will cause them to know My hand and My might; And they shall know that My name _is_ the Lord.

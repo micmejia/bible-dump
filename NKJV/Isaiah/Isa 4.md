@@ -25,4 +25,4 @@ When the Lord has washed away the filth of the daughters of Zion, and purged the
 then the Lord will create above every dwelling place of Mount Zion, and above her assemblies, a cloud and smoke by day and the shining of a flaming fire by night. For over all the glory there _will be_ a [^b]covering. 
 
 ###### 6 
-And there will be a tabernacle for shade in the daytime from the heat, for a place of refuge, and for a shelter from storm and rain. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Isaiah 4:4 _bloodshed_ [^b]: Isaiah 4:5 _canopy_
+And there will be a tabernacle for shade in the daytime from the heat, for a place of refuge, and for a shelter from storm and rain.

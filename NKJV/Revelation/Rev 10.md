@@ -40,4 +40,4 @@ So I went to the angel and said to him, "Give me the little book." And he said t
 Then I took the little book out of the angel's hand and ate it, and it was as sweet as honey in my mouth. But when I had eaten it, my stomach became bitter. 
 
 ###### 11 
-And [^d]he said to me, "You must prophesy again about many peoples, nations, tongues, and kings." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Revelation 10:4 NU, M _sounded,_ [^b]: Revelation 10:4 NU, M omit _to me_ [^c]: Revelation 10:5 NU, M _right hand_ [^d]: Revelation 10:11 NU, M _they_
+And [^d]he said to me, "You must prophesy again about many peoples, nations, tongues, and kings."

@@ -87,4 +87,4 @@ From the blood of the slain, From the fat of the mighty, The bow of Jonathan did
 I am distressed for you, my brother Jonathan; You have been very pleasant to me; Your love to me was wonderful, Surpassing the love of women. 
 
 ###### 27 
-"How the mighty have fallen, And the weapons of war perished!" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Samuel 1:2 To show grief [^b]: 2 Samuel 1:9 _agony_ [^c]: 2 Samuel 1:18 Lit. _of the Upright_ [^d]: 2 Samuel 1:21 Lit. _defiled_
+"How the mighty have fallen, And the weapons of war perished!"

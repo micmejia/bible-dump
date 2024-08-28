@@ -136,4 +136,4 @@ saying, "What do you want Me to do for you?" He said, "Lord, that I may receive 
 Then Jesus said to him, "Receive your sight; your faith has made you well." 
 
 ###### 43 
-And immediately he received his sight, and followed Him, glorifying God. And all the people, when they saw _it,_ gave praise to God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Luke 18:2 _respect_ [^b]: Luke 18:3 _Avenge me on_ [^c]: Luke 18:5 _vindicate_ [^d]: Luke 18:14 _put down_ [^e]: Luke 18:28 NU _our own_ [^f]: Luke 18:31 _fulfilled_
+And immediately he received his sight, and followed Him, glorifying God. And all the people, when they saw _it,_ gave praise to God.

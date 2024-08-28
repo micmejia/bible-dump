@@ -76,4 +76,4 @@ Then he arose, took the young Child and His mother, and came into the land of Is
 But when he heard that Archelaus was reigning over Judea instead of his father Herod, he was afraid to go there. And being warned by God in a dream, he turned aside into the region of Galilee. 
 
 ###### 23 
-And he came and dwelt in a city called Nazareth, that it might be fulfilled which was spoken by the prophets, "He shall be called a Nazarene." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Matthew 2:1 Gr. _magoi_ [^b]: Matthew 2:7 Gr. _magoi_
+And he came and dwelt in a city called Nazareth, that it might be fulfilled which was spoken by the prophets, "He shall be called a Nazarene."

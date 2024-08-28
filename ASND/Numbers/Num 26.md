@@ -2020,4 +2020,4 @@ Wala ni isang natira sa mga kasama sa naunang sensus na ginawa nina Moises at Aa
 
 
 
-Sapagkat sinabi noon ng Panginoon sa kanila na tiyak na mamamatay sila roon sa ilang, at walang makakaligtas sa kanila maliban lang kina Caleb na anak ni Jefune at Josue na anak ni Nun. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 26:5 _Jacob_<i class="alternate">:_ sa Hebreo, <i class="alternate">Israel._
+Sapagkat sinabi noon ng Panginoon sa kanila na tiyak na mamamatay sila roon sa ilang, at walang makakaligtas sa kanila maliban lang kina Caleb na anak ni Jefune at Josue na anak ni Nun.

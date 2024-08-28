@@ -700,4 +700,4 @@ Ililibing kita sa kailaliman kasama ng mga tao noong unang panahon. Mananatili k
 
 
 
-Tatapusin na kita, at nakakatakot ang magiging katapusan mo. Mawawala ka na at kahit hanapin ka, hindi ka na matatagpuan. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Tatapusin na kita, at nakakatakot ang magiging katapusan mo. Mawawala ka na at kahit hanapin ka, hindi ka na matatagpuan. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito."

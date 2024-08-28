@@ -115,4 +115,4 @@ And the cloud of the Lord _was_ above them by day when they went out from the ca
 So it was, whenever the ark set out, that Moses said: "Rise up, O Lord! Let Your enemies be scattered, And let those who hate You flee before You." 
 
 ###### 36 
-And when it rested, he said: "Return, O Lord, _To_ the many thousands of Israel." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Numbers 10:8 _statute_ [^b]: Numbers 10:14 _banner_ [^c]: Numbers 10:21 Prepared by the Gershonites and the Merarites [^d]: Numbers 10:29 _Jethro,_ [Ex. 3:1]; LXX _Raguel_ [^e]: Numbers 10:31 Act as our guide
+And when it rested, he said: "Return, O Lord, _To_ the many thousands of Israel."

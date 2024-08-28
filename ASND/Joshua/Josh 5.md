@@ -403,4 +403,4 @@ Nang malapit na si Josue sa Jerico, bigla niyang nakita ang isang lalaking nakat
 
 
 
-Sumagot ang kumander ng mga sundalo ng Panginoon, "Hubarin mo ang sandalyas mo, dahil banal na lugar ang kinatatayuan mo." At sinunod ni Josue ang iniutos sa kanya. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 5:4-6 _masaganang lupain_<i class="alternate">:_ sa literal, <i class="alternate">lupain na dumadaloy ang gatas at pulot._ [^b]: 5:9 _Gilgal_<i class="alternate">:_ Maaaring ang ibig sabihin, <i class="alternate">inalis._
+Sumagot ang kumander ng mga sundalo ng Panginoon, "Hubarin mo ang sandalyas mo, dahil banal na lugar ang kinatatayuan mo." At sinunod ni Josue ang iniutos sa kanya.

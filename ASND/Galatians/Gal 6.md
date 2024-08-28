@@ -600,4 +600,4 @@ Mula ngayon, huwag nʼyo na akong guluhin. Ang tanda ng mga sugat sa katawan ko 
 
 
 
-Mga kapatid, pagpalain nawa kayo ng ating Panginoong Jesu-Cristo. Amen. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 6:16 _pinili ng Dios_<i class="alternate">:_ sa literal, <i class="alternate">Israel ng Dios._
+Mga kapatid, pagpalain nawa kayo ng ating Panginoong Jesu-Cristo. Amen.

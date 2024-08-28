@@ -799,4 +799,4 @@ Magiging madilim doon, dahil wala nang ilaw kahit isa. Wala na ring masayang tin
 
 
 
-At ang lungsod na iyon ang pumatay sa mga propeta at sa mga pinabanal <i class="trans-change">ng Dios_, at sa iba pang mga tao sa buong mundo. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 18:10 _sa loob lang ng maikling panahon_<i class="alternate">:_ sa literal, <i class="alternate">sa loob ng isang oras._ Ganito rin sa talatang 17 at 19.
+At ang lungsod na iyon ang pumatay sa mga propeta at sa mga pinabanal <i class="trans-change">ng Dios_, at sa iba pang mga tao sa buong mundo.

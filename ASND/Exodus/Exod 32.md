@@ -1162,4 +1162,4 @@ Lumakad ka na at pangunahan ang mga tao papunta sa lugar na sinabi ko sa iyo, at
 
 
 
-At nagpadala ang Panginoon ng mga karamdaman sa mga Israelita dahil sinamba nila ang <i class="trans-change">dios-diosang_ baka na ginawa ni Aaron. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 32:1 _dios_<i class="alternate">:_ o, <i class="alternate">mga dios._ Ito rin ay nasa mga talatang 4, 8, 23 at 31. [^b]: 32:13 _Jacob_<i class="alternate">:_ sa Hebreo, <i class="alternate">Israel._
+At nagpadala ang Panginoon ng mga karamdaman sa mga Israelita dahil sinamba nila ang <i class="trans-change">dios-diosang_ baka na ginawa ni Aaron.

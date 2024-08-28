@@ -112,4 +112,4 @@ So Moses went out of the city from Pharaoh and spread out his hands to the Lord;
 And when Pharaoh saw that the rain, the hail, and the thunder had ceased, he sinned yet more; and he hardened his heart, he and his servants. 
 
 ###### 35 
-So the heart of Pharaoh was hard; neither would he let the children of Israel go, as the Lord had spoken by Moses. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Exodus 9:28 _Pray to, Make supplication to_ [^b]: Exodus 9:28 Lit. _voices of God_ or _sounds of God_ [^c]: Exodus 9:32 Lit. _darkened_
+So the heart of Pharaoh was hard; neither would he let the children of Israel go, as the Lord had spoken by Moses.

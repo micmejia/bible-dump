@@ -532,4 +532,4 @@ Therefore a man shall leave his father and his mother and shall become united _a
 
 
 
-And the man and his wife were both naked and were not embarrassed _or_ ashamed in each other's presence. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 2:7 The same essential chemical elements are found in man and animal life that are in the soil. This scientific fact was not known to man until recent times, but God was displaying it here.
+And the man and his wife were both naked and were not embarrassed _or_ ashamed in each other's presence.

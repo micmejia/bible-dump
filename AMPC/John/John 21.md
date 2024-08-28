@@ -531,4 +531,4 @@ It is this same disciple who is bearing witness to these things and who has reco
 
 
 
-And there are also many other things which Jesus did. If they should be all recorded one by one [in detail], I suppose that even the world itself could not contain (have room for) the books that would be written. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: John 21:5 Alexander Souter, _Pocket Lexicon_.
+And there are also many other things which Jesus did. If they should be all recorded one by one [in detail], I suppose that even the world itself could not contain (have room for) the books that would be written.

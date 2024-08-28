@@ -73,4 +73,4 @@ Your sun shall no longer go down, Nor shall your moon withdraw itself; For the L
 Also your people _shall_ all _be_ righteous; They shall inherit the land forever, The branch of My planting, The work of My hands, That I may be glorified. 
 
 ###### 22 
-A little one shall become a thousand, And a small one a strong nation. I, the Lord, will hasten it in its time." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Isaiah 60:18 _devastation_
+A little one shall become a thousand, And a small one a strong nation. I, the Lord, will hasten it in its time."

@@ -103,4 +103,4 @@ The righteous will never be removed, But the wicked will not inhabit the [^f]ear
 The mouth of the righteous brings forth wisdom, But the perverse tongue will be cut out. 
 
 ###### 32 
-The lips of the righteous know what is acceptable, But the mouth of the wicked _what is_ perverse. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Proverbs 10:8 Lit. _the foolish of lips_ [^b]: Proverbs 10:8 _be thrust down_ or _ruined_ [^c]: Proverbs 10:13 Lit. _lacks heart_ [^d]: Proverbs 10:17 _leads_ [^e]: Proverbs 10:21 Lit. _heart_ [^f]: Proverbs 10:30 _land_
+The lips of the righteous know what is acceptable, But the mouth of the wicked _what is_ perverse.

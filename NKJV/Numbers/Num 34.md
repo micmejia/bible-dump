@@ -94,4 +94,4 @@ a leader from the tribe of the children of Asher, Ahihud the son of Shelomi;
 and a leader from the tribe of the children of Naphtali, Pedahel the son of Ammihud." 
 
 ###### 29 
-These _are_ the ones the Lord commanded to [^b]divide the inheritance among the children of Israel in the land of Canaan. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Numbers 34:11 Lit. _shoulder_ [^b]: Numbers 34:29 _apportion_
+These _are_ the ones the Lord commanded to [^b]divide the inheritance among the children of Israel in the land of Canaan.

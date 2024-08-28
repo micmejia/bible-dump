@@ -115,4 +115,4 @@ As the Lord commanded Moses, so Aaron laid it up before the Testimony, to be kep
 And the children of Israel ate manna forty years, until they came to an inhabited land; they ate manna until they came to the border of the land of Canaan. 
 
 ###### 36 
-Now an omer _is_ one-tenth of an ephah. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Exodus 16:4 Lit. _the portion of a day in its day_ [^b]: Exodus 16:20 _listen to_ [^c]: Exodus 16:31 Lit. _What?_ [Ex. 16:15]
+Now an omer _is_ one-tenth of an ephah.

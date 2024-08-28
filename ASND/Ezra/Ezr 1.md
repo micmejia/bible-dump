@@ -303,4 +303,4 @@ Ipinagkatiwala ito ni Haring Cyrus kay Mitredat na ingat-yaman ng kaharian niya.
 
 
 
-Sa kabuuan, may mga 5,400 gamit na ginto at pilak. Dinala lahat ito ni Sheshbazar nang bumalik siya sa Jerusalem mula sa Babilonia kasama ng ibang mga bihag. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1:1 _tinupad … Jeremias_<i class="alternate">:_ para mangyari na mapalaya ang mga Israelita sa pagkabihag sa Babilonia paglipas ng 70 taon (Tingnan sa Jer. 25:11 at 29:10).
+Sa kabuuan, may mga 5,400 gamit na ginto at pilak. Dinala lahat ito ni Sheshbazar nang bumalik siya sa Jerusalem mula sa Babilonia kasama ng ibang mga bihag.

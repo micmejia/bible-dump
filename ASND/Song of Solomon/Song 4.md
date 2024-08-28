@@ -535,4 +535,4 @@ Tulad ka ng isang hardin na may bukal na umaagos mula sa <i class="trans-change"
 
 
 
-Kayong hanging amihan at habagat, umihip kayo sa aking hardin upang kumalat ang bango nito. Papuntahin ang aking mahal sa kanyang hardin upang kainin ang mga piling bunga nito. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Kayong hanging amihan at habagat, umihip kayo sa aking hardin upang kumalat ang bango nito. Papuntahin ang aking mahal sa kanyang hardin upang kainin ang mga piling bunga nito.

@@ -666,4 +666,4 @@ Ingatan mo ang pananampalataya mo at panatilihin mong malinis ang konsensya mo. 
 
 
 
-Kabilang na rito sina Hymeneus at Alexander na ipinaubaya ko na kay Satanas para maturuang huwag lumapastangan <i class="trans-change">sa Dios_. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1:11 _sa Magandang Balita ng_<i class="alternate">:_ o, <i class="alternate">sa Magandang Balita tungkol sa._
+Kabilang na rito sina Hymeneus at Alexander na ipinaubaya ko na kay Satanas para maturuang huwag lumapastangan <i class="trans-change">sa Dios_.

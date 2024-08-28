@@ -1260,4 +1260,4 @@ Pero kung hindi, hindi rin sila umaalis.
 
 
 
-Ang ulap na sumisimbolo sa presensya ng Panginoon ay nasa itaas ng Tolda kapag araw, at nag-aapoy naman ito kapag gabi para makita ng lahat ng Israelita habang naglalakbay sila. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 40:20 <i class="alternate">argolya: korteng singsing._ [^b]: 40:34 _Toldang Tipanan_<i class="alternate">:_ o tinatawag din na <i class="alternate">Toldang Sambahan._
+Ang ulap na sumisimbolo sa presensya ng Panginoon ay nasa itaas ng Tolda kapag araw, at nag-aapoy naman ito kapag gabi para makita ng lahat ng Israelita habang naglalakbay sila.

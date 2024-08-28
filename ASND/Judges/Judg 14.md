@@ -601,4 +601,4 @@ Pinalakas ng Espiritu ng Panginoon si Samson. Pumunta siya sa Ashkelon at doon p
 
 
 
-Ang asawa ni Samson ay ibinigay sa pangunahing abay sa kanilang kasal. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 14:3 _hindi … Dios_<i class="alternate">:_ sa literal, <i class="alternate">ay hindi tuli._ [^b]: 14:5 _Samson_<i class="alternate">:_ sa Septuagint, <i class="alternate">siya._ Sa Hebreo, <i class="alternate">sila._ [^c]: 14:18 _Kung … asawa_<i class="alternate">:_ sa literal, <i class="alternate">Kung hindi ninyo ipinang-araro ang aking dumalagang baka._
+Ang asawa ni Samson ay ibinigay sa pangunahing abay sa kanilang kasal.

@@ -1096,4 +1096,4 @@ Para sa kanila, isa kang magaling na mang-aawit ng mga awit na tungkol sa pag-ib
 
 
 
-Ngunit kapag nangyari na sa kanila ang parusang ito, at tiyak na mangyayari ito sa kanila, malalaman nila na totoong may kasama silang propeta." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 33:26 _Nagtitiwala … espada_<i class="alternate">:_ o, <i class="alternate">Pumapatay kayo._
+Ngunit kapag nangyari na sa kanila ang parusang ito, at tiyak na mangyayari ito sa kanila, malalaman nila na totoong may kasama silang propeta."

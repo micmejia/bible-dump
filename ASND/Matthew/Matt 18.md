@@ -1162,4 +1162,4 @@ Sa galit ng hari, ipinakulong niya ang alipin hanggang sa mabayaran nito ang lah
 
 
 
-At pagkatapos, sinabi ni Jesus sa kanila, "Ganyan din ang gagawin ng inyong Amang nasa langit kung hindi kayo magpapatawad nang buong puso sa inyong kapwa." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 18:16 Deu. 19:15. [^b]: 18:17 _maniningil ng buwis_<i class="alternate">:_ Silaʼy itinuturing ng mga Judio na masasamang tao.
+At pagkatapos, sinabi ni Jesus sa kanila, "Ganyan din ang gagawin ng inyong Amang nasa langit kung hindi kayo magpapatawad nang buong puso sa inyong kapwa."

@@ -94,4 +94,4 @@ and the rain descended, the floods came, and the winds blew and beat on that hou
 And so it was, when Jesus had ended these sayings, that the people were astonished at His teaching, 
 
 ###### 29 
-for He taught them as one having authority, and not as the scribes. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Matthew 7:1 Condemn [^b]: Matthew 7:2 Condemnation [^c]: Matthew 7:14 NU, M _How narrow . . . !_ [^d]: Matthew 7:14 _confined_
+for He taught them as one having authority, and not as the scribes.

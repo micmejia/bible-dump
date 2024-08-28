@@ -700,4 +700,4 @@ Ngunit ang mga tao na natitirang buhay ay ayaw pa ring tumalikod sa mga dios-dio
 
 
 
-Hindi rin sila nagsisi sa kanilang pagpatay, pangkukulam, sekswal na imoralidad at pagnanakaw. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 9:1 _kailaliman_<i class="alternate">:_ na kulungan ng masasamang espiritu. [^b]: 9:11 _Abadon … Apolyon_<i class="alternate">:_ Ang ibig sabihin ng mga pangalang ito, <i class="alternate">mangwawasak._
+Hindi rin sila nagsisi sa kanilang pagpatay, pangkukulam, sekswal na imoralidad at pagnanakaw.

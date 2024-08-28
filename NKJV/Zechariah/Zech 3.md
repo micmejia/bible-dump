@@ -37,4 +37,4 @@ Then the Angel of the Lord admonished Joshua, saying,
 For behold, the stone That I have laid before Joshua: Upon the stone _are_ seven eyes. Behold, I will engrave its inscription,' Says the Lord of hosts, 'And I will remove the iniquity of that land in one day. 
 
 ###### 10 
-In that day,' says the Lord of hosts, 'Everyone will invite his neighbor Under his vine and under his fig tree.' " ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Zechariah 3:1 Lit. _the Adversary_ [^b]: Zechariah 3:8 Lit. _men of a sign_ or _wonder_
+In that day,' says the Lord of hosts, 'Everyone will invite his neighbor Under his vine and under his fig tree.' "

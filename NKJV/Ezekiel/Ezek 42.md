@@ -67,4 +67,4 @@ He measured the south side, five hundred rods by the measuring rod.
 He came around to the west side _and_ measured five hundred rods by the measuring rod. 
 
 ###### 20 
-He measured it on the four sides; it had a wall all around, five hundred _cubits_ long and five hundred wide, to separate the holy areas from the [^d]common. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Ezekiel 42:6 Or _narrowed_ [^b]: Ezekiel 42:15 Lit. _house_ [^c]: Ezekiel 42:16 About 10.5 feet, [Ezek. 40:5] [^d]: Ezekiel 42:20 Or _profane_
+He measured it on the four sides; it had a wall all around, five hundred _cubits_ long and five hundred wide, to separate the holy areas from the [^d]common.

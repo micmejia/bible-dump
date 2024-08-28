@@ -364,4 +364,4 @@ When I applied my mind to know wisdom and to see the business activity _and_ the
 
 
 
-Then I saw all the work of God, that man cannot find out the work that is done under the sun--because however much a man may toil in seeking, yet he will not find it out; yes, more than that, though a wise man thinks _and_ claims he knows, yet will he not be able to find it out. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Then I saw all the work of God, that man cannot find out the work that is done under the sun--because however much a man may toil in seeking, yet he will not find it out; yes, more than that, though a wise man thinks _and_ claims he knows, yet will he not be able to find it out.

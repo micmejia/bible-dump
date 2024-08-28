@@ -82,4 +82,4 @@ But his wife said to him, "If the Lord had desired to kill us, He would not have
 So the woman bore a son and called his name Samson; and the child grew, and the Lord blessed him. 
 
 ###### 25 
-And the Spirit of the Lord began to move upon him at [^b]Mahaneh Dan between Zorah and Eshtaol. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Judges 13:6 _appearance_ [^b]: Judges 13:25 Lit. _Camp of Dan,_ [Judg. 18:12]
+And the Spirit of the Lord began to move upon him at [^b]Mahaneh Dan between Zorah and Eshtaol.

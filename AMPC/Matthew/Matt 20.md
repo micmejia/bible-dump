@@ -721,4 +721,4 @@ They answered Him, Lord, we want our eyes to be opened!
 
 
 
-And Jesus, in pity, touched their eyes; and instantly they received their sight and followed Him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Matthew 20:1 Marvin Vincent, _Word Studies_. [^b]: Matthew 20:7 Some manuscripts do not contain this phrase. [^c]: Matthew 20:12 Marvin Vincent, _Word Studies_. [^d]: Matthew 20:16 Some manuscripts do not contain this phrase. [^e]: Matthew 20:22 Some manuscripts do not contain this phrase. [^f]: Matthew 20:23 Joseph Thayer, _A Greek-English Lexicon_.
+And Jesus, in pity, touched their eyes; and instantly they received their sight and followed Him.

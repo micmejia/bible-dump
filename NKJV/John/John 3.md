@@ -115,4 +115,4 @@ For He whom God has sent speaks the words of God, for God does not give the Spir
 The Father loves the Son, and has given all things into His hand. 
 
 ###### 36 
-He who believes in the Son has everlasting life; and he who does not believe the Son shall not see life, but the wrath of God abides on him." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: John 3:3 Or _from above_ [^b]: John 3:13 NU omits _who is in heaven_ [^c]: John 3:15 NU omits _not perish but_
+He who believes in the Son has everlasting life; and he who does not believe the Son shall not see life, but the wrath of God abides on him."

@@ -58,4 +58,4 @@ Then Esther told _them_ to reply to Mordecai:
 "Go, gather all the Jews who are present in [^c]Shushan, and fast for me; neither eat nor drink for three days, night or day. My maids and I will fast likewise. And so I will go to the king, which _is_ against the law; and if I perish, I perish!" 
 
 ###### 17 
-So Mordecai went his way and did according to all that Esther commanded [^d]him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Esther 4:1 Lit. _Mordecai_ [^b]: Esther 4:8 Or _Susa_ [^c]: Esther 4:16 Or _Susa_ [^d]: Esther 4:17 LXX adds a prayer of Mordecai here
+So Mordecai went his way and did according to all that Esther commanded [^d]him.

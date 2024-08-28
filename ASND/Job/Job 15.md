@@ -1162,4 +1162,4 @@ Sapagkat mamamatay ng walang lahi ang mga taong walang takot sa Dios. At ang mga
 
 
 
-Ang lagi nilang iniisip ay ang manggulo, gumawa ng masama, at mandaya." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 15:23 _malapit nang dumating ang kapahamakan_<i class="alternate">:_ sa literal, <i class="alternate">malapit na ang araw ng kadiliman._ [^b]: 15:30 _kapahamakan_<i class="alternate">:_ sa literal, <i class="alternate">kadiliman._ [^c]: 15:32 _hindi na siya uunlad pa_<i class="alternate">:_ sa literal, <i class="alternate">ang kanyang mga sanga ay hindi na tutubuan ng mga dahon._
+Ang lagi nilang iniisip ay ang manggulo, gumawa ng masama, at mandaya."

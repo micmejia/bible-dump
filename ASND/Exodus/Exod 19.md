@@ -766,4 +766,4 @@ Sinabi sa kanya ng Panginoon, "Bumaba ka at dalhin si Aaron dito. Pero ang mga p
 
 
 
-Kaya bumaba si Moises at sinabihan ang mga tao. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 19:10 _linisin ang sarili nila_<i class="alternate">:_ Ang ibig sabihin, <i class="alternate">kailangan nilang sundin ang seremonya para maging malinis._ [^b]: 19:18 _nayanig nang malakas ang bundok_<i class="alternate">:_ sa ibang kopya ng Hebreo at Septuagint, <i class="alternate">nanginig ang lahat ng tao._ [^c]: 19:19 _sa pamamagitan ng kulog_<i class="alternate">:_ o, <i class="alternate">sa malakas na boses._
+Kaya bumaba si Moises at sinabihan ang mga tao.

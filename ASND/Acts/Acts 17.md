@@ -1129,4 +1129,4 @@ Pagkatapos, umalis si Pablo sa kanilang pinagtitipunan.
 
 
 
-May ilang lalaking kumampi kay Pablo at sumampalataya <i class="trans-change">kay Jesus_. Ang isa sa kanila ay si Dionisius na miyembro ng Areopagus, at ang babaeng si Damaris, at may iba pa. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+May ilang lalaking kumampi kay Pablo at sumampalataya <i class="trans-change">kay Jesus_. Ang isa sa kanila ay si Dionisius na miyembro ng Areopagus, at ang babaeng si Damaris, at may iba pa.

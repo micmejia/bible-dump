@@ -40,4 +40,4 @@ Then I raised my eyes and looked, and there _were_ two women, coming with the wi
 So I said to the angel who talked with me, "Where are they carrying the basket?" 
 
 ###### 11 
-And he said to me, "To build a house for it in the land of [^c]Shinar; when it is ready, _the basket_ will be set there on its base." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Zechariah 5:6 Heb. _ephah,_ a measuring container, and so elsewhere [^b]: Zechariah 5:8 Lit. _stone_ [^c]: Zechariah 5:11 Babylon
+And he said to me, "To build a house for it in the land of [^c]Shinar; when it is ready, _the basket_ will be set there on its base."

@@ -553,4 +553,4 @@ Behold, the days are coming, says the Lord, when I will punish all who though ci
 
 
 
-Egypt, Judah, Edom, the children of Ammon, Moab [all of whom are related except Egypt], and all who live in the desert and who clip off the corners of their hair _and_ beards; for all these nations are uncircumcised [in heart], and all the house of Israel is uncircumcised in heart. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Egypt, Judah, Edom, the children of Ammon, Moab [all of whom are related except Egypt], and all who live in the desert and who clip off the corners of their hair _and_ beards; for all these nations are uncircumcised [in heart], and all the house of Israel is uncircumcised in heart.

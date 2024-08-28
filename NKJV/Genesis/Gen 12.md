@@ -67,4 +67,4 @@ And Pharaoh called Abram and said, "What _is_ this you have done to me? Why did 
 Why did you say, 'She _is_ my sister'? I might have taken her as my wife. Now therefore, here is your wife; take _her_ and go your way." 
 
 ###### 20 
-So Pharaoh commanded _his_ men concerning him; and they sent him away, with his wife and all that he had. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 12:5 Lit. _souls_ [^b]: Genesis 12:6 Heb. _Alon Moreh_ [^c]: Genesis 12:7 Lit. _seed_ [^d]: Genesis 12:9 Heb. _Negev_ [^e]: Genesis 12:13 Lit. _my soul_
+So Pharaoh commanded _his_ men concerning him; and they sent him away, with his wife and all that he had.

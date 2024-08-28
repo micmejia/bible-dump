@@ -168,4 +168,4 @@ The children of Israel shall pitch their tents, everyone by his own camp, everyo
 but the Levites shall camp around the tabernacle of the Testimony, that there may be no wrath on the congregation of the children of Israel; and the Levites shall keep[^d] charge of the tabernacle of the Testimony." 
 
 ###### 54 
-Thus the children of Israel did; according to all that the Lord commanded Moses, so they did. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Numbers 1:14 _Reuel,_ [Num. 2:14] [^b]: Numbers 1:16 _called_ [^c]: Numbers 1:17 _designated_ [^d]: Numbers 1:53 _have in their care_
+Thus the children of Israel did; according to all that the Lord commanded Moses, so they did.

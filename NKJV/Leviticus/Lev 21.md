@@ -79,4 +79,4 @@ He may eat the bread of his God, _both_ the most holy and the holy;
 only he shall not go near the veil or approach the altar, because he has a defect, lest he profane My sanctuaries; for I the Lord sanctify them.' " 
 
 ###### 24 
-And Moses told _it_ to Aaron and his sons, and to all the children of Israel. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Leviticus 21:4 Lit. _master_ or _husband_ [^b]: Leviticus 21:7 Lit. _he_ [^c]: Leviticus 21:8 _set him apart_ [^d]: Leviticus 21:10 In mourning
+And Moses told _it_ to Aaron and his sons, and to all the children of Israel.

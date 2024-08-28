@@ -136,4 +136,4 @@ And Joshua conquered them from Kadesh Barnea as far as Gaza, and all the country
 All these kings and their land Joshua took at one time, because the Lord God of Israel fought for Israel. 
 
 ###### 43 
-Then Joshua returned, and all Israel with him, to the camp at Gilgal. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Joshua 10:21 _criticized,_ lit. _sharpened his tongue_ [^b]: Joshua 10:25 The captains [^c]: Joshua 10:26 The kings [^d]: Joshua 10:28 So with MT and most authorities; many Heb. mss., some LXX mss., and some Tg. mss. _it_ [^e]: Joshua 10:40 Heb. _Negev,_ and so throughout the book
+Then Joshua returned, and all Israel with him, to the camp at Gilgal.

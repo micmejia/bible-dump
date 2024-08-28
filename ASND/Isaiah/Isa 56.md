@@ -403,4 +403,4 @@ Para silang mga asong matatakaw na walang kabusugan. Ang mga tagapag-alaga ng Is
 
 
 
-Sinabi pa nila, "Halikayo, kumuha tayo ng inumin at maglasing! At mas marami pa bukas kaysa ngayon." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 56:3 _hindi na sila magkakaanak_<i class="alternate">:_ sa literal, <i class="alternate">ang katulad nila ay patay na puno._
+Sinabi pa nila, "Halikayo, kumuha tayo ng inumin at maglasing! At mas marami pa bukas kaysa ngayon."

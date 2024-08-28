@@ -85,4 +85,4 @@ and these shall stand on Mount Ebal to curse: Reuben, Gad, Asher, Zebulun, Dan, 
 'Cursed _is_ the one who takes a bribe to slay an innocent person.' "And all the people shall say, 'Amen!' 
 
 ###### 26 
-'Cursed _is_ the one who does not confirm _all_ the words of this law by observing them.' "And all the people shall say, 'Amen!' " ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Deuteronomy 27:6 _uncut_ [^b]: Deuteronomy 27:15 _a detestable thing_
+'Cursed _is_ the one who does not confirm _all_ the words of this law by observing them.' "And all the people shall say, 'Amen!' "

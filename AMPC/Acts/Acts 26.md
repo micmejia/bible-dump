@@ -679,4 +679,4 @@ And after they had gone out, they said to one another, This man is doing nothing
 
 
 
-And Agrippa said to Festus, This man could have been set at liberty if he had not appealed to Caesar. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Acts 26:17 Joseph Thayer, _A Greek-English Lexicon_. [^b]: Acts 26:17 G. Abbott-Smith, _Manual Greek Lexicon_. [^c]: Acts 26:21 Richard Trench, _Synonyms of the New Testament_. [^d]: Acts 26:22 G. Abbott-Smith, _Manual Greek Lexicon_.
+And Agrippa said to Festus, This man could have been set at liberty if he had not appealed to Caesar.

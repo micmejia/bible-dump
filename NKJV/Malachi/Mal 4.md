@@ -24,4 +24,4 @@ You shall trample the wicked, For they shall be ashes under the soles of your fe
 Behold, I will send you Elijah the prophet Before the coming of the great and dreadful day of the Lord. 
 
 ###### 6 
-And he will turn The hearts of the fathers to the children, And the hearts of the children to their fathers, Lest I come and strike the earth with a curse." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And he will turn The hearts of the fathers to the children, And the hearts of the children to their fathers, Lest I come and strike the earth with a curse."

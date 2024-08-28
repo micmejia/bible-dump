@@ -322,4 +322,4 @@ Behold, My [^a]Servant shall deal wisely _and_ shall prosper; He shall be exalte
 
 
 
-So shall He startle _and_ sprinkle many nations, and kings shall shut their mouths because of Him; for that which has not been told them shall they see, and that which they have not heard shall they consider _and_ understand. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Isaiah 52:13 See footnote on Isa. 42:1.
+So shall He startle _and_ sprinkle many nations, and kings shall shut their mouths because of Him; for that which has not been told them shall they see, and that which they have not heard shall they consider _and_ understand.

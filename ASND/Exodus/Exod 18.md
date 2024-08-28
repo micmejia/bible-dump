@@ -832,4 +832,4 @@ Naglingkod sila bilang mga palagiang hukom ng mga tao. Sila ang nagpapasya sa mg
 
 
 
-Pagkatapos noon, pinayagan ni Moises ang kanyang biyenan na umuwi at bumalik sa sariling bayan. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 18:2-3 _Gershom_<i class="alternate">:_ Ang ibig sabihin, <i class="alternate">dayuhan doon._ [^b]: 18:4 _Eliezer_<i class="alternate">:_ Ang ibig sabihin, <i class="alternate">Ang Dios ang tumutulong sa akin._ [^c]: 18:4 _ama_<i class="alternate">:_ o, <i class="alternate">ninuno._
+Pagkatapos noon, pinayagan ni Moises ang kanyang biyenan na umuwi at bumalik sa sariling bayan.

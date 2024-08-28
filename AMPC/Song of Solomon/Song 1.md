@@ -363,4 +363,4 @@ Behold, you are beautiful, my love! Behold, you are beautiful! You have doves' e
 
 
 
-The beams of our house are cedars, and our rafters _and_ panels are cypresses _or_ pines. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Song of Solomon 1:7 Does my spirit crave the Divine Shepherd, even in the presence of the best that the world can offer me?
+The beams of our house are cedars, and our rafters _and_ panels are cypresses _or_ pines.

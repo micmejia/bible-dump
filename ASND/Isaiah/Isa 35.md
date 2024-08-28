@@ -337,4 +337,4 @@ Walang leon o anumang mababangis na hayop na makakaraan doon kundi ang mga tinub
 
 
 
-Babalik sila sa Zion na umaawit. Mawawala na ang kanilang kalungkutan at pagdadalamhati, at mapapalitan na ng walang hanggang kaligayahan. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 35:7 _asong-gubat_<i class="alternate">:_ sa Ingles, <i class="alternate">“jackal.”_ [^b]: 35:9 _tinubos_<i class="alternate">:_ o, <i class="alternate">iniligtas._
+Babalik sila sa Zion na umaawit. Mawawala na ang kanilang kalungkutan at pagdadalamhati, at mapapalitan na ng walang hanggang kaligayahan.

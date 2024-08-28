@@ -72,4 +72,4 @@ Erastus stayed in Corinth, but Trophimus I have left in Miletus sick.
 Do your utmost to come before winter. Eubulus greets you, as well as Pudens, Linus, Claudia, and all the brethren. ## Farewell 
 
 ###### 22 
-The Lord [^c]Jesus Christ be with your spirit. Grace be with you. Amen. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Timothy 4:1 NU omits _therefore_ [^b]: 2 Timothy 4:1 NU _and by_ [^c]: 2 Timothy 4:22 NU omits _Jesus Christ_
+The Lord [^c]Jesus Christ be with your spirit. Grace be with you. Amen.

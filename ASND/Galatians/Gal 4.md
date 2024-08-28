@@ -1030,4 +1030,4 @@ Pero ano ba ang sinasabi sa Kasulatan? "Palayasin mo ang babaeng alipin at ang a
 
 
 
-Kaya nga mga kapatid, hindi tayo anak ng babaeng alipin, kundi anak ng babaeng hindi alipin. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 4:3 _bago dumating si Cristo_<i class="alternate">:_ sa literal, <i class="alternate">noong mga bata pa tayo._ [^b]: 4:27 Isa. 54:1. [^c]: 4:30 Gen. 21:10.
+Kaya nga mga kapatid, hindi tayo anak ng babaeng alipin, kundi anak ng babaeng hindi alipin.

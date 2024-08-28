@@ -799,4 +799,4 @@ Mamamatay sa digmaan ang mga lalaki ng Jerusalem kahit na ang matatapang nilang 
 
 
 
-May mga iyakan at pagluluksa sa mga pintuan ng bayan. At ang lungsod ay matutulad sa babaeng nakalupasay sa lupa, na nawalan ng lahat ng ari-arian. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 3:3 _salamangkero_<i class="alternate">:_ o, <i class="alternate">karpintero._ [^b]: 3:13 _kanyang mga mamamayan_<i class="alternate">:_ Ito ang nasa Septuagint at Syriac; pero sa Hebreo, <i class="alternate">mga tao._
+May mga iyakan at pagluluksa sa mga pintuan ng bayan. At ang lungsod ay matutulad sa babaeng nakalupasay sa lupa, na nawalan ng lahat ng ari-arian.

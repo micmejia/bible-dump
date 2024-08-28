@@ -70,4 +70,4 @@ the Kenites, the Kenezzites, the Kadmonites,
 the Hittites, the Perizzites, the Rephaim, 
 
 ###### 21 
-the Amorites, the Canaanites, the Girgashites, and the Jebusites." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 15:1 Or _your reward shall be very great_ [^b]: Genesis 15:2 _am childless_ [^c]: Genesis 15:3 _a servant_ [^d]: Genesis 15:15 Die and join your ancestors
+the Amorites, the Canaanites, the Girgashites, and the Jebusites."

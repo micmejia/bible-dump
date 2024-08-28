@@ -61,4 +61,4 @@ To call to those who pass by, Who go straight on their way:
 "Stolen water is sweet, And bread _eaten_ in secret is pleasant." 
 
 ###### 18 
-But he does not know that the dead _are_ there, _That_ her guests _are_ in the depths of [^d]hell. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Proverbs 9:2 _arranged_ [^b]: Proverbs 9:13 _boisterous_ [^c]: Proverbs 9:16 _naive_ [^d]: Proverbs 9:18 Or _Sheol_
+But he does not know that the dead _are_ there, _That_ her guests _are_ in the depths of [^d]hell.

@@ -82,4 +82,4 @@ And Pharaoh turned and went into his house. Neither was his heart moved by this.
 So all the Egyptians dug all around the river for water to drink, because they could not drink the water of the river. 
 
 ###### 25 
-And seven days passed after the Lord had struck the river. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Exodus 7:4 _hosts_ [^b]: Exodus 7:11 _soothsayers_ [^c]: Exodus 7:11 _secret arts_ [^d]: Exodus 7:16 _worship_ [^e]: Exodus 7:18 _be weary of drinking_ [^f]: Exodus 7:22 _secret arts_
+And seven days passed after the Lord had struck the river.

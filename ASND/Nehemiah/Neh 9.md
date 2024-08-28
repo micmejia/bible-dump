@@ -1261,4 +1261,4 @@ Ang masaganang ani ng mga lupain ay napupunta sa mga hari na pinaghari nʼyo sa 
 
 
 
-"Dahil dito, kami pong mga Judio ay gumawa ng isang matibay na kasunduan. Isinulat ito at pinirmahan ng aming mga pinuno, mga pari, at mga Levita." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 9:1 _Nagdamit … ulo_<i class="alternate">:_ Upang ipakita ang kanilang pagsisisi. [^b]: 9:5 _na walang hanggan_<i class="alternate">:_ o, <i class="alternate">na nabubuhay mula noon magpakailanman._
+"Dahil dito, kami pong mga Judio ay gumawa ng isang matibay na kasunduan. Isinulat ito at pinirmahan ng aming mga pinuno, mga pari, at mga Levita."

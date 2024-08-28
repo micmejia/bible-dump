@@ -112,4 +112,4 @@ The curse of the Lord _is_ on the house of the wicked, But He blesses the home o
 Surely He scorns the scornful, But gives grace to the humble. 
 
 ###### 35 
-The wise shall inherit glory, But shame shall be the legacy of fools. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Proverbs 3:4 Lit. _good understanding_ [^b]: Proverbs 3:6 Or _make smooth_ or _straight_ [^c]: Proverbs 3:8 Body, lit. _navel_ [^d]: Proverbs 3:8 Lit. _drink_ [^e]: Proverbs 3:18 _hold her fast_ [^f]: Proverbs 3:27 Lit. _its owners_
+The wise shall inherit glory, But shame shall be the legacy of fools.

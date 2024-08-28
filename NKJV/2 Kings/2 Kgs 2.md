@@ -82,4 +82,4 @@ Then he went up from there to Bethel; and as he was going up the road, some yout
 So he turned around and looked at them, and pronounced a curse on them in the name of the Lord. And two female bears came out of the woods and mauled forty-two of the youths. 
 
 ###### 25 
-Then he went from there to Mount Carmel, and from there he returned to Samaria. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Kings 2:3 Lit. _from your head_ [^b]: 2 Kings 2:15 Or _at Jericho opposite him saw_ [^c]: 2 Kings 2:21 _purified_
+Then he went from there to Mount Carmel, and from there he returned to Samaria.

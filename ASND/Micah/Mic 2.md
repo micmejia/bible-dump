@@ -436,4 +436,4 @@ Ang gusto ninyong mangangaral ay iyong nangangaral nang walang kabuluhan, manlil
 
 
 
-Bubuksan ko ang pinto ng lungsod na bumihag sa inyo, at pangungunahan ko kayo sa inyong paglabas. Ako, ang Panginoon na inyong hari, ang mangunguna sa inyo." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2:10 _Masisira … mapapakinabangan_<i class="alternate">:_ o, <i class="alternate">Mapapahamak kayong lahat._ [^b]: 2:12 _Israel at Juda_<i class="alternate">:_ sa Hebreo, <i class="alternate">Jacob at Israel._
+Bubuksan ko ang pinto ng lungsod na bumihag sa inyo, at pangungunahan ko kayo sa inyong paglabas. Ako, ang Panginoon na inyong hari, ang mangunguna sa inyo."

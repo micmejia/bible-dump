@@ -55,4 +55,4 @@ Now if her husband makes no response whatever to her from day to day, then he co
 But if he does make them void after he has heard _them,_ then he shall bear her guilt." 
 
 ###### 16 
-These _are_ the statutes which the Lord commanded Moses, between a man and his wife, and between a father and his daughter in her youth in her father's house. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Numbers 30:4 _says nothing_ to interfere [^b]: Numbers 30:12 _annulled_ or _invalidated_
+These _are_ the statutes which the Lord commanded Moses, between a man and his wife, and between a father and his daughter in her youth in her father's house.

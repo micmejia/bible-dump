@@ -385,4 +385,4 @@ And nothing of the accursed thing shall cling to your hand, so that the Lord may
 
 
 
-If you obey the voice of the Lord your God, to keep all His commandments which I command you this day, to do what is right in the eyes of the Lord your God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+If you obey the voice of the Lord your God, to keep all His commandments which I command you this day, to do what is right in the eyes of the Lord your God.

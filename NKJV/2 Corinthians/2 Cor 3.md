@@ -61,4 +61,4 @@ Nevertheless when one turns to the Lord, the veil is taken away.
 Now the Lord is the Spirit; and where the Spirit of the Lord _is_, there _is_ liberty. 
 
 ###### 18 
-But we all, with unveiled face, beholding as in a mirror the glory of the Lord, are being transformed into the same image from glory to glory, just as [^b]by the Spirit of the Lord. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Corinthians 3:6 Or _spirit_ [^b]: 2 Corinthians 3:18 Or _from the Lord, the Spirit_
+But we all, with unveiled face, beholding as in a mirror the glory of the Lord, are being transformed into the same image from glory to glory, just as [^b]by the Spirit of the Lord.

@@ -58,4 +58,4 @@ the two kidneys and the fat that _is_ on them by the flanks, and the fatty lobe 
 and the priest shall burn them on the altar _as_ food, an offering made by fire for a sweet aroma; all the fat _is_ the Lord's. 
 
 ###### 17 
-'_This shall be_ a perpetual[^b] statute throughout your generations in all your dwellings: you shall eat neither fat nor blood.' " ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Leviticus 3:1 _imperfection_ or _defect_ [^b]: Leviticus 3:17 _everlasting_ or _never-ending_
+'_This shall be_ a perpetual[^b] statute throughout your generations in all your dwellings: you shall eat neither fat nor blood.' "

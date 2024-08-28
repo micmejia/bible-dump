@@ -1029,4 +1029,4 @@ Sa loob ng dalawang taon, nanatili si Pablo sa bahay na kanyang inuupahan. At ti
 
 
 
-Tinuruan niya sila tungkol sa paghahari ng Dios at tungkol sa Panginoong Jesu-Cristo. Hindi siya natakot sa kanyang pagtuturo at wala namang pumigil sa kanya. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 28:10 _binigyan pa nila kami_<i class="alternate">:_ o, <i class="alternate">dinalhan pa nila kami sa barko._ [^b]: 28:15 _ng Apius_<i class="alternate">:_ o, <i class="alternate">ni Apius._ [^c]: 28:27 Isa. 6:9-10.
+Tinuruan niya sila tungkol sa paghahari ng Dios at tungkol sa Panginoong Jesu-Cristo. Hindi siya natakot sa kanyang pagtuturo at wala namang pumigil sa kanya.

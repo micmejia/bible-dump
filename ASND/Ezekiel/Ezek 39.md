@@ -898,4 +898,4 @@ At malalaman nila na ako ang Panginoon na kanilang Dios. Sapagkat kahit ipinabih
 
 
 
-Hindi ko na sila pababayaan dahil ipapadala ko ang aking Espiritu sa kanila. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 39:11 _Hukbo ni Gog_<i class="alternate">:_ sa Hebreo, <i class="alternate">Hamon Gog._ Ganito rin sa talatang 15. [^b]: 39:25 _Muli … pauunlarin_<i class="alternate">:_ o, <i class="alternate">Ibabalik ko sila sa lupain nila mula sa pagkabihag._
+Hindi ko na sila pababayaan dahil ipapadala ko ang aking Espiritu sa kanila. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito."

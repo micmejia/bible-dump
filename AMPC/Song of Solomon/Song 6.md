@@ -280,4 +280,4 @@ Before I was aware [of what was happening], my desire [to roam about] had brough
 
 
 
-[I began to flee, but they called to me] Return, return, O Shulammite; return, return, that we may look upon you! [I replied] What is there for you to see in the [poor little] Shulammite? [And they answered] As upon a dance before two armies _or_ a dance of Mahanaim. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+[I began to flee, but they called to me] Return, return, O Shulammite; return, return, that we may look upon you! [I replied] What is there for you to see in the [poor little] Shulammite? [And they answered] As upon a dance before two armies _or_ a dance of Mahanaim.

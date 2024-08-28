@@ -55,4 +55,4 @@ But the natural man does not receive the things of the Spirit of God, for they a
 But he who is spiritual judges all things, yet he himself is _rightly_ judged by no one. 
 
 ###### 16 
-For "who has known the mind of the Lord that he may instruct Him?" But we have the mind of Christ. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Corinthians 2:1 NU _mystery_ [^b]: 1 Corinthians 2:4 NU omits _human_ [^c]: 1 Corinthians 2:7 _predetermined_ [^d]: 1 Corinthians 2:13 NU omits _Holy_
+For "who has known the mind of the Lord that he may instruct Him?" But we have the mind of Christ.

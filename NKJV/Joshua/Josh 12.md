@@ -79,4 +79,4 @@ the king of Kedesh, one; the king of Jokneam in Carmel, one;
 the king of Dor in the heights of Dor, one; the king of the people of Gilgal, one; 
 
 ###### 24 
-the king of Tirzah, one--all the kings, thirty-one. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Joshua 12:3 Sea of Galilee [^b]: Joshua 12:3 Lit. _Sea of the Plain,_ the Dead Sea [^c]: Joshua 12:3 Or _Teman_ [^d]: Joshua 12:3 Or _Ashdoth Pisgah_ [^e]: Joshua 12:7 Lit. _The Bald Mountain_ [^f]: Joshua 12:18 Or _Sharon_
+the king of Tirzah, one--all the kings, thirty-one.

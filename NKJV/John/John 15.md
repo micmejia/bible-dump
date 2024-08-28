@@ -88,4 +88,4 @@ But _this happened_ that the word might be fulfilled which is written in their l
 "But when the [^c]Helper comes, whom I shall send to you from the Father, the Spirit of truth who proceeds from the Father, He will testify of Me. 
 
 ###### 27 
-And you also will bear witness, because you have been with Me from the beginning. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: John 15:2 Or _lifts up_ [^b]: John 15:7 NU omits _you will_ [^c]: John 15:26 _Comforter,_ Gr. _Parakletos_
+And you also will bear witness, because you have been with Me from the beginning.

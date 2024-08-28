@@ -73,4 +73,4 @@ Go forth from Babylon! Flee from the Chaldeans! With a voice of singing, Declare
 And they did not thirst When He led them through the deserts; He caused the waters to flow from the rock for them; He also split the rock, and the waters gushed out. 
 
 ###### 22 
-"_There_ _is_ no peace," says the Lord, "for the wicked." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Isaiah 48:4 Heb. _hard_ [^b]: Isaiah 48:9 _delay_ [^c]: Isaiah 48:16 Heb. verb is sing.; or _Has sent Me and His Spirit_
+"_There_ _is_ no peace," says the Lord, "for the wicked."

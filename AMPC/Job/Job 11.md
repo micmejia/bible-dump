@@ -427,4 +427,4 @@ You shall lie down, and none shall make you afraid; yes, many shall sue for your
 
 
 
-But the eyes of the wicked shall look [for relief] in vain, and they shall not escape [the justice of God]; and their hope shall be to give up the ghost. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But the eyes of the wicked shall look [for relief] in vain, and they shall not escape [the justice of God]; and their hope shall be to give up the ghost.

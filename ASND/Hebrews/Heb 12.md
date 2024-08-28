@@ -964,4 +964,4 @@ Kaya magpasalamat tayo sa Dios dahil kabilang na tayo sa kaharian niya na hindi 
 
 
 
-dahil <i class="trans-change">kapag nagparusa_ ang ating Dios, itoʼy parang apoy na nakakatupok.[^g] ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 12:6 Kaw. 3:11-12. [^b]: 12:16 _isang kainan_<i class="alternate">:_ sa Ingles, <i class="alternate">“one meal.”_ [^c]: 12:20 Exo. 19:12. [^d]: 12:21 Deu. 9:19. [^e]: 12:23 _pagtitipon_<i class="alternate">:_ sa literal, <i class="alternate">iglesya._ [^f]: 12:26 Hageo 2:6. [^g]: 12:29 Deu. 4:24.
+dahil <i class="trans-change">kapag nagparusa_ ang ating Dios, itoʼy parang apoy na nakakatupok.[^g]

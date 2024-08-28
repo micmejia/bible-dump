@@ -37,4 +37,4 @@ When the king returned from the palace garden to the place of the banquet of win
 Now Harbonah, one of the eunuchs, said to the king, "Look! The [^a]gallows, fifty cubits high, which Haman made for Mordecai, who spoke good on the king's behalf, is standing at the house of Haman." Then the king said, "Hang him on it!" 
 
 ###### 10 
-So they hanged Haman on the gallows that he had prepared for Mordecai. Then the king's wrath subsided. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Esther 7:9 Lit. _tree_ or _wood_
+So they hanged Haman on the gallows that he had prepared for Mordecai. Then the king's wrath subsided.

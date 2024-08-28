@@ -100,4 +100,4 @@ When the time drew near that Israel must die, he called his son Joseph and said 
 but let me lie with my fathers; you shall carry me out of Egypt and bury me in their burial place." And he said, "I will do as you have said." 
 
 ###### 31 
-Then he said, "Swear to me." And he swore to him. So Israel bowed himself on the head of the bed. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 47:9 Lit. _sojourning_ [^b]: Genesis 47:17 _supplied_ [^c]: Genesis 47:21 So with MT, Tg.; Sam., LXX, Vg. _made the people virtual slaves_
+Then he said, "Swear to me." And he swore to him. So Israel bowed himself on the head of the bed.

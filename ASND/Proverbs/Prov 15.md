@@ -1096,4 +1096,4 @@ Pinapasama ng tao ang kanyang sarili kapag binabalewala niya ang pagtutuwid sa k
 
 
 
-Ang takot sa Panginoon ay nagtuturo ng karunungan, at ang nagpapakumbaba ay pinaparangalan. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 15:4 _nakapagpapasigla ng kalooban ng tao_<i class="alternate">:_ sa literal, <i class="alternate">punongkahoy na nagbibigay-buhay._ [^b]: 15:6 _mawawala_<i class="alternate">:_ o, <i class="alternate">magiging dahilan ng gulo._
+Ang takot sa Panginoon ay nagtuturo ng karunungan, at ang nagpapakumbaba ay pinaparangalan.

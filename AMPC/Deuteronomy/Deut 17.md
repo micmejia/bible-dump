@@ -427,4 +427,4 @@ And he shall keep it with him, and he shall read in it all the days of his life,
 
 
 
-That his [mind and] heart may not be lifted up above his brethren and that he may not turn aside from the commandment to the right hand or to the left; so that he may continue long, he and his sons, in his kingdom in Israel. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Deuteronomy 17:11 The Hebrew is obscure.
+That his [mind and] heart may not be lifted up above his brethren and that he may not turn aside from the commandment to the right hand or to the left; so that he may continue long, he and his sons, in his kingdom in Israel.

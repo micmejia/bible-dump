@@ -634,4 +634,4 @@ Dumating na ang panahong magsisimula na ang Dios sa paghatol sa mga anak niya. A
 
 
 
-Kaya kayong nagtitiis ngayon, dahil ito ang kalooban ng Dios para sa inyo, ay magpatuloy sa paggawa ng mabuti. Ipagkatiwala ninyo ang sarili nʼyo sa Dios na lumikha sa inyo, dahil hinding-hindi niya kayo pababayaan. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 4:18 Kaw. 11:31.
+Kaya kayong nagtitiis ngayon, dahil ito ang kalooban ng Dios para sa inyo, ay magpatuloy sa paggawa ng mabuti. Ipagkatiwala ninyo ang sarili nʼyo sa Dios na lumikha sa inyo, dahil hinding-hindi niya kayo pababayaan.

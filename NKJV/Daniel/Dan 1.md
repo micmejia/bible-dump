@@ -69,4 +69,4 @@ Then the king [^f]interviewed them, and among them all none was found like Danie
 And in all matters of wisdom _and_ understanding about which the king examined them, he found them ten times better than all the magicians _and_ astrologers who _were_ in all his realm. 
 
 ###### 21 
-Thus Daniel continued until the first year of King Cyrus. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Daniel 1:2 The temple [^b]: Daniel 1:4 Lit. _writing_ or _book_ [^c]: Daniel 1:9 _kindness_ [^d]: Daniel 1:11 Or _Melzar_ [^e]: Daniel 1:16 Or _Melzar_ [^f]: Daniel 1:19 Lit. _talked with them_
+Thus Daniel continued until the first year of King Cyrus.

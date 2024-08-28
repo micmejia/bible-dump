@@ -574,4 +574,4 @@ So he did to them, and delivered them out of the hand of the Israelites, so that
 
 
 
-But Joshua then made them hewers of wood and drawers of water for the congregation and for the altar of the Lord, to this day, in the place which He should choose. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+But Joshua then made them hewers of wood and drawers of water for the congregation and for the altar of the Lord, to this day, in the place which He should choose.

@@ -732,4 +732,4 @@ Sikapin mong makarating dito bago magtaglamig. Kinukumusta ka nina Eubulus, Pude
 
 
 
-Sumainyo nawa ang Panginoon at ang pagpapala niya. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 4:8 _korona ng katuwiran_<i class="alternate">:_ Ang ibig sabihin ay may gantimpalang ibibigay sa kanya ang Dios dahil sa matuwid niyang pamumuhay, o ang gantimpala mismo sa kanya ay ang ganap na pagkamatuwid. [^b]: 4:17 _sa tiyak na kamatayan_<i class="alternate">:_ sa literal, <i class="alternate">sa bunganga ng leon._
+Sumainyo nawa ang Panginoon at ang pagpapala niya.

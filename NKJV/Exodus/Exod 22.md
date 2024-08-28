@@ -100,4 +100,4 @@ For that _is_ his only covering, it _is_ his garment for his skin. What will he 
 Likewise you shall do with your oxen _and_ your sheep. It shall be with its mother seven days; on the eighth day you shall give it to Me. 
 
 ###### 31 
-"And you shall be holy men to Me: you shall not eat meat torn _by beasts_ in the field; you shall throw it to the dogs. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Exodus 22:3 Sold as a slave [^b]: Exodus 22:21 _sojourner_
+"And you shall be holy men to Me: you shall not eat meat torn _by beasts_ in the field; you shall throw it to the dogs.

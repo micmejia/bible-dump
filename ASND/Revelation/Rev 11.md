@@ -634,4 +634,4 @@ Galit na galit ang mga taong hindi kumikilala sa inyo, dahil dumating na ang pan
 
 
 
-Pagkatapos, binuksan ang templo ng Dios doon sa langit, at naroon sa loob ang Kahon ng Kasunduan. Kumidlat, kumulog, umugong, lumindol at umulan ng yelo na parang mga bato. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 11:4 _dalawang punong olibo_<i class="alternate">:_ Tingnan sa Zac. 4:2-14.
+Pagkatapos, binuksan ang templo ng Dios doon sa langit, at naroon sa loob ang Kahon ng Kasunduan. Kumidlat, kumulog, umugong, lumindol at umulan ng yelo na parang mga bato.

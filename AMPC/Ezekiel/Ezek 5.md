@@ -364,4 +364,4 @@ When I shall loose against them the evil arrows of hunger that are for destructi
 
 
 
-And I will send upon you hunger and wild beasts, and they shall bereave you [of your loved ones]; and pestilence and blood shall pass through you, and I will bring the sword upon you. I the Lord have spoken it. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And I will send upon you hunger and wild beasts, and they shall bereave you [of your loved ones]; and pestilence and blood shall pass through you, and I will bring the sword upon you. I the Lord have spoken it.

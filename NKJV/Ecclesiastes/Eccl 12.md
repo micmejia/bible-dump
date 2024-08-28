@@ -48,4 +48,4 @@ And further, my son, be admonished by these. Of making many books _there is_ no 
 Let us hear the conclusion of the whole matter: Fear God and keep His commandments, For this is man's all. 
 
 ###### 14 
-For God will bring every work into judgment, Including every secret thing, Whether good or evil. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Ecclesiastes 12:1 Lit. _evil_ [^b]: Ecclesiastes 12:6 So with Qr., Tg.; Kt. _removed;_ LXX, Vg. _broken_ [^c]: Ecclesiastes 12:9 _arranged_ [^d]: Ecclesiastes 12:10 Lit. _delightful_ [^e]: Ecclesiastes 12:11 Lit. _masters of assemblies_
+For God will bring every work into judgment, Including every secret thing, Whether good or evil.

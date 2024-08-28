@@ -469,4 +469,4 @@ Ang mga nabubuhay sa gatas ay mga sanggol pa at walang muwang kung ano ang mabut
 
 
 
-Ngunit ang matigas na pagkain ay para sa may mga sapat na gulang na, at alam na kung ano ang mabuti at masama. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 5:5 Salmo 2:7. [^b]: 5:6 Salmo 110:4. [^c]: 5:9 _walang hanggang kaligtasan_<i class="alternate">:_ Ang ibig sabihin, pinalaya sila magpakailanman sa kaparusahan ng mga kasalanan nila.
+Ngunit ang matigas na pagkain ay para sa may mga sapat na gulang na, at alam na kung ano ang mabuti at masama.

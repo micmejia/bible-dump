@@ -964,4 +964,4 @@ Ipinatayo nila roon ang dios-diosan <i class="trans-change">ni Micas_ at kanilan
 
 
 
-At habang ang tolda na pinagsasambahan sa Dios ay naroon pa sa Shilo, ang dios-diosan ni Micas ay patuloy na sinasamba sa Dan. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 18:14 _espesyal na damit_<i class="alternate">:_ sa Hebreo, <i class="alternate">“efod.”_ [^b]: 18:29 _Jacob_<i class="alternate">:_ sa Hebreo, <i class="alternate">Israel._
+At habang ang tolda na pinagsasambahan sa Dios ay naroon pa sa Shilo, ang dios-diosan ni Micas ay patuloy na sinasamba sa Dan.

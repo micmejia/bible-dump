@@ -61,4 +61,4 @@ Then I said: "Wisdom _is_ better than strength. Nevertheless the poor man's wisd
 Words of the wise, _spoken_ quietly, _should be_ heard Rather than the shout of a ruler of fools. 
 
 ###### 18 
-Wisdom _is_ better than weapons of war; But one sinner destroys much good." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Ecclesiastes 9:1 Lit. _put_ [^b]: Ecclesiastes 9:2 LXX, Syr., Vg. _good and bad,_ [^c]: Ecclesiastes 9:9 Lit. _See life_ [^d]: Ecclesiastes 9:14 LXX, Syr., Vg. _bulwarks_
+Wisdom _is_ better than weapons of war; But one sinner destroys much good."

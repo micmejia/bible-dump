@@ -667,4 +667,4 @@ Ang lupaing pinagtayuan nila ng mga tolda ay binili ni Jacob sa mga anak ni Hamo
 
 
 
-Gumawa si Jacob ng altar na pinangalanan niyang El Elohe Israel.[^d] ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 33:3 _ilang beses_<i class="alternate">:_ sa literal, <i class="alternate">pitong beses._ [^b]: 33:17 _Sucot_<i class="alternate">:_ Ang ibig sabihin, <i class="alternate">silungan._ [^c]: 33:18 _Padan Aram_<i class="alternate">:_ Tingnan ang 28:2. [^d]: 33:20 _El Elohe Israel_<i class="alternate">:_ Ang ibig sabihin, <i class="alternate">Makapangyarihang Dios ng Israel._
+Gumawa si Jacob ng altar na pinangalanan niyang El Elohe Israel.[^d]

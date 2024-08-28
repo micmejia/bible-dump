@@ -70,4 +70,4 @@ So Samuel grew, and the Lord was with him and let none of his words [^d]fall to 
 And all Israel from Dan to Beersheba knew that Samuel _had been_ [^e]established as a prophet of the Lord. 
 
 ###### 21 
-Then the Lord appeared again in Shiloh. For the Lord revealed Himself to Samuel in Shiloh by the word of the Lord. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Samuel 3:3 _palace_ or _temple_ [^b]: 1 Samuel 3:13 Lit. _rebuke_ [^c]: 1 Samuel 3:15 So with MT, Tg., Vg.; LXX adds _and he arose in the morning_ [^d]: 1 Samuel 3:19 _fail_ [^e]: 1 Samuel 3:20 _confirmed_
+Then the Lord appeared again in Shiloh. For the Lord revealed Himself to Samuel in Shiloh by the word of the Lord.

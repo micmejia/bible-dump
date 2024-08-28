@@ -616,4 +616,4 @@ Lest the land from which You brought us out say, Because the Lord was not able t
 
 
 
-Yet they are Your people and Your inheritance, whom You brought out by Your mighty power and by Your outstretched arm. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Yet they are Your people and Your inheritance, whom You brought out by Your mighty power and by Your outstretched arm.

@@ -532,4 +532,4 @@ And all the Egyptians dug round about the river for water to drink, for they cou
 
 
 
-Seven days passed after the Lord had smitten the river. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Seven days passed after the Lord had smitten the river.

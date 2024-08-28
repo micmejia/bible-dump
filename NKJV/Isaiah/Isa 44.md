@@ -91,4 +91,4 @@ Who confirms the word of His servant, And performs the counsel of His messengers
 Who says to the deep, 'Be dry! And I will dry up your rivers'; 
 
 ###### 28 
-Who says of Cyrus, '_He is_ My shepherd, And he shall perform all My pleasure, Saying to Jerusalem, "You shall be built," And to the temple, "Your foundation shall be laid." ' ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Isaiah 44:14 Lit. _appropriates_ [^b]: Isaiah 44:18 Lit. _smeared over_ [^c]: Isaiah 44:24 By Himself
+Who says of Cyrus, '_He is_ My shepherd, And he shall perform all My pleasure, Saying to Jerusalem, "You shall be built," And to the temple, "Your foundation shall be laid." '

@@ -1492,4 +1492,4 @@ Pagkatapos, dinala ako ng tao sa balkonahe ng templo at sinukat niya ang magkabi
 
 
 
-Ang haba ng balkonahe ay 35 na talampakan at ang luwang ay 20 talampakan. May sampung baitang ito pataas papunta sa balkonahe at may haligi sa magkabilang tabi. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 40:39 _handog na … kasalanan_<i class="alternate">:_ Tingnan sa Talaan ng mga Salita sa likod.
+Ang haba ng balkonahe ay 35 na talampakan at ang luwang ay 20 talampakan. May sampung baitang ito pataas papunta sa balkonahe at may haligi sa magkabilang tabi.

@@ -427,4 +427,4 @@ I call heaven and earth to witness this day against you that I have set before y
 
 
 
-And may love the Lord your God, obey His voice, and cling to Him. For He is your life and the length of your days, that you may dwell in the land which the Lord swore to give to your fathers, to Abraham, Isaac, and Jacob. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+And may love the Lord your God, obey His voice, and cling to Him. For He is your life and the length of your days, that you may dwell in the land which the Lord swore to give to your fathers, to Abraham, Isaac, and Jacob.

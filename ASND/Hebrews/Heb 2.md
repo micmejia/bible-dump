@@ -601,4 +601,4 @@ Ito ang dahilan kung bakit kinailangang magkatawang-tao ni Jesus, upang maging k
 
 
 
-At dahil siya mismo ay nakaranas ng paghihirap nang tinukso siya, matutulungan niya ang mga dumaranas ng tukso. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2:8 Salmo 8:4-6. [^b]: 2:12 Salmo 22:22. [^c]: 2:13 Isa. 8:17. [^d]: 2:13 Isa. 8:18.
+At dahil siya mismo ay nakaranas ng paghihirap nang tinukso siya, matutulungan niya ang mga dumaranas ng tukso.

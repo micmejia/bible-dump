@@ -112,4 +112,4 @@ Nor is there any mediator between us, _Who_ may lay his hand on us both.
 Let Him take His rod away from me, And do not let dread of Him terrify me. 
 
 ###### 35 
-_Then_ I would speak and not fear Him, But it is not so with me. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 9:3 _argue_ [^b]: Job 9:8 _walks_ [^c]: Job 9:8 Lit. _heights_ [^d]: Job 9:9 Heb. _Ash, Kesil,_ and _Kimah_ [^e]: Job 9:12 Lit. _who can turn Him back?_ [^f]: Job 9:13 Heb. _rahab_ [^g]: Job 9:26 Lit. _ships of reeds_ [^h]: Job 9:30 _lye_ [^i]: Job 9:31 _loathe_
+_Then_ I would speak and not fear Him, But it is not so with me.

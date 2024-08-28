@@ -553,4 +553,4 @@ But I will strengthen _and_ hold up the arms of the king of Babylon and the arms
 
 
 
-And I will scatter the Egyptians among the nations and disperse them through the countries, and they shall know (understand and realize) that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service]. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Ezekiel 30:10 See footnote on Jer. 21:2.
+And I will scatter the Egyptians among the nations and disperse them through the countries, and they shall know (understand and realize) that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service].

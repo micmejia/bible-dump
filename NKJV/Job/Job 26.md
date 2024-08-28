@@ -49,4 +49,4 @@ He stirs up the sea with His power, And by His understanding He breaks up [^c]th
 By His Spirit He adorned the heavens; His hand pierced the fleeing serpent. 
 
 ###### 14 
-Indeed these _are_ the mere edges of His ways, And how small a whisper we hear of Him! But the thunder of His power who can understand?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 26:8 _do not break_ [^b]: Job 26:11 _amazed_ [^c]: Job 26:12 Heb. _rahab_
+Indeed these _are_ the mere edges of His ways, And how small a whisper we hear of Him! But the thunder of His power who can understand?"

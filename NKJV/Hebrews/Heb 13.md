@@ -81,4 +81,4 @@ Know that _our_ brother Timothy has been set free, with whom I shall see you if 
 Greet all those who [^h]rule over you, and all the saints. Those from Italy greet you. 
 
 ###### 25 
-Grace _be_ with you all. Amen. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Hebrews 13:7 _lead_ [^b]: Hebrews 13:9 NU, M _away_ [^c]: Hebrews 13:12 _set apart_ [^d]: Hebrews 13:15 Lit. _confessing_ [^e]: Hebrews 13:17 _lead_ [^f]: Hebrews 13:21 _perfect_ [^g]: Hebrews 13:21 NU, M _us_ [^h]: Hebrews 13:24 _lead_
+Grace _be_ with you all. Amen.

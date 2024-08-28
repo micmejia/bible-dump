@@ -51,4 +51,4 @@ Send Zenas the lawyer and Apollos on their journey with haste, that they may lac
 And let our _people_ also learn to maintain good works, to _meet_ urgent needs, that they may not be unfruitful. ## Farewell 
 
 ###### 15 
-All who _are_ with me greet you. Greet those who love us in the faith. Grace _be_ with you all. Amen. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Titus 3:10 _warning_
+All who _are_ with me greet you. Greet those who love us in the faith. Grace _be_ with you all. Amen.

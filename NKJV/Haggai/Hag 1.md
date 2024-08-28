@@ -51,4 +51,4 @@ Then Haggai, the Lord's messenger, spoke the Lord's message to the people, sayin
 So the Lord stirred up the spirit of Zerubbabel the son of Shealtiel, governor of Judah, and the spirit of Joshua the son of Jehozadak, the high priest, and the spirit of all the remnant of the people; and they came and worked on the house of the Lord of hosts, their God, 
 
 ###### 15 
-on the twenty-fourth day of the sixth month, in the second year of King Darius. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Haggai 1:4 Lit. _house_ [^b]: Haggai 1:8 Lit. _house_
+on the twenty-fourth day of the sixth month, in the second year of King Darius.

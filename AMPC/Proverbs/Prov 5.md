@@ -490,4 +490,4 @@ His own iniquities shall ensnare the wicked man, and he shall be held with the c
 
 
 
-He will die for lack of discipline _and_ instruction, and in the greatness of his folly he will go astray _and_ be lost. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Proverbs 5:15 All of the Ten Commandments are reflected in the book of Proverbs; here it is the seventh, “You shall not commit adultery.”
+He will die for lack of discipline _and_ instruction, and in the greatness of his folly he will go astray _and_ be lost.

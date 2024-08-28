@@ -91,4 +91,4 @@ He who trusts in his own heart is a fool, But whoever walks wisely will be deliv
 He who gives to the poor will not lack, But he who hides his eyes will have many curses. 
 
 ###### 28 
-When the wicked arise, men hide themselves; But when they perish, the righteous increase. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Proverbs 28:3 Lit. _and there is no bread_ [^b]: Proverbs 28:12 Lit. _will be searched for_ [^c]: Proverbs 28:18 _delivered_ [^d]: Proverbs 28:21 Lit. _recognize faces_
+When the wicked arise, men hide themselves; But when they perish, the righteous increase.

@@ -195,4 +195,4 @@ Ephraim shall say, What have I to do any more with idols? I have answered [him] 
 
 
 
-Who is wise, that he may understand these things? Prudent, that he may know them? For the ways of the Lord are right and the [uncompromisingly] just shall walk in them, but transgressors shall stumble _and_ fall in them. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+Who is wise, that he may understand these things? Prudent, that he may know them? For the ways of the Lord are right and the [uncompromisingly] just shall walk in them, but transgressors shall stumble _and_ fall in them.

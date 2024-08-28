@@ -115,4 +115,4 @@ Then Jacob tore his clothes, put sackcloth on his waist, and mourned for his son
 And all his sons and all his daughters arose to comfort him; but he refused to be comforted, and he said, "For I shall go down into the grave to my son in mourning." Thus his father wept for him. 
 
 ###### 36 
-Now the [^c]Midianites had sold him in Egypt to Potiphar, an officer of Pharaoh _and_ captain of the guard. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 37:1 _sojourner,_ temporary resident [^b]: Genesis 37:19 Lit. _master of dreams_ [^c]: Genesis 37:36 MT _Medanites_
+Now the [^c]Midianites had sold him in Egypt to Potiphar, an officer of Pharaoh _and_ captain of the guard.

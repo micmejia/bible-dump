@@ -280,4 +280,4 @@ And when they looked from afar off and saw him [disfigured] beyond recognition, 
 
 
 
-So they sat down with [Job] on the ground for seven days and seven nights, and none spoke a word to him, for they saw that his grief _and_ pain were very great. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences
+So they sat down with [Job] on the ground for seven days and seven nights, and none spoke a word to him, for they saw that his grief _and_ pain were very great.

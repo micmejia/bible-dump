@@ -973,4 +973,4 @@ If then David thus calls Him Lord, how is He his Son?
 
 
 
-And no one was able to answer Him a word, nor from that day did anyone venture _or_ dare to question Him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Matthew 22:12 Literal translation. [^b]: Matthew 22:16 Hermann Cremer, _Biblico-Theological Lexicon_. [^c]: Matthew 22:33 Joseph Thayer, _A Greek-English Lexicon_. [^d]: Matthew 22:34 Literal translation. [^e]: Matthew 22:36 Marvin Vincent, _Word Studies_. [^f]: Matthew 22:40 Joseph Thayer, _A Greek-English Lexicon_.
+And no one was able to answer Him a word, nor from that day did anyone venture _or_ dare to question Him.

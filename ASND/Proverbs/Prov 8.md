@@ -997,4 +997,4 @@ Sapagkat ang taong makakasumpong sa akin ay magkakaroon ng <i class="trans-chang
 
 
 
-Ngunit ang taong hindi makakasumpong sa akin ay ipinapahamak ang kanyang sarili. Ang mga galit sa akin ay naghahanap ng kamatayan." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 8:16 _mga opisyal … matuwid_<i class="alternate">:_ Sa Septuagint at ibang tekstong Hebreo, <i class="alternate">mga pinuno na namumuno sa mundo._
+Ngunit ang taong hindi makakasumpong sa akin ay ipinapahamak ang kanyang sarili. Ang mga galit sa akin ay naghahanap ng kamatayan."

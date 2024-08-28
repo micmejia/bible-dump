@@ -535,4 +535,4 @@ Iyon ang bukal na naroon sa gitna ng Kadesh at Bered na tinatawag na Beer Lahai 
 
 
 
-Nasa 86 na taong gulang si Abram nang ipinanganak si Ishmael. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 16:11 _Ishmael_<i class="alternate">:_ Ang ibig sabihin, <i class="alternate">nakikinig ang Dios._ [^b]: 16:14 _Beer Lahai Roi_<i class="alternate">:_ Ang ibig sabihin, <i class="alternate">Balon ng buhay na Dios na nakakakita sa akin._
+Nasa 86 na taong gulang si Abram nang ipinanganak si Ishmael.

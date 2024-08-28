@@ -91,4 +91,4 @@ And they told him, saying, "Joseph _is_ still alive, and he _is_ governor over a
 But when they told him all the words which Joseph had said to them, and when he saw the carts which Joseph had sent to carry him, the spirit of Jacob their father revived. 
 
 ###### 28 
-Then Israel said, "_It is_ enough. Joseph my son _is_ still alive. I will go and see him before I die." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 45:7 _remnant_ [^b]: Genesis 45:9 _delay_ [^c]: Genesis 45:18 The choicest produce [^d]: Genesis 45:21 _wagons_
+Then Israel said, "_It is_ enough. Joseph my son _is_ still alive. I will go and see him before I die."

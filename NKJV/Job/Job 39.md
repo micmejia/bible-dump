@@ -97,4 +97,4 @@ On the rock it dwells and resides, On the crag of the rock and the stronghold.
 From there it spies out the prey; Its eyes observe from afar. 
 
 ###### 30 
-Its young ones suck up blood; And where the slain _are,_ there it _is._" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Job 39:3 Lit. _pangs_ [^b]: Job 39:5 A species of wild donkey [^c]: Job 39:6 Lit. _salt land_ [^d]: Job 39:12 Lit. _seed_ [^e]: Job 39:16 Lit. _fear_ [^f]: Job 39:19 Or _a mane_ [^g]: Job 39:20 _make him spring_
+Its young ones suck up blood; And where the slain _are,_ there it _is._"

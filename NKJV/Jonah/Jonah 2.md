@@ -37,4 +37,4 @@ I went down to the [^a]moorings of the mountains; The earth with its bars _close
 But I will sacrifice to You With the voice of thanksgiving; I will pay what I have vowed. Salvation _is_ of the Lord." 
 
 ###### 10 
-So the Lord spoke to the fish, and it vomited Jonah onto dry _land._ ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Jonah 2:6 _foundations_ or _bases_ [^b]: Jonah 2:8 Or _Lovingkindness_
+So the Lord spoke to the fish, and it vomited Jonah onto dry _land._

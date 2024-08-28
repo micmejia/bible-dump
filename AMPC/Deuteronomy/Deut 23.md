@@ -154,7 +154,7 @@ You shall not seek their peace or their prosperity all your days forever.
 
 
 
-You shall not abhor an Edomite, for he is your brother [Esau's descendant]. You shall not abhor an Egyptian, because you were a stranger _and_ temporary resident in his land. 
+You shall not abhor an Edomite, for he is your brother [Esau's descendant]. You shall not abhor an Egyptian, because you were a stranger and temporary resident in his land. 
 
 
 
@@ -280,7 +280,7 @@ You shall have a place also outside the camp to which you shall go [as a comfort
 
 
 
-And you shall have a paddle _or_ shovel among your weapons, and when you sit down outside [to relieve yourself], you shall dig a hole with it and turn back and cover up what has come from you. 
+And you shall have a paddle or shovel among your weapons, and when you sit down outside [to relieve yourself], you shall dig a hole with it and turn back and cover up what has come from you. 
 
 
 
@@ -343,7 +343,7 @@ You shall not give up to his master a servant who has escaped from his master to
 
 
 
-He shall dwell with you in your midst wherever he chooses in one of your towns where it pleases him best. You shall not defraud _or_ oppress him. 
+He shall dwell with you in your midst wherever he chooses in one of your towns where it pleases him best. You shall not defraud or oppress him. 
 
 
 

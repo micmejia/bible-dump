@@ -112,7 +112,7 @@ He shall keep the lamps in order upon the lampstand of pure gold before the Lord
 
 
 
-And you shall take fine flour and bake twelve cakes with it; two-tenths of an ephah shall be in each cake [of the showbread _or_ bread of the Presence]. 
+And you shall take fine flour and bake twelve cakes with it; two-tenths of an ephah shall be in each cake [of the showbread or bread of the Presence]. 
 
 
 
@@ -217,7 +217,7 @@ And the bread shall be for Aaron and his sons, and they shall eat it in a sacred
 
 
 
-Now the son of an Israelite woman, whose father was an Egyptian, went out among the Israelites, and he and a man of Israel quarreled _and_ strove together in the camp. 
+Now the son of an Israelite woman, whose father was an Egyptian, went out among the Israelites, and he and a man of Israel quarreled and strove together in the camp. 
 
 
 
@@ -406,7 +406,7 @@ And he who kills a beast shall make it good, beast for beast.
 
 
 
-And if a man causes a blemish _or_ disfigurement on his neighbor, it shall be done to him as he has done: 
+And if a man causes a blemish or disfigurement on his neighbor, it shall be done to him as he has done: 
 
 
 
@@ -427,7 +427,7 @@ And if a man causes a blemish _or_ disfigurement on his neighbor, it shall be do
 
 
 
-Fracture for fracture, eye for eye, tooth for tooth; as he has caused a blemish _or_ disfigurement on a man, so shall it be done to him. 
+Fracture for fracture, eye for eye, tooth for tooth; as he has caused a blemish or disfigurement on a man, so shall it be done to him. 
 
 
 

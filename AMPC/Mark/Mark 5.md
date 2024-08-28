@@ -91,7 +91,7 @@ This man continually lived among the tombs, and no one could subdue him any more
 
 
 
-For he had been bound often with shackles for the feet and handcuffs, but the handcuffs of [light] chains he wrenched apart, and the shackles he rubbed _and_ ground together _and_ broke in pieces; and no one had strength enough to restrain _or_ tame him. 
+For he had been bound often with shackles for the feet and handcuffs, but the handcuffs of [light] chains he wrenched apart, and the shackles he rubbed and ground together and broke in pieces; and no one had strength enough to restrain or tame him. 
 
 
 
@@ -112,7 +112,7 @@ For he had been bound often with shackles for the feet and handcuffs, but the ha
 
 
 
-Night and day among the tombs and on the mountains he was always shrieking _and_ screaming and beating _and_ bruising _and_ cutting himself with stones. 
+Night and day among the tombs and on the mountains he was always shrieking and screaming and beating and bruising and cutting himself with stones. 
 
 
 
@@ -259,7 +259,7 @@ Now a great herd of hogs was grazing there on the hillside.
 
 
 
-And _the demons_ begged Him, saying, Send us to the hogs, that we may go into them! 
+And the demons begged Him, saying, Send us to the hogs, that we may go into them! 
 
 
 
@@ -322,7 +322,7 @@ The hog feeders ran away, and told [it] in the town and in the country. And [the
 
 
 
-And they came to Jesus and looked intently _and_ searchingly at the man who had been a demoniac, sitting there, clothed and in his right mind, [the same man] who had had the legion [of demons]; and they were seized with alarm _and_ struck with fear. 
+And they came to Jesus and looked intently and searchingly at the man who had been a demoniac, sitting there, clothed and in his right mind, [the same man] who had had the legion [of demons]; and they were seized with alarm and struck with fear. 
 
 
 
@@ -406,7 +406,7 @@ And when He had stepped into the boat, the man who had been controlled by the un
 
 
 
-But Jesus refused to permit him, but said to him, Go home to your own [family and relatives and friends] and bring back word to them of how much the Lord has done for you, and [how He has] had sympathy for you _and_ mercy on you. 
+But Jesus refused to permit him, but said to him, Go home to your own [family and relatives and friends] and bring back word to them of how much the Lord has done for you, and [how He has] had sympathy for you and mercy on you. 
 
 
 
@@ -427,7 +427,7 @@ But Jesus refused to permit him, but said to him, Go home to your own [family an
 
 
 
-And he departed and began to publicly proclaim in Decapolis [the region of the ten cities] how much Jesus had done for him, and all the people were astonished _and_ marveled. 
+And he departed and began to publicly proclaim in Decapolis [the region of the ten cities] how much Jesus had done for him, and all the people were astonished and marveled. 
 
 
 
@@ -490,7 +490,7 @@ Then one of the rulers of the synagogue came up, Jairus by name; and seeing Him,
 
 
 
-And begged Him earnestly, saying, My little daughter is at the point of death. Come and lay Your hands on her, so that she may be healed _and_ live. 
+And begged Him earnestly, saying, My little daughter is at the point of death. Come and lay Your hands on her, so that she may be healed and live. 
 
 
 
@@ -700,7 +700,7 @@ Still He kept looking around to see her who had done it.
 
 
 
-But the woman, knowing what had been done for her, though alarmed _and_ frightened and trembling, fell down before Him and told Him the whole truth. 
+But the woman, knowing what had been done for her, though alarmed and frightened and trembling, fell down before Him and told Him the whole truth. 
 
 
 
@@ -721,7 +721,7 @@ But the woman, knowing what had been done for her, though alarmed _and_ frighten
 
 
 
-And He said to her, Daughter, your faith (your trust and confidence in Me, springing from faith in God) has restored you to health. Go in (into) peace and be continually healed _and_ freed from your [distressing bodily] disease. 
+And He said to her, Daughter, your faith (your trust and confidence in Me, springing from faith in God) has restored you to health. Go in (into) peace and be continually healed and freed from your [distressing bodily] disease. 
 
 
 
@@ -742,7 +742,7 @@ And He said to her, Daughter, your faith (your trust and confidence in Me, sprin
 
 
 
-While He was still speaking, there came some from the ruler's house, who said [to Jairus], Your daughter has died. Why bother _and_ distress the Teacher any further? 
+While He was still speaking, there came some from the ruler's house, who said [to Jairus], Your daughter has died. Why bother and distress the Teacher any further? 
 
 
 
@@ -763,7 +763,7 @@ While He was still speaking, there came some from the ruler's house, who said [t
 
 
 
-_Overhearing_ but ignoring what they said, Jesus said to the ruler of the synagogue, Do not be seized with alarm _and_ struck with fear; only keep on believing. 
+Overhearing but ignoring what they said, Jesus said to the ruler of the synagogue, Do not be seized with alarm and struck with fear; only keep on believing. 
 
 
 
@@ -805,7 +805,7 @@ And He permitted no one to accompany Him except Peter and James and John the bro
 
 
 
-When they arrived at the house of the ruler of the synagogue, He looked [carefully and with understanding] at [the] tumult and _the people_ weeping and wailing loudly. 
+When they arrived at the house of the ruler of the synagogue, He looked [carefully and with understanding] at [the] tumult and the people weeping and wailing loudly. 
 
 
 
@@ -847,7 +847,7 @@ And when He had gone in, He said to them, Why do you make an uproar and weep? Th
 
 
 
-And they laughed _and_ jeered at Him. But He put them all out, and, taking the child's father and mother and those who were with Him, He went in where the little girl was _lying_. 
+And they laughed and jeered at Him. But He put them all out, and, taking the child's father and mother and those who were with Him, He went in where the little girl was lying. 
 
 
 
@@ -889,7 +889,7 @@ Gripping her [firmly] by the hand, He said to her, Talitha cumi--which translate
 
 
 
-And instantly the girl got up and started walking around--for she was twelve years old. And they were utterly astonished _and_ overcome with amazement. 
+And instantly the girl got up and started walking around--for she was twelve years old. And they were utterly astonished and overcome with amazement. 
 
 
 
@@ -910,4 +910,4 @@ And instantly the girl got up and started walking around--for she was twelve yea
 
 
 
-And He strictly commanded _and_ warned them that no one should know this, and He [expressly] told them to give her [something] to eat.
+And He strictly commanded and warned them that no one should know this, and He [expressly] told them to give her [something] to eat.

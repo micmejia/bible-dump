@@ -10,31 +10,31 @@ next: ['Gen 48']
 
 
 ###### 1 
-Then Joseph went and told Pharaoh, and said, "My father and my brothers, their flocks and their herds and all that they possess, have come from the land of Canaan; and indeed they _are_ in the land of Goshen." 
+Then Joseph went and told Pharaoh, and said, "My father and my brothers, their flocks and their herds and all that they possess, have come from the land of Canaan; and indeed they are in the land of Goshen." 
 
 ###### 2 
 And he took five men from among his brothers and presented them to Pharaoh. 
 
 ###### 3 
-Then Pharaoh said to his brothers, "What _is_ your occupation?" And they said to Pharaoh, "Your servants _are_ shepherds, both we _and_ also our fathers." 
+Then Pharaoh said to his brothers, "What is your occupation?" And they said to Pharaoh, "Your servants are shepherds, both we and also our fathers." 
 
 ###### 4 
-And they said to Pharaoh, "We have come to dwell in the land, because your servants have no pasture for their flocks, for the famine _is_ severe in the land of Canaan. Now therefore, please let your servants dwell in the land of Goshen." 
+And they said to Pharaoh, "We have come to dwell in the land, because your servants have no pasture for their flocks, for the famine is severe in the land of Canaan. Now therefore, please let your servants dwell in the land of Goshen." 
 
 ###### 5 
 Then Pharaoh spoke to Joseph, saying, "Your father and your brothers have come to you. 
 
 ###### 6 
-The land of Egypt _is_ before you. Have your father and brothers dwell in the best of the land; let them dwell in the land of Goshen. And if you know _any_ competent men among them, then make them chief herdsmen over my livestock." 
+The land of Egypt is before you. Have your father and brothers dwell in the best of the land; let them dwell in the land of Goshen. And if you know any competent men among them, then make them chief herdsmen over my livestock." 
 
 ###### 7 
 Then Joseph brought in his father Jacob and set him before Pharaoh; and Jacob blessed Pharaoh. 
 
 ###### 8 
-Pharaoh said to Jacob, "How old _are_ you?" 
+Pharaoh said to Jacob, "How old are you?" 
 
 ###### 9 
-And Jacob said to Pharaoh, "The days of the years of my pilgrimage _are_ one hundred and thirty years; few and evil have been the days of the years of my life, and they have not attained to the days of the years of the life of my fathers in the days of their pilgrimage." 
+And Jacob said to Pharaoh, "The days of the years of my pilgrimage are one hundred and thirty years; few and evil have been the days of the years of my life, and they have not attained to the days of the years of the life of my fathers in the days of their pilgrimage." 
 
 ###### 10 
 So Jacob blessed Pharaoh, and went out from before Pharaoh. 
@@ -43,12 +43,12 @@ So Jacob blessed Pharaoh, and went out from before Pharaoh.
 And Joseph situated his father and his brothers, and gave them a possession in the land of Egypt, in the best of the land, in the land of Rameses, as Pharaoh had commanded. 
 
 ###### 12 
-Then Joseph provided his father, his brothers, and all his father's household with bread, according to the number in _their_ families.
+Then Joseph provided his father, his brothers, and all his father's household with bread, according to the number in their families.
 
 ## Joseph Deals with the Famine 
 
 ###### 13 
-Now _there was_ no bread in all the land; for the famine _was_ very severe, so that the land of Egypt and the land of Canaan languished because of the famine. 
+Now there was no bread in all the land; for the famine was very severe, so that the land of Egypt and the land of Canaan languished because of the famine. 
 
 ###### 14 
 And Joseph gathered up all the money that was found in the land of Egypt and in the land of Canaan, for the grain which they bought; and Joseph brought the money into Pharaoh's house. 
@@ -57,28 +57,28 @@ And Joseph gathered up all the money that was found in the land of Egypt and in 
 So when the money failed in the land of Egypt and in the land of Canaan, all the Egyptians came to Joseph and said, "Give us bread, for why should we die in your presence? For the money has failed." 
 
 ###### 16 
-Then Joseph said, "Give your livestock, and I will give you _bread_ for your livestock, if the money is gone." 
+Then Joseph said, "Give your livestock, and I will give you bread for your livestock, if the money is gone." 
 
 ###### 17 
-So they brought their livestock to Joseph, and Joseph gave them bread _in exchange_ for the horses, the flocks, the cattle of the herds, and for the donkeys. Thus he fed them with bread _in exchange_ for all their livestock that year. 
+So they brought their livestock to Joseph, and Joseph gave them bread in exchange for the horses, the flocks, the cattle of the herds, and for the donkeys. Thus he fed them with bread in exchange for all their livestock that year. 
 
 ###### 18 
 When that year had ended, they came to him the next year and said to him, "We will not hide from my lord that our money is gone; my lord also has our herds of livestock. There is nothing left in the sight of my lord but our bodies and our lands. 
 
 ###### 19 
-Why should we die before your eyes, both we and our land? Buy us and our land for bread, and we and our land will be servants of Pharaoh; give _us_ seed, that we may live and not die, that the land may not be desolate." 
+Why should we die before your eyes, both we and our land? Buy us and our land for bread, and we and our land will be servants of Pharaoh; give us seed, that we may live and not die, that the land may not be desolate." 
 
 ###### 20 
 Then Joseph bought all the land of Egypt for Pharaoh; for every man of the Egyptians sold his field, because the famine was severe upon them. So the land became Pharaoh's. 
 
 ###### 21 
-And as for the people, he moved them into the cities, from _one_ end of the borders of Egypt to the _other_ end. 
+And as for the people, he moved them into the cities, from one end of the borders of Egypt to the other end. 
 
 ###### 22 
-Only the land of the priests he did not buy; for the priests had rations _allotted to them_ by Pharaoh, and they ate their rations which Pharaoh gave them; therefore they did not sell their lands. 
+Only the land of the priests he did not buy; for the priests had rations allotted to them by Pharaoh, and they ate their rations which Pharaoh gave them; therefore they did not sell their lands. 
 
 ###### 23 
-Then Joseph said to the people, "Indeed I have bought you and your land this day for Pharaoh. Look, _here is_ seed for you, and you shall sow the land. 
+Then Joseph said to the people, "Indeed I have bought you and your land this day for Pharaoh. Look, here is seed for you, and you shall sow the land. 
 
 ###### 24 
 And it shall come to pass in the harvest that you shall give one-fifth to Pharaoh. Four-fifths shall be your own, as seed for the field and for your food, for those of your households and as food for your little ones." 
@@ -87,7 +87,7 @@ And it shall come to pass in the harvest that you shall give one-fifth to Pharao
 So they said, "You have saved our lives; let us find favor in the sight of my lord, and we will be Pharaoh's servants." 
 
 ###### 26 
-And Joseph made it a law over the land of Egypt to this day, _that_ Pharaoh should have one-fifth, except for the land of the priests only, _which_ did not become Pharaoh's.
+And Joseph made it a law over the land of Egypt to this day, that Pharaoh should have one-fifth, except for the land of the priests only, which did not become Pharaoh's.
 
 ## Joseph's Vow to Jacob 
 

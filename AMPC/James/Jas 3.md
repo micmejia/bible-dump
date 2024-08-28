@@ -12,13 +12,13 @@ next: ['Jas 4']
 ###### 1 
 
 
-Not many [of you] should become teachers (self-constituted censors and reprovers of others), my brethren, for you know that we [teachers] will be judged by a higher standard _and_ with greater severity [than other people; thus we assume the greater accountability and the more condemnation]. 
+Not many [of you] should become teachers (self-constituted censors and reprovers of others), my brethren, for you know that we [teachers] will be judged by a higher standard and with greater severity [than other people; thus we assume the greater accountability and the more condemnation]. 
 
 
 ###### 2 
 
 
-For we all often stumble _and_ fall _and_ offend in many things. And if anyone does not offend in speech [never says the wrong things], he is a fully developed character _and_ a perfect man, able to control his whole body _and_ to curb his entire nature. 
+For we all often stumble and fall and offend in many things. And if anyone does not offend in speech [never says the wrong things], he is a fully developed character and a perfect man, able to control his whole body and to curb his entire nature. 
 
 
 ###### 3 
@@ -36,13 +36,13 @@ Likewise, look at the ships: though they are so great and are driven by rough wi
 ###### 5 
 
 
-Even so the tongue is a little member, and it can boast of great things. See how much wood _or_ how great a forest a tiny spark can set ablaze! 
+Even so the tongue is a little member, and it can boast of great things. See how much wood or how great a forest a tiny spark can set ablaze! 
 
 
 ###### 6 
 
 
-And the tongue is a fire. [The tongue is a] world of wickedness set among our members, contaminating _and_ depraving the whole body and setting on fire the wheel of birth (the cycle of man's nature), being itself ignited by hell (Gehenna). 
+And the tongue is a fire. [The tongue is a] world of wickedness set among our members, contaminating and depraving the whole body and setting on fire the wheel of birth (the cycle of man's nature), being itself ignited by hell (Gehenna). 
 
 
 ###### 7 
@@ -90,7 +90,7 @@ Who is there among you who is wise and intelligent? Then let him by his noble li
 ###### 14 
 
 
-But if you have bitter jealousy (envy) and contention (rivalry, selfish ambition) in your hearts, do not pride yourselves on it and thus be in defiance of _and_ false to the Truth. 
+But if you have bitter jealousy (envy) and contention (rivalry, selfish ambition) in your hearts, do not pride yourselves on it and thus be in defiance of and false to the Truth. 
 
 
 ###### 15 
@@ -102,16 +102,16 @@ This [superficial] wisdom is not such as comes down from above, but is earthly, 
 ###### 16 
 
 
-For wherever there is jealousy (envy) and contention (rivalry and selfish ambition), there will also be confusion (unrest, disharmony, rebellion) and all sorts of evil _and_ vile practices. 
+For wherever there is jealousy (envy) and contention (rivalry and selfish ambition), there will also be confusion (unrest, disharmony, rebellion) and all sorts of evil and vile practices. 
 
 
 ###### 17 
 
 
-But the wisdom from above is first of all pure (undefiled); then it is peace-loving, courteous (considerate, gentle). [It is willing to] yield to reason, full of compassion and good fruits; it is wholehearted _and_ straightforward, impartial _and_ unfeigned (free from doubts, wavering, and insincerity). 
+But the wisdom from above is first of all pure (undefiled); then it is peace-loving, courteous (considerate, gentle). [It is willing to] yield to reason, full of compassion and good fruits; it is wholehearted and straightforward, impartial and unfeigned (free from doubts, wavering, and insincerity). 
 
 
 ###### 18 
 
 
-And the harvest of righteousness (of conformity to God's will in thought and deed) is [the fruit of the seed] sown in peace by those who work for _and_ make peace [in themselves and in others, that peace which means concord, agreement, and harmony between individuals, with undisturbedness, in a peaceful mind free from fears and agitating passions and moral conflicts].
+And the harvest of righteousness (of conformity to God's will in thought and deed) is [the fruit of the seed] sown in peace by those who work for and make peace [in themselves and in others, that peace which means concord, agreement, and harmony between individuals, with undisturbedness, in a peaceful mind free from fears and agitating passions and moral conflicts].

@@ -91,7 +91,7 @@ Surely He has turned away from me; His hand is against me all the day.
 
 
 
-My flesh and my skin has He worn out _and_ made old; He has shattered my bones. 
+My flesh and my skin has He worn out and made old; He has shattered my bones. 
 
 
 
@@ -112,7 +112,7 @@ My flesh and my skin has He worn out _and_ made old; He has shattered my bones.
 
 
 
-He has built up [siege mounds] against me and surrounded me with bitterness, tribulation, _and_ anguish. 
+He has built up [siege mounds] against me and surrounded me with bitterness, tribulation, and anguish. 
 
 
 
@@ -322,7 +322,7 @@ I have become a derision to all my people, and [the subject of] their singsong a
 
 
 
-He has filled me with bitterness; He has made me drink to excess _and_ until drunken with wormwood [bitterness]. 
+He has filled me with bitterness; He has made me drink to excess and until drunken with wormwood [bitterness]. 
 
 
 
@@ -364,7 +364,7 @@ He has also broken my teeth with gravel (stones); He has covered me with ashes.
 
 
 
-And You have bereaved my soul _and_ cast it off far from peace; I have forgotten what good _and_ happiness _are_. 
+And You have bereaved my soul and cast it off far from peace; I have forgotten what good and happiness are. 
 
 
 
@@ -406,7 +406,7 @@ And I say, Perished is my strength and my expectation from the Lord.
 
 
 
-[O Lord] remember [earnestly] my affliction and my misery, my wandering _and_ my outcast state, the wormwood and the gall. 
+[O Lord] remember [earnestly] my affliction and my misery, my wandering and my outcast state, the wormwood and the gall. 
 
 
 
@@ -448,7 +448,7 @@ My soul has them continually in remembrance and is bowed down within me.
 
 
 
-But this I recall and therefore have I hope _and_ expectation: 
+But this I recall and therefore have I hope and expectation: 
 
 
 
@@ -469,7 +469,7 @@ But this I recall and therefore have I hope _and_ expectation:
 
 
 
-It is because of the Lord's mercy _and_ loving-kindness that we are not consumed, because His [tender] compassions fail not. 
+It is because of the Lord's mercy and loving-kindness that we are not consumed, because His [tender] compassions fail not. 
 
 
 
@@ -490,7 +490,7 @@ It is because of the Lord's mercy _and_ loving-kindness that we are not consumed
 
 
 
-They are new every morning; great _and_ abundant is Your stability _and_ faithfulness. 
+They are new every morning; great and abundant is Your stability and faithfulness. 
 
 
 
@@ -511,7 +511,7 @@ They are new every morning; great _and_ abundant is Your stability _and_ faithfu
 
 
 
-The Lord is my portion _or_ share, says my living being (my inner self); therefore will I hope in Him _and_ wait expectantly for Him. 
+The Lord is my portion or share, says my living being (my inner self); therefore will I hope in Him and wait expectantly for Him. 
 
 
 
@@ -532,7 +532,7 @@ The Lord is my portion _or_ share, says my living being (my inner self); therefo
 
 
 
-The Lord is good to those who wait hopefully _and_ expectantly for Him, to those who seek Him [inquire of and for Him and require Him by right of necessity and on the authority of God's word]. 
+The Lord is good to those who wait hopefully and expectantly for Him, to those who seek Him [inquire of and for Him and require Him by right of necessity and on the authority of God's word]. 
 
 
 
@@ -553,7 +553,7 @@ The Lord is good to those who wait hopefully _and_ expectantly for Him, to those
 
 
 
-It is good that one should hope in _and_ wait quietly for the salvation (the safety and ease) of the Lord. 
+It is good that one should hope in and wait quietly for the salvation (the safety and ease) of the Lord. 
 
 
 
@@ -595,7 +595,7 @@ It is good for a man that he should bear the yoke [of divine disciplinary dealin
 
 
 
-Let him sit alone uncomplaining _and_ keeping silent [in hope], because [God] has laid [the yoke] upon him [for his benefit]. 
+Let him sit alone uncomplaining and keeping silent [in hope], because [God] has laid [the yoke] upon him [for his benefit]. 
 
 
 
@@ -679,7 +679,7 @@ For the Lord will not cast off forever!
 
 
 
-But though He causes grief, yet will He be moved to compassion according to the multitude of His loving-kindness _and_ tender mercy. 
+But though He causes grief, yet will He be moved to compassion according to the multitude of His loving-kindness and tender mercy. 
 
 
 
@@ -700,7 +700,7 @@ But though He causes grief, yet will He be moved to compassion according to the 
 
 
 
-For He does not willingly _and_ from His heart afflict or grieve the children of men. 
+For He does not willingly and from His heart afflict or grieve the children of men. 
 
 
 
@@ -721,7 +721,7 @@ For He does not willingly _and_ from His heart afflict or grieve the children of
 
 
 
-To trample _and_ crush underfoot all the prisoners of the earth, 
+To trample and crush underfoot all the prisoners of the earth, 
 
 
 
@@ -742,7 +742,7 @@ To trample _and_ crush underfoot all the prisoners of the earth,
 
 
 
-To turn aside _and_ deprive a man of his rights before the face of the Most High _or_ a superior [acting as God's representative], 
+To turn aside and deprive a man of his rights before the face of the Most High or a superior [acting as God's representative], 
 
 
 
@@ -784,7 +784,7 @@ To subvert a man in his cause--[of these things] the Lord does not approve.
 
 
 
-Who is he who speaks and it comes to pass, if the Lord has not authorized _and_ commanded it? 
+Who is he who speaks and it comes to pass, if the Lord has not authorized and commanded it? 
 
 
 
@@ -910,7 +910,7 @@ We have transgressed and rebelled and You have not pardoned.
 
 
 
-You have covered Yourself with wrath and pursued _and_ afflicted us; You have slain without pity. 
+You have covered Yourself with wrath and pursued and afflicted us; You have slain without pity. 
 
 
 
@@ -973,7 +973,7 @@ You have made us offscouring and refuse among the nations.
 
 
 
-All our enemies have gaped at us _and_ railed against us. 
+All our enemies have gaped at us and railed against us. 
 
 
 
@@ -1225,7 +1225,7 @@ You drew near on the day I called to You; You said, Fear not.
 
 
 
-O Lord, You have pleaded the causes of my soul [You have managed my affairs and You have protected my person and my rights]; You have rescued _and_ redeemed my life! 
+O Lord, You have pleaded the causes of my soul [You have managed my affairs and You have protected my person and my rights]; You have rescued and redeemed my life! 
 
 
 
@@ -1246,7 +1246,7 @@ O Lord, You have pleaded the causes of my soul [You have managed my affairs and 
 
 
 
-O Lord, You have seen my wrong [done to me]; judge _and_ maintain my cause. 
+O Lord, You have seen my wrong [done to me]; judge and maintain my cause. 
 
 
 
@@ -1288,7 +1288,7 @@ You have seen all their vengeance, all their devices against me.
 
 
 
-You have heard their reproach _and_ revilings, O Lord, and all their devices against me-- 
+You have heard their reproach and revilings, O Lord, and all their devices against me-- 
 
 
 
@@ -1309,7 +1309,7 @@ You have heard their reproach _and_ revilings, O Lord, and all their devices aga
 
 
 
-The lips _and_ thoughts of my assailants are against me all day long. 
+The lips and thoughts of my assailants are against me all day long. 
 
 
 
@@ -1372,7 +1372,7 @@ Render to them a recompense, O Lord, according to the work of their hands.
 
 
 
-You will give them hardness _and_ blindness of heart; Your curse will be upon them. 
+You will give them hardness and blindness of heart; Your curse will be upon them. 
 
 
 
@@ -1393,4 +1393,4 @@ You will give them hardness _and_ blindness of heart; Your curse will be upon th
 
 
 
-You will pursue _and_ afflict them in anger and destroy them from under Your heavens, O Lord.
+You will pursue and afflict them in anger and destroy them from under Your heavens, O Lord.

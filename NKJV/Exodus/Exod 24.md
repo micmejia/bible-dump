@@ -25,13 +25,13 @@ And Moses wrote all the words of the Lord. And he rose early in the morning, and
 Then he sent young men of the children of Israel, who offered burnt offerings and sacrificed peace offerings of oxen to the Lord. 
 
 ###### 6 
-And Moses took half the blood and put _it_ in basins, and half the blood he sprinkled on the altar. 
+And Moses took half the blood and put it in basins, and half the blood he sprinkled on the altar. 
 
 ###### 7 
 Then he took the Book of the Covenant and read in the hearing of the people. And they said, "All that the Lord has said we will do, and be obedient." 
 
 ###### 8 
-And Moses took the blood, sprinkled _it_ on the people, and said, "This is the blood of the covenant which the Lord has made with you according to all these words." 
+And Moses took the blood, sprinkled it on the people, and said, "This is the blood of the covenant which the Lord has made with you according to all these words." 
 
 ## On the Mountain with God 
 
@@ -39,7 +39,7 @@ And Moses took the blood, sprinkled _it_ on the people, and said, "This is the b
 Then Moses went up, also Aaron, Nadab, and Abihu, and seventy of the elders of Israel, 
 
 ###### 10 
-and they saw the God of Israel. And _there was_ under His feet as it were a paved work of sapphire stone, and it was like the very heavens in _its_ clarity. 
+and they saw the God of Israel. And there was under His feet as it were a paved work of sapphire stone, and it was like the very heavens in its clarity. 
 
 ###### 11 
 But on the nobles of the children of Israel He did not lay His hand. So they saw God, and they ate and drank. 
@@ -51,7 +51,7 @@ Then the Lord said to Moses, "Come up to Me on the mountain and be there; and I 
 So Moses arose with his assistant Joshua, and Moses went up to the mountain of God. 
 
 ###### 14 
-And he said to the elders, "Wait here for us until we come back to you. Indeed, Aaron and Hur _are_ with you. If any man has a difficulty, let him go to them." 
+And he said to the elders, "Wait here for us until we come back to you. Indeed, Aaron and Hur are with you. If any man has a difficulty, let him go to them." 
 
 ###### 15 
 Then Moses went up into the mountain, and a cloud covered the mountain. 
@@ -60,7 +60,7 @@ Then Moses went up into the mountain, and a cloud covered the mountain.
 Now the glory of the Lord rested on Mount Sinai, and the cloud covered it six days. And on the seventh day He called to Moses out of the midst of the cloud. 
 
 ###### 17 
-The sight of the glory of the Lord _was_ like a consuming fire on the top of the mountain in the eyes of the children of Israel. 
+The sight of the glory of the Lord was like a consuming fire on the top of the mountain in the eyes of the children of Israel. 
 
 ###### 18 
 So Moses went into the midst of the cloud and went up into the mountain. And Moses was on the mountain forty days and forty nights.

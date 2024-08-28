@@ -16,7 +16,7 @@ Then Deborah and Barak the son of Abinoam sang on that day, saying:
 "When leaders lead in Israel, When the people willingly offer themselves, Bless the Lord! 
 
 ###### 3 
-"Hear, O kings! Give ear, O princes! I, _even_ I, will sing to the Lord; I will sing praise to the Lord God of Israel. 
+"Hear, O kings! Give ear, O princes! I, even I, will sing to the Lord; I will sing praise to the Lord God of Israel. 
 
 ###### 4 
 "Lord, when You went out from Seir, When You marched from the field of Edom, The earth trembled and the heavens poured, The clouds also poured water; 
@@ -31,16 +31,16 @@ The mountains gushed before the Lord, This Sinai, before the Lord God of Israel.
 Village life ceased, it ceased in Israel, Until I, Deborah, arose, Arose a mother in Israel. 
 
 ###### 8 
-They chose new gods; Then _there was_ war in the gates; Not a shield or spear was seen among forty thousand in Israel. 
+They chose new gods; Then there was war in the gates; Not a shield or spear was seen among forty thousand in Israel. 
 
 ###### 9 
-My heart _is_ with the rulers of Israel Who offered themselves willingly with the people. Bless the Lord! 
+My heart is with the rulers of Israel Who offered themselves willingly with the people. Bless the Lord! 
 
 ###### 10 
 "Speak, you who ride on white donkeys, Who sit in judges' attire, And who walk along the road. 
 
 ###### 11 
-Far from the noise of the archers, among the watering places, There they shall recount the righteous acts of the Lord, The righteous acts _for_ His villagers in Israel; Then the people of the Lord shall go down to the gates. 
+Far from the noise of the archers, among the watering places, There they shall recount the righteous acts of the Lord, The righteous acts for His villagers in Israel; Then the people of the Lord shall go down to the gates. 
 
 ###### 12 
 "Awake, awake, Deborah! Awake, awake, sing a song! Arise, Barak, and lead your captives away, O son of Abinoam! 
@@ -49,10 +49,10 @@ Far from the noise of the archers, among the watering places, There they shall r
 "Then the survivors came down, the people against the nobles; The Lord came down for me against the mighty. 
 
 ###### 14 
-From Ephraim _were_ those whose roots were in Amalek. After you, Benjamin, with your peoples, From Machir rulers came down, And from Zebulun those who bear the recruiter's staff. 
+From Ephraim were those whose roots were in Amalek. After you, Benjamin, with your peoples, From Machir rulers came down, And from Zebulun those who bear the recruiter's staff. 
 
 ###### 15 
-And the princes of Issachar _were_ with Deborah; As Issachar, so _was_ Barak Sent into the valley under his command; Among the divisions of Reuben _There were_ great resolves of heart. 
+And the princes of Issachar were with Deborah; As Issachar, so was Barak Sent into the valley under his command; Among the divisions of Reuben There were great resolves of heart. 
 
 ###### 16 
 Why did you sit among the sheepfolds, To hear the pipings for the flocks? The divisions of Reuben have great searchings of heart. 
@@ -61,10 +61,10 @@ Why did you sit among the sheepfolds, To hear the pipings for the flocks? The di
 Gilead stayed beyond the Jordan, And why did Dan remain on ships? Asher continued at the seashore, And stayed by his inlets. 
 
 ###### 18 
-Zebulun _is_ a people _who_ jeopardized their lives to the point of death, Naphtali also, on the heights of the battlefield. 
+Zebulun is a people who jeopardized their lives to the point of death, Naphtali also, on the heights of the battlefield. 
 
 ###### 19 
-"The kings came _and_ fought, Then the kings of Canaan fought In Taanach, by the waters of Megiddo; They took no spoils of silver. 
+"The kings came and fought, Then the kings of Canaan fought In Taanach, by the waters of Megiddo; They took no spoils of silver. 
 
 ###### 20 
 They fought from the heavens; The stars from their courses fought against Sisera. 
@@ -91,13 +91,13 @@ She stretched her hand to the tent peg, Her right hand to the workmen's hammer; 
 At her feet he sank, he fell, he lay still; At her feet he sank, he fell; Where he sank, there he fell dead. 
 
 ###### 28 
-"The mother of Sisera looked through the window, And cried out through the lattice, 'Why is his chariot _so_ long in coming? Why tarries the clatter of his chariots?' 
+"The mother of Sisera looked through the window, And cried out through the lattice, 'Why is his chariot so long in coming? Why tarries the clatter of his chariots?' 
 
 ###### 29 
 Her wisest ladies answered her, Yes, she answered herself, 
 
 ###### 30 
-'Are they not finding and dividing the spoil: To every man a girl _or_ two; For Sisera, plunder of dyed garments, Plunder of garments embroidered and dyed, Two pieces of dyed embroidery for the neck of the looter?' 
+'Are they not finding and dividing the spoil: To every man a girl or two; For Sisera, plunder of dyed garments, Plunder of garments embroidered and dyed, Two pieces of dyed embroidery for the neck of the looter?' 
 
 ###### 31 
-"Thus let all Your enemies perish, O Lord! But _let_ those who love Him _be_ like the sun When it comes out in full strength." So the land had rest for forty years.
+"Thus let all Your enemies perish, O Lord! But let those who love Him be like the sun When it comes out in full strength." So the land had rest for forty years.

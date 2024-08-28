@@ -133,7 +133,7 @@ Not for your righteousness or for the uprightness of your [minds and] hearts do 
 
 
 
-Know therefore that the Lord your God does not give you this good land to possess because of your righteousness, for you are a hard _and_ stubborn people. 
+Know therefore that the Lord your God does not give you this good land to possess because of your righteousness, for you are a hard and stubborn people. 
 
 
 
@@ -280,7 +280,7 @@ And the Lord said to me, Arise, go down from here quickly, for your people whom 
 
 
 
-Furthermore the Lord said to me, I have seen this people, and behold, they are stubborn _and_ hard. 
+Furthermore the Lord said to me, I have seen this people, and behold, they are stubborn and hard. 
 
 
 
@@ -490,7 +490,7 @@ At Taberah also and at Massah and at Kibroth-hattaavah you provoked the Lord to 
 
 
 
-Likewise when the Lord sent you from Kadesh-barnea, saying, Go up and possess the land which I have given you, then you rebelled against the commandment of the Lord your God, and you did not believe Him _or_ trust _and_ rely on Him or obey His voice. 
+Likewise when the Lord sent you from Kadesh-barnea, saying, Go up and possess the land which I have given you, then you rebelled against the commandment of the Lord your God, and you did not believe Him or trust and rely on Him or obey His voice. 
 
 
 
@@ -532,7 +532,7 @@ You have been rebellious against the Lord from the day that I knew you.
 
 
 
-So I fell down _and_ lay prostrate before the Lord forty days and nights because the Lord had said He would destroy you. 
+So I fell down and lay prostrate before the Lord forty days and nights because the Lord had said He would destroy you. 
 
 
 

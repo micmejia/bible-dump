@@ -174,7 +174,7 @@ Only you be strong and very courageous, that you may do according to all the law
 
 
 
-This Book of the Law shall not depart out of your mouth, but you shall meditate on it day and night, that you may observe _and_ do according to all that is written in it. For then you shall make your way prosperous, and then you shall deal wisely _and_ have good success. 
+This Book of the Law shall not depart out of your mouth, but you shall meditate on it day and night, that you may observe and do according to all that is written in it. For then you shall make your way prosperous, and then you shall deal wisely and have good success. 
 
 
 
@@ -384,4 +384,4 @@ As we hearkened to Moses in all things, so will we hearken to you; only may the 
 
 
 
-Whoever rebels against your commandment and will not hearken to all you command him shall be put to death. Only be strong, vigorous, _and_ of good courage.
+Whoever rebels against your commandment and will not hearken to all you command him shall be put to death. Only be strong, vigorous, and of good courage.

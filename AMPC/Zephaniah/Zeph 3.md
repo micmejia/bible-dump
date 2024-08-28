@@ -48,7 +48,7 @@ Woe to her that is rebellious and polluted, the oppressing city [Jerusalem]!
 
 
 
-She did not listen to _and_ heed the voice [of God]; she accepted no correction _or_ instruction; she trusted not in the Lord [nor leaned on or was confident in Him, but was confident in her own wealth]; she drew not near to her God [but to the god of Baal or Molech]. 
+She did not listen to and heed the voice [of God]; she accepted no correction or instruction; she trusted not in the Lord [nor leaned on or was confident in Him, but was confident in her own wealth]; she drew not near to her God [but to the god of Baal or Molech]. 
 
 
 
@@ -132,7 +132,7 @@ The Lord in the midst of her is [uncompromisingly] righteous; He will not do ini
 
 
 
-I [the Lord] have cut off nations; their battlements _and_ corner towers are desolate _and_ in ruins. I laid their streets waste so that none passes over them; their cities are destroyed so that there is no man, there is no inhabitant. 
+I [the Lord] have cut off nations; their battlements and corner towers are desolate and in ruins. I laid their streets waste so that none passes over them; their cities are destroyed so that there is no man, there is no inhabitant. 
 
 
 
@@ -153,7 +153,7 @@ I [the Lord] have cut off nations; their battlements _and_ corner towers are des
 
 
 
-I said, Only let her [reverently and worshipfully] fear Me, receive correction and instruction, and [Jerusalem's] dwelling shall not be cut off. However, I have punished her [according to all that I have appointed concerning her in the way of punishment], but all the more they are eager to make all their doings corrupt _and_ infamous. 
+I said, Only let her [reverently and worshipfully] fear Me, receive correction and instruction, and [Jerusalem's] dwelling shall not be cut off. However, I have punished her [according to all that I have appointed concerning her in the way of punishment], but all the more they are eager to make all their doings corrupt and infamous. 
 
 
 
@@ -174,7 +174,7 @@ I said, Only let her [reverently and worshipfully] fear Me, receive correction a
 
 
 
-Therefore [earnestly] wait for Me, says the Lord, [waiting] for the day when I rise up to the attack [as a witness, accuser, or judge, and a testimony]. For My decision _and_ determination _and_ right it is to gather the nations together, to assemble the kingdoms, to pour upon them My indignation, even all [the heat of] My fierce anger; for [in that day] all the earth shall be consumed with the fire of My zeal _and_ jealousy. 
+Therefore [earnestly] wait for Me, says the Lord, [waiting] for the day when I rise up to the attack [as a witness, accuser, or judge, and a testimony]. For My decision and determination and right it is to gather the nations together, to assemble the kingdoms, to pour upon them My indignation, even all [the heat of] My fierce anger; for [in that day] all the earth shall be consumed with the fire of My zeal and jealousy. 
 
 
 
@@ -195,7 +195,7 @@ Therefore [earnestly] wait for Me, says the Lord, [waiting] for the day when I r
 
 
 
-For then [changing their impure language] I will give to the people a clear _and_ pure speech from pure lips, that they may all call upon the name of the Lord, to serve Him with one unanimous consent _and_ one united shoulder [bearing the yoke of the Lord]. 
+For then [changing their impure language] I will give to the people a clear and pure speech from pure lips, that they may all call upon the name of the Lord, to serve Him with one unanimous consent and one united shoulder [bearing the yoke of the Lord]. 
 
 
 
@@ -216,7 +216,7 @@ For then [changing their impure language] I will give to the people a clear _and
 
 
 
-From beyond the rivers of Cush _or_ Ethiopia those who pray to Me, the daughter of My dispersed people, will bring _and_ present My offering. 
+From beyond the rivers of Cush or Ethiopia those who pray to Me, the daughter of My dispersed people, will bring and present My offering. 
 
 
 
@@ -237,7 +237,7 @@ From beyond the rivers of Cush _or_ Ethiopia those who pray to Me, the daughter 
 
 
 
-In that day you [the congregation of Israel] shall not be put to shame for all your deeds by which you have rebelled _and_ transgressed against Me, for then I will take away out of your midst those who exult in your majesty _and_ pride; and you shall no more be haughty [and carry yourselves arrogantly on or] because of My holy mountain. 
+In that day you [the congregation of Israel] shall not be put to shame for all your deeds by which you have rebelled and transgressed against Me, for then I will take away out of your midst those who exult in your majesty and pride; and you shall no more be haughty [and carry yourselves arrogantly on or] because of My holy mountain. 
 
 
 
@@ -258,7 +258,7 @@ In that day you [the congregation of Israel] shall not be put to shame for all y
 
 
 
-For I will leave in the midst of you a people afflicted and poor, and they shall trust, seek refuge, _and_ be confident in the name of the Lord. 
+For I will leave in the midst of you a people afflicted and poor, and they shall trust, seek refuge, and be confident in the name of the Lord. 
 
 
 
@@ -300,7 +300,7 @@ What is left of Israel shall not do iniquity or speak lies, neither shall a dece
 
 
 
-Sing, O Daughter of Zion; shout, O Israel! Rejoice, be in high spirits _and_ glory with all your heart, O Daughter of Jerusalem [in that day]. 
+Sing, O Daughter of Zion; shout, O Israel! Rejoice, be in high spirits and glory with all your heart, O Daughter of Jerusalem [in that day]. 
 
 
 
@@ -321,7 +321,7 @@ Sing, O Daughter of Zion; shout, O Israel! Rejoice, be in high spirits _and_ glo
 
 
 
-[For then it will be that] the Lord has taken away the judgments against you; He has cast out your enemy. The King of Israel, even the Lord [Himself], is in the midst of you; [and after He has come to you] you shall not experience _or_ fear evil any more. 
+[For then it will be that] the Lord has taken away the judgments against you; He has cast out your enemy. The King of Israel, even the Lord [Himself], is in the midst of you; [and after He has come to you] you shall not experience or fear evil any more. 
 
 
 
@@ -342,7 +342,7 @@ Sing, O Daughter of Zion; shout, O Israel! Rejoice, be in high spirits _and_ glo
 
 
 
-In that day it shall be said to Jerusalem, Fear not, O Zion. Let not your hands sink down _or_ be slow _and_ listless. 
+In that day it shall be said to Jerusalem, Fear not, O Zion. Let not your hands sink down or be slow and listless. 
 
 
 
@@ -363,7 +363,7 @@ In that day it shall be said to Jerusalem, Fear not, O Zion. Let not your hands 
 
 
 
-The Lord your God is in the midst of you, a Mighty One, a Savior [Who saves]! He will rejoice over you with joy; He will rest [in silent satisfaction] _and_ in His love He will be silent _and_ make no mention [of past sins, or even recall them]; He will exult over you with singing. 
+The Lord your God is in the midst of you, a Mighty One, a Savior [Who saves]! He will rejoice over you with joy; He will rest [in silent satisfaction] and in His love He will be silent and make no mention [of past sins, or even recall them]; He will exult over you with singing. 
 
 
 
@@ -384,7 +384,7 @@ The Lord your God is in the midst of you, a Mighty One, a Savior [Who saves]! He
 
 
 
-I will gather those belonging to you [those Israelites in captivity] who yearn _and_ grieve for the solemn assembly [and the festivals], on whom [their exile and inability to attend services at Jerusalem have brought derision and] the reproach of it is a burden. 
+I will gather those belonging to you [those Israelites in captivity] who yearn and grieve for the solemn assembly [and the festivals], on whom [their exile and inability to attend services at Jerusalem have brought derision and] the reproach of it is a burden. 
 
 
 

@@ -21,13 +21,13 @@ To receive the instruction of wisdom, Justice, judgment, and equity;
 To give prudence to the simple, To the young man knowledge and discretion-- 
 
 ###### 5 
-A wise _man_ will hear and increase learning, And a man of understanding will attain wise counsel, 
+A wise man will hear and increase learning, And a man of understanding will attain wise counsel, 
 
 ###### 6 
 To understand a proverb and an enigma, The words of the wise and their riddles. 
 
 ###### 7 
-The fear of the Lord _is_ the beginning of knowledge, _But_ fools despise wisdom and instruction.
+The fear of the Lord is the beginning of knowledge, But fools despise wisdom and instruction.
 
 ## Shun Evil Counsel 
 
@@ -35,19 +35,19 @@ The fear of the Lord _is_ the beginning of knowledge, _But_ fools despise wisdom
 My son, hear the instruction of your father, And do not forsake the law of your mother; 
 
 ###### 9 
-For they _will be_ a graceful ornament on your head, And chains about your neck. 
+For they will be a graceful ornament on your head, And chains about your neck. 
 
 ###### 10 
 My son, if sinners entice you, Do not consent. 
 
 ###### 11 
-If they say, "Come with us, Let us lie in wait to _shed_ blood; Let us lurk secretly for the innocent without cause; 
+If they say, "Come with us, Let us lie in wait to shed blood; Let us lurk secretly for the innocent without cause; 
 
 ###### 12 
 Let us swallow them alive like Sheol, And whole, like those who go down to the Pit; 
 
 ###### 13 
-We shall find all _kinds_ of precious possessions, We shall fill our houses with spoil; 
+We shall find all kinds of precious possessions, We shall fill our houses with spoil; 
 
 ###### 14 
 Cast in your lot among us, Let us all have one purse"-- 
@@ -62,10 +62,10 @@ For their feet run to evil, And they make haste to shed blood.
 Surely, in vain the net is spread In the sight of any bird; 
 
 ###### 18 
-But they lie in wait for their _own_ blood, They lurk secretly for their _own_ lives. 
+But they lie in wait for their own blood, They lurk secretly for their own lives. 
 
 ###### 19 
-So _are_ the ways of everyone who is greedy for gain; It takes away the life of its owners.
+So are the ways of everyone who is greedy for gain; It takes away the life of its owners.
 
 ## The Call of Wisdom 
 
@@ -100,7 +100,7 @@ When your terror comes like a storm, And your destruction comes like a whirlwind
 Because they hated knowledge And did not choose the fear of the Lord, 
 
 ###### 30 
-They would have none of my counsel _And_ despised my every rebuke. 
+They would have none of my counsel And despised my every rebuke. 
 
 ###### 31 
 Therefore they shall eat the fruit of their own way, And be filled to the full with their own fancies. 

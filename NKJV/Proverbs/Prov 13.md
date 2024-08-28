@@ -10,73 +10,73 @@ next: ['Prov 14']
 
 
 ###### 1 
-A wise son _heeds_ his father's instruction, But a scoffer does not listen to rebuke. 
+A wise son heeds his father's instruction, But a scoffer does not listen to rebuke. 
 
 ###### 2 
-A man shall eat well by the fruit of _his_ mouth, But the soul of the unfaithful feeds on violence. 
+A man shall eat well by the fruit of his mouth, But the soul of the unfaithful feeds on violence. 
 
 ###### 3 
-He who guards his mouth preserves his life, _But_ he who opens wide his lips shall have destruction. 
+He who guards his mouth preserves his life, But he who opens wide his lips shall have destruction. 
 
 ###### 4 
-The soul of a lazy _man_ desires, and _has_ nothing; But the soul of the diligent shall be made rich. 
+The soul of a lazy man desires, and has nothing; But the soul of the diligent shall be made rich. 
 
 ###### 5 
-A righteous _man_ hates lying, But a wicked _man_ is loathsome and comes to shame. 
+A righteous man hates lying, But a wicked man is loathsome and comes to shame. 
 
 ###### 6 
-Righteousness guards _him whose_ way is blameless, But wickedness overthrows the sinner. 
+Righteousness guards him whose way is blameless, But wickedness overthrows the sinner. 
 
 ###### 7 
-There is one who makes himself rich, yet _has_ nothing; _And_ one who makes himself poor, yet _has_ great riches. 
+There is one who makes himself rich, yet has nothing; And one who makes himself poor, yet has great riches. 
 
 ###### 8 
-The ransom of a man's life _is_ his riches, But the poor does not hear rebuke. 
+The ransom of a man's life is his riches, But the poor does not hear rebuke. 
 
 ###### 9 
 The light of the righteous rejoices, But the lamp of the wicked will be put out. 
 
 ###### 10 
-By pride comes nothing but strife, But with the well-advised _is_ wisdom. 
+By pride comes nothing but strife, But with the well-advised is wisdom. 
 
 ###### 11 
-Wealth _gained by_ dishonesty will be diminished, But he who gathers by labor will increase. 
+Wealth gained by dishonesty will be diminished, But he who gathers by labor will increase. 
 
 ###### 12 
-Hope deferred makes the heart sick, But _when_ the desire comes, _it is_ a tree of life. 
+Hope deferred makes the heart sick, But when the desire comes, it is a tree of life. 
 
 ###### 13 
 He who despises the word will be destroyed, But he who fears the commandment will be rewarded. 
 
 ###### 14 
-The law of the wise _is_ a fountain of life, To turn _one_ away from the snares of death. 
+The law of the wise is a fountain of life, To turn one away from the snares of death. 
 
 ###### 15 
-Good understanding gains favor, But the way of the unfaithful _is_ hard. 
+Good understanding gains favor, But the way of the unfaithful is hard. 
 
 ###### 16 
-Every prudent _man_ acts with knowledge, But a fool lays open _his_ folly. 
+Every prudent man acts with knowledge, But a fool lays open his folly. 
 
 ###### 17 
-A wicked messenger falls into trouble, But a faithful ambassador _brings_ health. 
+A wicked messenger falls into trouble, But a faithful ambassador brings health. 
 
 ###### 18 
-Poverty and shame _will come_ to him who disdains correction, But he who regards a rebuke will be honored. 
+Poverty and shame will come to him who disdains correction, But he who regards a rebuke will be honored. 
 
 ###### 19 
-A desire accomplished is sweet to the soul, But _it is_ an abomination to fools to depart from evil. 
+A desire accomplished is sweet to the soul, But it is an abomination to fools to depart from evil. 
 
 ###### 20 
-He who walks with wise _men_ will be wise, But the companion of fools will be destroyed. 
+He who walks with wise men will be wise, But the companion of fools will be destroyed. 
 
 ###### 21 
 Evil pursues sinners, But to the righteous, good shall be repaid. 
 
 ###### 22 
-A good _man_ leaves an inheritance to his children's children, But the wealth of the sinner is stored up for the righteous. 
+A good man leaves an inheritance to his children's children, But the wealth of the sinner is stored up for the righteous. 
 
 ###### 23 
-Much food _is in_ the fallow _ground_ of the poor, And for lack of justice there is waste. 
+Much food is in the fallow ground of the poor, And for lack of justice there is waste. 
 
 ###### 24 
 He who spares his rod hates his son, But he who loves him disciplines him promptly. 

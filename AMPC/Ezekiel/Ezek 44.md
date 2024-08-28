@@ -28,7 +28,7 @@ next: ['Ezek 45']
 
 
 
-Then _the man_ [an angel] brought me back the way of the outer gate of the sanctuary which faces the east, and it was shut. 
+Then the man [an angel] brought me back the way of the outer gate of the sanctuary which faces the east, and it was shut. 
 
 
 
@@ -70,7 +70,7 @@ Then the Lord said to me, This gate shall be shut; it shall not be opened and no
 
 
 
-As for the prince, being the prince, he shall sit in it to eat bread before the Lord; he shall enter by way of the porch _or_ vestibule of the gate and shall go out the same way. 
+As for the prince, being the prince, he shall sit in it to eat bread before the Lord; he shall enter by way of the porch or vestibule of the gate and shall go out the same way. 
 
 
 
@@ -112,7 +112,7 @@ Then he brought me by way of the north gate to the front of the temple; I looked
 
 
 
-And the Lord said to me, Son of man, mark well _and_ set your heart to see with your eyes and hear with your ears all that I say to you concerning all the ordinances of the house of the Lord and all its laws, and mark well _and_ set your heart to know who are allowed to enter the temple and all those who are excluded from the sanctuary. 
+And the Lord said to me, Son of man, mark well and set your heart to see with your eyes and hear with your ears all that I say to you concerning all the ordinances of the house of the Lord and all its laws, and mark well and set your heart to know who are allowed to enter the temple and all those who are excluded from the sanctuary. 
 
 
 
@@ -154,7 +154,7 @@ And you shall say to the rebellious, even to the house of Israel, Thus says the 
 
 
 
-You have brought into My sanctuary aliens, uncircumcised in heart and uncircumcised in flesh, to be in My sanctuary to pollute _and_ profane it, even My house, when you offer My bread, the fat and the blood; and through it all _and_ in addition to all your abominations, they _and_ you have broken My covenant. 
+You have brought into My sanctuary aliens, uncircumcised in heart and uncircumcised in flesh, to be in My sanctuary to pollute and profane it, even My house, when you offer My bread, the fat and the blood; and through it all and in addition to all your abominations, they and you have broken My covenant. 
 
 
 
@@ -217,7 +217,7 @@ Therefore thus says the Lord God: No foreigner uncircumcised in heart and flesh 
 
 
 
-But the Levites who went far away from Me when Israel went astray, who went astray from Me after their idols, they shall bear [the punishment for] their iniquity _and_ guilt. 
+But the Levites who went far away from Me when Israel went astray, who went astray from Me after their idols, they shall bear [the punishment for] their iniquity and guilt. 
 
 
 
@@ -259,7 +259,7 @@ They shall minister in My sanctuary, having oversight as guards at the gates of 
 
 
 
-Because [the priests] ministered to [the people] before their idols and became a stumbling block of iniquity _and_ guilt to the house of Israel, therefore I have lifted up My hand _and_ have sworn against them, says the Lord God, that they shall bear the punishment for their iniquity _and_ guilt. 
+Because [the priests] ministered to [the people] before their idols and became a stumbling block of iniquity and guilt to the house of Israel, therefore I have lifted up My hand and have sworn against them, says the Lord God, that they shall bear the punishment for their iniquity and guilt. 
 
 
 
@@ -280,7 +280,7 @@ Because [the priests] ministered to [the people] before their idols and became a
 
 
 
-And they shall not come near to Me to do the office of a priest to Me, nor come near to any of My holy things that are most sacred; but they shall bear their shame _and_ their punishment for the abominations which they have committed. 
+And they shall not come near to Me to do the office of a priest to Me, nor come near to any of My holy things that are most sacred; but they shall bear their shame and their punishment for the abominations which they have committed. 
 
 
 
@@ -427,7 +427,7 @@ And when they go out into the outer court to the people, they shall put off the 
 
 
 
-Neither shall they shave their heads or allow their locks to grow long; they shall only cut short _or_ trim the hair of their heads. 
+Neither shall they shave their heads or allow their locks to grow long; they shall only cut short or trim the hair of their heads. 
 
 
 
@@ -469,7 +469,7 @@ Neither shall any priest drink wine when he enters the inner court.
 
 
 
-Neither shall they take for their wives a widow or a woman separated _or_ divorced from her husband; but they shall marry maidens [who are virgins] of the offspring of the house of Israel or a widow previously married to a priest. 
+Neither shall they take for their wives a widow or a woman separated or divorced from her husband; but they shall marry maidens [who are virgins] of the offspring of the house of Israel or a widow previously married to a priest. 
 
 
 
@@ -490,7 +490,7 @@ Neither shall they take for their wives a widow or a woman separated _or_ divorc
 
 
 
-The priests shall teach My people the difference between the holy and the common _or_ profane, and cause them to distinguish between the unclean and the clean. 
+The priests shall teach My people the difference between the holy and the common or profane, and cause them to distinguish between the unclean and the clean. 
 
 
 
@@ -637,7 +637,7 @@ They shall eat the meal offering and the sin offering and the trespass offering,
 
 
 
-And the first of all the firstfruits of all kinds, and every offering of all kinds from all your offerings, shall belong to the priests. You shall also give to the priest the first of your coarse meal _and_ bread dough, that a blessing may rest on your house. 
+And the first of all the firstfruits of all kinds, and every offering of all kinds from all your offerings, shall belong to the priests. You shall also give to the priest the first of your coarse meal and bread dough, that a blessing may rest on your house. 
 
 
 

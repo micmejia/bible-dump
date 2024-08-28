@@ -175,7 +175,7 @@ The days of Abraham's life were 175 years.
 
 
 
-Then Abraham's spirit was released, and he died at a good (ample, full) old age, an old man, satisfied _and_ satiated, and was gathered to his people. 
+Then Abraham's spirit was released, and he died at a good (ample, full) old age, an old man, satisfied and satiated, and was gathered to his people. 
 
 
 
@@ -574,7 +574,7 @@ Afterward his brother came forth, and his hand grasped Esau's heel; so he was na
 
 
 
-When the boys grew up, Esau was a cunning _and_ skilled hunter, a man of the outdoors; but Jacob was a plain _and_ quiet man, dwelling in tents. 
+When the boys grew up, Esau was a cunning and skilled hunter, a man of the outdoors; but Jacob was a plain and quiet man, dwelling in tents. 
 
 
 
@@ -637,7 +637,7 @@ Jacob was boiling pottage (lentil stew) one day, when Esau came from the field a
 
 
 
-And Esau said to Jacob, I beg of you, let me have some of that red lentil stew to eat, for I am faint _and_ famished! That is why his name was called Edom [red]. 
+And Esau said to Jacob, I beg of you, let me have some of that red lentil stew to eat, for I am faint and famished! That is why his name was called Edom [red]. 
 
 
 

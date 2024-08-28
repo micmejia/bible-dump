@@ -11,7 +11,7 @@ next: ['2 Pet 2']
 ###### 1 
 
 
-Simon Peter, a servant and apostle (special messenger) of Jesus Christ, to those who have received (obtained an equal privilege of) like precious faith with ourselves in _and_ through the righteousness of our God and Savior Jesus Christ: 
+Simon Peter, a servant and apostle (special messenger) of Jesus Christ, to those who have received (obtained an equal privilege of) like precious faith with ourselves in and through the righteousness of our God and Savior Jesus Christ: 
 
 
 ###### 2 
@@ -23,7 +23,7 @@ May grace (God's favor) and peace (which is perfect well-being, all necessary go
 ###### 3 
 
 
-For His divine power has bestowed upon us all things that [are requisite and suited] to life and godliness, through the [full, personal] knowledge of Him Who called us by _and_ to His own glory and excellence (virtue). 
+For His divine power has bestowed upon us all things that [are requisite and suited] to life and godliness, through the [full, personal] knowledge of Him Who called us by and to His own glory and excellence (virtue). 
 
 
 ###### 4 
@@ -65,13 +65,13 @@ For whoever lacks these qualities is blind, [spiritually] shortsighted, seeing o
 ###### 10 
 
 
-Because of this, brethren, be all the more solicitous _and_ eager to make sure (to ratify, to strengthen, to make steadfast) your calling and election; for if you do this, you will never stumble _or_ fall. 
+Because of this, brethren, be all the more solicitous and eager to make sure (to ratify, to strengthen, to make steadfast) your calling and election; for if you do this, you will never stumble or fall. 
 
 
 ###### 11 
 
 
-Thus there will be richly _and_ abundantly provided for you entry into the eternal kingdom of our Lord and Savior Jesus Christ. 
+Thus there will be richly and abundantly provided for you entry into the eternal kingdom of our Lord and Savior Jesus Christ. 
 
 
 ###### 12 
@@ -107,7 +107,7 @@ For we were not following cleverly devised stories when we made known to you the
 ###### 17 
 
 
-For when He was invested with honor and glory from God the Father and a voice was borne to Him by the [splendid] Majestic Glory [in the bright cloud that overshadowed Him, saying], This is My beloved Son in Whom I am well pleased _and_ delight, 
+For when He was invested with honor and glory from God the Father and a voice was borne to Him by the [splendid] Majestic Glory [in the bright cloud that overshadowed Him, saying], This is My beloved Son in Whom I am well pleased and delight, 
 
 
 ###### 18 
@@ -125,7 +125,7 @@ And we have the prophetic word [made] firmer still. You will do well to pay clos
 ###### 20 
 
 
-[Yet] first [you must] understand this, that no prophecy of Scripture is [a matter] of any personal _or_ private _or_ special interpretation (loosening, solving). 
+[Yet] first [you must] understand this, that no prophecy of Scripture is [a matter] of any personal or private or special interpretation (loosening, solving). 
 
 
 ###### 21 

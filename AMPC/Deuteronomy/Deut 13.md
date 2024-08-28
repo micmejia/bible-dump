@@ -112,7 +112,7 @@ You shall walk after the Lord your God and [reverently] fear Him, and keep His c
 
 
 
-But that prophet or that dreamer of dreams shall be put to death, because he has talked rebellion _and_ turning away from the Lord your God, Who brought you out of the land of Egypt and redeemed you out of the house of bondage; that man has tried to draw you aside from the way in which the Lord your God commanded you to walk. So shall you put the evil away from your midst. 
+But that prophet or that dreamer of dreams shall be put to death, because he has talked rebellion and turning away from the Lord your God, Who brought you out of the land of Egypt and redeemed you out of the house of bondage; that man has tried to draw you aside from the way in which the Lord your God commanded you to walk. So shall you put the evil away from your midst. 
 
 
 

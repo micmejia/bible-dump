@@ -48,7 +48,7 @@ The proverbs (truths obscurely expressed, maxims, and parables) of Solomon son o
 
 
 
-That people may know skillful _and_ godly Wisdom and instruction, discern _and_ comprehend the words of understanding _and_ insight, 
+That people may know skillful and godly Wisdom and instruction, discern and comprehend the words of understanding and insight, 
 
 
 
@@ -69,7 +69,7 @@ That people may know skillful _and_ godly Wisdom and instruction, discern _and_ 
 
 
 
-Receive instruction in wise dealing _and_ the discipline of wise thoughtfulness, righteousness, justice, and integrity, 
+Receive instruction in wise dealing and the discipline of wise thoughtfulness, righteousness, justice, and integrity, 
 
 
 
@@ -90,7 +90,7 @@ Receive instruction in wise dealing _and_ the discipline of wise thoughtfulness,
 
 
 
-That prudence may be given to the simple, and knowledge, discretion, _and_ discernment to the youth-- 
+That prudence may be given to the simple, and knowledge, discretion, and discernment to the youth-- 
 
 
 
@@ -111,7 +111,7 @@ That prudence may be given to the simple, and knowledge, discretion, _and_ disce
 
 
 
-The wise also will hear and increase in learning, and the person of understanding will acquire skill _and_ attain to sound counsel [so that he may be able to steer his course rightly]-- 
+The wise also will hear and increase in learning, and the person of understanding will acquire skill and attain to sound counsel [so that he may be able to steer his course rightly]-- 
 
 
 
@@ -132,7 +132,7 @@ The wise also will hear and increase in learning, and the person of understandin
 
 
 
-That people may understand a proverb and a figure of speech _or_ an enigma with its interpretation, and the words of the wise and their dark sayings _or_ riddles. 
+That people may understand a proverb and a figure of speech or an enigma with its interpretation, and the words of the wise and their dark sayings or riddles. 
 
 
 
@@ -153,7 +153,7 @@ That people may understand a proverb and a figure of speech _or_ an enigma with 
 
 
 
-The reverent _and_ worshipful fear of the Lord is the beginning _and_ the principal _and_ choice part of knowledge [its starting point and its essence]; but fools despise skillful _and_ godly Wisdom, instruction, _and_ discipline. 
+The reverent and worshipful fear of the Lord is the beginning and the principal and choice part of knowledge [its starting point and its essence]; but fools despise skillful and godly Wisdom, instruction, and discipline. 
 
 
 
@@ -174,7 +174,7 @@ The reverent _and_ worshipful fear of the Lord is the beginning _and_ the princi
 
 
 
-My son, hear the instruction of your father; reject not _nor_ forsake the teaching of your mother. 
+My son, hear the instruction of your father; reject not nor forsake the teaching of your mother. 
 
 
 
@@ -195,7 +195,7 @@ My son, hear the instruction of your father; reject not _nor_ forsake the teachi
 
 
 
-For they are a [victor's] chaplet (garland) of grace upon your head and chains _and_ pendants [of gold worn by kings] for your neck. 
+For they are a [victor's] chaplet (garland) of grace upon your head and chains and pendants [of gold worn by kings] for your neck. 
 
 
 
@@ -279,7 +279,7 @@ Let us swallow them up alive as does Sheol (the place of the dead), and whole, a
 
 
 
-We shall find _and_ take all kinds of precious goods [when our victims are put out of the way], we shall fill our houses with plunder; 
+We shall find and take all kinds of precious goods [when our victims are put out of the way], we shall fill our houses with plunder; 
 
 
 
@@ -300,7 +300,7 @@ We shall find _and_ take all kinds of precious goods [when our victims are put o
 
 
 
-Throw in your lot with us [they insist] _and_ be a sworn brother _and_ comrade; let us all have one purse in common-- 
+Throw in your lot with us [they insist] and be a sworn brother and comrade; let us all have one purse in common-- 
 
 
 
@@ -489,7 +489,7 @@ How long, O simple ones [open to evil], will you love being simple? And the scof
 
 
 
-If you will turn (repent) _and_ give heed to my reproof, behold, I [Wisdom] will pour out my spirit upon you, I will make my words known to you. 
+If you will turn (repent) and give heed to my reproof, behold, I [Wisdom] will pour out my spirit upon you, I will make my words known to you. 
 
 
 
@@ -552,7 +552,7 @@ And you treated as nothing all my counsel and would accept none of my reproof,
 
 
 
-I also will laugh at your calamity; I will mock when the thing comes that shall cause you terror _and_ panic-- 
+I also will laugh at your calamity; I will mock when the thing comes that shall cause you terror and panic-- 
 
 
 
@@ -573,7 +573,7 @@ I also will laugh at your calamity; I will mock when the thing comes that shall 
 
 
 
-When your panic comes as a storm _and_ desolation and your calamity comes on as a whirlwind, when distress and anguish come upon you. 
+When your panic comes as a storm and desolation and your calamity comes on as a whirlwind, when distress and anguish come upon you. 
 
 
 
@@ -594,7 +594,7 @@ When your panic comes as a storm _and_ desolation and your calamity comes on as 
 
 
 
-Then will they call upon me [Wisdom] but I will not answer; they will seek me early _and_ diligently but they will not find me. 
+Then will they call upon me [Wisdom] but I will not answer; they will seek me early and diligently but they will not find me. 
 
 
 
@@ -615,7 +615,7 @@ Then will they call upon me [Wisdom] but I will not answer; they will seek me ea
 
 
 
-Because they hated knowledge and did not choose the reverent _and_ worshipful fear of the Lord, 
+Because they hated knowledge and did not choose the reverent and worshipful fear of the Lord, 
 
 
 
@@ -699,4 +699,4 @@ For the backsliding of the simple shall slay them, and the careless ease of [sel
 
 
 
-But whoso hearkens to me [Wisdom] shall dwell securely _and_ in confident trust and shall be quiet, without fear _or_ dread of evil.
+But whoso hearkens to me [Wisdom] shall dwell securely and in confident trust and shall be quiet, without fear or dread of evil.

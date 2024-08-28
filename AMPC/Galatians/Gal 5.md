@@ -12,7 +12,7 @@ next: ['Gal 6']
 ###### 1 
 
 
-In [this] freedom Christ has made us free [and completely liberated us]; stand fast then, and do not be hampered _and_ held ensnared _and_ submit again to a yoke of slavery [which you have once put off]. 
+In [this] freedom Christ has made us free [and completely liberated us]; stand fast then, and do not be hampered and held ensnared and submit again to a yoke of slavery [which you have once put off]. 
 
 
 ###### 2 
@@ -24,31 +24,31 @@ Notice, it is I, Paul, who tells you that if you receive circumcision, Christ wi
 ###### 3 
 
 
-I once more protest _and_ testify to every man who receives circumcision that he is under obligation _and_ bound to practice the whole of the Law _and_ its ordinances. 
+I once more protest and testify to every man who receives circumcision that he is under obligation and bound to practice the whole of the Law and its ordinances. 
 
 
 ###### 4 
 
 
-If you seek to be justified _and_ declared righteous _and_ to be given a right standing with God through the Law, you are brought to nothing _and_ so separated (severed) from Christ. You have fallen away from grace (from God's gracious favor and unmerited blessing). 
+If you seek to be justified and declared righteous and to be given a right standing with God through the Law, you are brought to nothing and so separated (severed) from Christ. You have fallen away from grace (from God's gracious favor and unmerited blessing). 
 
 
 ###### 5 
 
 
-For we, [not relying on the Law but] through the [Holy] Spirit's [help], by faith anticipate _and_ wait for the blessing _and_ good for which our righteousness _and_ right standing with God [our conformity to His will in purpose, thought, and action, causes us] to hope. 
+For we, [not relying on the Law but] through the [Holy] Spirit's [help], by faith anticipate and wait for the blessing and good for which our righteousness and right standing with God [our conformity to His will in purpose, thought, and action, causes us] to hope. 
 
 
 ###### 6 
 
 
-For [if we are] in Christ Jesus, neither circumcision nor uncircumcision counts for anything, but only faith activated _and_ energized _and_ expressed _and_ working through love. 
+For [if we are] in Christ Jesus, neither circumcision nor uncircumcision counts for anything, but only faith activated and energized and expressed and working through love. 
 
 
 ###### 7 
 
 
-You were running the race nobly. Who has interfered in (hindered and stopped you from) your heeding _and_ following the Truth? 
+You were running the race nobly. Who has interfered in (hindered and stopped you from) your heeding and following the Truth? 
 
 
 ###### 8 
@@ -66,25 +66,25 @@ A little leaven (a slight inclination to error, or a few false teachers) leavens
 ###### 10 
 
 
-[For my part] I have confidence [toward you] in the Lord that you will take no contrary view of the matter _but_ will come to think with me. But he who is unsettling you, whoever he is, will have to bear the penalty. 
+[For my part] I have confidence [toward you] in the Lord that you will take no contrary view of the matter but will come to think with me. But he who is unsettling you, whoever he is, will have to bear the penalty. 
 
 
 ###### 11 
 
 
-But, brethren, if I still preach circumcision [as some accuse me of doing, as necessary to salvation], why am I still suffering persecution? In that case the cross has ceased to be a stumbling block _and_ is made meaningless (done away). 
+But, brethren, if I still preach circumcision [as some accuse me of doing, as necessary to salvation], why am I still suffering persecution? In that case the cross has ceased to be a stumbling block and is made meaningless (done away). 
 
 
 ###### 12 
 
 
-I wish those who unsettle _and_ confuse you would [go all the way and] cut themselves off! 
+I wish those who unsettle and confuse you would [go all the way and] cut themselves off! 
 
 
 ###### 13 
 
 
-For you, brethren, were [indeed] called to freedom; only [do not let your] freedom be an incentive to your flesh _and_ an opportunity _or_ excuse [for selfishness], but through love you should serve one another. 
+For you, brethren, were [indeed] called to freedom; only [do not let your] freedom be an incentive to your flesh and an opportunity or excuse [for selfishness], but through love you should serve one another. 
 
 
 ###### 14 
@@ -102,13 +102,13 @@ But if you bite and devour one another [in partisan strife], be careful that you
 ###### 16 
 
 
-But I say, walk _and_ live [habitually] in the [Holy] Spirit [responsive to _and_ controlled _and_ guided by the Spirit]; then you will certainly not gratify the cravings _and_ desires of the flesh (of human nature without God). 
+But I say, walk and live [habitually] in the [Holy] Spirit [responsive to and controlled and guided by the Spirit]; then you will certainly not gratify the cravings and desires of the flesh (of human nature without God). 
 
 
 ###### 17 
 
 
-For the desires of the flesh are opposed to the [Holy] Spirit, and the [desires of the] Spirit are opposed to the flesh (godless human nature); for these are antagonistic to each other [continually withstanding and in conflict with each other], so that you are not free _but_ are prevented from doing what you desire to do. 
+For the desires of the flesh are opposed to the [Holy] Spirit, and the [desires of the] Spirit are opposed to the flesh (godless human nature); for these are antagonistic to each other [continually withstanding and in conflict with each other], so that you are not free but are prevented from doing what you desire to do. 
 
 
 ###### 18 
@@ -150,7 +150,7 @@ Gentleness (meekness, humility), self-control (self-restraint, continence). Agai
 ###### 24 
 
 
-And those who belong to Christ Jesus (the Messiah) have crucified the flesh (the godless human nature) with its passions and appetites _and_ desires. 
+And those who belong to Christ Jesus (the Messiah) have crucified the flesh (the godless human nature) with its passions and appetites and desires. 
 
 
 ###### 25 
@@ -162,4 +162,4 @@ If we live by the [Holy] Spirit, let us also walk by the Spirit. [If by the Holy
 ###### 26 
 
 
-Let us not become vainglorious _and_ self-conceited, competitive _and_ challenging _and_ provoking _and_ irritating to one another, envying _and_ being jealous of one another.
+Let us not become vainglorious and self-conceited, competitive and challenging and provoking and irritating to one another, envying and being jealous of one another.

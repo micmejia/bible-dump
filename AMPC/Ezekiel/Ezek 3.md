@@ -133,7 +133,7 @@ For you are not sent to a people of a foreign speech and of a difficult language
 
 
 
-Not to many peoples of foreign speech and of a hard language, whose words you cannot understand. Surely, had I sent you to such people, they would have listened to you _and_ heeded My words. 
+Not to many peoples of foreign speech and of a hard language, whose words you cannot understand. Surely, had I sent you to such people, they would have listened to you and heeded My words. 
 
 
 
@@ -154,7 +154,7 @@ Not to many peoples of foreign speech and of a hard language, whose words you ca
 
 
 
-But the house of Israel will not listen to you _and_ obey you since they will not listen to Me _and_ obey Me, for all the house of Israel are impudent and stubborn of heart. 
+But the house of Israel will not listen to you and obey you since they will not listen to Me and obey Me, for all the house of Israel are impudent and stubborn of heart. 
 
 
 
@@ -175,7 +175,7 @@ But the house of Israel will not listen to you _and_ obey you since they will no
 
 
 
-Behold, I have made your face strong _and_ hard against their faces and your forehead strong _and_ hard against their foreheads. 
+Behold, I have made your face strong and hard against their faces and your forehead strong and hard against their foreheads. 
 
 
 
@@ -196,7 +196,7 @@ Behold, I have made your face strong _and_ hard against their faces and your for
 
 
 
-Like an adamant harder than flint _or_ a diamond point have I made your forehead; fear them not, neither be dismayed at their looks, for they are a rebellious house. 
+Like an adamant harder than flint or a diamond point have I made your forehead; fear them not, neither be dismayed at their looks, for they are a rebellious house. 
 
 
 
@@ -280,7 +280,7 @@ Then the Spirit lifted me up, and I heard behind me a voice of a great rushing [
 
 
 
-I heard the noise of the wings of the living creatures as they touched _and_ joined each one the other [its sister wing], and I heard the noise of the wheels beside them and the noise of a great rushing. 
+I heard the noise of the wings of the living creatures as they touched and joined each one the other [its sister wing], and I heard the noise of the wheels beside them and the noise of a great rushing. 
 
 
 
@@ -322,7 +322,7 @@ So the Spirit lifted me up and took me away [in the vision], and I went in bitte
 
 
 
-Then I came to them of the captivity at Tel-abib, who sat _and_ dwelt by the river of Chebar, and I sat where they sat and remained there among them seven days, overwhelmed with astonishment _and_ silent. 
+Then I came to them of the captivity at Tel-abib, who sat and dwelt by the river of Chebar, and I sat where they sat and remained there among them seven days, overwhelmed with astonishment and silent. 
 
 
 

@@ -112,7 +112,7 @@ And the Rabshakeh said to them, Say to Hezekiah, Thus says the great king, the k
 
 
 
-Do you suppose that mere words of the lips can pass for warlike counsel and strength? Now in whom do you trust _and_ on whom do you rely, that you rebel against me? 
+Do you suppose that mere words of the lips can pass for warlike counsel and strength? Now in whom do you trust and on whom do you rely, that you rebel against me? 
 
 
 
@@ -133,7 +133,7 @@ Do you suppose that mere words of the lips can pass for warlike counsel and stre
 
 
 
-Behold, you trust in the staff of this bruised _and_ broken reed, Egypt, which will pierce the hand of any man who leans on it. So is Pharaoh king of Egypt to all who trust _and_ rely on him. 
+Behold, you trust in the staff of this bruised and broken reed, Egypt, which will pierce the hand of any man who leans on it. So is Pharaoh king of Egypt to all who trust and rely on him. 
 
 
 
@@ -154,7 +154,7 @@ Behold, you trust in the staff of this bruised _and_ broken reed, Egypt, which w
 
 
 
-But if you say to me, We trust in _and_ rely on the Lord our God--is it not He Whose high places and Whose altars Hezekiah has taken away, saying to Judah and to Jerusalem, You shall worship before this altar? 
+But if you say to me, We trust in and rely on the Lord our God--is it not He Whose high places and Whose altars Hezekiah has taken away, saying to Judah and to Jerusalem, You shall worship before this altar? 
 
 
 
@@ -175,7 +175,7 @@ But if you say to me, We trust in _and_ rely on the Lord our God--is it not He W
 
 
 
-Now therefore, I pray you, make a wager with my master the king of Assyria _and_ give him pledges, and I will give you two thousand horses--if you are able on your part to put riders on them. 
+Now therefore, I pray you, make a wager with my master the king of Assyria and give him pledges, and I will give you two thousand horses--if you are able on your part to put riders on them. 
 
 
 
@@ -238,7 +238,7 @@ Moreover, is it without the Lord that I have now come up against this land to de
 
 
 
-Then Eliakim and Shebna and Joah said to the Rabshakeh, We pray you, speak to your servants in the Aramaic _or_ Syrian language, for we understand it; and do not speak to us in the language of the Jews in the hearing of the people on the wall. 
+Then Eliakim and Shebna and Joah said to the Rabshakeh, We pray you, speak to your servants in the Aramaic or Syrian language, for we understand it; and do not speak to us in the language of the Jews in the hearing of the people on the wall. 
 
 
 
@@ -322,7 +322,7 @@ Thus says the king: Let not Hezekiah deceive you, for he will not be able to del
 
 
 
-Nor let Hezekiah make you trust in _and_ rely on the Lord, saying, The Lord will surely deliver us; this city will not be delivered into the hand of the king of Assyria. 
+Nor let Hezekiah make you trust in and rely on the Lord, saying, The Lord will surely deliver us; this city will not be delivered into the hand of the king of Assyria. 
 
 
 
@@ -385,7 +385,7 @@ Until I come and take you away to a land like your own land, a land of grain and
 
 
 
-Beware lest Hezekiah persuade _and_ mislead you by saying, The Lord will deliver us. Has any one of the gods of the nations ever delivered his land out of the hand of the king of Assyria? 
+Beware lest Hezekiah persuade and mislead you by saying, The Lord will deliver us. Has any one of the gods of the nations ever delivered his land out of the hand of the king of Assyria? 
 
 
 

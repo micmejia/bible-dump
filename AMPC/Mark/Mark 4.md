@@ -154,7 +154,7 @@ And when the sun came up, it was scorched, and because it had not taken root, it
 
 
 
-Other seed [of the same kind] fell among thorn plants, and the thistles grew _and_ pressed together _and_ utterly choked _and_ suffocated it, and it yielded no grain. 
+Other seed [of the same kind] fell among thorn plants, and the thistles grew and pressed together and utterly choked and suffocated it, and it yielded no grain. 
 
 
 
@@ -259,7 +259,7 @@ And He said to them, To you has been entrusted the mystery of the kingdom of God
 
 
 
-In order that they may [indeed] look _and_ look but not see _and_ perceive, and may hear _and_ hear but not grasp _and_ comprehend, lest haply they should turn again, and it [their willful rejection of the truth] should be forgiven them. 
+In order that they may [indeed] look and look but not see and perceive, and may hear and hear but not grasp and comprehend, lest haply they should turn again, and it [their willful rejection of the truth] should be forgiven them. 
 
 
 
@@ -280,7 +280,7 @@ In order that they may [indeed] look _and_ look but not see _and_ perceive, and 
 
 
 
-And He said to them, Do you not discern _and_ understand this parable? How then is it possible for you to discern _and_ understand all the parables? 
+And He said to them, Do you not discern and understand this parable? How then is it possible for you to discern and understand all the parables? 
 
 
 
@@ -343,7 +343,7 @@ The ones along the path are those who have the Word sown [in their hearts], but 
 
 
 
-And in the same way the ones sown upon stony ground are those who, when they hear the Word, at once receive _and_ accept _and_ welcome it with joy; 
+And in the same way the ones sown upon stony ground are those who, when they hear the Word, at once receive and accept and welcome it with joy; 
 
 
 
@@ -364,7 +364,7 @@ And in the same way the ones sown upon stony ground are those who, when they hea
 
 
 
-And they have no real root in themselves, and so they endure for a little while; then when trouble or persecution arises on account of the Word, they immediately are offended (become displeased, indignant, resentful) _and_ they stumble _and_ fall away. 
+And they have no real root in themselves, and so they endure for a little while; then when trouble or persecution arises on account of the Word, they immediately are offended (become displeased, indignant, resentful) and they stumble and fall away. 
 
 
 
@@ -406,7 +406,7 @@ And the ones sown among the thorns are others who hear the Word;
 
 
 
-Then the cares _and_ anxieties of the world _and_ distractions of the age, and the pleasure _and_ delight _and_ false glamour _and_ deceitfulness of riches, and the craving _and_ passionate desire for other things creep in and choke _and_ suffocate the Word, and it becomes fruitless. 
+Then the cares and anxieties of the world and distractions of the age, and the pleasure and delight and false glamour and deceitfulness of riches, and the craving and passionate desire for other things creep in and choke and suffocate the Word, and it becomes fruitless. 
 
 
 
@@ -427,7 +427,7 @@ Then the cares _and_ anxieties of the world _and_ distractions of the age, and t
 
 
 
-And those sown on the good (well-adapted) soil are the ones who hear the Word and receive _and_ accept _and_ welcome it and bear fruit--some thirty times as much as was sown, some sixty times as much, and some [even] a hundred times as much. 
+And those sown on the good (well-adapted) soil are the ones who hear the Word and receive and accept and welcome it and bear fruit--some thirty times as much as was sown, some sixty times as much, and some [even] a hundred times as much. 
 
 
 
@@ -490,7 +490,7 @@ And He said to them, Is the lamp brought in to be put under a peck measure or un
 
 
 
-If any man has ears to hear, let him be listening _and_ let him perceive _and_ comprehend. 
+If any man has ears to hear, let him be listening and let him perceive and comprehend. 
 
 
 
@@ -511,7 +511,7 @@ If any man has ears to hear, let him be listening _and_ let him perceive _and_ c
 
 
 
-And He said to them, Be careful what you are hearing. The measure [of thought and study] you give [to the truth you hear] will be the measure [of virtue and knowledge] that comes back to you--and more [besides] will be given to you _who hear_. 
+And He said to them, Be careful what you are hearing. The measure [of thought and study] you give [to the truth you hear] will be the measure [of virtue and knowledge] that comes back to you--and more [besides] will be given to you who hear. 
 
 
 
@@ -574,7 +574,7 @@ And He said, The kingdom of God is like a man who scatters seed upon the ground,
 
 
 
-And then continues sleeping and rising night and day while the seed sprouts and grows _and_ increases--he knows not how. 
+And then continues sleeping and rising night and day while the seed sprouts and grows and increases--he knows not how. 
 
 
 
@@ -616,7 +616,7 @@ The earth produces [acting] by itself--first the blade, then the ear, then the f
 
 
 
-But when the grain is ripe _and_ permits, immediately he sends forth [the reapers] _and_ puts in the sickle, because the harvest stands ready. 
+But when the grain is ripe and permits, immediately he sends forth [the reapers] and puts in the sickle, because the harvest stands ready. 
 
 
 
@@ -637,7 +637,7 @@ But when the grain is ripe _and_ permits, immediately he sends forth [the reaper
 
 
 
-And He said, With what can we compare the kingdom of God, or what parable shall we use to illustrate _and_ explain it? 
+And He said, With what can we compare the kingdom of God, or what parable shall we use to illustrate and explain it? 
 
 
 
@@ -679,7 +679,7 @@ It is like a grain of mustard seed, which, when sown upon the ground, is the sma
 
 
 
-Yet after it is sown, it grows up and becomes the greatest of all garden herbs and puts out large branches, so that the birds of the air are able to make nests _and_ dwell in its shade. 
+Yet after it is sown, it grows up and becomes the greatest of all garden herbs and puts out large branches, so that the birds of the air are able to make nests and dwell in its shade. 
 
 
 
@@ -700,7 +700,7 @@ Yet after it is sown, it grows up and becomes the greatest of all garden herbs a
 
 
 
-With many such parables [Jesus] spoke the Word to them, as they were able to hear _and_ to comprehend _and_ understand. 
+With many such parables [Jesus] spoke the Word to them, as they were able to hear and to comprehend and understand. 
 
 
 
@@ -847,7 +847,7 @@ And He arose and rebuked the wind and said to the sea, Hush now! Be still (muzzl
 
 
 
-He said to them, Why are you so timid _and_ fearful? How is it that you have no faith (no firmly relying trust)? 
+He said to them, Why are you so timid and fearful? How is it that you have no faith (no firmly relying trust)? 
 
 
 
@@ -868,4 +868,4 @@ He said to them, Why are you so timid _and_ fearful? How is it that you have no 
 
 
 
-And they were filled with great awe _and_ feared exceedingly and said one to another, Who then is this, that even wind and sea obey Him?
+And they were filled with great awe and feared exceedingly and said one to another, Who then is this, that even wind and sea obey Him?

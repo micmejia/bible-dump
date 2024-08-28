@@ -259,7 +259,7 @@ And the thing was very grievous (serious, evil) in Abraham's sight on account of
 
 
 
-God said to Abraham, Do not let it seem grievous _and_ evil to you because of the youth and your bondwoman; in all that Sarah has said to you, do what she asks, for in Isaac shall your posterity be called. 
+God said to Abraham, Do not let it seem grievous and evil to you because of the youth and your bondwoman; in all that Sarah has said to you, do what she asks, for in Isaac shall your posterity be called. 
 
 
 
@@ -343,7 +343,7 @@ When the water in the bottle was all gone, Hagar caused the youth to lie down un
 
 
 
-Then she went and sat down opposite him a good way off, about a bowshot, for she said, Let me not see the death of the lad. And as she sat down opposite him, _he_ lifted up his voice and wept _and_ she raised her voice and wept. 
+Then she went and sat down opposite him a good way off, about a bowshot, for she said, Let me not see the death of the lad. And as she sat down opposite him, he lifted up his voice and wept and she raised her voice and wept. 
 
 
 
@@ -532,7 +532,7 @@ And Abraham said, I will swear.
 
 
 
-When Abraham complained to _and_ reasoned with Abimelech about a well of water [Abimelech's] servants had violently seized, 
+When Abraham complained to and reasoned with Abimelech about a well of water [Abimelech's] servants had violently seized, 
 
 
 
@@ -574,7 +574,7 @@ Abimelech said, I know not who did this thing; you did not tell me, and I did no
 
 
 
-So Abraham took sheep and oxen and gave them to Abimelech, and the two men made a league _or_ covenant. 
+So Abraham took sheep and oxen and gave them to Abimelech, and the two men made a league or covenant. 
 
 
 

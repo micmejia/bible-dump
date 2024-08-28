@@ -595,7 +595,7 @@ And for the dedication of the wall of Jerusalem, they sought the Levites in all 
 
 
 
-And the sons of the singers gathered together from the plain _and_ circuit around Jerusalem and from the villages of the Netophathites, 
+And the sons of the singers gathered together from the plain and circuit around Jerusalem and from the villages of the Netophathites, 
 
 
 
@@ -889,7 +889,7 @@ And the priests Eliakim, Maaseiah, Miniamin, Micaiah, Elioenai, Zechariah, and H
 
 
 
-And Maaseiah, Shemaiah, Eleazar, Uzzi, Jehohanan, Malchijah, Elam, and Ezer. And the singers sang _and_ made themselves heard, with Jezrahiah as leader. 
+And Maaseiah, Shemaiah, Eleazar, Uzzi, Jehohanan, Malchijah, Elam, and Ezer. And the singers sang and made themselves heard, with Jezrahiah as leader. 
 
 
 

@@ -19,7 +19,7 @@ For wrath kills a foolish man, And envy slays a simple one.
 I have seen the foolish taking root, But suddenly I cursed his dwelling place. 
 
 ###### 4 
-His sons are far from safety, They are crushed in the gate, And _there is_ no deliverer. 
+His sons are far from safety, They are crushed in the gate, And there is no deliverer. 
 
 ###### 5 
 Because the hungry eat up his harvest, Taking it even from the thorns, And a snare snatches their substance. 
@@ -58,7 +58,7 @@ But He saves the needy from the sword, From the mouth of the mighty, And from th
 So the poor have hope, And injustice shuts her mouth. 
 
 ###### 17 
-"Behold, happy _is_ the man whom God corrects; Therefore do not despise the chastening of the Almighty. 
+"Behold, happy is the man whom God corrects; Therefore do not despise the chastening of the Almighty. 
 
 ###### 18 
 For He bruises, but He binds up; He wounds, but His hands make whole. 
@@ -79,13 +79,13 @@ You shall laugh at destruction and famine, And you shall not be afraid of the be
 For you shall have a covenant with the stones of the field, And the beasts of the field shall be at peace with you. 
 
 ###### 24 
-You shall know that your tent _is_ in peace; You shall visit your dwelling and find nothing amiss. 
+You shall know that your tent is in peace; You shall visit your dwelling and find nothing amiss. 
 
 ###### 25 
-You shall also know that your descendants _shall be_ many, And your offspring like the grass of the earth. 
+You shall also know that your descendants shall be many, And your offspring like the grass of the earth. 
 
 ###### 26 
 You shall come to the grave at a full age, As a sheaf of grain ripens in its season. 
 
 ###### 27 
-Behold, this we have searched out; It _is_ true. Hear it, and know for yourself."
+Behold, this we have searched out; It is true. Hear it, and know for yourself."

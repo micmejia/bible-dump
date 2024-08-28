@@ -111,7 +111,7 @@ And His feet shall stand in that day upon the Mount of Olives, which lies before
 
 
 
-And you shall flee by the valley of My mountains, for the valley of the mountains shall reach to Azal, and you shall flee as you fled from before the earthquake in the days of Uzziah king of Judah; and the Lord my [Zechariah's] God shall come, and all the holy ones [saints and angels] with _Him_. 
+And you shall flee by the valley of My mountains, for the valley of the mountains shall reach to Azal, and you shall flee as you fled from before the earthquake in the days of Uzziah king of Judah; and the Lord my [Zechariah's] God shall come, and all the holy ones [saints and angels] with Him. 
 
 
 
@@ -132,7 +132,7 @@ And you shall flee by the valley of My mountains, for the valley of the mountain
 
 
 
-And it shall come to pass in that day that there shall not be light; the glorious _and_ bright ones [the heavenly bodies] shall be darkened. 
+And it shall come to pass in that day that there shall not be light; the glorious and bright ones [the heavenly bodies] shall be darkened. 
 
 
 
@@ -237,7 +237,7 @@ All the land shall be turned into a plain from Geba to Rimmon, [the Rimmon that 
 
 
 
-And it shall be inhabited, for there shall be no more curse _or_ ban of utter destruction, but Jerusalem shall dwell securely. 
+And it shall be inhabited, for there shall be no more curse or ban of utter destruction, but Jerusalem shall dwell securely. 
 
 
 
@@ -279,7 +279,7 @@ And this shall be the plague wherewith the Lord will smite all the peoples that 
 
 
 
-And in that day there shall be a great confusion, discomfiture, _and_ panic among them from the Lord; and they shall seize each his neighbor's hand, and the hand of the one shall be raised against the hand of the other. 
+And in that day there shall be a great confusion, discomfiture, and panic among them from the Lord; and they shall seize each his neighbor's hand, and the hand of the one shall be raised against the hand of the other. 
 
 
 
@@ -321,7 +321,7 @@ And Judah also shall fight at Jerusalem, and the wealth of all the nations round
 
 
 
-And as that plague on men, so shall be the plague on the horse, on the mule, on the camel, on the donkey, and on all the livestock _and_ beasts that may be in those camps. 
+And as that plague on men, so shall be the plague on the horse, on the mule, on the camel, on the donkey, and on all the livestock and beasts that may be in those camps. 
 
 
 
@@ -342,7 +342,7 @@ And as that plague on men, so shall be the plague on the horse, on the mule, on 
 
 
 
-And everyone who is left of all the nations which came against Jerusalem shall even go up from year to year to worship the King, the Lord of hosts, and to keep the Feast of Tabernacles _or_ Booths. 
+And everyone who is left of all the nations which came against Jerusalem shall even go up from year to year to worship the King, the Lord of hosts, and to keep the Feast of Tabernacles or Booths. 
 
 
 
@@ -447,4 +447,4 @@ In that day there shall be [written] upon the [little] bells on the horses, holy
 
 
 
-Yes, every pot in all the houses of Jerusalem and in Judah shall be dedicated _and_ holy to the Lord of hosts, and all who sacrifice may come and take of them and boil their sacrifices in them [and traders in such wares will no longer be seen at the temple]. And in that day there shall be no more a Canaanite [that is, any godless or unclean person, whether Jew or Gentile] in the house of the Lord of hosts.
+Yes, every pot in all the houses of Jerusalem and in Judah shall be dedicated and holy to the Lord of hosts, and all who sacrifice may come and take of them and boil their sacrifices in them [and traders in such wares will no longer be seen at the temple]. And in that day there shall be no more a Canaanite [that is, any godless or unclean person, whether Jew or Gentile] in the house of the Lord of hosts.

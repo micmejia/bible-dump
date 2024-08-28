@@ -154,7 +154,7 @@ Behold, the princes of Israel in you, every one according to his power, have bee
 
 
 
-In you have they treated father and mother lightly; in the midst of you they have dealt unjustly _and_ by oppression in relation to the stranger; in you they have wronged the fatherless and the widow. 
+In you have they treated father and mother lightly; in the midst of you they have dealt unjustly and by oppression in relation to the stranger; in you they have wronged the fatherless and the widow. 
 
 
 
@@ -175,7 +175,7 @@ In you have they treated father and mother lightly; in the midst of you they hav
 
 
 
-You have despised _and_ scorned My sacred things and have profaned My Sabbaths. 
+You have despised and scorned My sacred things and have profaned My Sabbaths. 
 
 
 
@@ -259,7 +259,7 @@ And one has committed abomination with his neighbor's wife, another has lewdly d
 
 
 
-In you they have accepted bribes to shed blood; you have taken [forbidden] interest and [percentage of] increase, and you have greedily gained from your neighbors by oppression _and_ extortion and have forgotten Me, says the Lord God. 
+In you they have accepted bribes to shed blood; you have taken [forbidden] interest and [percentage of] increase, and you have greedily gained from your neighbors by oppression and extortion and have forgotten Me, says the Lord God. 
 
 
 
@@ -301,7 +301,7 @@ Behold therefore, I have struck My hands together at your dishonest gain which y
 
 
 
-Can your heart _and_ courage endure or can your hands be strong in the days that I shall deal with you? I the Lord have spoken it, and I will do it. 
+Can your heart and courage endure or can your hands be strong in the days that I shall deal with you? I the Lord have spoken it, and I will do it. 
 
 
 
@@ -343,7 +343,7 @@ And I will scatter you among the nations and disperse you through the countries,
 
 
 
-And you shall be dishonored _and_ profane yourself in the sight of the nations, and you shall know (understand and realize) that I am the Lord. 
+And you shall be dishonored and profane yourself in the sight of the nations, and you shall know (understand and realize) that I am the Lord. 
 
 
 
@@ -385,7 +385,7 @@ And the word of the Lord came to me, saying,
 
 
 
-Son of man, the house of Israel has become to Me scum _and_ waste matter. All of them are bronze and tin and iron and lead in the midst of the furnace; they are the dross of silver. 
+Son of man, the house of Israel has become to Me scum and waste matter. All of them are bronze and tin and iron and lead in the midst of the furnace; they are the dross of silver. 
 
 
 
@@ -406,7 +406,7 @@ Son of man, the house of Israel has become to Me scum _and_ waste matter. All of
 
 
 
-Therefore thus says the Lord God: Because you have all become scum _and_ waste matter, behold therefore, I will gather you [O Israel] into the midst of Jerusalem. 
+Therefore thus says the Lord God: Because you have all become scum and waste matter, behold therefore, I will gather you [O Israel] into the midst of Jerusalem. 
 
 
 
@@ -469,7 +469,7 @@ Yes, I will gather you and blow upon you with the fire of My wrath, and you shal
 
 
 
-As silver is melted in the midst of the furnace, so shall you be melted in the midst of it, and you shall know, understand, _and_ realize that I the Lord have poured out My wrath upon you [O Israel]. 
+As silver is melted in the midst of the furnace, so shall you be melted in the midst of it, and you shall know, understand, and realize that I the Lord have poured out My wrath upon you [O Israel]. 
 
 
 
@@ -574,7 +574,7 @@ Her priests have done violence to My law and have profaned My holy things. They 
 
 
 
-Her princes in the midst of her are like wolves rending _and_ devouring the prey, shedding blood and destroying lives to get dishonest gain. 
+Her princes in the midst of her are like wolves rending and devouring the prey, shedding blood and destroying lives to get dishonest gain. 
 
 
 
@@ -616,7 +616,7 @@ And her prophets have daubed them over with whitewash, seeing false visions and 
 
 
 
-The people of the land have used oppression _and_ extortion and have committed robbery; yes, they have wronged _and_ vexed the poor and needy; yes, they have oppressed the stranger _and_ temporary resident wrongfully. 
+The people of the land have used oppression and extortion and have committed robbery; yes, they have wronged and vexed the poor and needy; yes, they have oppressed the stranger and temporary resident wrongfully. 
 
 
 

@@ -154,7 +154,7 @@ And they prepared the onyx stones enclosed in settings of gold filigree and engr
 
 
 
-And he put them on the shoulder pieces of the ephod to be stones of memorial _or_ remembrance for the Israelites, as the Lord had commanded Moses. 
+And he put them on the shoulder pieces of the ephod to be stones of memorial or remembrance for the Israelites, as the Lord had commanded Moses. 
 
 
 
@@ -364,7 +364,7 @@ And they made two settings of gold filigree and two gold rings which they put on
 
 
 
-And they put the two twisted cords _or_ woven chains of gold in the two rings on the end edges of the breastplate. 
+And they put the two twisted cords or woven chains of gold in the two rings on the end edges of the breastplate. 
 
 
 
@@ -385,7 +385,7 @@ And they put the two twisted cords _or_ woven chains of gold in the two rings on
 
 
 
-And the other two ends of the twisted cords _or_ chains of gold they put on the two settings and put them on the shoulder pieces of the ephod, in front. 
+And the other two ends of the twisted cords or chains of gold they put on the two settings and put them on the shoulder pieces of the ephod, in front. 
 
 
 
@@ -574,7 +574,7 @@ A bell and a pomegranate, a bell and a pomegranate, round about on the skirts of
 
 
 
-And they made the long _and_ sleeved tunics woven of fine linen for Aaron and his sons, 
+And they made the long and sleeved tunics woven of fine linen for Aaron and his sons, 
 
 
 
@@ -616,7 +616,7 @@ And the turban, and the ornamental caps of fine linen, and the breeches of fine 
 
 
 
-The girdle _or_ sash of fine twined linen, and blue, purple, and scarlet embroidery, as the Lord commanded Moses. 
+The girdle or sash of fine twined linen, and blue, purple, and scarlet embroidery, as the Lord commanded Moses. 
 
 
 
@@ -700,7 +700,7 @@ Thus all the work of the tabernacle of the Tent of Meeting was finished; accordi
 
 
 
-And they brought the tabernacle to Moses: the tent and all its furnishings, its clasps, its [frame] boards, its bars, its pillars, its sockets _or_ bases; 
+And they brought the tabernacle to Moses: the tent and all its furnishings, its clasps, its [frame] boards, its bars, its pillars, its sockets or bases; 
 
 
 
@@ -721,7 +721,7 @@ And they brought the tabernacle to Moses: the tent and all its furnishings, its 
 
 
 
-And the covering of rams' skins made red, and the covering of dolphin _or_ porpoise skins, and the veil of the screen; 
+And the covering of rams' skins made red, and the covering of dolphin or porpoise skins, and the veil of the screen; 
 
 
 
@@ -847,7 +847,7 @@ The bronze altar and its grate of bronze, its poles and all its utensils; the la
 
 
 
-The hangings of the court, its pillars and sockets _or_ bases, and the screen for the court gate, its cords, and pegs, and all the utensils for the service of the tabernacle, for the Tent of Meeting [of God with His people]; 
+The hangings of the court, its pillars and sockets or bases, and the screen for the court gate, its cords, and pegs, and all the utensils for the service of the tabernacle, for the Tent of Meeting [of God with His people]; 
 
 
 

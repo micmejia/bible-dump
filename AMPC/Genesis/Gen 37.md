@@ -28,7 +28,7 @@ next: ['Gen 38']
 
 
 
-So Jacob dwelt in the land in which his father had been a stranger _and_ sojourner, in the land of Canaan. 
+So Jacob dwelt in the land in which his father had been a stranger and sojourner, in the land of Canaan. 
 
 
 
@@ -49,7 +49,7 @@ So Jacob dwelt in the land in which his father had been a stranger _and_ sojourn
 
 
 
-This is the history of the descendants of Jacob _and_ this is Jacob's line. Joseph, when he was seventeen years old, was shepherding the flock with his brothers; the lad was with the sons of Bilhah and Zilpah, his father's [secondary] wives; and Joseph brought to his father a bad report of them. 
+This is the history of the descendants of Jacob and this is Jacob's line. Joseph, when he was seventeen years old, was shepherding the flock with his brothers; the lad was with the sons of Bilhah and Zilpah, his father's [secondary] wives; and Joseph brought to his father a bad report of them. 
 
 
 
@@ -91,7 +91,7 @@ Now Israel loved Joseph more than all his children because he was the son of his
 
 
 
-But when his brothers saw that their father loved [Joseph] more than all of his brothers, they hated him and could not say, Peace [in friendly greeting] to him _or_ speak peaceably to him. 
+But when his brothers saw that their father loved [Joseph] more than all of his brothers, they hated him and could not say, Peace [in friendly greeting] to him or speak peaceably to him. 
 
 
 
@@ -133,7 +133,7 @@ Now Joseph had a dream and he told it to his brothers, and they hated him still 
 
 
 
-And he said to them, Listen now _and_ hear, I pray you, this dream that I have dreamed: 
+And he said to them, Listen now and hear, I pray you, this dream that I have dreamed: 
 
 
 
@@ -175,7 +175,7 @@ We [brothers] were binding sheaves in the field, and behold, my sheaf arose and 
 
 
 
-His brothers said to him, Shall you indeed reign over us? Or are you going to have us as your subjects _and_ dominate us? And they hated him all the more for his dreams and for what he said. 
+His brothers said to him, Shall you indeed reign over us? Or are you going to have us as your subjects and dominate us? And they hated him all the more for his dreams and for what he said. 
 
 
 
@@ -196,7 +196,7 @@ His brothers said to him, Shall you indeed reign over us? Or are you going to ha
 
 
 
-But Joseph dreamed yet another dream and told it to his brothers [also]. He said, See here, I have dreamed again, and behold, [this time not only] eleven stars [but also] the sun and the moon bowed down _and_ did reverence to me! 
+But Joseph dreamed yet another dream and told it to his brothers [also]. He said, See here, I have dreamed again, and behold, [this time not only] eleven stars [but also] the sun and the moon bowed down and did reverence to me! 
 
 
 
@@ -217,7 +217,7 @@ But Joseph dreamed yet another dream and told it to his brothers [also]. He said
 
 
 
-And he told it to his father [as well as] his brethren. But his father rebuked him and said to him, What is the meaning of this dream that you have dreamed? Shall I and your mother and your brothers actually come to bow down ourselves to the earth _and_ do homage to you? 
+And he told it to his father [as well as] his brethren. But his father rebuked him and said to him, What is the meaning of this dream that you have dreamed? Shall I and your mother and your brothers actually come to bow down ourselves to the earth and do homage to you? 
 
 
 
@@ -238,7 +238,7 @@ And he told it to his father [as well as] his brethren. But his father rebuked h
 
 
 
-Joseph's brothers envied him _and_ were jealous of him, but his father observed the saying _and_ pondered over it. 
+Joseph's brothers envied him and were jealous of him, but his father observed the saying and pondered over it. 
 
 
 
@@ -259,7 +259,7 @@ Joseph's brothers envied him _and_ were jealous of him, but his father observed 
 
 
 
-Joseph's brothers went to shepherd _and_ feed their father's flock near Shechem. 
+Joseph's brothers went to shepherd and feed their father's flock near Shechem. 
 
 
 
@@ -322,7 +322,7 @@ And [Jacob] said to him, Go, I pray you, see whether everything is all right wit
 
 
 
-And a certain man found him, and behold, he had lost his way _and_ was wandering in the open country. The man asked him, What are you trying to find? 
+And a certain man found him, and behold, he had lost his way and was wandering in the open country. The man asked him, What are you trying to find? 
 
 
 
@@ -406,7 +406,7 @@ And when they saw him far off, even before he came near to them, they conspired 
 
 
 
-And they said one to another, See, here comes this dreamer _and_ master of dreams. 
+And they said one to another, See, here comes this dreamer and master of dreams. 
 
 
 
@@ -427,7 +427,7 @@ And they said one to another, See, here comes this dreamer _and_ master of dream
 
 
 
-So come on now, let us kill him and throw his body into some pit; then we will say [to our father], Some wild _and_ ferocious animal has devoured him; and we shall see what will become of his dreams! 
+So come on now, let us kill him and throw his body into some pit; then we will say [to our father], Some wild and ferocious animal has devoured him; and we shall see what will become of his dreams! 
 
 
 
@@ -469,7 +469,7 @@ Now Reuben heard it and he delivered him out of their hands by saying, Let us no
 
 
 
-And Reuben said to them, Shed no blood, but cast him into this pit _or_ well that is out here in the wilderness and lay no hand on him. He was trying to get Joseph out of their hands in order to rescue him _and_ deliver him again to his father. 
+And Reuben said to them, Shed no blood, but cast him into this pit or well that is out here in the wilderness and lay no hand on him. He was trying to get Joseph out of their hands in order to rescue him and deliver him again to his father. 
 
 
 
@@ -532,7 +532,7 @@ Then they took him and cast him into the [well-like] pit which was empty; there 
 
 
 
-Then they sat down to eat their lunch. When they looked up, behold, they saw a caravan of Ishmaelites [mixed Arabians] coming from Gilead, with their camels bearing gum [of the styrax tree], balm (balsam), and myrrh _or_ ladanum, going on their way to carry them down to Egypt. 
+Then they sat down to eat their lunch. When they looked up, behold, they saw a caravan of Ishmaelites [mixed Arabians] coming from Gilead, with their camels bearing gum [of the styrax tree], balm (balsam), and myrrh or ladanum, going on their way to carry them down to Egypt. 
 
 
 
@@ -679,7 +679,7 @@ Then they took Joseph's [distinctive] long garment, killed a young goat, and dip
 
 
 
-And they sent the garment to their father, saying, We have found this! Examine _and_ decide whether it is your son's tunic or not. 
+And they sent the garment to their father, saying, We have found this! Examine and decide whether it is your son's tunic or not. 
 
 
 
@@ -763,4 +763,4 @@ And all his sons and daughters attempted to console him, but he refused to be co
 
 
 
-And the Midianites [and Ishmaelites] sold [Joseph] in Egypt to Potiphar, an officer of Pharaoh and the captain _and_ chief executioner of the [royal] guard.
+And the Midianites [and Ishmaelites] sold [Joseph] in Egypt to Potiphar, an officer of Pharaoh and the captain and chief executioner of the [royal] guard.

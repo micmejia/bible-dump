@@ -301,7 +301,7 @@ In the evening quails came up and covered the camp; and in the morning the dew l
 
 
 
-And when the dew had gone, behold, upon the face of the wilderness there lay a fine, round _and_ flakelike thing, as fine as hoarfrost on the ground. 
+And when the dew had gone, behold, upon the face of the wilderness there lay a fine, round and flakelike thing, as fine as hoarfrost on the ground. 
 
 
 
@@ -427,7 +427,7 @@ Moses said, Let none of it be left until morning.
 
 
 
-But they did not listen to Moses; some of them left of it until morning, and it bred worms, became foul, _and_ stank; and Moses was angry with them. 
+But they did not listen to Moses; some of them left of it until morning, and it bred worms, became foul, and stank; and Moses was angry with them. 
 
 
 

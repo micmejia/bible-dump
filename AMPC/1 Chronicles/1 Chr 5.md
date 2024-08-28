@@ -49,7 +49,7 @@ Now [we come to] the sons of Reuben the firstborn of Israel. For [Reuben] was th
 
 
 
-Judah prevailed above his brethren, and from him came the prince _and_ leader [and eventually the Messiah]; yet the birthright was Joseph's. 
+Judah prevailed above his brethren, and from him came the prince and leader [and eventually the Messiah]; yet the birthright was Joseph's. 
 
 
 
@@ -217,7 +217,7 @@ Eastward [Bela] inhabited the land as far as the entrance into the desert this [
 
 
 
-In the days of [King] Saul they made war with the Hagrites _or_ Ishmaelites, who fell by their hands; they dwelt in their tents in all the land east of Gilead. 
+In the days of [King] Saul they made war with the Hagrites or Ishmaelites, who fell by their hands; they dwelt in their tents in all the land east of Gilead. 
 
 
 
@@ -343,7 +343,7 @@ Ahi son of Abdiel, the son of Guni, was chief in their fathers' houses.
 
 
 
-They dwelt in Gilead, in Bashan and in its towns, and in all the suburbs _and_ pasturelands of Sharon to their limits. 
+They dwelt in Gilead, in Bashan and in its towns, and in all the suburbs and pasturelands of Sharon to their limits. 
 
 
 
@@ -385,7 +385,7 @@ All these were enrolled by genealogies in the days of Jotham king of Judah and i
 
 
 
-The sons of Reuben, the Gadites, and the half-tribe of Manasseh--valiant men able to bear buckler and sword and to shoot with bow and skillful in war--were 44,760 able _and_ ready to go forth to war. 
+The sons of Reuben, the Gadites, and the half-tribe of Manasseh--valiant men able to bear buckler and sword and to shoot with bow and skillful in war--were 44,760 able and ready to go forth to war. 
 
 
 
@@ -427,7 +427,7 @@ And [these Israelites, on the east side of the Jordan River] made war with the H
 
 
 
-They were given help against them, and the Hagrites _or_ Ishmaelites were delivered into their hands, and all who were allied with them, for they cried to God in the battle; and He granted their entreaty, because they relied on, clung to, _and_ trusted in Him. 
+They were given help against them, and the Hagrites or Ishmaelites were delivered into their hands, and all who were allied with them, for they cried to God in the battle; and He granted their entreaty, because they relied on, clung to, and trusted in Him. 
 
 
 
@@ -511,7 +511,7 @@ And the people of the half-tribe of Manasseh dwelt in the land; their settlement
 
 
 
-And these were the heads of their fathers' houses: Epher, Ishi, Eliel, Azriel, Jeremiah, Hodaviah, and Jahdiel, mighty men of strength of mind _and_ spirit [enabling them to encounter danger with firmness and personal bravery], famous men, and heads of the houses of their fathers. 
+And these were the heads of their fathers' houses: Epher, Ishi, Eliel, Azriel, Jeremiah, Hodaviah, and Jahdiel, mighty men of strength of mind and spirit [enabling them to encounter danger with firmness and personal bravery], famous men, and heads of the houses of their fathers. 
 
 
 

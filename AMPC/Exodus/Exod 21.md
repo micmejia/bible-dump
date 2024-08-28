@@ -154,7 +154,7 @@ Then his master shall bring him to God [the judges as His agents]; he shall brin
 
 
 
-If a man sells his daughter to be a maidservant _or_ bondwoman, she shall not go out [in six years] as menservants do. 
+If a man sells his daughter to be a maidservant or bondwoman, she shall not go out [in six years] as menservants do. 
 
 
 

@@ -28,7 +28,7 @@ next: ['Luke 5']
 
 
 
-Then Jesus, full of _and_ controlled by the Holy Spirit, returned from the Jordan and was led in [by] the [Holy] Spirit 
+Then Jesus, full of and controlled by the Holy Spirit, returned from the Jordan and was led in [by] the [Holy] Spirit 
 
 
 
@@ -91,7 +91,7 @@ Then the devil said to Him, If You are the Son of God, order this stone to turn 
 
 
 
-And Jesus replied to him, It is written, Man shall not live _and_ be sustained by (on) bread alone _but by every word and expression of God_. 
+And Jesus replied to him, It is written, Man shall not live and be sustained by (on) bread alone but by every word and expression of God. 
 
 
 
@@ -133,7 +133,7 @@ Then the devil took Him up to a high mountain and showed Him all the kingdoms of
 
 
 
-And he said to Him, To You I will give all this power _and_ authority and their glory (all their magnificence, excellence, preeminence, dignity, and grace), for it has been turned over to me, and I give it to whomever I will. 
+And he said to Him, To You I will give all this power and authority and their glory (all their magnificence, excellence, preeminence, dignity, and grace), for it has been turned over to me, and I give it to whomever I will. 
 
 
 
@@ -154,7 +154,7 @@ And he said to Him, To You I will give all this power _and_ authority and their 
 
 
 
-Therefore if You will do homage to _and_ worship me [just once], it shall all be Yours. 
+Therefore if You will do homage to and worship me [just once], it shall all be Yours. 
 
 
 
@@ -175,7 +175,7 @@ Therefore if You will do homage to _and_ worship me [just once], it shall all be
 
 
 
-And Jesus replied to him, _Get behind Me, Satan_! It is written, You shall do homage to _and_ worship the Lord your God, and Him only shall you serve. 
+And Jesus replied to him, Get behind Me, Satan! It is written, You shall do homage to and worship the Lord your God, and Him only shall you serve. 
 
 
 
@@ -217,7 +217,7 @@ Then he took Him to Jerusalem and set Him on a gable of the temple, and said to 
 
 
 
-For it is written, He will give His angels charge over you to guard _and_ watch over you closely _and_ carefully; 
+For it is written, He will give His angels charge over you to guard and watch over you closely and carefully; 
 
 
 
@@ -280,7 +280,7 @@ And Jesus replied to him, [The Scripture] says, You shall not tempt (try, test e
 
 
 
-And when the devil had ended every [the complete cycle of] temptation, he [temporarily] left Him [that is, stood off from Him] until another more opportune _and_ favorable time. 
+And when the devil had ended every [the complete cycle of] temptation, he [temporarily] left Him [that is, stood off from Him] until another more opportune and favorable time. 
 
 
 
@@ -301,7 +301,7 @@ And when the devil had ended every [the complete cycle of] temptation, he [tempo
 
 
 
-Then Jesus went back full of _and_ under the power of the [Holy] Spirit into Galilee, and the fame of Him spread through the whole region round about. 
+Then Jesus went back full of and under the power of the [Holy] Spirit into Galilee, and the fame of Him spread through the whole region round about. 
 
 
 
@@ -322,7 +322,7 @@ Then Jesus went back full of _and_ under the power of the [Holy] Spirit into Gal
 
 
 
-And He Himself conducted [a course of] teaching in their synagogues, being recognized _and_ honored _and_ praised by all. 
+And He Himself conducted [a course of] teaching in their synagogues, being recognized and honored and praised by all. 
 
 
 
@@ -406,7 +406,7 @@ The Spirit of the Lord [is] upon Me, because He has anointed Me [the Anointed On
 
 
 
-To proclaim the accepted _and_ acceptable year of the Lord [the day when salvation and the free favors of God profusely abound]. 
+To proclaim the accepted and acceptable year of the Lord [the day when salvation and the free favors of God profusely abound]. 
 
 
 
@@ -448,7 +448,7 @@ Then He rolled up the book and gave it back to the attendant and sat down; and t
 
 
 
-And He began to speak to them: Today this Scripture has been fulfilled while you are present _and_ hearing. 
+And He began to speak to them: Today this Scripture has been fulfilled while you are present and hearing. 
 
 
 
@@ -511,7 +511,7 @@ So He said to them, You will doubtless quote to Me this proverb: Physician, heal
 
 
 
-Then He said, Solemnly I say to you, no prophet is acceptable _and_ welcome in his [own] town (country). 
+Then He said, Solemnly I say to you, no prophet is acceptable and welcome in his [own] town (country). 
 
 
 
@@ -616,7 +616,7 @@ When they heard these things, all the people in the synagogue were filled with r
 
 
 
-And rising up, they pushed _and_ drove Him out of the town, and [laying hold of Him] they led Him to the [projecting] upper part of the hill on which their town was built, that they might hurl Him headlong down [over the cliff]. 
+And rising up, they pushed and drove Him out of the town, and [laying hold of Him] they led Him to the [projecting] upper part of the hill on which their town was built, that they might hurl Him headlong down [over the cliff]. 
 
 
 
@@ -679,7 +679,7 @@ And He descended to Capernaum, a town of Galilee, and there He continued to teac
 
 
 
-And they were amazed at His teaching, for His word was with authority _and_ ability _and_ weight _and_ power. 
+And they were amazed at His teaching, for His word was with authority and ability and weight and power. 
 
 
 
@@ -721,7 +721,7 @@ Now in the synagogue there was a man who was possessed by the foul spirit of a d
 
 
 
-Ah, _let us alone_! What have You to do with us [What have we in common], Jesus of Nazareth? Have You come to destroy us? I know Who You are--the Holy One of God! 
+Ah, let us alone! What have You to do with us [What have we in common], Jesus of Nazareth? Have You come to destroy us? I know Who You are--the Holy One of God! 
 
 
 
@@ -868,7 +868,7 @@ Now at the setting of the sun [indicating the end of the Sabbath], all those who
 
 
 
-And demons even came out of many people, screaming _and_ crying out, You are the Son of God! But He rebuked them and would not permit them to speak, because they knew that He was the Christ (the Messiah). 
+And demons even came out of many people, screaming and crying out, You are the Son of God! But He rebuked them and would not permit them to speak, because they knew that He was the Christ (the Messiah). 
 
 
 

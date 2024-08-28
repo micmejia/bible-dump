@@ -91,7 +91,7 @@ At the noise of the stamping of the hoofs of [the Chaldean king's] war-horses, a
 
 
 
-Because of the day that is coming to destroy all the Philistines and to cut off from Tyre and Sidon every helper who remains. For the Lord is destroying the Philistines, the remnant [still surviving] of the isle _or_ coastland of Caphtor [where the Philistines originated]. 
+Because of the day that is coming to destroy all the Philistines and to cut off from Tyre and Sidon every helper who remains. For the Lord is destroying the Philistines, the remnant [still surviving] of the isle or coastland of Caphtor [where the Philistines originated]. 
 
 
 
@@ -112,7 +112,7 @@ Because of the day that is coming to destroy all the Philistines and to cut off 
 
 
 
-Baldness [as a token of mourning] will come upon Gaza; Ashkelon will be cut off _and_ be dumb. O remnant of their valley _and_ of the giants, how long will you gash yourselves [as a token of mourning]? 
+Baldness [as a token of mourning] will come upon Gaza; Ashkelon will be cut off and be dumb. O remnant of their valley and of the giants, how long will you gash yourselves [as a token of mourning]? 
 
 
 

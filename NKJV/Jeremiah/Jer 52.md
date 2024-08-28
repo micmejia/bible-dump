@@ -9,16 +9,16 @@ up: ['Jeremiah']
 
 
 ###### 1 
-Zedekiah _was_ twenty-one years old when he became king, and he reigned eleven years in Jerusalem. His mother's name _was_ Hamutal the daughter of Jeremiah of Libnah. 
+Zedekiah was twenty-one years old when he became king, and he reigned eleven years in Jerusalem. His mother's name was Hamutal the daughter of Jeremiah of Libnah. 
 
 ###### 2 
 He also did evil in the sight of the Lord, according to all that Jehoiakim had done. 
 
 ###### 3 
-For because of the anger of the Lord _this_ happened in Jerusalem and Judah, till He finally cast them out from His presence. Then Zedekiah rebelled against the king of Babylon. 
+For because of the anger of the Lord this happened in Jerusalem and Judah, till He finally cast them out from His presence. Then Zedekiah rebelled against the king of Babylon. 
 
 ###### 4 
-Now it came to pass in the ninth year of his reign, in the tenth month, on the tenth _day_ of the month, _that_ Nebuchadnezzar king of Babylon and all his army came against Jerusalem and encamped against it; and _they_ built a siege wall against it all around. 
+Now it came to pass in the ninth year of his reign, in the tenth month, on the tenth day of the month, that Nebuchadnezzar king of Babylon and all his army came against Jerusalem and encamped against it; and they built a siege wall against it all around. 
 
 ###### 5 
 So the city was besieged until the eleventh year of King Zedekiah. 
@@ -27,7 +27,7 @@ So the city was besieged until the eleventh year of King Zedekiah.
 By the fourth month, on the ninth day of the month, the famine had become so severe in the city that there was no food for the people of the land. 
 
 ###### 7 
-Then the city _wall_ was broken through, and all the men of war fled and went out of the city at night by way of the gate between the two walls, which _was_ by the king's garden, even though the Chaldeans _were_ near the city all around. And they went by way of the plain. 
+Then the city wall was broken through, and all the men of war fled and went out of the city at night by way of the gate between the two walls, which was by the king's garden, even though the Chaldeans were near the city all around. And they went by way of the plain. 
 
 ###### 8 
 But the army of the Chaldeans pursued the king, and they overtook Zedekiah in the plains of Jericho. All his army was scattered from him. 
@@ -44,40 +44,40 @@ He also put out the eyes of Zedekiah; and the king of Babylon bound him in bronz
 ## The Temple and City Plundered and Burned 
 
 ###### 12 
-Now in the fifth month, on the tenth _day_ of the month (which _was_ the nineteenth year of King Nebuchadnezzar king of Babylon), Nebuzaradan, the captain of the guard, _who_ served the king of Babylon, came to Jerusalem. 
+Now in the fifth month, on the tenth day of the month (which was the nineteenth year of King Nebuchadnezzar king of Babylon), Nebuzaradan, the captain of the guard, who served the king of Babylon, came to Jerusalem. 
 
 ###### 13 
 He burned the house of the Lord and the king's house; all the houses of Jerusalem, that is, all the houses of the great, he burned with fire. 
 
 ###### 14 
-And all the army of the Chaldeans who _were_ with the captain of the guard broke down all the walls of Jerusalem all around. 
+And all the army of the Chaldeans who were with the captain of the guard broke down all the walls of Jerusalem all around. 
 
 ###### 15 
-Then Nebuzaradan the captain of the guard carried away captive _some_ of the poor people, the rest of the people who remained in the city, the defectors who had deserted to the king of Babylon, and the rest of the craftsmen. 
+Then Nebuzaradan the captain of the guard carried away captive some of the poor people, the rest of the people who remained in the city, the defectors who had deserted to the king of Babylon, and the rest of the craftsmen. 
 
 ###### 16 
-But Nebuzaradan the captain of the guard left _some_ of the poor of the land as vinedressers and farmers. 
+But Nebuzaradan the captain of the guard left some of the poor of the land as vinedressers and farmers. 
 
 ###### 17 
-The bronze pillars that _were_ in the house of the Lord, and the carts and the bronze Sea that _were_ in the house of the Lord, the Chaldeans broke in pieces, and carried all their bronze to Babylon. 
+The bronze pillars that were in the house of the Lord, and the carts and the bronze Sea that were in the house of the Lord, the Chaldeans broke in pieces, and carried all their bronze to Babylon. 
 
 ###### 18 
-They also took away the pots, the shovels, the trimmers, the bowls, the spoons, and all the bronze utensils with which the _priests_ ministered. 
+They also took away the pots, the shovels, the trimmers, the bowls, the spoons, and all the bronze utensils with which the priests ministered. 
 
 ###### 19 
-The basins, the firepans, the bowls, the pots, the lampstands, the spoons, and the cups, whatever _was_ solid gold and whatever _was_ solid silver, the captain of the guard took away. 
+The basins, the firepans, the bowls, the pots, the lampstands, the spoons, and the cups, whatever was solid gold and whatever was solid silver, the captain of the guard took away. 
 
 ###### 20 
-The two pillars, one Sea, the twelve bronze bulls which _were_ under _it, and_ the carts, which King Solomon had made for the house of the Lord--the bronze of all these articles was beyond measure. 
+The two pillars, one Sea, the twelve bronze bulls which were under it, and the carts, which King Solomon had made for the house of the Lord--the bronze of all these articles was beyond measure. 
 
 ###### 21 
-Now _concerning_ the pillars: the height of one pillar _was_ eighteen cubits, a measuring line of twelve cubits could measure its circumference, and its thickness _was_ four fingers; _it was_ hollow. 
+Now concerning the pillars: the height of one pillar was eighteen cubits, a measuring line of twelve cubits could measure its circumference, and its thickness was four fingers; it was hollow. 
 
 ###### 22 
-A capital of bronze _was_ on it; and the height of one capital _was_ five cubits, with a network and pomegranates all around the capital, all of bronze. The second pillar, with pomegranates was the same. 
+A capital of bronze was on it; and the height of one capital was five cubits, with a network and pomegranates all around the capital, all of bronze. The second pillar, with pomegranates was the same. 
 
 ###### 23 
-There were ninety-six pomegranates on the sides; all the pomegranates, all around on the network, _were_ one hundred.
+There were ninety-six pomegranates on the sides; all the pomegranates, all around on the network, were one hundred.
 
 ## The People Taken Captive to Babylonia 
 
@@ -94,24 +94,24 @@ And Nebuzaradan the captain of the guard took these and brought them to the king
 Then the king of Babylon struck them and put them to death at Riblah in the land of Hamath. Thus Judah was carried away captive from its own land. 
 
 ###### 28 
-These _are_ the people whom Nebuchadnezzar carried away captive: in the seventh year, three thousand and twenty-three Jews; 
+These are the people whom Nebuchadnezzar carried away captive: in the seventh year, three thousand and twenty-three Jews; 
 
 ###### 29 
 in the eighteenth year of Nebuchadnezzar he carried away captive from Jerusalem eight hundred and thirty-two persons; 
 
 ###### 30 
-in the twenty-third year of Nebuchadnezzar, Nebuzaradan the captain of the guard carried away captive of the Jews seven hundred and forty-five persons. All the persons _were_ four thousand six hundred.
+in the twenty-third year of Nebuchadnezzar, Nebuzaradan the captain of the guard carried away captive of the Jews seven hundred and forty-five persons. All the persons were four thousand six hundred.
 
 ## Jehoiachin Released from Prison 
 
 ###### 31 
-Now it came to pass in the thirty-seventh year of the captivity of Jehoiachin king of Judah, in the twelfth month, on the twenty-fifth _day_ of the month, _that_ Evil-Merodach king of Babylon, in the _first_ year of his reign, lifted up the head of Jehoiachin king of Judah and brought him out of prison. 
+Now it came to pass in the thirty-seventh year of the captivity of Jehoiachin king of Judah, in the twelfth month, on the twenty-fifth day of the month, that Evil-Merodach king of Babylon, in the first year of his reign, lifted up the head of Jehoiachin king of Judah and brought him out of prison. 
 
 ###### 32 
-And he spoke kindly to him and gave him a more prominent seat than those of the kings who _were_ with him in Babylon. 
+And he spoke kindly to him and gave him a more prominent seat than those of the kings who were with him in Babylon. 
 
 ###### 33 
-So Jehoiachin changed from his prison garments, and he ate bread regularly before the _king_ all the days of his life. 
+So Jehoiachin changed from his prison garments, and he ate bread regularly before the king all the days of his life. 
 
 ###### 34 
 And as for his provisions, there was a regular ration given him by the king of Babylon, a portion for each day until the day of his death, all the days of his life.

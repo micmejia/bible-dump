@@ -133,7 +133,7 @@ And Bilhah became pregnant and bore Jacob a son.
 
 
 
-And Rachel said, God has judged _and_ vindicated me, and has heard my plea and has given me a son; so she named him Dan [judged]. 
+And Rachel said, God has judged and vindicated me, and has heard my plea and has given me a son; so she named him Dan [judged]. 
 
 
 
@@ -238,7 +238,7 @@ And Zilpah, Leah's maid, bore Jacob a son.
 
 
 
-Then Leah said, Victory _and_ good fortune have come; and she named him Gad [fortune]. 
+Then Leah said, Victory and good fortune have come; and she named him Gad [fortune]. 
 
 
 
@@ -490,7 +490,7 @@ Then God remembered Rachel and answered her pleading and made it possible for he
 
 
 
-And [now for the first time] she became pregnant and bore a son; and she said, God has taken away my reproach, disgrace, _and_ humiliation. 
+And [now for the first time] she became pregnant and bore a son; and she said, God has taken away my reproach, disgrace, and humiliation. 
 
 
 
@@ -574,7 +574,7 @@ Give me my wives and my children, for whom I have served you, and let me go; for
 
 
 
-And Laban said to him, If I have found favor in your sight, I pray you [do not go]; for I have learned by experience _and_ from the omens in divination that the Lord has favored me with blessings on your account. 
+And Laban said to him, If I have found favor in your sight, I pray you [do not go]; for I have learned by experience and from the omens in divination that the Lord has favored me with blessings on your account. 
 
 
 
@@ -616,7 +616,7 @@ He said, State your salary and I will give it.
 
 
 
-Jacob answered him, You know how I have served you, and how your possessions, your cattle _and_ sheep _and_ goats, have fared with me. 
+Jacob answered him, You know how I have served you, and how your possessions, your cattle and sheep and goats, have fared with me. 
 
 
 
@@ -637,7 +637,7 @@ Jacob answered him, You know how I have served you, and how your possessions, yo
 
 
 
-For you had little before I came, and it has increased _and_ multiplied abundantly; and the Lord has favored you with blessings wherever I turned. But now, when shall I provide for my own house also? 
+For you had little before I came, and it has increased and multiplied abundantly; and the Lord has favored you with blessings wherever I turned. But now, when shall I provide for my own house also? 
 
 
 
@@ -658,7 +658,7 @@ For you had little before I came, and it has increased _and_ multiplied abundant
 
 
 
-[Laban] said, What shall I give you? And Jacob said, You shall not give me anything, if you will do this one thing for me [of which I am about to tell you], and I will again feed _and_ take care of your flock. 
+[Laban] said, What shall I give you? And Jacob said, You shall not give me anything, if you will do this one thing for me [of which I am about to tell you], and I will again feed and take care of your flock. 
 
 
 
@@ -700,7 +700,7 @@ Let me pass through all your flock today, removing from it every speckled and sp
 
 
 
-So later when the matter of my wages is brought before you, my fair dealing will be evident _and_ answer for me. Every one that is not speckled and spotted among the goats and black among the sheep, if found with me, shall be counted as stolen. 
+So later when the matter of my wages is brought before you, my fair dealing will be evident and answer for me. Every one that is not speckled and spotted among the goats and black among the sheep, if found with me, shall be counted as stolen. 
 
 
 
@@ -805,7 +805,7 @@ But Jacob took fresh rods of poplar and almond and plane trees and peeled white 
 
 
 
-Then he set the rods which he had peeled in front of the flocks in the watering troughs where the flocks came to drink. And since they bred _and_ conceived when they came to drink, 
+Then he set the rods which he had peeled in front of the flocks in the watering troughs where the flocks came to drink. And since they bred and conceived when they came to drink, 
 
 
 
@@ -826,7 +826,7 @@ Then he set the rods which he had peeled in front of the flocks in the watering 
 
 
 
-The flocks bred _and_ conceived in sight of the rods and brought forth lambs _and_ kids streaked, speckled, and spotted. 
+The flocks bred and conceived in sight of the rods and brought forth lambs and kids streaked, speckled, and spotted. 
 
 
 
@@ -868,7 +868,7 @@ Jacob separated the lambs, and [as he had done with the peeled rods] he also set
 
 
 
-And whenever the stronger animals were breeding, Jacob laid the rods in the watering troughs before the eyes of the flock, that they might breed _and_ conceive among the rods. 
+And whenever the stronger animals were breeding, Jacob laid the rods in the watering troughs before the eyes of the flock, that they might breed and conceive among the rods. 
 
 
 
@@ -889,7 +889,7 @@ And whenever the stronger animals were breeding, Jacob laid the rods in the wate
 
 
 
-But when the sheep _and_ goats were feeble, he omitted putting the rods there; so the feebler animals were Laban's and the stronger Jacob's. 
+But when the sheep and goats were feeble, he omitted putting the rods there; so the feebler animals were Laban's and the stronger Jacob's. 
 
 
 
@@ -910,4 +910,4 @@ But when the sheep _and_ goats were feeble, he omitted putting the rods there; s
 
 
 
-Thus the man increased _and_ became exceedingly rich, and had many sheep _and_ goats, and maidservants, menservants, camels, and donkeys.
+Thus the man increased and became exceedingly rich, and had many sheep and goats, and maidservants, menservants, camels, and donkeys.

@@ -175,7 +175,7 @@ And I will make the lame a remnant, and those who were cast off a strong nation;
 
 
 
-And you, O tower of the flock, the hill _and_ stronghold of the Daughter of Zion, unto you the former dominion shall come, the kingdom of the Daughter of Jerusalem. 
+And you, O tower of the flock, the hill and stronghold of the Daughter of Zion, unto you the former dominion shall come, the kingdom of the Daughter of Jerusalem. 
 
 
 

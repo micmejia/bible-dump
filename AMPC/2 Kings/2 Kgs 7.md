@@ -196,7 +196,7 @@ And when these lepers came to the edge of the camp, they went into one tent and 
 
 
 
-Then they said one to another, We are not doing right. This is a day of [glad] good news and we are silent _and_ do not speak up! If we wait until daylight, some punishment will come upon us [for not reporting at once]. So now come, let us go and tell the king's household. 
+Then they said one to another, We are not doing right. This is a day of [glad] good news and we are silent and do not speak up! If we wait until daylight, some punishment will come upon us [for not reporting at once]. So now come, let us go and tell the king's household. 
 
 
 

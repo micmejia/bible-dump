@@ -10,7 +10,7 @@ next: ['Josh 16']
 
 
 ###### 1 
-So _this_ was the lot of the tribe of the children of Judah according to their families: The border of Edom at the Wilderness of Zin southward _was_ the extreme southern boundary. 
+So this was the lot of the tribe of the children of Judah according to their families: The border of Edom at the Wilderness of Zin southward was the extreme southern boundary. 
 
 ###### 2 
 And their southern border began at the shore of the Salt Sea, from the bay that faces southward. 
@@ -19,42 +19,42 @@ And their southern border began at the shore of the Salt Sea, from the bay that 
 Then it went out to the southern side of the Ascent of Akrabbim, passed along to Zin, ascended on the south side of Kadesh Barnea, passed along to Hezron, went up to Adar, and went around to Karkaa. 
 
 ###### 4 
-_From there_ it passed toward Azmon and went out to the Brook of Egypt; and the border ended at the sea. This shall be your southern border. 
+From there it passed toward Azmon and went out to the Brook of Egypt; and the border ended at the sea. This shall be your southern border. 
 
 ###### 5 
-The east border _was_ the Salt Sea as far as the mouth of the Jordan. And the border on the northern quarter _began_ at the bay of the sea at the mouth of the Jordan. 
+The east border was the Salt Sea as far as the mouth of the Jordan. And the border on the northern quarter began at the bay of the sea at the mouth of the Jordan. 
 
 ###### 6 
 The border went up to Beth Hoglah and passed north of Beth Arabah; and the border went up to the stone of Bohan the son of Reuben. 
 
 ###### 7 
-Then the border went up toward Debir from the Valley of Achor, and it turned northward toward Gilgal, which _is_ before the Ascent of Adummim, which _is_ on the south side of the valley. The border continued toward the waters of En Shemesh and ended at En Rogel. 
+Then the border went up toward Debir from the Valley of Achor, and it turned northward toward Gilgal, which is before the Ascent of Adummim, which is on the south side of the valley. The border continued toward the waters of En Shemesh and ended at En Rogel. 
 
 ###### 8 
-And the border went up by the Valley of the Son of Hinnom to the southern slope of the Jebusite _city_ (which _is_ Jerusalem). The border went up to the top of the mountain that _lies_ before the Valley of Hinnom westward, which _is_ at the end of the Valley of Rephaim northward. 
+And the border went up by the Valley of the Son of Hinnom to the southern slope of the Jebusite city (which is Jerusalem). The border went up to the top of the mountain that lies before the Valley of Hinnom westward, which is at the end of the Valley of Rephaim northward. 
 
 ###### 9 
-Then the border went around from the top of the hill to the fountain of the water of Nephtoah, and extended to the cities of Mount Ephron. And the border went around to Baalah (which _is_ Kirjath Jearim). 
+Then the border went around from the top of the hill to the fountain of the water of Nephtoah, and extended to the cities of Mount Ephron. And the border went around to Baalah (which is Kirjath Jearim). 
 
 ###### 10 
-Then the border turned westward from Baalah to Mount Seir, passed along to the side of Mount Jearim on the north (which _is_ Chesalon), went down to Beth Shemesh, and passed on to Timnah. 
+Then the border turned westward from Baalah to Mount Seir, passed along to the side of Mount Jearim on the north (which is Chesalon), went down to Beth Shemesh, and passed on to Timnah. 
 
 ###### 11 
 And the border went out to the side of Ekron northward. Then the border went around to Shicron, passed along to Mount Baalah, and extended to Jabneel; and the border ended at the sea. 
 
 ###### 12 
-The west border _was_ the coastline of the Great Sea. This _is_ the boundary of the children of Judah all around according to their families.
+The west border was the coastline of the Great Sea. This is the boundary of the children of Judah all around according to their families.
 
 ## Caleb Occupies Hebron and Debir 
 
 ###### 13 
-Now to Caleb the son of Jephunneh he gave a share among the children of Judah, according to the commandment of the Lord to Joshua, _namely,_ Kirjath Arba, which _is_ Hebron (_Arba was_ the father of Anak). 
+Now to Caleb the son of Jephunneh he gave a share among the children of Judah, according to the commandment of the Lord to Joshua, namely, Kirjath Arba, which is Hebron (Arba was the father of Anak). 
 
 ###### 14 
 Caleb drove out the three sons of Anak from there: Sheshai, Ahiman, and Talmai, the children of Anak. 
 
 ###### 15 
-Then he went up from there to the inhabitants of Debir (formerly the name of Debir _was_ Kirjath Sepher). 
+Then he went up from there to the inhabitants of Debir (formerly the name of Debir was Kirjath Sepher). 
 
 ###### 16 
 And Caleb said, "He who attacks Kirjath Sepher and takes it, to him I will give Achsah my daughter as wife." 
@@ -63,7 +63,7 @@ And Caleb said, "He who attacks Kirjath Sepher and takes it, to him I will give 
 So Othniel the son of Kenaz, the brother of Caleb, took it; and he gave him Achsah his daughter as wife. 
 
 ###### 18 
-Now it was so, when she came _to him,_ that she persuaded him to ask her father for a field. So she dismounted from _her_ donkey, and Caleb said to her, "What do you wish?" 
+Now it was so, when she came to him, that she persuaded him to ask her father for a field. So she dismounted from her donkey, and Caleb said to her, "What do you wish?" 
 
 ###### 19 
 She answered, "Give me a blessing; since you have given me land in the South, give me also springs of water." So he gave her the upper springs and the lower springs.
@@ -71,7 +71,7 @@ She answered, "Give me a blessing; since you have given me land in the South, gi
 ## The Cities of Judah 
 
 ###### 20 
-This _was_ the inheritance of the tribe of the children of Judah according to their families: 
+This was the inheritance of the tribe of the children of Judah according to their families: 
 
 ###### 21 
 The cities at the limits of the tribe of the children of Judah, toward the border of Edom in the South, were Kabzeel, Eder, Jagur, 
@@ -86,7 +86,7 @@ Kedesh, Hazor, Ithnan,
 Ziph, Telem, Bealoth, 
 
 ###### 25 
-Hazor, Hadattah, Kerioth, Hezron (which _is_ Hazor), 
+Hazor, Hadattah, Kerioth, Hezron (which is Hazor), 
 
 ###### 26 
 Amam, Shema, Moladah, 
@@ -107,7 +107,7 @@ Eltolad, Chesil, Hormah,
 Ziklag, Madmannah, Sansannah, 
 
 ###### 32 
-Lebaoth, Shilhim, Ain, and Rimmon: all the cities _are_ twenty-nine, with their villages. 
+Lebaoth, Shilhim, Ain, and Rimmon: all the cities are twenty-nine, with their villages. 
 
 ###### 33 
 In the lowland: Eshtaol, Zorah, Ashnah, 
@@ -149,16 +149,16 @@ Keilah, Achzib, and Mareshah: nine cities with their villages;
 Ekron, with its towns and villages; 
 
 ###### 46 
-from Ekron to the sea, all that _lay_ near Ashdod, with their villages; 
+from Ekron to the sea, all that lay near Ashdod, with their villages; 
 
 ###### 47 
-Ashdod with its towns and villages, Gaza with its towns and villages--as far as the Brook of Egypt and the Great Sea with _its_ coastline. 
+Ashdod with its towns and villages, Gaza with its towns and villages--as far as the Brook of Egypt and the Great Sea with its coastline. 
 
 ###### 48 
 And in the mountain country: Shamir, Jattir, Sochoh, 
 
 ###### 49 
-Dannah, Kirjath Sannah (which _is_ Debir), 
+Dannah, Kirjath Sannah (which is Debir), 
 
 ###### 50 
 Anab, Eshtemoh, Anim, 
@@ -173,7 +173,7 @@ Arab, Dumah, Eshean,
 Janum, Beth Tappuah, Aphekah, 
 
 ###### 54 
-Humtah, Kirjath Arba (which _is_ Hebron), and Zior: nine cities with their villages; 
+Humtah, Kirjath Arba (which is Hebron), and Zior: nine cities with their villages; 
 
 ###### 55 
 Maon, Carmel, Ziph, Juttah, 
@@ -191,7 +191,7 @@ Halhul, Beth Zur, Gedor,
 Maarath, Beth Anoth, and Eltekon: six cities with their villages; 
 
 ###### 60 
-Kirjath Baal (which _is_ Kirjath Jearim) and Rabbah: two cities with their villages. 
+Kirjath Baal (which is Kirjath Jearim) and Rabbah: two cities with their villages. 
 
 ###### 61 
 In the wilderness: Beth Arabah, Middin, Secacah, 

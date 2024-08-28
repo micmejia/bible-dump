@@ -91,7 +91,7 @@ Now the Lord has brought it about and has done as He said: [It is] because you [
 
 
 
-Now, see, I am freeing you today [Jeremiah] from the chains upon your hands. If it seems good to you to come with me to Babylon, come, and I will keep an eye on you _and_ look after you well. But if it seems bad to you to come with me to Babylon, then do not do it. Behold, all the land is before you; wherever it seems good, right, _and_ convenient for you to go, go there. 
+Now, see, I am freeing you today [Jeremiah] from the chains upon your hands. If it seems good to you to come with me to Babylon, come, and I will keep an eye on you and look after you well. But if it seems bad to you to come with me to Babylon, then do not do it. Behold, all the land is before you; wherever it seems good, right, and convenient for you to go, go there. 
 
 
 

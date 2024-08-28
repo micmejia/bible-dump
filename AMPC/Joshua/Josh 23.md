@@ -133,7 +133,7 @@ The Lord your God will thrust them out from before you and drive them out of you
 
 
 
-So be very courageous _and_ steadfast to keep and do all that is written in the Book of the Law of Moses, turning not aside from it to the right hand or the left, 
+So be very courageous and steadfast to keep and do all that is written in the Book of the Law of Moses, turning not aside from it to the right hand or the left, 
 
 
 

@@ -70,7 +70,7 @@ I am the Lord your God, Who has brought you out of the land of Egypt, out of the
 
 
 
-You shall have no other gods before _or_ besides Me. 
+You shall have no other gods before or besides Me. 
 
 
 
@@ -133,7 +133,7 @@ You shall not bow down yourself to them or serve them; for I the Lord your God a
 
 
 
-But showing mercy _and_ steadfast love to a thousand generations of those who love Me and keep My commandments. 
+But showing mercy and steadfast love to a thousand generations of those who love Me and keep My commandments. 
 
 
 
@@ -154,7 +154,7 @@ But showing mercy _and_ steadfast love to a thousand generations of those who lo
 
 
 
-You shall not use _or_ repeat the name of the Lord your God in vain [that is, lightly or frivolously, in false affirmations or profanely]; for the Lord will not hold him guiltless who takes His name in vain. 
+You shall not use or repeat the name of the Lord your God in vain [that is, lightly or frivolously, in false affirmations or profanely]; for the Lord will not hold him guiltless who takes His name in vain. 
 
 
 
@@ -385,7 +385,7 @@ You shall not covet your neighbor's house, your neighbor's wife, or his manserva
 
 
 
-Now all the people perceived the thunderings and the lightnings and the noise of the trumpet and the smoking mountain, and as [they] looked they trembled with fear _and_ fell back and stood afar off. 
+Now all the people perceived the thunderings and the lightnings and the noise of the trumpet and the smoking mountain, and as [they] looked they trembled with fear and fell back and stood afar off. 
 
 
 

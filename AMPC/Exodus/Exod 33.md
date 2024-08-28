@@ -112,7 +112,7 @@ When the people heard these evil tidings, they mourned and no man put on his orn
 
 
 
-For the Lord had said to Moses, Say to the Israelites, You are a stiff-necked people! If I should come among you for one moment, I would consume _and_ destroy you. Now therefore [penitently] leave off your ornaments, that I may know what to do with you. 
+For the Lord had said to Moses, Say to the Israelites, You are a stiff-necked people! If I should come among you for one moment, I would consume and destroy you. Now therefore [penitently] leave off your ornaments, that I may know what to do with you. 
 
 
 
@@ -364,7 +364,7 @@ For by what shall it be known that I and Your people have found favor in Your si
 
 
 
-And the Lord said to Moses, I will do this thing also that you have asked, for you have found favor, loving-kindness, _and_ mercy in My sight and I know you personally _and_ by name. 
+And the Lord said to Moses, I will do this thing also that you have asked, for you have found favor, loving-kindness, and mercy in My sight and I know you personally and by name. 
 
 
 
@@ -406,7 +406,7 @@ And Moses said, I beseech You, show me Your glory.
 
 
 
-And God said, I will make all My goodness pass before you, and I will proclaim My name, The Lord, before you; for I will be gracious to whom I will be gracious, and will show mercy _and_ loving-kindness on whom I will show mercy _and_ loving-kindness. 
+And God said, I will make all My goodness pass before you, and I will proclaim My name, The Lord, before you; for I will be gracious to whom I will be gracious, and will show mercy and loving-kindness on whom I will show mercy and loving-kindness. 
 
 
 

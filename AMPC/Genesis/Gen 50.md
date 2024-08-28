@@ -90,7 +90,7 @@ Then forty days were devoted [to this purpose] for him, for that is the customar
 
 
 
-And when the days of his weeping _and_ deep grief were past, Joseph said to [the nobles of] the house of Pharaoh, If now I have found grace in your eyes, speak, I pray you, to Pharaoh [for Joseph was dressed in mourning and could not do so himself], saying, 
+And when the days of his weeping and deep grief were past, Joseph said to [the nobles of] the house of Pharaoh, If now I have found grace in your eyes, speak, I pray you, to Pharaoh [for Joseph was dressed in mourning and could not do so himself], saying, 
 
 
 
@@ -153,7 +153,7 @@ And Pharaoh said, Go up and bury your father, as he made you swear.
 
 
 
-And Joseph went up [to Canaan] to bury his father; and with him went all the officials of Pharaoh--the nobles of his court, _and_ the elders of his house and all the nobles _and_ elders of the land of Egypt-- 
+And Joseph went up [to Canaan] to bury his father; and with him went all the officials of Pharaoh--the nobles of his court, and the elders of his house and all the nobles and elders of the land of Egypt-- 
 
 
 
@@ -447,7 +447,7 @@ As for you, you thought evil against me, but God meant it for good, to bring abo
 
 
 
-Now therefore, do not be afraid. I will provide for _and_ support you and your little ones. And he comforted them [imparting cheer, hope, strength] and spoke to their hearts [kindly]. 
+Now therefore, do not be afraid. I will provide for and support you and your little ones. And he comforted them [imparting cheer, hope, strength] and spoke to their hearts [kindly]. 
 
 
 

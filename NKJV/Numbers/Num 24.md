@@ -28,16 +28,16 @@ The utterance of him who hears the words of God, Who sees the vision of the Almi
 Like valleys that stretch out, Like gardens by the riverside, Like aloes planted by the Lord, Like cedars beside the waters. 
 
 ###### 7 
-He shall pour water from his buckets, And his seed _shall be_ in many waters. "His king shall be higher than Agag, And his kingdom shall be exalted. 
+He shall pour water from his buckets, And his seed shall be in many waters. "His king shall be higher than Agag, And his kingdom shall be exalted. 
 
 ###### 8 
-"God brings him out of Egypt; He has strength like a wild ox; He shall consume the nations, his enemies; He shall break their bones And pierce _them_ with his arrows. 
+"God brings him out of Egypt; He has strength like a wild ox; He shall consume the nations, his enemies; He shall break their bones And pierce them with his arrows. 
 
 ###### 9 
-'He bows down, he lies down as a lion; And as a lion, who shall rouse him?' "Blessed _is_ he who blesses you, And cursed _is_ he who curses you." 
+'He bows down, he lies down as a lion; And as a lion, who shall rouse him?' "Blessed is he who blesses you, And cursed is he who curses you." 
 
 ###### 10 
-Then Balak's anger was aroused against Balaam, and he struck his hands together; and Balak said to Balaam, "I called you to curse my enemies, and look, you have bountifully blessed _them_ these three times! 
+Then Balak's anger was aroused against Balaam, and he struck his hands together; and Balak said to Balaam, "I called you to curse my enemies, and look, you have bountifully blessed them these three times! 
 
 ###### 11 
 Now therefore, flee to your place. I said I would greatly honor you, but in fact, the Lord has kept you back from honor." 
@@ -57,7 +57,7 @@ And now, indeed, I am going to my people. Come, I will advise you what this peop
 So he took up his oracle and said: "The utterance of Balaam the son of Beor, And the utterance of the man whose eyes are opened; 
 
 ###### 16 
-The utterance of him who hears the words of God, And has the knowledge of the Most High, _Who_ sees the vision of the Almighty, _Who_ falls down, with eyes wide open: 
+The utterance of him who hears the words of God, And has the knowledge of the Most High, Who sees the vision of the Almighty, Who falls down, with eyes wide open: 
 
 ###### 17 
 "I see Him, but not now; I behold Him, but not near; A Star shall come out of Jacob; A Scepter shall rise out of Israel, And batter the brow of Moab, And destroy all the sons of tumult. 
@@ -69,7 +69,7 @@ The utterance of him who hears the words of God, And has the knowledge of the Mo
 Out of Jacob One shall have dominion, And destroy the remains of the city." 
 
 ###### 20 
-Then he looked on Amalek, and he took up his oracle and said: "Amalek _was_ first among the nations, But _shall be_ last until he perishes." 
+Then he looked on Amalek, and he took up his oracle and said: "Amalek was first among the nations, But shall be last until he perishes." 
 
 ###### 21 
 Then he looked on the Kenites, and he took up his oracle and said: "Firm is your dwelling place, And your nest is set in the rock; 
@@ -81,7 +81,7 @@ Nevertheless Kain shall be burned. How long until Asshur carries you away captiv
 Then he took up his oracle and said: "Alas! Who shall live when God does this? 
 
 ###### 24 
-But ships _shall come_ from the coasts of Cyprus, And they shall afflict Asshur and afflict Eber, And so shall _Amalek_, until he perishes." 
+But ships shall come from the coasts of Cyprus, And they shall afflict Asshur and afflict Eber, And so shall Amalek, until he perishes." 
 
 ###### 25 
 So Balaam rose and departed and returned to his place; Balak also went his way.

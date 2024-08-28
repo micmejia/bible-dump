@@ -133,7 +133,7 @@ But when Elihu saw that there was no answer in the mouths of these three men, he
 
 
 
-Then Elihu son of Barachel the Buzite said, I am young, and you are aged; for that reason I was timid _and_ restrained and dared not declare my opinion to you. 
+Then Elihu son of Barachel the Buzite said, I am young, and you are aged; for that reason I was timid and restrained and dared not declare my opinion to you. 
 
 
 
@@ -217,7 +217,7 @@ It is not the great [necessarily] who are wise, nor [always] the aged who unders
 
 
 
-So I say, Listen to me; I also will give you my opinion [about Job's situation] _and_ my knowledge. 
+So I say, Listen to me; I also will give you my opinion [about Job's situation] and my knowledge. 
 
 
 
@@ -322,7 +322,7 @@ Now [Job] has not directed his words against me [therefore I have no cause for i
 
 
 
-[Job's friends] are amazed _and_ embarrassed, they answer no more; they have not a thing to say [reports Elihu]. 
+[Job's friends] are amazed and embarrassed, they answer no more; they have not a thing to say [reports Elihu]. 
 
 
 
@@ -364,7 +364,7 @@ And shall I wait, because they say nothing but stand still and answer no more?
 
 
 
-I also will answer my [God-assigned] part; I also will declare my opinion _and_ my knowledge. 
+I also will answer my [God-assigned] part; I also will declare my opinion and my knowledge. 
 
 
 
@@ -427,7 +427,7 @@ My breast is as wine that has no vent; like new wineskins, it is ready to burst.
 
 
 
-I must speak, that I may get relief _and_ be refreshed; I will open my lips and answer. 
+I must speak, that I may get relief and be refreshed; I will open my lips and answer. 
 
 
 
@@ -448,7 +448,7 @@ I must speak, that I may get relief _and_ be refreshed; I will open my lips and 
 
 
 
-I will not [I warn you] be influenced by respect for any man's person _and_ show partiality, neither will I flatter any man. 
+I will not [I warn you] be influenced by respect for any man's person and show partiality, neither will I flatter any man. 
 
 
 

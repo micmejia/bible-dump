@@ -48,7 +48,7 @@ The word of the Lord which came to Zephaniah son of Cushi, the son of Gedaliah, 
 
 
 
-By taking away I will make an end _and_ I will utterly consume _and_ sweep away all things from the face of the earth, says the Lord. 
+By taking away I will make an end and I will utterly consume and sweep away all things from the face of the earth, says the Lord. 
 
 
 
@@ -69,7 +69,7 @@ By taking away I will make an end _and_ I will utterly consume _and_ sweep away 
 
 
 
-I will consume _and_ sweep away man and beast; I will consume _and_ sweep away the birds of the air and the fish of the sea. I will overthrow the stumbling blocks (the idols) with the wicked [worshipers], and I will cut off mankind from the face of the earth, says the Lord. 
+I will consume and sweep away man and beast; I will consume and sweep away the birds of the air and the fish of the sea. I will overthrow the stumbling blocks (the idols) with the wicked [worshipers], and I will cut off mankind from the face of the earth, says the Lord. 
 
 
 
@@ -111,7 +111,7 @@ I will also stretch out My hand over Judah and over all the inhabitants of Jerus
 
 
 
-And those who worship the starry host of the heavens upon their housetops and those who [pretend to] worship the Lord and swear by _and_ to Him and yet swear by _and_ to [the heathen god Molech or] Malcam [their idol king], 
+And those who worship the starry host of the heavens upon their housetops and those who [pretend to] worship the Lord and swear by and to Him and yet swear by and to [the heathen god Molech or] Malcam [their idol king], 
 
 
 
@@ -132,7 +132,7 @@ And those who worship the starry host of the heavens upon their housetops and th
 
 
 
-And those who have drawn back from following the Lord and those who have not sought the Lord nor inquired for, inquired of, _and_ required the Lord [as their first necessity]. 
+And those who have drawn back from following the Lord and those who have not sought the Lord nor inquired for, inquired of, and required the Lord [as their first necessity]. 
 
 
 
@@ -195,7 +195,7 @@ And on the day of the Lord's sacrifice, I will punish the officials and the king
 
 
 
-In the same day also will I punish all those who leap swiftly on _or_ over the threshold [upon entering houses to steal], who fill their master's house with violence and deceit _and_ fraud. 
+In the same day also will I punish all those who leap swiftly on or over the threshold [upon entering houses to steal], who fill their master's house with violence and deceit and fraud. 
 
 
 
@@ -216,7 +216,7 @@ In the same day also will I punish all those who leap swiftly on _or_ over the t
 
 
 
-And in that day, says the Lord, there shall be heard the voice of crying from the Fish Gate [in the wall of Jerusalem] and a wailing from the Second Quarter _or_ Lower City and a great crashing _and_ sound of destruction from the hills. 
+And in that day, says the Lord, there shall be heard the voice of crying from the Fish Gate [in the wall of Jerusalem] and a wailing from the Second Quarter or Lower City and a great crashing and sound of destruction from the hills. 
 
 
 
@@ -237,7 +237,7 @@ And in that day, says the Lord, there shall be heard the voice of crying from th
 
 
 
-Wail, you inhabitants of the Mortar [those located in the hollow part of the city]! For all the merchant people, like the people of Canaan, will be silent [entirely destroyed]; all those who weighed out silver _and_ were loaded with it will be cut off. 
+Wail, you inhabitants of the Mortar [those located in the hollow part of the city]! For all the merchant people, like the people of Canaan, will be silent [entirely destroyed]; all those who weighed out silver and were loaded with it will be cut off. 
 
 
 
@@ -258,7 +258,7 @@ Wail, you inhabitants of the Mortar [those located in the hollow part of the cit
 
 
 
-And at that time I will search Jerusalem with lamps and punish the men who [like old wine] are thickening _and_ settling on their lees, who say in their hearts, The Lord will not do good, nor will He do evil. 
+And at that time I will search Jerusalem with lamps and punish the men who [like old wine] are thickening and settling on their lees, who say in their hearts, The Lord will not do good, nor will He do evil. 
 
 
 
@@ -342,7 +342,7 @@ That day is a day of wrath, a day of distress and anguish, a day of ruin and dev
 
 
 
-A day of the blast of trumpet and battle cry against the fortified cities and against the high towers _and_ battlements. 
+A day of the blast of trumpet and battle cry against the fortified cities and against the high towers and battlements. 
 
 
 
@@ -384,4 +384,4 @@ And I will bring distress upon men, so that they shall walk like blind men, beca
 
 
 
-Neither their silver nor their gold shall be able to deliver them in the day of the Lord's indignation _and_ wrath. But the whole earth shall be consumed in the fire of His jealous wrath, for a full, yes, a sudden, end will He make of all the inhabitants of the earth.
+Neither their silver nor their gold shall be able to deliver them in the day of the Lord's indignation and wrath. But the whole earth shall be consumed in the fire of His jealous wrath, for a full, yes, a sudden, end will He make of all the inhabitants of the earth.

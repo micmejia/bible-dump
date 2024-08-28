@@ -69,7 +69,7 @@ He was present originally with God.
 
 
 
-All things were made _and_ came into existence through Him; and without Him was not even one thing made that has come into being. 
+All things were made and came into existence through Him; and without Him was not even one thing made that has come into being. 
 
 
 
@@ -237,7 +237,7 @@ He came into the world, and though the world was made through Him, the world did
 
 
 
-He came to that which belonged to Him [to His own--His domain, creation, things, world], and they who were His own did not receive Him _and_ did not welcome Him. 
+He came to that which belonged to Him [to His own--His domain, creation, things, world], and they who were His own did not receive Him and did not welcome Him. 
 
 
 
@@ -258,7 +258,7 @@ He came to that which belonged to Him [to His own--His domain, creation, things,
 
 
 
-But to as many as did receive _and_ welcome Him, He gave the authority (power, privilege, right) to become the children of God, that is, to those who believe in (adhere to, trust in, and rely on) His name-- 
+But to as many as did receive and welcome Him, He gave the authority (power, privilege, right) to become the children of God, that is, to those who believe in (adhere to, trust in, and rely on) His name-- 
 
 
 
@@ -342,7 +342,7 @@ John testified about Him and cried out, This was He of Whom I said, He Who comes
 
 
 
-For out of His fullness (abundance) we have all received [all had a share and we were all supplied with] one grace after another _and_ spiritual blessing upon spiritual blessing _and_ even favor upon favor _and_ gift [heaped] upon gift. 
+For out of His fullness (abundance) we have all received [all had a share and we were all supplied with] one grace after another and spiritual blessing upon spiritual blessing and even favor upon favor and gift [heaped] upon gift. 
 
 
 
@@ -384,7 +384,7 @@ For while the Law was given through Moses, grace (unearned, undeserved favor and
 
 
 
-No man has ever seen God at any time; _the only_ _unique Son_, _or_ the only begotten God, Who is in the bosom [in the intimate presence] of the Father, He has declared Him [He has revealed Him and brought Him out where He can be seen; He has interpreted Him and He has made Him known]. 
+No man has ever seen God at any time; the only unique Son, or the only begotten God, Who is in the bosom [in the intimate presence] of the Father, He has declared Him [He has revealed Him and brought Him out where He can be seen; He has interpreted Him and He has made Him known]. 
 
 
 
@@ -552,7 +552,7 @@ And they asked him, Why then are you baptizing if you are not the Christ, nor El
 
 
 
-John answered them, I [only] baptize in (with) water. Among you there stands One Whom you do not recognize _and_ with Whom you are not acquainted _and_ of Whom you know nothing. 
+John answered them, I [only] baptize in (with) water. Among you there stands One Whom you do not recognize and with Whom you are not acquainted and of Whom you know nothing. 
 
 
 
@@ -636,7 +636,7 @@ The next day John saw Jesus coming to him and said, Look! There is the Lamb of G
 
 
 
-This is He of Whom I said, After me comes a Man Who has priority over me [Who takes rank above me] because He was before me _and_ existed before I did. 
+This is He of Whom I said, After me comes a Man Who has priority over me [Who takes rank above me] because He was before me and existed before I did. 
 
 
 
@@ -657,7 +657,7 @@ This is He of Whom I said, After me comes a Man Who has priority over me [Who ta
 
 
 
-And I did not know Him _and_ did not recognize Him [myself]; but it is in order that He should be made manifest _and_ be revealed to Israel [be brought out where we can see Him] that I came baptizing in (with) water. 
+And I did not know Him and did not recognize Him [myself]; but it is in order that He should be made manifest and be revealed to Israel [be brought out where we can see Him] that I came baptizing in (with) water. 
 
 
 
@@ -699,7 +699,7 @@ John gave further evidence, saying, I have seen the Spirit descending as a dove 
 
 
 
-And I did not know Him _nor_ recognize Him, but He Who sent me to baptize in (with) water said to me, Upon Him Whom you shall see the Spirit descend and remain, that One is He Who baptizes with the Holy Spirit. 
+And I did not know Him nor recognize Him, but He Who sent me to baptize in (with) water said to me, Upon Him Whom you shall see the Spirit descend and remain, that One is He Who baptizes with the Holy Spirit. 
 
 
 
@@ -867,7 +867,7 @@ One of the two who heard what John said and followed Jesus was Andrew, Simon Pet
 
 
 
-He first sought out _and_ found his own brother Simon and said to him, We have found (discovered) the Messiah!--which translated is the Christ (the Anointed One). 
+He first sought out and found his own brother Simon and said to him, We have found (discovered) the Messiah!--which translated is the Christ (the Anointed One). 
 
 
 
@@ -909,7 +909,7 @@ Andrew then led (brought) Simon to Jesus. Jesus looked at him and said, You are 
 
 
 
-The next day Jesus desired _and_ decided to go into Galilee; and He found Philip and said to him, Join Me as My attendant _and_ follow Me. 
+The next day Jesus desired and decided to go into Galilee; and He found Philip and said to him, Join Me as My attendant and follow Me. 
 
 
 
@@ -951,7 +951,7 @@ Now Philip was from Bethsaida, of the same city as Andrew and Peter.
 
 
 
-Philip sought _and_ found Nathanael and told him, We have found (discovered) the One Moses in the Law and also the Prophets wrote about--Jesus from Nazareth, the [legal] son of Joseph! 
+Philip sought and found Nathanael and told him, We have found (discovered) the One Moses in the Law and also the Prophets wrote about--Jesus from Nazareth, the [legal] son of Joseph! 
 
 
 
@@ -993,7 +993,7 @@ Nathanael answered him, [Nazareth!] Can anything good come out of Nazareth? Phil
 
 
 
-Jesus saw Nathanael coming toward Him and said concerning him, See! Here is an Israelite indeed [a true descendant of Jacob], in whom there is no guile _nor_ deceit _nor_ falsehood _nor_ duplicity! 
+Jesus saw Nathanael coming toward Him and said concerning him, See! Here is an Israelite indeed [a true descendant of Jacob], in whom there is no guile nor deceit nor falsehood nor duplicity! 
 
 
 
@@ -1056,7 +1056,7 @@ Nathanael answered, Teacher, You are the Son of God! You are the King of Israel!
 
 
 
-Jesus replied, Because I said to you, I saw you beneath the fig tree, do you believe in _and_ rely on _and_ trust in Me? You shall see greater things than this! 
+Jesus replied, Because I said to you, I saw you beneath the fig tree, do you believe in and rely on and trust in Me? You shall see greater things than this! 
 
 
 

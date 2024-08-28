@@ -175,7 +175,7 @@ There were about twelve of them in all.
 
 
 
-And he went into the synagogue and for three months spoke boldly, persuading _and_ arguing and pleading about the kingdom of God. 
+And he went into the synagogue and for three months spoke boldly, persuading and arguing and pleading about the kingdom of God. 
 
 
 
@@ -196,7 +196,7 @@ And he went into the synagogue and for three months spoke boldly, persuading _an
 
 
 
-But when some became more and more stubborn (hardened and unbelieving), discrediting _and_ reviling _and_ speaking evil of the Way [of the Lord] before the congregation, he separated himself from them, taking the disciples with him, and went on holding daily discussions in the lecture room of Tyrannus _from about ten o'clock till three_. 
+But when some became more and more stubborn (hardened and unbelieving), discrediting and reviling and speaking evil of the Way [of the Lord] before the congregation, he separated himself from them, taking the disciples with him, and went on holding daily discussions in the lecture room of Tyrannus from about ten o'clock till three. 
 
 
 
@@ -238,7 +238,7 @@ This continued for two years, so that all the inhabitants of [the province of] A
 
 
 
-And God did unusual _and_ extraordinary miracles by the hands of Paul, 
+And God did unusual and extraordinary miracles by the hands of Paul, 
 
 
 
@@ -259,7 +259,7 @@ And God did unusual _and_ extraordinary miracles by the hands of Paul,
 
 
 
-So that handkerchiefs _or_ towels or aprons which had touched his skin were carried away _and_ put upon the sick, and their diseases left them and the evil spirits came out of them. 
+So that handkerchiefs or towels or aprons which had touched his skin were carried away and put upon the sick, and their diseases left them and the evil spirits came out of them. 
 
 
 
@@ -280,7 +280,7 @@ So that handkerchiefs _or_ towels or aprons which had touched his skin were carr
 
 
 
-Then some of the traveling Jewish exorcists (men who adjure evil spirits) also undertook to call the name of the Lord Jesus over those who had evil spirits, saying, I solemnly implore _and_ charge you by the Jesus Whom Paul preaches! 
+Then some of the traveling Jewish exorcists (men who adjure evil spirits) also undertook to call the name of the Lord Jesus over those who had evil spirits, saying, I solemnly implore and charge you by the Jesus Whom Paul preaches! 
 
 
 
@@ -364,7 +364,7 @@ Then the man in whom the evil spirit dwelt leaped upon them, mastering two of th
 
 
 
-This became known to all who lived in Ephesus, both Jews and Greeks, and alarm _and_ terror fell upon them all; and the name of the Lord Jesus was extolled _and_ magnified. 
+This became known to all who lived in Ephesus, both Jews and Greeks, and alarm and terror fell upon them all; and the name of the Lord Jesus was extolled and magnified. 
 
 
 
@@ -385,7 +385,7 @@ This became known to all who lived in Ephesus, both Jews and Greeks, and alarm _
 
 
 
-Many also of those who were now believers came making full confession _and_ thoroughly exposing their [former deceptive and evil] practices. 
+Many also of those who were now believers came making full confession and thoroughly exposing their [former deceptive and evil] practices. 
 
 
 
@@ -427,7 +427,7 @@ And many of those who had practiced curious, magical arts collected their books 
 
 
 
-Thus the Word of the Lord [concerning the attainment through Christ of eternal salvation in the kingdom of God] grew _and_ spread _and_ intensified, prevailing mightily. 
+Thus the Word of the Lord [concerning the attainment through Christ of eternal salvation in the kingdom of God] grew and spread and intensified, prevailing mightily. 
 
 
 
@@ -532,7 +532,7 @@ For a man named Demetrius, a silversmith, who made silver shrines of [the goddes
 
 
 
-These he called together, along with the workmen of similar trades, and said, Men, you are acquainted with the facts _and_ understand that from this business we derive our wealth _and_ livelihood. 
+These he called together, along with the workmen of similar trades, and said, Men, you are acquainted with the facts and understand that from this business we derive our wealth and livelihood. 
 
 
 
@@ -553,7 +553,7 @@ These he called together, along with the workmen of similar trades, and said, Me
 
 
 
-Now you notice and hear that not only at Ephesus but almost all over [the province of] Asia this Paul has persuaded _and_ induced people to believe his teaching and has alienated a considerable company of them, saying that gods that are made with human hands are not really gods at all. 
+Now you notice and hear that not only at Ephesus but almost all over [the province of] Asia this Paul has persuaded and induced people to believe his teaching and has alienated a considerable company of them, saying that gods that are made with human hands are not really gods at all. 
 
 
 
@@ -574,7 +574,7 @@ Now you notice and hear that not only at Ephesus but almost all over [the provin
 
 
 
-Now there is danger not merely that this trade of ours may be discredited, but also that the temple of the great goddess Artemis may come into disrepute _and_ count for nothing, and that her glorious magnificence may be degraded and fall into contempt--she whom all [the province of] Asia and the wide world worship. 
+Now there is danger not merely that this trade of ours may be discredited, but also that the temple of the great goddess Artemis may come into disrepute and count for nothing, and that her glorious magnificence may be degraded and fall into contempt--she whom all [the province of] Asia and the wide world worship. 
 
 
 
@@ -700,7 +700,7 @@ Now some shouted one thing and some another, for the gathering was in a tumult a
 
 
 
-Some of the crowd called upon Alexander [to speak], since the Jews had pushed _and_ urged him forward. And Alexander motioned with his hand, wishing to make a defense _and_ [planning] to apologize to the people. 
+Some of the crowd called upon Alexander [to speak], since the Jews had pushed and urged him forward. And Alexander motioned with his hand, wishing to make a defense and [planning] to apologize to the people. 
 
 
 
@@ -721,7 +721,7 @@ Some of the crowd called upon Alexander [to speak], since the Jews had pushed _a
 
 
 
-But as soon as they saw him _and_ recognized that he was a Jew, a shout went up from them as the voice of one man, as for about two hours they cried, Great is Artemis of the Ephesians! 
+But as soon as they saw him and recognized that he was a Jew, a shout went up from them as the voice of one man, as for about two hours they cried, Great is Artemis of the Ephesians! 
 
 
 
@@ -826,7 +826,7 @@ Now then, if Demetrius and his fellow tradesmen who are with him have a grievanc
 
 
 
-But if you require anything further about this _or about other matters_, it must be decided _and_ cleared up in the regular assembly. 
+But if you require anything further about this or about other matters, it must be decided and cleared up in the regular assembly. 
 
 
 
@@ -847,7 +847,7 @@ But if you require anything further about this _or about other matters_, it must
 
 
 
-For we are in danger of being called to render an account _and_ of being accused of rioting because of [this commotion] today, there being no reason that we can offer to justify this disorder. 
+For we are in danger of being called to render an account and of being accused of rioting because of [this commotion] today, there being no reason that we can offer to justify this disorder. 
 
 
 

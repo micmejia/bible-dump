@@ -406,7 +406,7 @@ Yet when she lifts herself up in flight, [so swift is she that] she can laugh to
 
 
 
-Have you given the horse his might? Have you clothed his neck with quivering _and_ a shaking mane? 
+Have you given the horse his might? Have you clothed his neck with quivering and a shaking mane? 
 
 
 
@@ -469,7 +469,7 @@ He paws in the valley and exults in his strength; he goes out to meet the weapon
 
 
 
-He mocks at fear and is not dismayed _or_ terrified; neither does he turn back [in battle] from the sword. 
+He mocks at fear and is not dismayed or terrified; neither does he turn back [in battle] from the sword. 
 
 
 

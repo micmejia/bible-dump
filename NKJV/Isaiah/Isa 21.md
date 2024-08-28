@@ -10,13 +10,13 @@ next: ['Isa 22']
 
 
 ###### 1 
-The burden against the Wilderness of the Sea. As whirlwinds in the South pass through, _So_ it comes from the desert, from a terrible land. 
+The burden against the Wilderness of the Sea. As whirlwinds in the South pass through, So it comes from the desert, from a terrible land. 
 
 ###### 2 
 A distressing vision is declared to me; The treacherous dealer deals treacherously, And the plunderer plunders. Go up, O Elam! Besiege, O Media! All its sighing I have made to cease. 
 
 ###### 3 
-Therefore my loins are filled with pain; Pangs have taken hold of me, like the pangs of a woman in labor. I was distressed when _I_ heard _it;_ I was dismayed when _I_ saw _it._ 
+Therefore my loins are filled with pain; Pangs have taken hold of me, like the pangs of a woman in labor. I was distressed when I heard it; I was dismayed when I saw it. 
 
 ###### 4 
 My heart wavered, fearfulness frightened me; The night for which I longed He turned into fear for me. 
@@ -28,13 +28,13 @@ Prepare the table, Set a watchman in the tower, Eat and drink. Arise, you prince
 For thus has the Lord said to me: "Go, set a watchman, Let him declare what he sees." 
 
 ###### 7 
-And he saw a chariot _with_ a pair of horsemen, A chariot of donkeys, _and_ a chariot of camels, And he listened earnestly with great care. 
+And he saw a chariot with a pair of horsemen, A chariot of donkeys, and a chariot of camels, And he listened earnestly with great care. 
 
 ###### 8 
 Then he cried, "A lion, my Lord! I stand continually on the watchtower in the daytime; I have sat at my post every night. 
 
 ###### 9 
-And look, here comes a chariot of men _with_ a pair of horsemen!" Then he answered and said, "Babylon is fallen, is fallen! And all the carved images of her gods He has broken to the ground." 
+And look, here comes a chariot of men with a pair of horsemen!" Then he answered and said, "Babylon is fallen, is fallen! And all the carved images of her gods He has broken to the ground." 
 
 ###### 10 
 Oh, my threshing and the grain of my floor! That which I have heard from the Lord of hosts, The God of Israel, I have declared to you.
@@ -62,4 +62,4 @@ For they fled from the swords, from the drawn sword, From the bent bow, and from
 For thus the Lord has said to me: "Within a year, according to the year of a hired man, all the glory of Kedar will fail; 
 
 ###### 17 
-and the remainder of the number of archers, the mighty men of the people of Kedar, will be diminished; for the Lord God of Israel has spoken _it._"
+and the remainder of the number of archers, the mighty men of the people of Kedar, will be diminished; for the Lord God of Israel has spoken it."

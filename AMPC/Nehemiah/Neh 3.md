@@ -28,7 +28,7 @@ next: ['Neh 4']
 
 
 
-Then Eliashib the high priest rose up with his brethren the priests and built the Sheep Gate. They consecrated it and set up its doors; they consecrated it even to the Tower of Hammeah _or_ the Hundred, as far as the Tower of Hananel. 
+Then Eliashib the high priest rose up with his brethren the priests and built the Sheep Gate. They consecrated it and set up its doors; they consecrated it even to the Tower of Hammeah or the Hundred, as far as the Tower of Hananel. 
 
 
 
@@ -112,7 +112,7 @@ And next to them Meremoth son of Uriah, the son of Hakkoz, repaired. Next to the
 
 
 
-Next to them the Tekoites repaired, but their nobles _or_ lords did not put their necks to the work of their Lord. 
+Next to them the Tekoites repaired, but their nobles or lords did not put their necks to the work of their Lord. 
 
 
 
@@ -658,7 +658,7 @@ After him Hananiah son of Shelemiah, and Hanun, the sixth son of Zalaph, repaire
 
 
 
-After him Malchijah, one of the goldsmiths, repaired as far as the house of the temple servants and of the merchants, opposite the Muster Gate, and to the ascent _and_ upper room of the corner. 
+After him Malchijah, one of the goldsmiths, repaired as far as the house of the temple servants and of the merchants, opposite the Muster Gate, and to the ascent and upper room of the corner. 
 
 
 
@@ -679,4 +679,4 @@ After him Malchijah, one of the goldsmiths, repaired as far as the house of the 
 
 
 
-And from the ascent _and_ upper room of the corner to the Sheep Gate the goldsmiths and merchants repaired.
+And from the ascent and upper room of the corner to the Sheep Gate the goldsmiths and merchants repaired.

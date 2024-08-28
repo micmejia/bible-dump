@@ -36,7 +36,7 @@ And the smoke of the incense (the perfume) arose in the presence of God, with th
 ###### 5 
 
 
-So the angel took the censer and filled it with fire from the altar and cast it upon the earth. Then there followed peals of thunder _and_ loud rumblings and blasts _and_ noises, and flashes of lightning and an earthquake. 
+So the angel took the censer and filled it with fire from the altar and cast it upon the earth. Then there followed peals of thunder and loud rumblings and blasts and noises, and flashes of lightning and an earthquake. 
 
 
 ###### 6 

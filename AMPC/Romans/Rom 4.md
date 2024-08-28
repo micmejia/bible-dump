@@ -91,7 +91,7 @@ For what does the Scripture say? Abraham believed in (trusted in) God, and it wa
 
 
 
-Now to a laborer, his wages are not counted as a favor _or_ a gift, but as an obligation (something owed to him). 
+Now to a laborer, his wages are not counted as a favor or a gift, but as an obligation (something owed to him). 
 
 
 
@@ -133,7 +133,7 @@ But to one who, not working [by the Law], trusts (believes fully) in Him Who jus
 
 
 
-Thus David congratulates the man _and_ pronounces a blessing on him to whom God credits righteousness apart from the works he does: 
+Thus David congratulates the man and pronounces a blessing on him to whom God credits righteousness apart from the works he does: 
 
 
 
@@ -154,7 +154,7 @@ Thus David congratulates the man _and_ pronounces a blessing on him to whom God 
 
 
 
-Blessed _and_ happy _and_ to be envied are those whose iniquities are forgiven and whose sins are covered up _and_ completely buried. 
+Blessed and happy and to be envied are those whose iniquities are forgiven and whose sins are covered up and completely buried. 
 
 
 
@@ -175,7 +175,7 @@ Blessed _and_ happy _and_ to be envied are those whose iniquities are forgiven a
 
 
 
-Blessed _and_ happy _and_ to be envied is the person of whose sin the Lord will take no account _nor_ reckon it against him. 
+Blessed and happy and to be envied is the person of whose sin the Lord will take no account nor reckon it against him. 
 
 
 
@@ -238,7 +238,7 @@ How then was it credited [to him]? Was it before or after he had been circumcise
 
 
 
-He received the mark of circumcision as a token _or_ an evidence [and] seal of the righteousness which he had by faith while he was still uncircumcised--[faith] so that he was to be made the father of all who [truly] believe, though without circumcision, and who thus have righteousness (right standing with God) imputed to them _and_ credited to their account, 
+He received the mark of circumcision as a token or an evidence [and] seal of the righteousness which he had by faith while he was still uncircumcised--[faith] so that he was to be made the father of all who [truly] believe, though without circumcision, and who thus have righteousness (right standing with God) imputed to them and credited to their account, 
 
 
 
@@ -301,7 +301,7 @@ For the promise to Abraham or his posterity, that he should inherit the world, d
 
 
 
-If it is the adherents of the Law who are to be the heirs, then faith is made futile _and_ empty of all meaning and the promise [of God] is made void (is annulled and has no power). 
+If it is the adherents of the Law who are to be the heirs, then faith is made futile and empty of all meaning and the promise [of God] is made void (is annulled and has no power). 
 
 
 
@@ -343,7 +343,7 @@ For the Law results in [divine] wrath, but where there is no law there is no tra
 
 
 
-Therefore, [inheriting] the promise is the outcome of faith _and_ depends [entirely] on faith, in order that it might be given as an act of grace (unmerited favor), to make it stable _and_ valid _and_ guaranteed to all his descendants--not only to the devotees _and_ adherents of the Law, but also to those who share the faith of Abraham, who is [thus] the father of us all. 
+Therefore, [inheriting] the promise is the outcome of faith and depends [entirely] on faith, in order that it might be given as an act of grace (unmerited favor), to make it stable and valid and guaranteed to all his descendants--not only to the devotees and adherents of the Law, but also to those who share the faith of Abraham, who is [thus] the father of us all. 
 
 
 
@@ -427,7 +427,7 @@ He did not weaken in faith when he considered the [utter] impotence of his own b
 
 
 
-No unbelief _or_ distrust made him waver (doubtingly question) concerning the promise of God, but he grew strong _and_ was empowered by faith as he gave praise _and_ glory to God, 
+No unbelief or distrust made him waver (doubtingly question) concerning the promise of God, but he grew strong and was empowered by faith as he gave praise and glory to God, 
 
 
 
@@ -448,7 +448,7 @@ No unbelief _or_ distrust made him waver (doubtingly question) concerning the pr
 
 
 
-Fully satisfied _and_ assured that God was able _and_ mighty to keep His word _and_ to do what He had promised. 
+Fully satisfied and assured that God was able and mighty to keep His word and to do what He had promised. 
 
 
 
@@ -511,7 +511,7 @@ But [the words], It was credited to him, were written not for his sake alone,
 
 
 
-But [they were written] for our sakes too. [Righteousness, standing acceptable to God] will be granted _and_ credited to us also who believe in (trust in, adhere to, and rely on) God, Who raised Jesus our Lord from the dead, 
+But [they were written] for our sakes too. [Righteousness, standing acceptable to God] will be granted and credited to us also who believe in (trust in, adhere to, and rely on) God, Who raised Jesus our Lord from the dead, 
 
 
 
@@ -532,4 +532,4 @@ But [they were written] for our sakes too. [Righteousness, standing acceptable t
 
 
 
-Who was betrayed _and_ put to death because of our misdeeds and was raised to secure our justification (our acquittal), [making our account balance and absolving us from all guilt before God].
+Who was betrayed and put to death because of our misdeeds and was raised to secure our justification (our acquittal), [making our account balance and absolving us from all guilt before God].

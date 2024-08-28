@@ -49,7 +49,7 @@ Now [in Haran] the Lord said to Abram, Go for yourself [for your own advantage] 
 
 
 
-And I will make of you a great nation, and I will bless you [with abundant increase of favors] and make your name famous _and_ distinguished, and you will be a blessing [dispensing good to others]. 
+And I will make of you a great nation, and I will bless you [with abundant increase of favors] and make your name famous and distinguished, and you will be a blessing [dispensing good to others]. 
 
 
 
@@ -70,7 +70,7 @@ And I will make of you a great nation, and I will bless you [with abundant incre
 
 
 
-And I will bless those who bless you [who confer prosperity or happiness upon you] and curse him who curses _or_ uses insolent language toward you; in you will all the families _and_ kindred of the earth be blessed [and by you they will bless themselves]. 
+And I will bless those who bless you [who confer prosperity or happiness upon you] and curse him who curses or uses insolent language toward you; in you will all the families and kindred of the earth be blessed [and by you they will bless themselves]. 
 
 
 
@@ -133,7 +133,7 @@ Abram took Sarai his wife, and Lot his brother's son, and all their possessions 
 
 
 
-Abram passed through the land to the locality of Shechem, to the oak _or_ terebinth tree of Moreh. And the Canaanite was then in the land. 
+Abram passed through the land to the locality of Shechem, to the oak or terebinth tree of Moreh. And the Canaanite was then in the land. 
 
 
 
@@ -175,7 +175,7 @@ Then the Lord appeared to Abram and said, I will give this land to your posterit
 
 
 
-From there he pulled up [his tent pegs] _and_ departed to the mountain on the east of Bethel and pitched his tent, with Bethel on the west and Ai on the east; and there he built an altar to the Lord and called upon the name of the Lord. 
+From there he pulled up [his tent pegs] and departed to the mountain on the east of Bethel and pitched his tent, with Bethel on the west and Ai on the east; and there he built an altar to the Lord and called upon the name of the Lord. 
 
 
 

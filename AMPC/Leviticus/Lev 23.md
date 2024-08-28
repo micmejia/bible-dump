@@ -49,7 +49,7 @@ The Lord said to Moses,
 
 
 
-Say to the Israelites, The set feasts _or_ appointed seasons of the Lord which you shall proclaim as holy convocations, even My set feasts, are these: 
+Say to the Israelites, The set feasts or appointed seasons of the Lord which you shall proclaim as holy convocations, even My set feasts, are these: 
 
 
 
@@ -70,7 +70,7 @@ Say to the Israelites, The set feasts _or_ appointed seasons of the Lord which y
 
 
 
-Six days shall work be done, but the seventh day is the Sabbath of rest, a holy convocation _or_ assembly by summons. You shall do no work on that day; it is the Sabbath of the Lord in all your dwellings. 
+Six days shall work be done, but the seventh day is the Sabbath of rest, a holy convocation or assembly by summons. You shall do no work on that day; it is the Sabbath of the Lord in all your dwellings. 
 
 
 
@@ -91,7 +91,7 @@ Six days shall work be done, but the seventh day is the Sabbath of rest, a holy 
 
 
 
-These are the set feasts _or_ appointed seasons of the Lord, holy convocations you shall proclaim at their stated times: 
+These are the set feasts or appointed seasons of the Lord, holy convocations you shall proclaim at their stated times: 
 
 
 
@@ -154,7 +154,7 @@ On the fifteenth day of the same month is the Feast of Unleavened Bread to the L
 
 
 
-On the first day you shall have a holy "calling together;" you shall do no servile _or_ laborious work on that day. 
+On the first day you shall have a holy "calling together;" you shall do no servile or laborious work on that day. 
 
 
 
@@ -175,7 +175,7 @@ On the first day you shall have a holy "calling together;" you shall do no servi
 
 
 
-But you shall offer an offering made by fire to the Lord for seven days; on the seventh day is a holy convocation; you shall do no servile _or_ laborious work on that day. 
+But you shall offer an offering made by fire to the Lord for seven days; on the seventh day is a holy convocation; you shall do no servile or laborious work on that day. 
 
 
 
@@ -280,7 +280,7 @@ You shall offer on the day when you wave the sheaf a male lamb a year old withou
 
 
 
-Its cereal offering shall be two-tenths of an ephah of fine flour mixed with oil, an offering made by fire to the Lord for a sweet, pleasing, _and_ satisfying fragrance; and the drink offering of it [to be poured out] shall be of wine, a fourth of a hin. 
+Its cereal offering shall be two-tenths of an ephah of fine flour mixed with oil, an offering made by fire to the Lord for a sweet, pleasing, and satisfying fragrance; and the drink offering of it [to be poured out] shall be of wine, a fourth of a hin. 
 
 
 
@@ -385,7 +385,7 @@ You shall bring from your dwellings two loaves of bread to be waved, made from t
 
 
 
-And you shall offer with the bread seven lambs, a year old and without blemish, and one young bull and two rams. They shall be a burnt offering to the Lord, with their cereal offering and their drink offerings, an offering made by fire, of a sweet _and_ satisfying fragrance to the Lord. 
+And you shall offer with the bread seven lambs, a year old and without blemish, and one young bull and two rams. They shall be a burnt offering to the Lord, with their cereal offering and their drink offerings, an offering made by fire, of a sweet and satisfying fragrance to the Lord. 
 
 
 
@@ -721,7 +721,7 @@ And the Lord said to Moses,
 
 
 
-Say to the Israelites, The fifteenth day of this seventh month, and for seven days, is the Feast of Tabernacles _or_ Booths to the Lord. 
+Say to the Israelites, The fifteenth day of this seventh month, and for seven days, is the Feast of Tabernacles or Booths to the Lord. 
 
 
 
@@ -784,7 +784,7 @@ For seven days you shall offer an offering made by fire to the Lord; on the eigh
 
 
 
-These are the set feasts _or_ appointed seasons of the Lord, which you shall proclaim to be holy convocations, to present an offering made by fire to the Lord, a burnt offering and a cereal offering, sacrifices and drink offerings, each on its own day. 
+These are the set feasts or appointed seasons of the Lord, which you shall proclaim to be holy convocations, to present an offering made by fire to the Lord, a burnt offering and a cereal offering, sacrifices and drink offerings, each on its own day. 
 
 
 
@@ -931,4 +931,4 @@ That your generations may know that I made the Israelites dwell in booths when I
 
 
 
-Thus Moses declared to the Israelites the set _or_ appointed feasts of the Lord.
+Thus Moses declared to the Israelites the set or appointed feasts of the Lord.

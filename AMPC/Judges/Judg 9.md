@@ -595,7 +595,7 @@ And they went out into the field, gathered their vineyard fruits and trod them, 
 
 
 
-Gaal son of Ebed said, Who is Abimelech, and who are we of Shechem, that we should serve him? Were not the son of Jerubbaal and Zebul, his officer, servants of the men of Hamor the father _and_ founder of Shechem? Then why should we serve him? 
+Gaal son of Ebed said, Who is Abimelech, and who are we of Shechem, that we should serve him? Were not the son of Jerubbaal and Zebul, his officer, servants of the men of Hamor the father and founder of Shechem? Then why should we serve him? 
 
 
 

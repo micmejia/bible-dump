@@ -12,13 +12,13 @@ next: ['Heb 12']
 ###### 1 
 
 
-Now faith is the assurance (the confirmation, the title deed) of the things [we] hope for, being the proof of things [we] do not see _and_ the conviction of their reality [faith perceiving as real fact what is not revealed to the senses]. 
+Now faith is the assurance (the confirmation, the title deed) of the things [we] hope for, being the proof of things [we] do not see and the conviction of their reality [faith perceiving as real fact what is not revealed to the senses]. 
 
 
 ###### 2 
 
 
-For by [faith--trust and holy fervor born of faith] the men of old had divine testimony borne to them _and_ obtained a good report. 
+For by [faith--trust and holy fervor born of faith] the men of old had divine testimony borne to them and obtained a good report. 
 
 
 ###### 3 
@@ -30,31 +30,31 @@ By faith we understand that the worlds [during the successive ages] were framed 
 ###### 4 
 
 
-[Prompted, actuated] by faith Abel brought God a better and more acceptable sacrifice than Cain, because of which it was testified of him that he was righteous [that he was upright and in right standing with God], and God bore witness by accepting _and_ acknowledging his gifts. And though he died, yet [through the incident] he is still speaking. 
+[Prompted, actuated] by faith Abel brought God a better and more acceptable sacrifice than Cain, because of which it was testified of him that he was righteous [that he was upright and in right standing with God], and God bore witness by accepting and acknowledging his gifts. And though he died, yet [through the incident] he is still speaking. 
 
 
 ###### 5 
 
 
-Because of faith Enoch was caught up _and_ transferred to heaven, so that he did not have a glimpse of death; and he was not found, because God had translated him. For even before he was taken to heaven, he received testimony [still on record] that he had pleased _and_ been satisfactory to God. 
+Because of faith Enoch was caught up and transferred to heaven, so that he did not have a glimpse of death; and he was not found, because God had translated him. For even before he was taken to heaven, he received testimony [still on record] that he had pleased and been satisfactory to God. 
 
 
 ###### 6 
 
 
-But without faith it is impossible to please _and_ be satisfactory to Him. For whoever would come near to God must [necessarily] believe that God exists and that He is the rewarder of those who earnestly _and_ diligently seek Him [out]. 
+But without faith it is impossible to please and be satisfactory to Him. For whoever would come near to God must [necessarily] believe that God exists and that He is the rewarder of those who earnestly and diligently seek Him [out]. 
 
 
 ###### 7 
 
 
-[Prompted] by faith Noah, being forewarned by God concerning events of which as yet there was no visible sign, took heed _and_ diligently _and_ reverently constructed _and_ prepared an ark for the deliverance of his own family. By this [his faith which relied on God] he passed judgment _and_ sentence on the world's unbelief and became an heir _and_ possessor of righteousness (that relation of being right into which God puts the person who has faith). 
+[Prompted] by faith Noah, being forewarned by God concerning events of which as yet there was no visible sign, took heed and diligently and reverently constructed and prepared an ark for the deliverance of his own family. By this [his faith which relied on God] he passed judgment and sentence on the world's unbelief and became an heir and possessor of righteousness (that relation of being right into which God puts the person who has faith). 
 
 
 ###### 8 
 
 
-[Urged on] by faith Abraham, when he was called, obeyed and went forth to a place which he was destined to receive as an inheritance; and he went, although he did not know _or_ trouble his mind about where he was to go. 
+[Urged on] by faith Abraham, when he was called, obeyed and went forth to a place which he was destined to receive as an inheritance; and he went, although he did not know or trouble his mind about where he was to go. 
 
 
 ###### 9 
@@ -66,13 +66,13 @@ But without faith it is impossible to please _and_ be satisfactory to Him. For w
 ###### 10 
 
 
-For he was [waiting expectantly and confidently] looking forward to the city which has fixed _and_ firm foundations, whose Architect _and_ Builder is God. 
+For he was [waiting expectantly and confidently] looking forward to the city which has fixed and firm foundations, whose Architect and Builder is God. 
 
 
 ###### 11 
 
 
-Because of faith also Sarah herself received physical power to conceive a child, even when she was long past the age for it, because she considered [God] Who had given her the promise to be reliable _and_ trustworthy _and_ true to His word. 
+Because of faith also Sarah herself received physical power to conceive a child, even when she was long past the age for it, because she considered [God] Who had given her the promise to be reliable and trustworthy and true to His word. 
 
 
 ###### 12 
@@ -84,7 +84,7 @@ So from one man, though he was physically as good as dead, there have sprung des
 ###### 13 
 
 
-These people all died controlled _and_ sustained by their faith, but not having received the tangible fulfillment of [God's] promises, only having seen it _and_ greeted it from a great distance by faith, and all the while acknowledging _and_ confessing that they were strangers _and_ temporary residents _and_ exiles upon the earth. 
+These people all died controlled and sustained by their faith, but not having received the tangible fulfillment of [God's] promises, only having seen it and greeted it from a great distance by faith, and all the while acknowledging and confessing that they were strangers and temporary residents and exiles upon the earth. 
 
 
 ###### 14 
@@ -102,13 +102,13 @@ If they had been thinking with [homesick] remembrance of that country from which
 ###### 16 
 
 
-But the truth is that they were yearning for _and_ aspiring to a better _and_ more desirable country, that is, a heavenly [one]. For that reason God is not ashamed to be called their God [even to be surnamed their God--the God of Abraham, Isaac, and Jacob], for He has prepared a city for them. 
+But the truth is that they were yearning for and aspiring to a better and more desirable country, that is, a heavenly [one]. For that reason God is not ashamed to be called their God [even to be surnamed their God--the God of Abraham, Isaac, and Jacob], for He has prepared a city for them. 
 
 
 ###### 17 
 
 
-By faith Abraham, when he was put to the test [while the testing of his faith was still in progress], had already brought Isaac for an offering; he who had gladly received _and_ welcomed [God's] promises was ready to sacrifice his only son, 
+By faith Abraham, when he was put to the test [while the testing of his faith was still in progress], had already brought Isaac for an offering; he who had gladly received and welcomed [God's] promises was ready to sacrifice his only son, 
 
 
 ###### 18 
@@ -144,37 +144,37 @@ For he reasoned that God was able to raise [him] up even from among the dead. In
 ###### 23 
 
 
-[Prompted] by faith Moses, after his birth, was kept concealed for three months by his parents, because they saw how comely the child was; and they were not overawed _and_ terrified by the king's decree. 
+[Prompted] by faith Moses, after his birth, was kept concealed for three months by his parents, because they saw how comely the child was; and they were not overawed and terrified by the king's decree. 
 
 
 ###### 24 
 
 
-[Aroused] by faith Moses, when he had grown to maturity _and_ become great, refused to be called the son of Pharaoh's daughter, 
+[Aroused] by faith Moses, when he had grown to maturity and become great, refused to be called the son of Pharaoh's daughter, 
 
 
 ###### 25 
 
 
-Because he preferred to share the oppression [suffer the hardships] _and_ bear the shame of the people of God rather than to have the fleeting enjoyment of a sinful life. 
+Because he preferred to share the oppression [suffer the hardships] and bear the shame of the people of God rather than to have the fleeting enjoyment of a sinful life. 
 
 
 ###### 26 
 
 
-He considered the contempt _and_ abuse _and_ shame [borne for] the Christ (the Messiah Who was to come) to be greater wealth than all the treasures of Egypt, for he looked forward _and_ away to the reward (recompense). 
+He considered the contempt and abuse and shame [borne for] the Christ (the Messiah Who was to come) to be greater wealth than all the treasures of Egypt, for he looked forward and away to the reward (recompense). 
 
 
 ###### 27 
 
 
-[Motivated] by faith he left Egypt behind him, being unawed _and_ undismayed by the wrath of the king; for he never flinched _but_ held staunchly to his purpose _and_ endured steadfastly as one who gazed on Him Who is invisible. 
+[Motivated] by faith he left Egypt behind him, being unawed and undismayed by the wrath of the king; for he never flinched but held staunchly to his purpose and endured steadfastly as one who gazed on Him Who is invisible. 
 
 
 ###### 28 
 
 
-By faith (simple trust and confidence in God) he instituted _and_ carried out the Passover and the sprinkling of the blood [on the doorposts], so that the destroyer of the firstborn (the angel) might not touch those [of the children of Israel]. 
+By faith (simple trust and confidence in God) he instituted and carried out the Passover and the sprinkling of the blood [on the doorposts], so that the destroyer of the firstborn (the angel) might not touch those [of the children of Israel]. 
 
 
 ###### 29 
@@ -192,7 +192,7 @@ Because of faith the walls of Jericho fell down after they had been encompassed 
 ###### 31 
 
 
-[Prompted] by faith Rahab the prostitute was not destroyed along with those who refused to believe _and_ obey, because she had received the spies in peace [without enmity]. 
+[Prompted] by faith Rahab the prostitute was not destroyed along with those who refused to believe and obey, because she had received the spies in peace [without enmity]. 
 
 
 ###### 32 
@@ -210,7 +210,7 @@ Who by [the help of] faith subdued kingdoms, administered justice, obtained prom
 ###### 34 
 
 
-Extinguished the power of raging fire, escaped the devourings of the sword, out of frailty _and_ weakness won strength _and_ became stalwart, even mighty _and_ resistless in battle, routing alien hosts. 
+Extinguished the power of raging fire, escaped the devourings of the sword, out of frailty and weakness won strength and became stalwart, even mighty and resistless in battle, routing alien hosts. 
 
 
 ###### 35 
@@ -234,7 +234,7 @@ They were stoned to death; they were lured with tempting offers [to renounce the
 ###### 38 
 
 
-[Men] of whom the world was not worthy--roaming over the desolate places and the mountains, and [living] in caves _and_ caverns and holes of the earth. 
+[Men] of whom the world was not worthy--roaming over the desolate places and the mountains, and [living] in caves and caverns and holes of the earth. 
 
 
 ###### 39 
@@ -246,4 +246,4 @@ And all of these, though they won divine approval by [means of] their faith, did
 ###### 40 
 
 
-Because God had us in mind _and_ had something better _and_ greater in view for us, so that they [these heroes and heroines of faith] should not come to perfection apart from us [before we could join them].
+Because God had us in mind and had something better and greater in view for us, so that they [these heroes and heroines of faith] should not come to perfection apart from us [before we could join them].

@@ -49,7 +49,7 @@ And God pronounced a blessing upon Noah and his sons and said to them, Be fruitf
 
 
 
-And the fear of you and the dread _and_ terror of you shall be upon every beast of the land, every bird of the air, all that creeps upon the ground, and upon all the fish of the sea; they are delivered into your hand. 
+And the fear of you and the dread and terror of you shall be upon every beast of the land, every bird of the air, all that creeps upon the ground, and upon all the fish of the sea; they are delivered into your hand. 
 
 
 
@@ -70,7 +70,7 @@ And the fear of you and the dread _and_ terror of you shall be upon every beast 
 
 
 
-Every moving thing that lives shall be food for you; and as I gave you the green vegetables _and_ plants, I give you everything. 
+Every moving thing that lives shall be food for you; and as I gave you the green vegetables and plants, I give you everything. 
 
 
 
@@ -196,7 +196,7 @@ Then God spoke to Noah and to his sons with him, saying,
 
 
 
-Behold, I establish My covenant _or_ pledge with you and with your descendants after you 
+Behold, I establish My covenant or pledge with you and with your descendants after you 
 
 
 
@@ -238,7 +238,7 @@ And with every living creature that is with you--whether the birds, the livestoc
 
 
 
-I will establish My covenant _or_ pledge with you: Never again shall all flesh be cut off by the waters of a flood; neither shall there ever again be a flood to destroy the earth _and_ make it corrupt. 
+I will establish My covenant or pledge with you: Never again shall all flesh be cut off by the waters of a flood; neither shall there ever again be a flood to destroy the earth and make it corrupt. 
 
 
 
@@ -280,7 +280,7 @@ And God said, This is the token of the covenant (solemn pledge) which I am makin
 
 
 
-I set My bow [rainbow] in the cloud, and it shall be a token _or_ sign of a covenant _or_ solemn pledge between Me and the earth. 
+I set My bow [rainbow] in the cloud, and it shall be a token or sign of a covenant or solemn pledge between Me and the earth. 
 
 
 
@@ -322,7 +322,7 @@ And it shall be that when I bring clouds over the earth and the bow [rainbow] is
 
 
 
-I will [earnestly] remember My covenant _or_ solemn pledge which is between Me and you and every living creature of all flesh; and the waters will no more become a flood to destroy _and_ make all flesh corrupt. 
+I will [earnestly] remember My covenant or solemn pledge which is between Me and you and every living creature of all flesh; and the waters will no more become a flood to destroy and make all flesh corrupt. 
 
 
 
@@ -343,7 +343,7 @@ I will [earnestly] remember My covenant _or_ solemn pledge which is between Me a
 
 
 
-When the bow [rainbow] is in the clouds and I look upon it, I will [earnestly] remember the everlasting covenant _or_ pledge between God and every living creature of all flesh that is upon the earth. 
+When the bow [rainbow] is in the clouds and I look upon it, I will [earnestly] remember the everlasting covenant or pledge between God and every living creature of all flesh that is upon the earth. 
 
 
 
@@ -364,7 +364,7 @@ When the bow [rainbow] is in the clouds and I look upon it, I will [earnestly] r
 
 
 
-And God said to Noah, This [rainbow] is the token _or_ sign of the covenant _or_ solemn pledge which I have established between Me and all flesh upon the earth. 
+And God said to Noah, This [rainbow] is the token or sign of the covenant or solemn pledge which I have established between Me and all flesh upon the earth. 
 
 
 
@@ -406,7 +406,7 @@ The sons of Noah who went forth from the ark were Shem, Ham, and Japheth. Ham wa
 
 
 
-These are the three sons of Noah, and from them the whole earth was overspread _and_ stocked with inhabitants. 
+These are the three sons of Noah, and from them the whole earth was overspread and stocked with inhabitants. 
 
 
 
@@ -448,7 +448,7 @@ And Noah began to cultivate the ground, and he planted a vineyard.
 
 
 
-And he drank of the wine and became drunk, and he was uncovered _and_ lay naked in his tent. 
+And he drank of the wine and became drunk, and he was uncovered and lay naked in his tent. 
 
 
 
@@ -469,7 +469,7 @@ And he drank of the wine and became drunk, and he was uncovered _and_ lay naked 
 
 
 
-And Ham, the father of Canaan, glanced at _and_ saw the nakedness of his father and told his two brothers outside. 
+And Ham, the father of Canaan, glanced at and saw the nakedness of his father and told his two brothers outside. 
 
 
 
@@ -553,7 +553,7 @@ He exclaimed, Cursed be Canaan! He shall be the servant of servants to his breth
 
 
 
-He also said, Blessed be the Lord, the God of Shem! _And_ blessed by the Lord my God be Shem! And let Canaan be his servant. 
+He also said, Blessed be the Lord, the God of Shem! And blessed by the Lord my God be Shem! And let Canaan be his servant. 
 
 
 

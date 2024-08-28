@@ -28,7 +28,7 @@ next: ['Jer 50']
 
 
 
-Concerning _and_ against the Ammonites: Thus says the Lord: Has Israel no sons [to return after their captivity and claim the territory of Gad east of the Jordan which the Ammonites have taken over]? Has [Israel's Gad] no heir? Why then has Milcom [the god the Ammonites call their king] dispossessed _and_ inherited Gad, and [why do] his people dwell in Gad's cities? 
+Concerning and against the Ammonites: Thus says the Lord: Has Israel no sons [to return after their captivity and claim the territory of Gad east of the Jordan which the Ammonites have taken over]? Has [Israel's Gad] no heir? Why then has Milcom [the god the Ammonites call their king] dispossessed and inherited Gad, and [why do] his people dwell in Gad's cities? 
 
 
 
@@ -91,7 +91,7 @@ Wail, O Heshbon [in Moab, just south of Ammon], for Ai [in Ammon] is laid waste!
 
 
 
-Why do you boast of your valleys? Your valley flows away, O [Ammon] rebellious _and_ faithless daughter, who trusted in her treasures, who said, Who can come against me? 
+Why do you boast of your valleys? Your valley flows away, O [Ammon] rebellious and faithless daughter, who trusted in her treasures, who said, Who can come against me? 
 
 
 
@@ -133,7 +133,7 @@ Behold, I will bring terror upon you, says the Lord, the Lord of hosts, from all
 
 
 
-And afterward I will reverse the captivity of the children of Ammon _and_ restore their fortunes, says the Lord. 
+And afterward I will reverse the captivity of the children of Ammon and restore their fortunes, says the Lord. 
 
 
 
@@ -154,7 +154,7 @@ And afterward I will reverse the captivity of the children of Ammon _and_ restor
 
 
 
-Concerning _and_ against Edom: Thus says the Lord of hosts: Is there no longer wisdom in Teman [a district in Edom]? Has counsel vanished from the intelligent _and_ prudent? Is their wisdom all poured out _and_ used up? 
+Concerning and against Edom: Thus says the Lord of hosts: Is there no longer wisdom in Teman [a district in Edom]? Has counsel vanished from the intelligent and prudent? Is their wisdom all poured out and used up? 
 
 
 
@@ -175,7 +175,7 @@ Concerning _and_ against Edom: Thus says the Lord of hosts: Is there no longer w
 
 
 
-Flee, turn back, dwell deep [in the deserts to escape the Chaldeans], O inhabitants of Dedan [neighbor of Edom]! For I will bring the calamity _and_ destruction of Esau upon him [Edom] when I inspect _and_ punish him. 
+Flee, turn back, dwell deep [in the deserts to escape the Chaldeans], O inhabitants of Dedan [neighbor of Edom]! For I will bring the calamity and destruction of Esau upon him [Edom] when I inspect and punish him. 
 
 
 
@@ -238,7 +238,7 @@ But I have stripped Esau (Edom) bare; I have uncovered his hiding places, and he
 
 
 
-Leave your fatherless children; I will [do what is necessary to] preserve them alive. And let [those who have been made] your widows trust _and_ confide in Me. 
+Leave your fatherless children; I will [do what is necessary to] preserve them alive. And let [those who have been made] your widows trust and confide in Me. 
 
 
 
@@ -343,7 +343,7 @@ For, behold, I will make you [Edom] small among the nations and despised among m
 
 
 
-Your [object of] horror (your idol) has deceived you, and the pride of your heart [has deceived you], O you who dwell in the clefts of the rock [Sela or Petra], who hold _and_ occupy the height of the hill. Though you make your nest as high as the eagle's, I will bring you down from there, says the Lord. 
+Your [object of] horror (your idol) has deceived you, and the pride of your heart [has deceived you], O you who dwell in the clefts of the rock [Sela or Petra], who hold and occupy the height of the hill. Though you make your nest as high as the eagle's, I will bring you down from there, says the Lord. 
 
 
 
@@ -364,7 +364,7 @@ Your [object of] horror (your idol) has deceived you, and the pride of your hear
 
 
 
-And Edom shall be an astonishment _and_ a horror; everyone who goes by it shall be astonished _and_ shall hiss with horror at all its plagues _and_ disasters. 
+And Edom shall be an astonishment and a horror; everyone who goes by it shall be astonished and shall hiss with horror at all its plagues and disasters. 
 
 
 
@@ -406,7 +406,7 @@ As [it was] in the overthrow of Sodom and Gomorrah and their neighboring cities,
 
 
 
-See, there comes up one [Nebuchadnezzar] like a lion from [lurking in] the jungles (the pride) of the Jordan against the strong habitation [of Edom] _and_ into the permanent pastures; for in a twinkling I will drive him [Edom] from there. And I will appoint over him the one whom I choose. For who is like Me? And who will appoint for Me the time _and_ prosecute Me for this proceeding? And what [earthly, national] shepherd can stand before Me _and_ defy Me? 
+See, there comes up one [Nebuchadnezzar] like a lion from [lurking in] the jungles (the pride) of the Jordan against the strong habitation [of Edom] and into the permanent pastures; for in a twinkling I will drive him [Edom] from there. And I will appoint over him the one whom I choose. For who is like Me? And who will appoint for Me the time and prosecute Me for this proceeding? And what [earthly, national] shepherd can stand before Me and defy Me? 
 
 
 
@@ -427,7 +427,7 @@ See, there comes up one [Nebuchadnezzar] like a lion from [lurking in] the jungl
 
 
 
-Therefore hear the plan of the Lord which He has made against Edom, and His purposes which He has formed against the inhabitants of Teman: Surely they shall be dragged away [by Nebuchadnezzar], even the little ones of the flock; surely He shall make their habitation desolate because of them _and_ their fold shocked at their fate. 
+Therefore hear the plan of the Lord which He has made against Edom, and His purposes which He has formed against the inhabitants of Teman: Surely they shall be dragged away [by Nebuchadnezzar], even the little ones of the flock; surely He shall make their habitation desolate because of them and their fold shocked at their fate. 
 
 
 
@@ -490,7 +490,7 @@ Behold, one will come up and fly swiftly like an eagle and spread his wings agai
 
 
 
-Concerning _and_ against Damascus [in Syria]: Hamath and Arpad are confounded _and_ put to shame, for they have heard bad news; they are fainthearted _and_ wasting away; there is trouble _and_ anxiety [like] on a [storm-tossed] sea which cannot rest. 
+Concerning and against Damascus [in Syria]: Hamath and Arpad are confounded and put to shame, for they have heard bad news; they are fainthearted and wasting away; there is trouble and anxiety [like] on a [storm-tossed] sea which cannot rest. 
 
 
 
@@ -511,7 +511,7 @@ Concerning _and_ against Damascus [in Syria]: Hamath and Arpad are confounded _a
 
 
 
-Damascus has become feeble; she has turned to flee, and terror _and_ panic have seized her; anguish and sorrow have taken hold of her, like a woman in childbirth. 
+Damascus has become feeble; she has turned to flee, and terror and panic have seized her; anguish and sorrow have taken hold of her, like a woman in childbirth. 
 
 
 
@@ -658,7 +658,7 @@ Flee, wander far off, dwell deep [in the deserts], O you inhabitants of Hazor [i
 
 
 
-Arise [Nebuchadrezzar], get up into a nation which is at ease, which dwells without care, says the Lord, [a nation] which has neither gates nor bars, which dwells apart _and_ alone. 
+Arise [Nebuchadrezzar], get up into a nation which is at ease, which dwells without care, says the Lord, [a nation] which has neither gates nor bars, which dwells apart and alone. 
 
 
 
@@ -721,7 +721,7 @@ And Hazor shall become a dwelling place of jackals, a desolation forever; no man
 
 
 
-The word of the Lord that came to Jeremiah the prophet concerning _and_ against Elam, in the beginning of the reign of Zedekiah king of Judah, saying, 
+The word of the Lord that came to Jeremiah the prophet concerning and against Elam, in the beginning of the reign of Zedekiah king of Judah, saying, 
 
 
 
@@ -784,7 +784,7 @@ And upon Elam will I bring the four winds from the four corners of heaven; and I
 
 
 
-And I will cause Elam to be dismayed _and_ terrified before their enemies and before those who seek _and_ demand their lives; and I will bring evil _and_ disaster upon them, even My fierce anger, says the Lord. And I will send the sword after them until I have consumed them. 
+And I will cause Elam to be dismayed and terrified before their enemies and before those who seek and demand their lives; and I will bring evil and disaster upon them, even My fierce anger, says the Lord. And I will send the sword after them until I have consumed them. 
 
 
 

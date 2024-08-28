@@ -91,7 +91,7 @@ And the manager of the estate said to himself, What shall I do, seeing that my m
 
 
 
-I have come to know what I will do, so that they [my master's debtors] may accept _and_ welcome me into their houses when I am put out of the management. 
+I have come to know what I will do, so that they [my master's debtors] may accept and welcome me into their houses when I am put out of the management. 
 
 
 
@@ -175,7 +175,7 @@ After that he said to another, And how much do you owe? He said, A hundred measu
 
 
 
-And [his] master praised the dishonest (unjust) manager for acting shrewdly _and_ prudently; for the sons of this age are shrewder _and_ more prudent _and_ wiser in [relation to] their own generation [to their own age and kind] than are the sons of light. 
+And [his] master praised the dishonest (unjust) manager for acting shrewdly and prudently; for the sons of this age are shrewder and more prudent and wiser in [relation to] their own generation [to their own age and kind] than are the sons of light. 
 
 
 
@@ -196,7 +196,7 @@ And [his] master praised the dishonest (unjust) manager for acting shrewdly _and
 
 
 
-And I tell you, make friends for yourselves by means of unrighteous mammon (deceitful riches, money, possessions), so that when it fails, they [those you have favored] may receive _and_ welcome you into the everlasting habitations (dwellings). 
+And I tell you, make friends for yourselves by means of unrighteous mammon (deceitful riches, money, possessions), so that when it fails, they [those you have favored] may receive and welcome you into the everlasting habitations (dwellings). 
 
 
 
@@ -217,7 +217,7 @@ And I tell you, make friends for yourselves by means of unrighteous mammon (dece
 
 
 
-He who is faithful in a very little [thing] is faithful also in much, and he who is dishonest _and_ unjust in a very little [thing] is dishonest _and_ unjust also in much. 
+He who is faithful in a very little [thing] is faithful also in much, and he who is dishonest and unjust in a very little [thing] is dishonest and unjust also in much. 
 
 
 
@@ -280,7 +280,7 @@ And if you have not proved faithful in that which belongs to another [whether Go
 
 
 
-No servant is able to serve two masters; for either he will hate the one and love the other, or he will stand by _and_ be devoted to the one and despise the other. You cannot serve God and mammon (riches, or anything in which you trust and on which you rely). 
+No servant is able to serve two masters; for either he will hate the one and love the other, or he will stand by and be devoted to the one and despise the other. You cannot serve God and mammon (riches, or anything in which you trust and on which you rely). 
 
 
 
@@ -301,7 +301,7 @@ No servant is able to serve two masters; for either he will hate the one and lov
 
 
 
-Now the Pharisees, who were covetous _and_ lovers of money, heard all these things [taken together], and they began to sneer at _and_ ridicule _and_ scoff at Him. 
+Now the Pharisees, who were covetous and lovers of money, heard all these things [taken together], and they began to sneer at and ridicule and scoff at Him. 
 
 
 
@@ -322,7 +322,7 @@ Now the Pharisees, who were covetous _and_ lovers of money, heard all these thin
 
 
 
-But He said to them, You are the ones who declare yourselves just _and_ upright before men, but God knows your hearts. For what is exalted _and_ highly thought of among men is detestable _and_ abhorrent (an abomination) in the sight of God. 
+But He said to them, You are the ones who declare yourselves just and upright before men, but God knows your hearts. For what is exalted and highly thought of among men is detestable and abhorrent (an abomination) in the sight of God. 
 
 
 
@@ -364,7 +364,7 @@ Until John came, there were the Law and the Prophets; since then the good news (
 
 
 
-Yet it is easier for heaven and earth to pass away than for one dot of the Law to fail _and_ become void. 
+Yet it is easier for heaven and earth to pass away than for one dot of the Law to fail and become void. 
 
 
 
@@ -406,7 +406,7 @@ Whoever divorces (dismisses and repudiates) his wife and marries another commits
 
 
 
-There was a certain rich man who [habitually] clothed himself in purple and fine linen and reveled _and_ feasted _and_ made merry in splendor every day. 
+There was a certain rich man who [habitually] clothed himself in purple and fine linen and reveled and feasted and made merry in splendor every day. 
 
 
 
@@ -427,7 +427,7 @@ There was a certain rich man who [habitually] clothed himself in purple and fine
 
 
 
-And at his gate there was [carelessly] dropped down _and_ left a certain utterly destitute man named Lazarus, [reduced to begging alms and] covered with [ulcerated] sores. 
+And at his gate there was [carelessly] dropped down and left a certain utterly destitute man named Lazarus, [reduced to begging alms and] covered with [ulcerated] sores. 
 
 
 
@@ -511,7 +511,7 @@ And in Hades (the realm of the dead), being in torment, he lifted up his eyes an
 
 
 
-And he cried out and said, Father Abraham, have pity _and_ mercy on me and send Lazarus to dip the tip of his finger in water and cool my tongue, for I am in anguish in this flame. 
+And he cried out and said, Father Abraham, have pity and mercy on me and send Lazarus to dip the tip of his finger in water and cool my tongue, for I am in anguish in this flame. 
 
 
 
@@ -532,7 +532,7 @@ And he cried out and said, Father Abraham, have pity _and_ mercy on me and send 
 
 
 
-But Abraham said, Child, remember that you in your lifetime fully received [what is due you in] comforts _and_ delights, and Lazarus in like manner the discomforts _and_ distresses; but now he is comforted here and you are in anguish. 
+But Abraham said, Child, remember that you in your lifetime fully received [what is due you in] comforts and delights, and Lazarus in like manner the discomforts and distresses; but now he is comforted here and you are in anguish. 
 
 
 
@@ -595,7 +595,7 @@ And [the man] said, Then, father, I beseech you to send him to my father's house
 
 
 
-For I have five brothers--so that he may give [solemn] testimony _and_ warn them, lest they too come into this place of torment. 
+For I have five brothers--so that he may give [solemn] testimony and warn them, lest they too come into this place of torment. 
 
 
 
@@ -616,7 +616,7 @@ For I have five brothers--so that he may give [solemn] testimony _and_ warn them
 
 
 
-But Abraham said, They have Moses and the Prophets; let them hear _and_ listen to them. 
+But Abraham said, They have Moses and the Prophets; let them hear and listen to them. 
 
 
 
@@ -658,4 +658,4 @@ But he answered, No, father Abraham, but if someone from the dead goes to them, 
 
 
 
-He said to him, If they do not hear _and_ listen to Moses and the Prophets, neither will they be persuaded _and_ convinced _and_ believe [even] if someone should rise from the dead.
+He said to him, If they do not hear and listen to Moses and the Prophets, neither will they be persuaded and convinced and believe [even] if someone should rise from the dead.

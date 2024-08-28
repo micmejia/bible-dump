@@ -37,7 +37,7 @@ He will pass through Judah, He will overflow and pass over, He will reach up to 
 "Be shattered, O you peoples, and be broken in pieces! Give ear, all you from far countries. Gird yourselves, but be broken in pieces; Gird yourselves, but be broken in pieces. 
 
 ###### 10 
-Take counsel together, but it will come to nothing; Speak the word, but it will not stand, For God _is_ with us." 
+Take counsel together, but it will come to nothing; Speak the word, but it will not stand, For God is with us." 
 
 ## Fear God, Heed His Word 
 
@@ -48,7 +48,7 @@ For the Lord spoke thus to me with a strong hand, and instructed me that I shoul
 "Do not say, 'A conspiracy,' Concerning all that this people call a conspiracy, Nor be afraid of their threats, nor be troubled. 
 
 ###### 13 
-The Lord of hosts, Him you shall hallow; _Let_ Him _be_ your fear, And _let_ Him _be_ your dread. 
+The Lord of hosts, Him you shall hallow; Let Him be your fear, And let Him be your dread. 
 
 ###### 14 
 He will be as a sanctuary, But a stone of stumbling and a rock of offense To both the houses of Israel, As a trap and a snare to the inhabitants of Jerusalem. 
@@ -63,16 +63,16 @@ Bind up the testimony, Seal the law among my disciples.
 And I will wait on the Lord, Who hides His face from the house of Jacob; And I will hope in Him. 
 
 ###### 18 
-Here am I and the children whom the Lord has given me! _We_ are for signs and wonders in Israel From the Lord of hosts, Who dwells in Mount Zion. 
+Here am I and the children whom the Lord has given me! We are for signs and wonders in Israel From the Lord of hosts, Who dwells in Mount Zion. 
 
 ###### 19 
-And when they say to you, "Seek those who are mediums and wizards, who whisper and mutter," should not a people seek their God? _Should they_ _seek_ the dead on behalf of the living? 
+And when they say to you, "Seek those who are mediums and wizards, who whisper and mutter," should not a people seek their God? Should they seek the dead on behalf of the living? 
 
 ###### 20 
-To the law and to the testimony! If they do not speak according to this word, _it is_ because _there_ _is_ no light in them. 
+To the law and to the testimony! If they do not speak according to this word, it is because there is no light in them. 
 
 ###### 21 
 They will pass through it hard-pressed and hungry; and it shall happen, when they are hungry, that they will be enraged and curse their king and their God, and look upward. 
 
 ###### 22 
-Then they will look to the earth, and see trouble and darkness, gloom of anguish; and _they will be_ driven into darkness.
+Then they will look to the earth, and see trouble and darkness, gloom of anguish; and they will be driven into darkness.

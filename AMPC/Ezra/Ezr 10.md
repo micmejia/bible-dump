@@ -48,7 +48,7 @@ Now while Ezra prayed and made confession, weeping and casting himself down befo
 
 
 
-And Shecaniah [II] son of Jehiel [one of the congregation], of the sons of Elam, said to Ezra: We have broken faith _and_ dealt treacherously against our God and have married foreign women of the peoples of the land; yet now there is still hope for Israel in spite of this thing. 
+And Shecaniah [II] son of Jehiel [one of the congregation], of the sons of Elam, said to Ezra: We have broken faith and dealt treacherously against our God and have married foreign women of the peoples of the land; yet now there is still hope for Israel in spite of this thing. 
 
 
 
@@ -90,7 +90,7 @@ Therefore let us make a covenant with our God to put away all the foreign wives 
 
 
 
-Arise, for it is your duty, and we are with you. Be strong _and_ brave and do it. 
+Arise, for it is your duty, and we are with you. Be strong and brave and do it. 
 
 
 
@@ -216,7 +216,7 @@ Then all the men of Judah and Benjamin gathered at Jerusalem within three days. 
 
 
 
-And Ezra the priest stood up and said to them, You have acted wickedly _and_ broken faith [with God] and have married foreign (heathen) women, increasing the guilt of Israel. 
+And Ezra the priest stood up and said to them, You have acted wickedly and broken faith [with God] and have married foreign (heathen) women, increasing the guilt of Israel. 
 
 
 
@@ -237,7 +237,7 @@ And Ezra the priest stood up and said to them, You have acted wickedly _and_ bro
 
 
 
-So now make confession _and_ give thanks to the Lord, the God of your fathers [for not consuming you], and do His will. Separate yourselves from the peoples of the land and from [your] foreign (heathen) wives. 
+So now make confession and give thanks to the Lord, the God of your fathers [for not consuming you], and do His will. Separate yourselves from the peoples of the land and from [your] foreign (heathen) wives. 
 
 
 

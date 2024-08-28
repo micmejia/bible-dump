@@ -70,7 +70,7 @@ Now you, son of man, take up a lamentation over Tyre,
 
 
 
-And say to Tyre, O you who dwell at the entrance to the sea, who are merchant of the peoples of many islands _and_ coastlands, thus says the Lord God: O Tyre, you have thought _and_ said, I am perfect in beauty. 
+And say to Tyre, O you who dwell at the entrance to the sea, who are merchant of the peoples of many islands and coastlands, thus says the Lord God: O Tyre, you have thought and said, I am perfect in beauty. 
 
 
 
@@ -112,7 +112,7 @@ Your borders are in the heart of the seas; your builders have perfected your bea
 
 
 
-They have made all your planks _and_ boards of fir trees from Senir [a peak of Mount Hermon]; they have taken a cedar from Lebanon to make a mast for you. 
+They have made all your planks and boards of fir trees from Senir [a peak of Mount Hermon]; they have taken a cedar from Lebanon to make a mast for you. 
 
 
 
@@ -133,7 +133,7 @@ They have made all your planks _and_ boards of fir trees from Senir [a peak of M
 
 
 
-Of the oaks of Bashan they have made your oars; they have made your deck _and_ benches of boxwood from the coasts of Cyprus, inlaid with ivory. 
+Of the oaks of Bashan they have made your oars; they have made your deck and benches of boxwood from the coasts of Cyprus, inlaid with ivory. 
 
 
 
@@ -175,7 +175,7 @@ Of fine linen with embroidered work from Egypt was your sail, that it might be a
 
 
 
-The inhabitants of Sidon and [the island] of Arvad were your oarsmen; your skilled _and_ wise men, O Tyre, were in you; they were your pilots. 
+The inhabitants of Sidon and [the island] of Arvad were your oarsmen; your skilled and wise men, O Tyre, were in you; they were your pilots. 
 
 
 
@@ -196,7 +196,7 @@ The inhabitants of Sidon and [the island] of Arvad were your oarsmen; your skill
 
 
 
-The old men of Gebal [a city north of Sidon] and its skilled _and_ wise men in you were your calkers; all the ships of the sea with their mariners were in you to deal in your merchandise _and_ trading. 
+The old men of Gebal [a city north of Sidon] and its skilled and wise men in you were your calkers; all the ships of the sea with their mariners were in you to deal in your merchandise and trading. 
 
 
 
@@ -217,7 +217,7 @@ The old men of Gebal [a city north of Sidon] and its skilled _and_ wise men in y
 
 
 
-Persia and Lud and Put were in your army as your men of war; they hung the shield and helmet in you; they gave you beauty _and_ splendor. 
+Persia and Lud and Put were in your army as your men of war; they hung the shield and helmet in you; they gave you beauty and splendor. 
 
 
 
@@ -238,7 +238,7 @@ Persia and Lud and Put were in your army as your men of war; they hung the shiel
 
 
 
-The men of Arvad with your army were upon your walls round about and valorous men [of Gamad] were in your towers; they hung their shields upon your walls round about; they have perfected your beauty _and_ splendor. 
+The men of Arvad with your army were upon your walls round about and valorous men [of Gamad] were in your towers; they hung their shields upon your walls round about; they have perfected your beauty and splendor. 
 
 
 
@@ -322,7 +322,7 @@ They of the house of Togarmah (Armenia) traded for your wares with [chariot] hor
 
 
 
-The men of Dedan [in Arabia] traded with you; many islands _and_ coastlands were your own markets; they brought you in payment _or_ as presents ivory tusks and ebony. 
+The men of Dedan [in Arabia] traded with you; many islands and coastlands were your own markets; they brought you in payment or as presents ivory tusks and ebony. 
 
 
 
@@ -343,7 +343,7 @@ The men of Dedan [in Arabia] traded with you; many islands _and_ coastlands were
 
 
 
-Aram (Syria or Mesopotamia) _and Edom_ traded with you because of the multitude of the wares of your making. They exchanged for your merchandise emeralds, purple, embroidered work, fine linen, coral, and agate _or_ rubies. 
+Aram (Syria or Mesopotamia) and Edom traded with you because of the multitude of the wares of your making. They exchanged for your merchandise emeralds, purple, embroidered work, fine linen, coral, and agate or rubies. 
 
 
 
@@ -364,7 +364,7 @@ Aram (Syria or Mesopotamia) _and Edom_ traded with you because of the multitude 
 
 
 
-Judah and the land of Israel, they were your traders; they exchanged in your market wheat of Minnith [in Ammon], olives _or_ early figs, honey, oil, and balm. 
+Judah and the land of Israel, they were your traders; they exchanged in your market wheat of Minnith [in Ammon], olives or early figs, honey, oil, and balm. 
 
 
 
@@ -511,7 +511,7 @@ Haran and Canneh and Eden [in Mesopotamia], the merchants of Sheba [on the Euphr
 
 
 
-These traded with you in choice fabrics, in bales of garments of blue and embroidered work, and in treasures of many colored rich damask _and_ carpets bound with cords and made firm; in these they traded with you. 
+These traded with you in choice fabrics, in bales of garments of blue and embroidered work, and in treasures of many colored rich damask and carpets bound with cords and made firm; in these they traded with you. 
 
 
 
@@ -532,7 +532,7 @@ These traded with you in choice fabrics, in bales of garments of blue and embroi
 
 
 
-The ships of Tarshish were your caravans for your merchandise, and you were replenished [Tyre] and were heavily loaded _and_ made an imposing fleet [in your location] in the heart of the seas. 
+The ships of Tarshish were your caravans for your merchandise, and you were replenished [Tyre] and were heavily loaded and made an imposing fleet [in your location] in the heart of the seas. 
 
 
 
@@ -553,7 +553,7 @@ The ships of Tarshish were your caravans for your merchandise, and you were repl
 
 
 
-Your rowers have brought you out into great _and_ deep waters; the east wind has broken _and_ wrecked you in the heart of the seas. 
+Your rowers have brought you out into great and deep waters; the east wind has broken and wrecked you in the heart of the seas. 
 
 
 
@@ -595,7 +595,7 @@ Your riches, your wares, your merchandise, your oarsmen and your pilots, your ca
 
 
 
-The waves _and_ the countryside shake at the [piercing] sound of the [hopeless, wailing] cry of your pilots. 
+The waves and the countryside shake at the [piercing] sound of the [hopeless, wailing] cry of your pilots. 
 
 
 
@@ -658,7 +658,7 @@ And are heard wailing loudly over you, and they cry bitterly. They cast up dust 
 
 
 
-And they make themselves [utterly] bald for you and gird themselves with sackcloth, and they weep over you in bitterness of heart and with bitter mourning _and_ wailing. 
+And they make themselves [utterly] bald for you and gird themselves with sackcloth, and they weep over you in bitterness of heart and with bitter mourning and wailing. 
 
 
 
@@ -700,7 +700,7 @@ And in their wailing they take up a lamentation for you and lament over you, say
 
 
 
-When your wares came forth from the seas, you met the desire, the demand, _and_ the necessities of many people; you enriched the kings of the earth with your abundant wealth and merchandise. 
+When your wares came forth from the seas, you met the desire, the demand, and the necessities of many people; you enriched the kings of the earth with your abundant wealth and merchandise. 
 
 
 
@@ -742,7 +742,7 @@ Now you are shattered by the seas in the depths of the waters; your merchandise 
 
 
 
-All the inhabitants of the isles _and_ coastlands are astonished _and_ appalled at you, and their kings are horribly frightened _and_ shudder greatly; their faces quiver. 
+All the inhabitants of the isles and coastlands are astonished and appalled at you, and their kings are horribly frightened and shudder greatly; their faces quiver. 
 
 
 
@@ -763,4 +763,4 @@ All the inhabitants of the isles _and_ coastlands are astonished _and_ appalled 
 
 
 
-The merchants among the people hiss over you [with malicious joy]; you have become a horror _and_ a source of terrors. You shall be no more [forever].
+The merchants among the people hiss over you [with malicious joy]; you have become a horror and a source of terrors. You shall be no more [forever].

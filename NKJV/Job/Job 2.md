@@ -16,7 +16,7 @@ Again there was a day when the sons of God came to present themselves before the
 And the Lord said to Satan, "From where do you come?" Satan answered the Lord and said, "From going to and fro on the earth, and from walking back and forth on it." 
 
 ###### 3 
-Then the Lord said to Satan, "Have you considered My servant Job, that _there is_ none like him on the earth, a blameless and upright man, one who fears God and shuns evil? And still he holds fast to his integrity, although you incited Me against him, to destroy him without cause." 
+Then the Lord said to Satan, "Have you considered My servant Job, that there is none like him on the earth, a blameless and upright man, one who fears God and shuns evil? And still he holds fast to his integrity, although you incited Me against him, to destroy him without cause." 
 
 ###### 4 
 So Satan answered the Lord and said, "Skin for skin! Yes, all that a man has he will give for his life. 
@@ -25,7 +25,7 @@ So Satan answered the Lord and said, "Skin for skin! Yes, all that a man has he 
 But stretch out Your hand now, and touch his bone and his flesh, and he will surely curse You to Your face!" 
 
 ###### 6 
-And the Lord said to Satan, "Behold, he _is_ in your hand, but spare his life." 
+And the Lord said to Satan, "Behold, he is in your hand, but spare his life." 
 
 ###### 7 
 So Satan went out from the presence of the Lord, and struck Job with painful boils from the sole of his foot to the crown of his head. 
@@ -48,4 +48,4 @@ Now when Job's three friends heard of all this adversity that had come upon him,
 And when they raised their eyes from afar, and did not recognize him, they lifted their voices and wept; and each one tore his robe and sprinkled dust on his head toward heaven. 
 
 ###### 13 
-So they sat down with him on the ground seven days and seven nights, and no one spoke a word to him, for they saw that _his_ grief was very great.
+So they sat down with him on the ground seven days and seven nights, and no one spoke a word to him, for they saw that his grief was very great.

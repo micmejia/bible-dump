@@ -112,7 +112,7 @@ Whoever will humble himself therefore and become like this little child [trustin
 
 
 
-And whoever receives _and_ accepts _and_ welcomes one little child like this for My sake and in My name receives _and_ accepts _and_ welcomes Me. 
+And whoever receives and accepts and welcomes one little child like this for My sake and in My name receives and accepts and welcomes Me. 
 
 
 
@@ -133,7 +133,7 @@ And whoever receives _and_ accepts _and_ welcomes one little child like this for
 
 
 
-But whoever causes one of these little ones who believe in _and_ acknowledge _and_ cleave to Me to stumble and sin [that is, who entices him or hinders him in right conduct or thought], it would be better (more expedient and profitable or advantageous) for him to have a great millstone fastened around his neck and to be sunk in the depth of the sea. 
+But whoever causes one of these little ones who believe in and acknowledge and cleave to Me to stumble and sin [that is, who entices him or hinders him in right conduct or thought], it would be better (more expedient and profitable or advantageous) for him to have a great millstone fastened around his neck and to be sunk in the depth of the sea. 
 
 
 
@@ -154,7 +154,7 @@ But whoever causes one of these little ones who believe in _and_ acknowledge _an
 
 
 
-Woe to the world for such temptations to sin _and_ influences to do wrong! It is necessary that temptations come, but woe to the person on whose account _or_ by whom the temptation comes! 
+Woe to the world for such temptations to sin and influences to do wrong! It is necessary that temptations come, but woe to the person on whose account or by whom the temptation comes! 
 
 
 
@@ -175,7 +175,7 @@ Woe to the world for such temptations to sin _and_ influences to do wrong! It is
 
 
 
-And if your hand or your foot causes you to stumble _and_ sin, cut it off and throw it away from you; it is better (more profitable and wholesome) for you to enter life maimed or lame than to have two hands or two feet and be thrown into everlasting fire. 
+And if your hand or your foot causes you to stumble and sin, cut it off and throw it away from you; it is better (more profitable and wholesome) for you to enter life maimed or lame than to have two hands or two feet and be thrown into everlasting fire. 
 
 
 
@@ -196,7 +196,7 @@ And if your hand or your foot causes you to stumble _and_ sin, cut it off and th
 
 
 
-And if your eye causes you to stumble _and_ sin, pluck it out and throw it away from you; it is better (more profitable and wholesome) for you to enter life with only one eye than to have two eyes and be thrown into the hell (Gehenna) of fire. 
+And if your eye causes you to stumble and sin, pluck it out and throw it away from you; it is better (more profitable and wholesome) for you to enter life with only one eye than to have two eyes and be thrown into the hell (Gehenna) of fire. 
 
 
 
@@ -217,7 +217,7 @@ And if your eye causes you to stumble _and_ sin, pluck it out and throw it away 
 
 
 
-Beware that you do not despise _or_ feel scornful toward _or_ think little of one of these little ones, for I tell you that in heaven their angels always are in the presence of _and_ look upon the face of My Father Who is in heaven. 
+Beware that you do not despise or feel scornful toward or think little of one of these little ones, for I tell you that in heaven their angels always are in the presence of and look upon the face of My Father Who is in heaven. 
 
 
 
@@ -238,7 +238,7 @@ Beware that you do not despise _or_ feel scornful toward _or_ think little of on
 
 
 
-_For the Son of man came to save [__from the penalty of eternal death] that which was lost._ 
+For the Son of man came to save [from the penalty of eternal death] that which was lost. 
 
 
 
@@ -259,7 +259,7 @@ _For the Son of man came to save [__from the penalty of eternal death] that whic
 
 
 
-What do you think? If a man has a hundred sheep, and one of them has gone astray _and_ gets lost, will he not leave the ninety-nine on the mountain and go in search of the one that is lost? 
+What do you think? If a man has a hundred sheep, and one of them has gone astray and gets lost, will he not leave the ninety-nine on the mountain and go in search of the one that is lost? 
 
 
 
@@ -301,7 +301,7 @@ And if it should be that he finds it, truly I say to you, he rejoices more over 
 
 
 
-Just so it is not the will of My Father Who is in heaven that one of these little ones should be lost _and_ perish. 
+Just so it is not the will of My Father Who is in heaven that one of these little ones should be lost and perish. 
 
 
 
@@ -343,7 +343,7 @@ If your brother wrongs you, go and show him his fault, between you and him priva
 
 
 
-But if he does not listen, take along with you one or two others, so that every word may be confirmed _and_ upheld by the testimony of two or three witnesses. 
+But if he does not listen, take along with you one or two others, so that every word may be confirmed and upheld by the testimony of two or three witnesses. 
 
 
 
@@ -385,7 +385,7 @@ If he pays no attention to them [refusing to listen and obey], tell it to the ch
 
 
 
-Truly I tell you, whatever you forbid _and_ declare to be improper and unlawful on earth must be what is already forbidden in heaven, and whatever you permit _and_ declare proper and lawful on earth must be what is already permitted in heaven. 
+Truly I tell you, whatever you forbid and declare to be improper and unlawful on earth must be what is already forbidden in heaven, and whatever you permit and declare proper and lawful on earth must be what is already permitted in heaven. 
 
 
 
@@ -406,7 +406,7 @@ Truly I tell you, whatever you forbid _and_ declare to be improper and unlawful 
 
 
 
-Again I tell you, if two of you on earth agree (harmonize together, make a symphony together) about whatever [anything and everything] they may ask, it will come to pass _and_ be done for them by My Father in heaven. 
+Again I tell you, if two of you on earth agree (harmonize together, make a symphony together) about whatever [anything and everything] they may ask, it will come to pass and be done for them by My Father in heaven. 
 
 
 
@@ -448,7 +448,7 @@ For wherever two or three are gathered (drawn together as My followers) in (into
 
 
 
-Then Peter came up to Him and said, Lord, how many times may my brother sin against me and I forgive him _and_ let it go? [As many as] up to seven times? 
+Then Peter came up to Him and said, Lord, how many times may my brother sin against me and I forgive him and let it go? [As many as] up to seven times? 
 
 
 
@@ -616,7 +616,7 @@ But that same attendant, as he went out, found one of his fellow attendants who 
 
 
 
-So his fellow attendant fell down and begged him earnestly, Give me time, and I will pay you _all_! 
+So his fellow attendant fell down and begged him earnestly, Give me time, and I will pay you all! 
 
 
 
@@ -679,7 +679,7 @@ When his fellow attendants saw what had happened, they were greatly distressed, 
 
 
 
-Then his master called him and said to him, You contemptible _and_ wicked attendant! I forgave _and_ cancelled all that [great] debt of yours because you begged me to. 
+Then his master called him and said to him, You contemptible and wicked attendant! I forgave and cancelled all that [great] debt of yours because you begged me to. 
 
 
 
@@ -700,7 +700,7 @@ Then his master called him and said to him, You contemptible _and_ wicked attend
 
 
 
-And should you not have had pity _and_ mercy on your fellow attendant, as I had pity _and_ mercy on you? 
+And should you not have had pity and mercy on your fellow attendant, as I had pity and mercy on you? 
 
 
 
@@ -742,4 +742,4 @@ And in wrath his master turned him over to the torturers (the jailers), till he 
 
 
 
-So also My heavenly Father will deal with every one of you if you do not freely forgive your brother from your heart _his offenses_.
+So also My heavenly Father will deal with every one of you if you do not freely forgive your brother from your heart his offenses.

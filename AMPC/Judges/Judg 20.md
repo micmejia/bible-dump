@@ -469,7 +469,7 @@ The Benjamites came forth out of Gibeah and felled to the ground that day 22,000
 
 
 
-But the people, the men of Israel, took courage _and_ strengthened themselves and again set their battle line in the same place where they formed it the first day. 
+But the people, the men of Israel, took courage and strengthened themselves and again set their battle line in the same place where they formed it the first day. 
 
 
 
@@ -889,7 +889,7 @@ When the men of Israel turned back again, the men of Benjamin were dismayed, for
 
 
 
-Therefore they turned their backs before the men of Israel and fled toward the wilderness, but the battle followed close behind _and_ overtook them; and the inhabitants of the cities destroyed those [Benjamites] who came through them in their midst. 
+Therefore they turned their backs before the men of Israel and fled toward the wilderness, but the battle followed close behind and overtook them; and the inhabitants of the cities destroyed those [Benjamites] who came through them in their midst. 
 
 
 
@@ -910,7 +910,7 @@ Therefore they turned their backs before the men of Israel and fled toward the w
 
 
 
-They surrounded the Benjamites, pursued them, and overtook _and_ trod them down at their resting-place as far as opposite Gibeah toward the east. 
+They surrounded the Benjamites, pursued them, and overtook and trod them down at their resting-place as far as opposite Gibeah toward the east. 
 
 
 

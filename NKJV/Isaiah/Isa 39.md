@@ -19,16 +19,16 @@ And Hezekiah was pleased with them, and showed them the house of his treasures--
 Then Isaiah the prophet went to King Hezekiah, and said to him, "What did these men say, and from where did they come to you?" So Hezekiah said, "They came to me from a far country, from Babylon." 
 
 ###### 4 
-And he said, "What have they seen in your house?" So Hezekiah answered, "They have seen all that _is_ in my house; there is nothing among my treasures that I have not shown them." 
+And he said, "What have they seen in your house?" So Hezekiah answered, "They have seen all that is in my house; there is nothing among my treasures that I have not shown them." 
 
 ###### 5 
 Then Isaiah said to Hezekiah, "Hear the word of the Lord of hosts: 
 
 ###### 6 
-'Behold, the days are coming when all that _is_ in your house, and what your fathers have accumulated until this day, shall be carried to Babylon; nothing shall be left,' says the Lord. 
+'Behold, the days are coming when all that is in your house, and what your fathers have accumulated until this day, shall be carried to Babylon; nothing shall be left,' says the Lord. 
 
 ###### 7 
-'And they shall take away _some_ of your sons who will descend from you, whom you will beget; and they shall be eunuchs in the palace of the king of Babylon.' " 
+'And they shall take away some of your sons who will descend from you, whom you will beget; and they shall be eunuchs in the palace of the king of Babylon.' " 
 
 ###### 8 
-So Hezekiah said to Isaiah, "The word of the Lord which you have spoken _is_ good!" For he said, "At least there will be peace and truth in my days."
+So Hezekiah said to Isaiah, "The word of the Lord which you have spoken is good!" For he said, "At least there will be peace and truth in my days."

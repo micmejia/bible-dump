@@ -343,7 +343,7 @@ And the Jews that were in Shushan gathered together on the fourteenth day also o
 
 
 
-And the other Jews who were in the king's provinces gathered to defend their lives and had relief _and_ rest from their enemies and slew of them that hated them 75,000; but on the spoil they laid not their hands. 
+And the other Jews who were in the king's provinces gathered to defend their lives and had relief and rest from their enemies and slew of them that hated them 75,000; but on the spoil they laid not their hands. 
 
 
 
@@ -511,7 +511,7 @@ So the Jews undertook to do as they had begun and as Mordecai had written to the
 
 
 
-Because Haman son of Hammedatha, the Agagite, the enemy of all the Jews, had plotted against the Jews to destroy them and had cast Pur, that is, the lot, [to find a lucky day] to crush _and_ consume and destroy them. 
+Because Haman son of Hammedatha, the Agagite, the enemy of all the Jews, had plotted against the Jews to destroy them and had cast Pur, that is, the lot, [to find a lucky day] to crush and consume and destroy them. 
 
 
 

@@ -573,7 +573,7 @@ And Joshua wrote these words in the Book of the Law of God; and he took a great 
 
 
 
-And Joshua said to all the people, See, this stone shall be a witness against us, for it has heard all the words the Lord spoke to us; so it shall be a witness against you, lest [afterward] you lie (pretend) _and_ deny your God. 
+And Joshua said to all the people, See, this stone shall be a witness against us, for it has heard all the words the Lord spoke to us; so it shall be a witness against you, lest [afterward] you lie (pretend) and deny your God. 
 
 
 

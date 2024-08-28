@@ -18,25 +18,25 @@ And you [He made alive], when you were dead (slain) by [your] trespasses and sin
 ###### 2 
 
 
-In which at one time you walked [habitually]. You were following the course _and_ fashion of this world [were under the sway of the tendency of this present age], following the prince of the power of the air. [You were obedient to and under the control of] the [demon] spirit that still constantly works in the sons of disobedience [the careless, the rebellious, and the unbelieving, who go against the purposes of God]. 
+In which at one time you walked [habitually]. You were following the course and fashion of this world [were under the sway of the tendency of this present age], following the prince of the power of the air. [You were obedient to and under the control of] the [demon] spirit that still constantly works in the sons of disobedience [the careless, the rebellious, and the unbelieving, who go against the purposes of God]. 
 
 
 ###### 3 
 
 
-Among these we as well as you once lived _and_ conducted ourselves in the passions of our flesh [our behavior governed by our corrupt and sensual nature], obeying the impulses of the flesh and the thoughts of the mind [our cravings dictated by our senses and our dark imaginings]. We were then by nature children of [God's] wrath _and_ heirs of [His] indignation, like the rest of mankind. 
+Among these we as well as you once lived and conducted ourselves in the passions of our flesh [our behavior governed by our corrupt and sensual nature], obeying the impulses of the flesh and the thoughts of the mind [our cravings dictated by our senses and our dark imaginings]. We were then by nature children of [God's] wrath and heirs of [His] indignation, like the rest of mankind. 
 
 
 ###### 4 
 
 
-But God--so rich is He in His mercy! Because of _and_ in order to satisfy the great _and_ wonderful _and_ intense love with which He loved us, 
+But God--so rich is He in His mercy! Because of and in order to satisfy the great and wonderful and intense love with which He loved us, 
 
 
 ###### 5 
 
 
-Even when we were dead (slain) by [our own] shortcomings _and_ trespasses, He made us alive together in fellowship _and_ in union with Christ; [He gave us the very life of Christ Himself, the same new life with which He quickened Him, for] it is by grace (His favor and mercy which you did not deserve) that you are saved (delivered from judgment and made partakers of Christ's salvation). 
+Even when we were dead (slain) by [our own] shortcomings and trespasses, He made us alive together in fellowship and in union with Christ; [He gave us the very life of Christ Himself, the same new life with which He quickened Him, for] it is by grace (His favor and mercy which you did not deserve) that you are saved (delivered from judgment and made partakers of Christ's salvation). 
 
 
 ###### 6 
@@ -48,13 +48,13 @@ And He raised us up together with Him and made us sit down together [giving us j
 ###### 7 
 
 
-He did this that He might clearly demonstrate through the ages to come the immeasurable (limitless, surpassing) riches of His free grace (His unmerited favor) in [His] kindness _and_ goodness of heart toward us in Christ Jesus. 
+He did this that He might clearly demonstrate through the ages to come the immeasurable (limitless, surpassing) riches of His free grace (His unmerited favor) in [His] kindness and goodness of heart toward us in Christ Jesus. 
 
 
 ###### 8 
 
 
-For it is by free grace (God's unmerited favor) that you are saved (delivered from judgment _and_ made partakers of Christ's salvation) through [your] faith. And this [salvation] is not of yourselves [of your own doing, it came not through your own striving], but it is the gift of God; 
+For it is by free grace (God's unmerited favor) that you are saved (delivered from judgment and made partakers of Christ's salvation) through [your] faith. And this [salvation] is not of yourselves [of your own doing, it came not through your own striving], but it is the gift of God; 
 
 
 ###### 9 
@@ -78,7 +78,7 @@ Therefore, remember that at one time you were Gentiles (heathens) in the flesh, 
 ###### 12 
 
 
-[Remember] that you were at that time separated (living apart) from Christ [excluded from all part in Him], utterly estranged _and_ outlawed from the rights of Israel as a nation, and strangers with no share in the sacred compacts of the [Messianic] promise [with no knowledge of or right in God's agreements, His covenants]. And you had no hope (no promise); you were in the world without God. 
+[Remember] that you were at that time separated (living apart) from Christ [excluded from all part in Him], utterly estranged and outlawed from the rights of Israel as a nation, and strangers with no share in the sacred compacts of the [Messianic] promise [with no knowledge of or right in God's agreements, His covenants]. And you had no hope (no promise); you were in the world without God. 
 
 
 ###### 13 
@@ -102,7 +102,7 @@ By abolishing in His [own crucified] flesh the enmity [caused by] the Law with i
 ###### 16 
 
 
-And [He designed] to reconcile to God both [Jew and Gentile, united] in a single body by means of His cross, thereby killing the mutual enmity _and_ bringing the feud to an end. 
+And [He designed] to reconcile to God both [Jew and Gentile, united] in a single body by means of His cross, thereby killing the mutual enmity and bringing the feud to an end. 
 
 
 ###### 17 

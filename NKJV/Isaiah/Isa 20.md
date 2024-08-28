@@ -16,7 +16,7 @@ In the year that Tartan came to Ashdod, when Sargon the king of Assyria sent him
 at the same time the Lord spoke by Isaiah the son of Amoz, saying, "Go, and remove the sackcloth from your body, and take your sandals off your feet." And he did so, walking naked and barefoot. 
 
 ###### 3 
-Then the Lord said, "Just as My servant Isaiah has walked naked and barefoot three years _for_ a sign and a wonder against Egypt and Ethiopia, 
+Then the Lord said, "Just as My servant Isaiah has walked naked and barefoot three years for a sign and a wonder against Egypt and Ethiopia, 
 
 ###### 4 
 so shall the king of Assyria lead away the Egyptians as prisoners and the Ethiopians as captives, young and old, naked and barefoot, with their buttocks uncovered, to the shame of Egypt. 
@@ -25,4 +25,4 @@ so shall the king of Assyria lead away the Egyptians as prisoners and the Ethiop
 Then they shall be afraid and ashamed of Ethiopia their expectation and Egypt their glory. 
 
 ###### 6 
-And the inhabitant of this territory will say in that day, 'Surely such _is_ our expectation, wherever we flee for help to be delivered from the king of Assyria; and how shall we escape?' "
+And the inhabitant of this territory will say in that day, 'Surely such is our expectation, wherever we flee for help to be delivered from the king of Assyria; and how shall we escape?' "

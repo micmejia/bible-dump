@@ -49,7 +49,7 @@ And the Lord said to Moses,
 
 
 
-Say to the Israelites, If anyone shall sin through error _or_ unwittingly in any of the things which the Lord has commanded not to be done, and shall do any one of them-- 
+Say to the Israelites, If anyone shall sin through error or unwittingly in any of the things which the Lord has commanded not to be done, and shall do any one of them-- 
 
 
 
@@ -469,7 +469,7 @@ And he shall carry forth the bull outside the camp and burn it as he burned the 
 
 
 
-When a ruler _or_ leader sins and unwittingly does any one of the things the Lord his God has forbidden, and is guilty, 
+When a ruler or leader sins and unwittingly does any one of the things the Lord his God has forbidden, and is guilty, 
 
 
 
@@ -658,7 +658,7 @@ And the priest shall take some of its blood with his finger and put it on the ho
 
 
 
-And all the fat of it he shall take away, as the fat is taken away from off the sacrifice of peace offerings; and the priest shall burn it on the altar for a sweet _and_ satisfying fragrance to the Lord; and the priest shall make atonement for [the man], and he shall be forgiven. 
+And all the fat of it he shall take away, as the fat is taken away from off the sacrifice of peace offerings; and the priest shall burn it on the altar for a sweet and satisfying fragrance to the Lord; and the priest shall make atonement for [the man], and he shall be forgiven. 
 
 
 

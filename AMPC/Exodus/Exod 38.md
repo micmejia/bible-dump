@@ -70,7 +70,7 @@ He made its horns on the four corners of it; the horns were of one piece with it
 
 
 
-He made all the utensils _and_ vessels of the altar, the pots, shovels, basins, forks _or_ fleshhooks, and firepans; all its utensils _and_ vessels he made of bronze. 
+He made all the utensils and vessels of the altar, the pots, shovels, basins, forks or fleshhooks, and firepans; all its utensils and vessels he made of bronze. 
 
 
 
@@ -217,7 +217,7 @@ And he made the court: for the south side the hangings of the court were of fine
 
 
 
-Their pillars and their bronze sockets _or_ bases were twenty; the hooks of the pillars and their joinings were silver. 
+Their pillars and their bronze sockets or bases were twenty; the hooks of the pillars and their joinings were silver. 
 
 
 
@@ -238,7 +238,7 @@ Their pillars and their bronze sockets _or_ bases were twenty; the hooks of the 
 
 
 
-And for the north side the hangings were [also] a hundred cubits; their pillars and their sockets _or_ bases of bronze were twenty; the hooks of the pillars and their joinings were of silver. 
+And for the north side the hangings were [also] a hundred cubits; their pillars and their sockets or bases of bronze were twenty; the hooks of the pillars and their joinings were of silver. 
 
 
 
@@ -259,7 +259,7 @@ And for the north side the hangings were [also] a hundred cubits; their pillars 
 
 
 
-But for the west side were hangings of fifty cubits; their pillars and their sockets _or_ bases were ten; the hooks of the pillars and their joinings were of silver. 
+But for the west side were hangings of fifty cubits; their pillars and their sockets or bases were ten; the hooks of the pillars and their joinings were of silver. 
 
 
 
@@ -301,7 +301,7 @@ And for the front, the east side, fifty cubits.
 
 
 
-The hangings for one side of the gate were fifteen cubits; their pillars three and their sockets _or_ bases three. 
+The hangings for one side of the gate were fifteen cubits; their pillars three and their sockets or bases three. 
 
 
 
@@ -322,7 +322,7 @@ The hangings for one side of the gate were fifteen cubits; their pillars three a
 
 
 
-Also for the other side of the court gate, left and right, were hangings of fifteen cubits; their pillars three and their sockets _or_ bases three. 
+Also for the other side of the court gate, left and right, were hangings of fifteen cubits; their pillars three and their sockets or bases three. 
 
 
 
@@ -385,7 +385,7 @@ The sockets for the pillars were of bronze, the hooks of the pillars and their j
 
 
 
-The hanging _or_ screen for the gate of the court was embroidered in blue, purple, and scarlet [stuff], and fine twined linen; the length was twenty cubits and the height in the breadth was five cubits, corresponding to the hangings of the court. 
+The hanging or screen for the gate of the court was embroidered in blue, purple, and scarlet [stuff], and fine twined linen; the length was twenty cubits and the height in the breadth was five cubits, corresponding to the hangings of the court. 
 
 
 
@@ -511,7 +511,7 @@ With him was Aholiab son of Ahisamach, of the tribe of Dan, an engraver, a skill
 
 
 
-All the gold that was used for the work in all the building _and_ furnishing of the sanctuary, the gold from the offering, was 29 talents and 730 shekels, by the shekel of the sanctuary. 
+All the gold that was used for the work in all the building and furnishing of the sanctuary, the gold from the offering, was 29 talents and 730 shekels, by the shekel of the sanctuary. 
 
 
 
@@ -574,7 +574,7 @@ A beka for each man, that is, half a shekel, by the sanctuary shekel, for everyo
 
 
 
-The 100 talents of silver were for casting the sockets _or_ bases of the sanctuary and of the veil; 100 sockets for the 100 talents, a talent for a socket. 
+The 100 talents of silver were for casting the sockets or bases of the sanctuary and of the veil; 100 sockets for the 100 talents, a talent for a socket. 
 
 
 

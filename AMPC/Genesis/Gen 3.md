@@ -28,7 +28,7 @@ next: ['Gen 4']
 
 
 
-Now the serpent was more subtle _and_ crafty than any living creature of the field which the Lord God had made. And he [Satan] said to the woman, Can it really be that God has said, You shall not eat from every tree of the garden? 
+Now the serpent was more subtle and crafty than any living creature of the field which the Lord God had made. And he [Satan] said to the woman, Can it really be that God has said, You shall not eat from every tree of the garden? 
 
 
 
@@ -112,7 +112,7 @@ But the serpent said to the woman, You shall not surely die,
 
 
 
-For God knows that in the day you eat of it your eyes will be opened, and you will be like God, knowing the difference between good and evil _and_ blessing and calamity. 
+For God knows that in the day you eat of it your eyes will be opened, and you will be like God, knowing the difference between good and evil and blessing and calamity. 
 
 
 
@@ -322,7 +322,7 @@ And the Lord God said to the serpent, Because you have done this, you are cursed
 
 
 
-And I will put enmity between you and the woman, and between your offspring and her Offspring; He will bruise _and_ tread your head underfoot, and you will lie in wait _and_ bruise His heel. 
+And I will put enmity between you and the woman, and between your offspring and her Offspring; He will bruise and tread your head underfoot, and you will lie in wait and bruise His heel. 
 
 
 
@@ -343,7 +343,7 @@ And I will put enmity between you and the woman, and between your offspring and 
 
 
 
-To the woman He said, I will greatly multiply your grief _and_ your suffering in pregnancy _and_ the pangs of childbearing; with spasms of distress you will bring forth children. Yet your desire _and_ craving will be for your husband, and he will rule over you. 
+To the woman He said, I will greatly multiply your grief and your suffering in pregnancy and the pangs of childbearing; with spasms of distress you will bring forth children. Yet your desire and craving will be for your husband, and he will rule over you. 
 
 
 
@@ -364,7 +364,7 @@ To the woman He said, I will greatly multiply your grief _and_ your suffering in
 
 
 
-And to Adam He said, Because you have listened _and_ given heed to the voice of your wife and have eaten of the tree of which I commanded you, saying, You shall not eat of it, the ground is under a curse because of you; in sorrow _and_ toil shall you eat [of the fruits] of it all the days of your life. 
+And to Adam He said, Because you have listened and given heed to the voice of your wife and have eaten of the tree of which I commanded you, saying, You shall not eat of it, the ground is under a curse because of you; in sorrow and toil shall you eat [of the fruits] of it all the days of your life. 
 
 
 
@@ -469,7 +469,7 @@ For Adam also and for his wife the Lord God made long coats (tunics) of skins an
 
 
 
-And the Lord God said, Behold, the man has become like one of Us [the Father, Son, and Holy Spirit], to know [how to distinguish between] good and evil _and_ blessing and calamity; and now, lest he put forth his hand and take also from the tree of life and eat, and live forever-- 
+And the Lord God said, Behold, the man has become like one of Us [the Father, Son, and Holy Spirit], to know [how to distinguish between] good and evil and blessing and calamity; and now, lest he put forth his hand and take also from the tree of life and eat, and live forever-- 
 
 
 
@@ -511,4 +511,4 @@ Therefore the Lord God sent him forth from the Garden of Eden to till the ground
 
 
 
-So [God] drove out the man; and He placed at the east of the Garden of Eden the cherubim and a flaming sword which turned every way, to keep _and_ guard the way to the tree of life.
+So [God] drove out the man; and He placed at the east of the Garden of Eden the cherubim and a flaming sword which turned every way, to keep and guard the way to the tree of life.

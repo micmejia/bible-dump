@@ -33,7 +33,7 @@ And you shall set the laver between the tabernacle of meeting and the altar, and
 You shall set up the court all around, and hang up the screen at the court gate. 
 
 ###### 9 
-"And you shall take the anointing oil, and anoint the tabernacle and all that _is_ in it; and you shall hallow it and all its utensils, and it shall be holy. 
+"And you shall take the anointing oil, and anoint the tabernacle and all that is in it; and you shall hallow it and all its utensils, and it shall be holy. 
 
 ###### 10 
 You shall anoint the altar of the burnt offering and all its utensils, and consecrate the altar. The altar shall be most holy. 
@@ -57,7 +57,7 @@ You shall anoint them, as you anointed their father, that they may minister to M
 Thus Moses did; according to all that the Lord had commanded him, so he did. 
 
 ###### 17 
-And it came to pass in the first month of the second year, on the first _day_ of the month, _that_ the tabernacle was raised up. 
+And it came to pass in the first month of the second year, on the first day of the month, that the tabernacle was raised up. 
 
 ###### 18 
 So Moses raised up the tabernacle, fastened its sockets, set up its boards, put in its bars, and raised up its pillars. 
@@ -66,7 +66,7 @@ So Moses raised up the tabernacle, fastened its sockets, set up its boards, put 
 And he spread out the tent over the tabernacle and put the covering of the tent on top of it, as the Lord had commanded Moses. 
 
 ###### 20 
-He took the Testimony and put _it_ into the ark, inserted the poles through the rings of the ark, and put the mercy seat on top of the ark. 
+He took the Testimony and put it into the ark, inserted the poles through the rings of the ark, and put the mercy seat on top of the ark. 
 
 ###### 21 
 And he brought the ark into the tabernacle, hung up the veil of the covering, and partitioned off the ark of the Testimony, as the Lord had commanded Moses. 
@@ -90,16 +90,16 @@ He put the gold altar in the tabernacle of meeting in front of the veil;
 and he burned sweet incense on it, as the Lord had commanded Moses. 
 
 ###### 28 
-He hung up the screen _at_ the door of the tabernacle. 
+He hung up the screen at the door of the tabernacle. 
 
 ###### 29 
-And he put the altar of burnt offering _before_ the door of the tabernacle of the tent of meeting, and offered upon it the burnt offering and the grain offering, as the Lord had commanded Moses. 
+And he put the altar of burnt offering before the door of the tabernacle of the tent of meeting, and offered upon it the burnt offering and the grain offering, as the Lord had commanded Moses. 
 
 ###### 30 
 He set the laver between the tabernacle of meeting and the altar, and put water there for washing; 
 
 ###### 31 
-and Moses, Aaron, and his sons would wash their hands and their feet _with water_ from it. 
+and Moses, Aaron, and his sons would wash their hands and their feet with water from it. 
 
 ###### 32 
 Whenever they went into the tabernacle of meeting, and when they came near the altar, they washed, as the Lord had commanded Moses. 
@@ -122,4 +122,4 @@ Whenever the cloud was taken up from above the tabernacle, the children of Israe
 But if the cloud was not taken up, then they did not journey till the day that it was taken up. 
 
 ###### 38 
-For the cloud of the Lord _was_ above the tabernacle by day, and fire was over it by night, in the sight of all the house of Israel, throughout all their journeys.
+For the cloud of the Lord was above the tabernacle by day, and fire was over it by night, in the sight of all the house of Israel, throughout all their journeys.

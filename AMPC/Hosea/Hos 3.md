@@ -91,7 +91,7 @@ And I said to her, You shall be [betrothed] to me for many days; you shall not p
 
 
 
-For the children of Israel shall dwell _and_ sit deprived many days, without king or prince, without sacrifice or [idolatrous] pillar, and without ephod [a garment worn by priests when seeking divine counsel] or teraphim (household gods). 
+For the children of Israel shall dwell and sit deprived many days, without king or prince, without sacrifice or [idolatrous] pillar, and without ephod [a garment worn by priests when seeking divine counsel] or teraphim (household gods). 
 
 
 
@@ -112,4 +112,4 @@ For the children of Israel shall dwell _and_ sit deprived many days, without kin
 
 
 
-Afterward shall the children of Israel return and seek the Lord their God, [inquiring of and requiring Him] and [from the line of] David, their King [of kings]; and they shall come in [anxious] fear to the Lord and to His goodness _and_ His good things in the latter days.
+Afterward shall the children of Israel return and seek the Lord their God, [inquiring of and requiring Him] and [from the line of] David, their King [of kings]; and they shall come in [anxious] fear to the Lord and to His goodness and His good things in the latter days.

@@ -28,7 +28,7 @@ next: ['Isa 19']
 
 
 
-Woe to the land whirring with wings which is beyond the rivers of Cush _or_ Ethiopia, 
+Woe to the land whirring with wings which is beyond the rivers of Cush or Ethiopia, 
 
 
 
@@ -91,7 +91,7 @@ All you inhabitants of the world, you who dwell on the earth, when a signal is r
 
 
 
-For thus the Lord has said to me: I will be still and I will look on from My dwelling place, like clear _and_ glowing heat in sunshine, like a fine cloud of mist in the heat of harvest. 
+For thus the Lord has said to me: I will be still and I will look on from My dwelling place, like clear and glowing heat in sunshine, like a fine cloud of mist in the heat of harvest. 
 
 
 
@@ -154,4 +154,4 @@ They [the dead bodies of the slain warriors] shall be left together to the raven
 
 
 
-At that time shall a present be brought to the Lord of hosts from a people tall and polished, from a people terrible from their beginning _and_ feared _and_ dreaded near and far, a nation strong and victorious, whose land the rivers _or_ great channels divide--to the place [of worship] of the Name of the Lord of hosts, to Mount Zion [in Jerusalem].
+At that time shall a present be brought to the Lord of hosts from a people tall and polished, from a people terrible from their beginning and feared and dreaded near and far, a nation strong and victorious, whose land the rivers or great channels divide--to the place [of worship] of the Name of the Lord of hosts, to Mount Zion [in Jerusalem].

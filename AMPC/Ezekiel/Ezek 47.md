@@ -112,7 +112,7 @@ Again he measured a thousand cubits and caused me to pass through the waters, wa
 
 
 
-Afterward he measured a thousand, and it was a river that I could not pass through, for the waters had risen, waters to swim in, a river that could not be passed over _or_ through. 
+Afterward he measured a thousand, and it was a river that I could not pass through, for the waters had risen, waters to swim in, a river that could not be passed over or through. 
 
 
 
@@ -175,7 +175,7 @@ Now when I had returned, behold, on the bank of the river were very many trees o
 
 
 
-Then he said to me, These waters pour out toward the eastern region and go down into the Arabah (the Jordan Valley) and on into the Dead Sea. And when they shall enter into the sea [the sea of putrid waters], the waters shall be healed _and_ made fresh. 
+Then he said to me, These waters pour out toward the eastern region and go down into the Arabah (the Jordan Valley) and on into the Dead Sea. And when they shall enter into the sea [the sea of putrid waters], the waters shall be healed and made fresh. 
 
 
 
@@ -196,7 +196,7 @@ Then he said to me, These waters pour out toward the eastern region and go down 
 
 
 
-And wherever the double river shall go, every living creature which swarms shall live. And there shall be a very great number of fish, because these waters go there that [the waters of the sea] may be healed _and_ made fresh; and everything shall live wherever the river goes. 
+And wherever the double river shall go, every living creature which swarms shall live. And there shall be a very great number of fish, because these waters go there that [the waters of the sea] may be healed and made fresh; and everything shall live wherever the river goes. 
 
 
 
@@ -217,7 +217,7 @@ And wherever the double river shall go, every living creature which swarms shall
 
 
 
-The fishermen shall stand on [the banks of the Dead Sea]; from En-gedi even to En-eglaim shall be a place to spread nets; their fish shall be of very many kinds, as the fish of the Great _or_ Mediterranean Sea. 
+The fishermen shall stand on [the banks of the Dead Sea]; from En-gedi even to En-eglaim shall be a place to spread nets; their fish shall be of very many kinds, as the fish of the Great or Mediterranean Sea. 
 
 
 
@@ -238,7 +238,7 @@ The fishermen shall stand on [the banks of the Dead Sea]; from En-gedi even to E
 
 
 
-But its swamps and marshes will not become wholesome for animal life; they shall [as the river subsides] be left encrusted with salt _and_ given over to it. 
+But its swamps and marshes will not become wholesome for animal life; they shall [as the river subsides] be left encrusted with salt and given over to it. 
 
 
 
@@ -301,7 +301,7 @@ Thus says the Lord God: These shall be the boundaries by which you shall divide 
 
 
 
-And you shall divide it equally. I lifted up My hand _and_ swore to give it to your fathers, and this land shall fall to you as your inheritance. 
+And you shall divide it equally. I lifted up My hand and swore to give it to your fathers, and this land shall fall to you as your inheritance. 
 
 
 
@@ -322,7 +322,7 @@ And you shall divide it equally. I lifted up My hand _and_ swore to give it to y
 
 
 
-And this shall be the boundary of the land on the north side: from the Great _or_ Mediterranean Sea by way of Hethlon to the entrance of Zedad, 
+And this shall be the boundary of the land on the north side: from the Great or Mediterranean Sea by way of Hethlon to the entrance of Zedad, 
 
 
 
@@ -385,7 +385,7 @@ So the boundary shall extend from the [Mediterranean] Sea to Hazar-enan, at the 
 
 
 
-And on the east side you shall measure the boundary from between Hauran and Damascus, and Gilead on one side and the land of Israel on the other, with the Jordan forming the boundary down to the East _or_ Dead Sea. And this [from Damascus to the Dead Sea and including it] is the east side. 
+And on the east side you shall measure the boundary from between Hauran and Damascus, and Gilead on one side and the land of Israel on the other, with the Jordan forming the boundary down to the East or Dead Sea. And this [from Damascus to the Dead Sea and including it] is the east side. 
 
 
 
@@ -406,7 +406,7 @@ And on the east side you shall measure the boundary from between Hauran and Dama
 
 
 
-And the south side [boundary] southward, from Tamar [near the Dead Sea] shall run as far as the waters of Meribath-kadesh, then along the Brook of Egypt to the Great _or_ Mediterranean Sea. And this is the south side. 
+And the south side [boundary] southward, from Tamar [near the Dead Sea] shall run as far as the waters of Meribath-kadesh, then along the Brook of Egypt to the Great or Mediterranean Sea. And this is the south side. 
 
 
 
@@ -427,7 +427,7 @@ And the south side [boundary] southward, from Tamar [near the Dead Sea] shall ru
 
 
 
-On the west side [the boundary] shall be the Great _or_ Mediterranean Sea to a point opposite the entrance of Hamath [north of Mount Hermon]. This is the west side. 
+On the west side [the boundary] shall be the Great or Mediterranean Sea to a point opposite the entrance of Hamath [north of Mount Hermon]. This is the west side. 
 
 
 

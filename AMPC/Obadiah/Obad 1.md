@@ -236,7 +236,7 @@ For the violence you did against your brother Jacob, shame shall cover you, and 
 
 
 
-On the day that you stood aloof [from your brother Jacob]--on the day that strangers took captive his forces _and_ carried off his wealth, and foreigners entered into his gates and cast lots for Jerusalem--you were even as one of them. 
+On the day that you stood aloof [from your brother Jacob]--on the day that strangers took captive his forces and carried off his wealth, and foreigners entered into his gates and cast lots for Jerusalem--you were even as one of them. 
 
 
 
@@ -257,7 +257,7 @@ On the day that you stood aloof [from your brother Jacob]--on the day that stran
 
 
 
-But you should not have gloated over your brother's day, the day when his misfortune came _and_ he was made a stranger; you should not have rejoiced over the sons of Judah in the day of their ruin; you should not have spoken arrogantly in the day of their distress. 
+But you should not have gloated over your brother's day, the day when his misfortune came and he was made a stranger; you should not have rejoiced over the sons of Judah in the day of their ruin; you should not have spoken arrogantly in the day of their distress. 
 
 
 
@@ -278,7 +278,7 @@ But you should not have gloated over your brother's day, the day when his misfor
 
 
 
-You should not have entered the gate of My people in the day of their calamity _and_ ruin; yes, you should not have looked [with delight] on their misery in the day of their calamity _and_ ruin, and not have reached after their army _and_ their possessions in the day of their calamity _and_ ruin. 
+You should not have entered the gate of My people in the day of their calamity and ruin; yes, you should not have looked [with delight] on their misery in the day of their calamity and ruin, and not have reached after their army and their possessions in the day of their calamity and ruin. 
 
 
 
@@ -341,7 +341,7 @@ For the day of the Lord is near upon all the nations. As you have done, it shall
 
 
 
-For as you [Edom] have drunk upon the mountain of My holiness [desecrating it in the wild revelry of the destroyers], so shall all the nations drink continually [in turn, of My wrath]; yes, they shall drink, talk foolishly, _and_ swallow down [the full measure of punishment] and they shall be [destroyed] as though they had not been. 
+For as you [Edom] have drunk upon the mountain of My holiness [desecrating it in the wild revelry of the destroyers], so shall all the nations drink continually [in turn, of My wrath]; yes, they shall drink, talk foolishly, and swallow down [the full measure of punishment] and they shall be [destroyed] as though they had not been. 
 
 
 
@@ -383,7 +383,7 @@ But on Mount Zion [in Jerusalem] there shall be deliverance [for those who escap
 
 
 
-The house of Jacob shall be a fire and the house of Joseph a flame, but the house of Esau shall be stubble; they shall kindle _and_ burn them and consume them, and there shall be no survivor of the house of Esau, for the Lord has spoken it. 
+The house of Jacob shall be a fire and the house of Joseph a flame, but the house of Esau shall be stubble; they shall kindle and burn them and consume them, and there shall be no survivor of the house of Esau, for the Lord has spoken it. 
 
 
 
@@ -446,4 +446,4 @@ And the exiles of this host of the children of Israel who are among the Canaanit
 
 
 
-And deliverers shall go up on Mount Zion to rule _and_ judge Mount Esau, and the kingdom _and_ the kingship shall be the Lord's.
+And deliverers shall go up on Mount Zion to rule and judge Mount Esau, and the kingdom and the kingship shall be the Lord's.

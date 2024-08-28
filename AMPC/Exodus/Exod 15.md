@@ -28,7 +28,7 @@ next: ['Exod 16']
 
 
 
-Then Moses and the Israelites sang this song to the Lord, saying, I will sing to the Lord, for He has triumphed gloriously; the horse and his rider _or_ its chariot has He thrown into the sea. 
+Then Moses and the Israelites sang this song to the Lord, saying, I will sing to the Lord, for He has triumphed gloriously; the horse and his rider or its chariot has He thrown into the sea. 
 
 
 
@@ -280,7 +280,7 @@ You stretched out Your right hand, the earth's [sea] swallowed them.
 
 
 
-You in Your mercy _and_ loving-kindness have led forth the people whom You have redeemed; You have guided them in Your strength to Your holy habitation. 
+You in Your mercy and loving-kindness have led forth the people whom You have redeemed; You have guided them in Your strength to Your holy habitation. 
 
 
 
@@ -343,7 +343,7 @@ Now the chiefs of Edom are dismayed; the mighty men of Moab [renowned for streng
 
 
 
-Terror and dread fall upon them; because of the greatness of Your arm they are as still as a stone--till Your people pass by _and_ over [into Canaan], O Lord, till the people pass by whom You have purchased. 
+Terror and dread fall upon them; because of the greatness of Your arm they are as still as a stone--till Your people pass by and over [into Canaan], O Lord, till the people pass by whom You have purchased. 
 
 
 
@@ -448,7 +448,7 @@ Then Miriam the prophetess, the sister of Aaron, took a timbrel in her hand, and
 
 
 
-And Miriam responded to them, Sing to the Lord, for He has triumphed gloriously _and_ is highly exalted; the horse and his rider He has thrown into the sea. 
+And Miriam responded to them, Sing to the Lord, for He has triumphed gloriously and is highly exalted; the horse and his rider He has thrown into the sea. 
 
 
 
@@ -553,7 +553,7 @@ And he cried to the Lord, and the Lord showed him a tree which he cast into the 
 
 
 
-Saying, If you will diligently hearken to the voice of the Lord your God and will do what is right in His sight, and will listen to _and_ obey His commandments and keep all His statutes, I will put none of the diseases upon you which I brought upon the Egyptians, for I am the Lord Who heals you. 
+Saying, If you will diligently hearken to the voice of the Lord your God and will do what is right in His sight, and will listen to and obey His commandments and keep all His statutes, I will put none of the diseases upon you which I brought upon the Egyptians, for I am the Lord Who heals you. 
 
 
 

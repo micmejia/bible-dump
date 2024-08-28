@@ -91,7 +91,7 @@ And say to it, Thus says the Lord God: Behold, O Mount Seir, I am against you, a
 
 
 
-I will lay your cities waste and you shall be desolate, and you shall know, understand, _and_ realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
+I will lay your cities waste and you shall be desolate, and you shall know, understand, and realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
 
 
 
@@ -196,7 +196,7 @@ And I will fill [Edom's] mountains with his slain men; on your hills and in your
 
 
 
-I will make you a perpetual desolation and your cities shall not be inhabited. Then you will know, understand, _and_ realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
+I will make you a perpetual desolation and your cities shall not be inhabited. Then you will know, understand, and realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
 
 
 
@@ -238,7 +238,7 @@ Because you [Edom] said, These two nations [Israel and Judah] and these two coun
 
 
 
-Therefore, as I live, says the Lord God, I will deal with you according to the anger and envy you showed because of your enmity for them, and I will make Myself known among them [as He Who will judge and punish] when I judge _and_ punish you. 
+Therefore, as I live, says the Lord God, I will deal with you according to the anger and envy you showed because of your enmity for them, and I will make Myself known among them [as He Who will judge and punish] when I judge and punish you. 
 
 
 
@@ -259,7 +259,7 @@ Therefore, as I live, says the Lord God, I will deal with you according to the a
 
 
 
-And you shall know, understand, _and_ realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service], and that I have heard all your revilings _and_ scornful speeches that you have uttered against the mountains of Israel, saying, They are laid waste _and_ desolate; they are given to us to devour. 
+And you shall know, understand, and realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service], and that I have heard all your revilings and scornful speeches that you have uttered against the mountains of Israel, saying, They are laid waste and desolate; they are given to us to devour. 
 
 
 
@@ -280,7 +280,7 @@ And you shall know, understand, _and_ realize that I am the Lord [the Sovereign 
 
 
 
-Thus you have boasted _and_ magnified yourselves against Me with your mouth, multiplying your words against Me; I have heard it. 
+Thus you have boasted and magnified yourselves against Me with your mouth, multiplying your words against Me; I have heard it. 
 
 
 
@@ -301,7 +301,7 @@ Thus you have boasted _and_ magnified yourselves against Me with your mouth, mul
 
 
 
-Thus says the Lord God: While the whole earth rejoices, I will make you a waste _and_ desolation. 
+Thus says the Lord God: While the whole earth rejoices, I will make you a waste and desolation. 
 
 
 
@@ -322,4 +322,4 @@ Thus says the Lord God: While the whole earth rejoices, I will make you a waste 
 
 
 
-As you rejoiced over the inheritance of the house of Israel because it was desolate, so will I deal with you; you shall be a waste _and_ desolation, O Mount Seir and all Edom, all of it. Then they shall know, understand, _and_ realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service].
+As you rejoiced over the inheritance of the house of Israel because it was desolate, so will I deal with you; you shall be a waste and desolation, O Mount Seir and all Edom, all of it. Then they shall know, understand, and realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service].

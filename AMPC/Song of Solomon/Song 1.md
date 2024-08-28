@@ -111,7 +111,7 @@ Draw me! We will run after you! The king brings me into his apartments! We will 
 
 
 
-I am so black; but [you are] lovely _and_ pleasant [the ladies assured her]. O you daughters of Jerusalem, [I am as dark] as the tents of [the Bedouin tribe] Kedar, like the [beautiful] curtains of Solomon! 
+I am so black; but [you are] lovely and pleasant [the ladies assured her]. O you daughters of Jerusalem, [I am as dark] as the tents of [the Bedouin tribe] Kedar, like the [beautiful] curtains of Solomon! 
 
 
 
@@ -132,7 +132,7 @@ I am so black; but [you are] lovely _and_ pleasant [the ladies assured her]. O y
 
 
 
-[Please] do not look at me, [she said, for] I am swarthy. [I have worked out] in the sun _and_ it has left its mark upon me. My stepbrothers were angry with me, and they made me keeper of the vineyards; but my own vineyard [my complexion] I have not kept. 
+[Please] do not look at me, [she said, for] I am swarthy. [I have worked out] in the sun and it has left its mark upon me. My stepbrothers were angry with me, and they made me keeper of the vineyards; but my own vineyard [my complexion] I have not kept. 
 
 
 
@@ -237,7 +237,7 @@ Your cheeks are comely with ornaments, your neck with strings of jewels.
 
 
 
-We will make for you chains _and_ ornaments of gold, studded with silver. 
+We will make for you chains and ornaments of gold, studded with silver. 
 
 
 
@@ -342,7 +342,7 @@ Behold, you are beautiful, my love! Behold, you are beautiful! You have doves' e
 
 
 
-[She cried] Behold, you are beautiful, my beloved [shepherd], yes, delightful! Our arbor _and_ couch are green _and_ leafy. 
+[She cried] Behold, you are beautiful, my beloved [shepherd], yes, delightful! Our arbor and couch are green and leafy. 
 
 
 
@@ -363,4 +363,4 @@ Behold, you are beautiful, my love! Behold, you are beautiful! You have doves' e
 
 
 
-The beams of our house are cedars, and our rafters _and_ panels are cypresses _or_ pines.
+The beams of our house are cedars, and our rafters and panels are cypresses or pines.

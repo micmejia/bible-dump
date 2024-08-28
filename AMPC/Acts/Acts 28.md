@@ -27,7 +27,7 @@ up: ['Acts']
 
 
 
-After we were safe on the island, we knew _and_ recognized that it was called Malta. 
+After we were safe on the island, we knew and recognized that it was called Malta. 
 
 
 
@@ -48,7 +48,7 @@ After we were safe on the island, we knew _and_ recognized that it was called Ma
 
 
 
-And the natives showed us unusual _and_ remarkable kindness, for they kindled a fire and welcomed _and_ received us all, since it had begun to rain and was cold. 
+And the natives showed us unusual and remarkable kindness, for they kindled a fire and welcomed and received us all, since it had begun to rain and was cold. 
 
 
 
@@ -132,7 +132,7 @@ Then [Paul simply] shook off the small creature into the fire and suffered no ev
 
 
 
-However, they were waiting, expecting him to swell up or suddenly drop dead; but when they had watched him a long time and saw nothing fatal _or_ harmful come to him, they changed their minds and kept saying over and over that he was a god. 
+However, they were waiting, expecting him to swell up or suddenly drop dead; but when they had watched him a long time and saw nothing fatal or harmful come to him, they changed their minds and kept saying over and over that he was a god. 
 
 
 
@@ -153,7 +153,7 @@ However, they were waiting, expecting him to swell up or suddenly drop dead; but
 
 
 
-In the vicinity of that place there were estates belonging to the head man of the island, named Publius, who accepted _and_ welcomed _and_ entertained us with hearty hospitality for three days. 
+In the vicinity of that place there were estates belonging to the head man of the island, named Publius, who accepted and welcomed and entertained us with hearty hospitality for three days. 
 
 
 
@@ -216,7 +216,7 @@ After this had occurred, the other people on the island who had diseases also ke
 
 
 
-They showed us every respect _and_ presented many gifts to us, honoring us with many honors; and when we sailed, they provided _and_ put on [board our ship] everything we needed. 
+They showed us every respect and presented many gifts to us, honoring us with many honors; and when we sailed, they provided and put on [board our ship] everything we needed. 
 
 
 
@@ -342,7 +342,7 @@ And the [Christian] brethren there, having had news of us, came as far as the Fo
 
 
 
-When we arrived at Rome, _the centurion delivered the prisoners to the captain of the guard, but_ Paul was permitted to live by himself with the soldier who guarded him. 
+When we arrived at Rome, the centurion delivered the prisoners to the captain of the guard, but Paul was permitted to live by himself with the soldier who guarded him. 
 
 
 
@@ -468,7 +468,7 @@ And they answered him, We have not received any letters about you from Judea, an
 
 
 
-But we think it fitting _and_ are eager to hear from you what it is that you have in mind _and_ believe _and_ what your opinion is, for with regard to this sect it is known to all of us that it is everywhere denounced. 
+But we think it fitting and are eager to hear from you what it is that you have in mind and believe and what your opinion is, for with regard to this sect it is known to all of us that it is everywhere denounced. 
 
 
 
@@ -489,7 +489,7 @@ But we think it fitting _and_ are eager to hear from you what it is that you hav
 
 
 
-So when they had set a day with him, they came in large numbers to his lodging. And he fully set forth _and_ explained the matter to them from morning until night, testifying to the kingdom of God and trying to persuade them concerning Jesus both from the Law of Moses and from the Prophets. 
+So when they had set a day with him, they came in large numbers to his lodging. And he fully set forth and explained the matter to them from morning until night, testifying to the kingdom of God and trying to persuade them concerning Jesus both from the Law of Moses and from the Prophets. 
 
 
 
@@ -510,7 +510,7 @@ So when they had set a day with him, they came in large numbers to his lodging. 
 
 
 
-And some were convinced _and_ believed what he said, and others did not believe. 
+And some were convinced and believed what he said, and others did not believe. 
 
 
 
@@ -552,7 +552,7 @@ And as they disagreed among themselves, they began to leave, [but not before] Pa
 
 
 
-Go to this people and say to them, You will indeed hear _and_ hear with your ears but will not understand, and you will indeed look _and_ look with your eyes but will not see [not perceive, have knowledge of or become acquainted with what you look at, at all]. 
+Go to this people and say to them, You will indeed hear and hear with your ears but will not understand, and you will indeed look and look with your eyes but will not see [not perceive, have knowledge of or become acquainted with what you look at, at all]. 
 
 
 
@@ -573,7 +573,7 @@ Go to this people and say to them, You will indeed hear _and_ hear with your ear
 
 
 
-For the heart (the understanding, the soul) of this people has grown dull (stupid, hardened, and calloused), and their ears are heavy _and_ hard of hearing and they have shut tight their eyes, so that they may not perceive _and_ have knowledge _and_ become acquainted with their eyes and hear with their ears and understand with their souls and turn [to Me and be converted], that I may heal them. 
+For the heart (the understanding, the soul) of this people has grown dull (stupid, hardened, and calloused), and their ears are heavy and hard of hearing and they have shut tight their eyes, so that they may not perceive and have knowledge and become acquainted with their eyes and hear with their ears and understand with their souls and turn [to Me and be converted], that I may heal them. 
 
 
 
@@ -615,7 +615,7 @@ So let it be understood by you then that [this message of] the salvation of God 
 
 
 
-_And when he had said these things, the Jews went away, arguing and disputing among themselves._ 
+And when he had said these things, the Jews went away, arguing and disputing among themselves. 
 
 
 
@@ -657,4 +657,4 @@ After this Paul lived there for two entire years [at his own expense] in his own
 
 
 
-Preaching to them the kingdom of God and teaching them about the Lord Jesus Christ with boldness _and_ quite openly, and without being molested _or_ hindered.
+Preaching to them the kingdom of God and teaching them about the Lord Jesus Christ with boldness and quite openly, and without being molested or hindered.

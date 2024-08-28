@@ -112,7 +112,7 @@ For the day of vengeance was in My heart, and My year of redemption [the year of
 
 
 
-And I looked, but there was no one to help; I was amazed _and_ appalled that there was no one to uphold [truth and right]. So My own arm brought Me victory, and My wrath upheld Me. 
+And I looked, but there was no one to help; I was amazed and appalled that there was no one to uphold [truth and right]. So My own arm brought Me victory, and My wrath upheld Me. 
 
 
 
@@ -301,7 +301,7 @@ Who led them through the depths, like a horse in the wilderness, so that they di
 
 
 
-Like the cattle that go down into the valley [to find better pasturage, refuge, and rest], the Spirit of the Lord caused them to rest. So did You lead Your people [Lord] to make for Yourself a beautiful _and_ glorious name [to prepare the way for the acknowledgment of Your name by all nations]. 
+Like the cattle that go down into the valley [to find better pasturage, refuge, and rest], the Spirit of the Lord caused them to rest. So did You lead Your people [Lord] to make for Yourself a beautiful and glorious name [to prepare the way for the acknowledgment of Your name by all nations]. 
 
 
 
@@ -322,7 +322,7 @@ Like the cattle that go down into the valley [to find better pasturage, refuge, 
 
 
 
-Look down from heaven and see from the dwelling place of Your holiness and Your glory. Where are Your zeal _and_ Your jealousy and Your mighty acts [which you formerly did for Your people]? Your yearning pity and the [multitude of] compassions of Your heart are restrained _and_ withheld from me. 
+Look down from heaven and see from the dwelling place of Your holiness and Your glory. Where are Your zeal and Your jealousy and Your mighty acts [which you formerly did for Your people]? Your yearning pity and the [multitude of] compassions of Your heart are restrained and withheld from me. 
 
 
 

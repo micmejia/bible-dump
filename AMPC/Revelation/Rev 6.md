@@ -36,7 +36,7 @@ And another horse came out, flaming red. And its rider was empowered to take the
 ###### 5 
 
 
-When He broke open the third seal, I heard the third living creature call out, Come _and look_! And I saw, and behold, a black horse, and in his hand the rider had a pair of scales (a balance). 
+When He broke open the third seal, I heard the third living creature call out, Come and look! And I saw, and behold, a black horse, and in his hand the rider had a pair of scales (a balance). 
 
 
 ###### 6 
@@ -54,7 +54,7 @@ When the Lamb broke open the fourth seal, I heard the fourth living creature cal
 ###### 8 
 
 
-So I looked, and behold, an ashy pale horse [black and blue as if made so by bruising], and its rider's name was Death, and Hades (the realm of the dead) followed him closely. And they were given authority _and_ power over a fourth part of the earth to kill with the sword and with famine and with plague (pestilence, disease) and with wild beasts of the earth. 
+So I looked, and behold, an ashy pale horse [black and blue as if made so by bruising], and its rider's name was Death, and Hades (the realm of the dead) followed him closely. And they were given authority and power over a fourth part of the earth to kill with the sword and with famine and with plague (pestilence, disease) and with wild beasts of the earth. 
 
 
 ###### 9 
@@ -72,7 +72,7 @@ They cried in a loud voice, O [Sovereign] Lord, holy and true, how long now befo
 ###### 11 
 
 
-Then they were each given a long _and_ flowing _and_ festive white robe and told to rest _and_ wait patiently a little while longer, until the number should be complete of their fellow servants and their brethren who were to be killed as they themselves had been. 
+Then they were each given a long and flowing and festive white robe and told to rest and wait patiently a little while longer, until the number should be complete of their fellow servants and their brethren who were to be killed as they themselves had been. 
 
 
 ###### 12 
@@ -90,7 +90,7 @@ And the stars of the sky dropped to the earth like a fig tree shedding its unrip
 ###### 14 
 
 
-And the sky rolled up like a scroll _and_ vanished, and every mountain and island was dislodged from its place. 
+And the sky rolled up like a scroll and vanished, and every mountain and island was dislodged from its place. 
 
 
 ###### 15 
@@ -102,7 +102,7 @@ Then the kings of the earth and their noblemen and their magnates and their mili
 ###### 16 
 
 
-And they called to the mountains and the rocks, Fall on (before) us and hide us from the face of Him Who sits on the throne and from the deep-seated indignation _and_ wrath of the Lamb. 
+And they called to the mountains and the rocks, Fall on (before) us and hide us from the face of Him Who sits on the throne and from the deep-seated indignation and wrath of the Lamb. 
 
 
 ###### 17 

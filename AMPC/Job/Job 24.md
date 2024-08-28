@@ -91,7 +91,7 @@ They drive away the donkey of the fatherless; they take the widow's ox for a ple
 
 
 
-They crowd the poor _and_ needy off the road; the poor _and_ meek of the earth all hide themselves. 
+They crowd the poor and needy off the road; the poor and meek of the earth all hide themselves. 
 
 
 
@@ -112,7 +112,7 @@ They crowd the poor _and_ needy off the road; the poor _and_ meek of the earth a
 
 
 
-Behold, as wild asses in the desert, [the poor] go forth to their work, seeking diligently for prey _and_ food; the wilderness yields them bread for their children [in roots and herbage]. 
+Behold, as wild asses in the desert, [the poor] go forth to their work, seeking diligently for prey and food; the wilderness yields them bread for their children [in roots and herbage]. 
 
 
 

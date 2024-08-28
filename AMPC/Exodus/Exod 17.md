@@ -49,7 +49,7 @@ All the congregation of the Israelites moved on from the Wilderness of Sin by st
 
 
 
-Therefore, the people contended with Moses, and said, Give us water that we may drink. And Moses said to them, Why do you find fault with me? Why do you tempt the Lord _and_ try His patience? 
+Therefore, the people contended with Moses, and said, Give us water that we may drink. And Moses said to them, Why do you find fault with me? Why do you tempt the Lord and try His patience? 
 
 
 
@@ -154,7 +154,7 @@ Behold, I will stand before you there on the rock at [Mount] Horeb; and you shal
 
 
 
-He called the place Massah [proof] and Meribah [contention] because of the faultfinding of the Israelites and because they tempted _and_ tried the patience of the Lord, saying, Is the Lord among us or not? 
+He called the place Massah [proof] and Meribah [contention] because of the faultfinding of the Israelites and because they tempted and tried the patience of the Lord, saying, Is the Lord among us or not? 
 
 
 
@@ -259,7 +259,7 @@ When Moses held up his hand, Israel prevailed; and when he lowered his hand, Ama
 
 
 
-But Moses' hands were heavy _and_ grew weary. So [the other men] took a stone and put it under him and he sat on it. Then Aaron and Hur held up his hands, one on one side and one on the other side; so his hands were steady until the going down of the sun. 
+But Moses' hands were heavy and grew weary. So [the other men] took a stone and put it under him and he sat on it. Then Aaron and Hur held up his hands, one on one side and one on the other side; so his hands were steady until the going down of the sun. 
 
 
 
@@ -280,7 +280,7 @@ But Moses' hands were heavy _and_ grew weary. So [the other men] took a stone an
 
 
 
-And Joshua mowed down _and_ disabled Amalek and his people with the sword. 
+And Joshua mowed down and disabled Amalek and his people with the sword. 
 
 
 

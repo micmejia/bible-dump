@@ -19,7 +19,7 @@ And it was found written that Mordecai had told of Bigthana and Teresh, two of t
 Then the king said, "What honor or dignity has been bestowed on Mordecai for this?" And the king's servants who attended him said, "Nothing has been done for him." 
 
 ###### 4 
-So the king said, "Who _is_ in the court?" Now Haman had _just_ entered the outer court of the king's palace to suggest that the king hang Mordecai on the gallows that he had prepared for him. 
+So the king said, "Who is in the court?" Now Haman had just entered the outer court of the king's palace to suggest that the king hang Mordecai on the gallows that he had prepared for him. 
 
 ###### 5 
 The king's servants said to him, "Haman is there, standing in the court." And the king said, "Let him come in." 
@@ -28,7 +28,7 @@ The king's servants said to him, "Haman is there, standing in the court." And th
 So Haman came in, and the king asked him, "What shall be done for the man whom the king delights to honor?" Now Haman thought in his heart, "Whom would the king delight to honor more than me?" 
 
 ###### 7 
-And Haman answered the king, "_For_ the man whom the king delights to honor, 
+And Haman answered the king, "For the man whom the king delights to honor, 
 
 ###### 8 
 let a royal robe be brought which the king has worn, and a horse on which the king has ridden, which has a royal crest placed on its head. 
@@ -49,4 +49,4 @@ Afterward Mordecai went back to the king's gate. But Haman hurried to his house,
 When Haman told his wife Zeresh and all his friends everything that had happened to him, his wise men and his wife Zeresh said to him, "If Mordecai, before whom you have begun to fall, is of Jewish descent, you will not prevail against him but will surely fall before him." 
 
 ###### 14 
-While they _were_ still talking with him, the king's eunuchs came, and hastened to bring Haman to the banquet which Esther had prepared.
+While they were still talking with him, the king's eunuchs came, and hastened to bring Haman to the banquet which Esther had prepared.

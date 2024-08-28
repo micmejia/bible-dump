@@ -19,13 +19,13 @@ Then the Lord spoke to Moses and Aaron, saying:
 from thirty years old and above, even to fifty years old, all who enter the service to do the work in the tabernacle of meeting. 
 
 ###### 4 
-"This _is_ the service of the sons of Kohath in the tabernacle of meeting, _relating to_ the most holy things: 
+"This is the service of the sons of Kohath in the tabernacle of meeting, relating to the most holy things: 
 
 ###### 5 
 When the camp prepares to journey, Aaron and his sons shall come, and they shall take down the covering veil and cover the ark of the Testimony with it. 
 
 ###### 6 
-Then they shall put on it a covering of badger skins, and spread over _that_ a cloth entirely of blue; and they shall insert its poles. 
+Then they shall put on it a covering of badger skins, and spread over that a cloth entirely of blue; and they shall insert its poles. 
 
 ###### 7 
 "On the table of showbread they shall spread a blue cloth, and put on it the dishes, the pans, the bowls, and the pitchers for pouring; and the showbread shall be on it. 
@@ -37,13 +37,13 @@ They shall spread over them a scarlet cloth, and cover the same with a covering 
 And they shall take a blue cloth and cover the lampstand of the light, with its lamps, its wick-trimmers, its trays, and all its oil vessels, with which they service it. 
 
 ###### 10 
-Then they shall put it with all its utensils in a covering of badger skins, and put _it_ on a carrying beam. 
+Then they shall put it with all its utensils in a covering of badger skins, and put it on a carrying beam. 
 
 ###### 11 
 "Over the golden altar they shall spread a blue cloth, and cover it with a covering of badger skins; and they shall insert its poles. 
 
 ###### 12 
-Then they shall take all the utensils of service with which they minister in the sanctuary, put _them_ in a blue cloth, cover them with a covering of badger skins, and put _them_ on a carrying beam. 
+Then they shall take all the utensils of service with which they minister in the sanctuary, put them in a blue cloth, cover them with a covering of badger skins, and put them on a carrying beam. 
 
 ###### 13 
 Also they shall take away the ashes from the altar, and spread a purple cloth over it. 
@@ -52,10 +52,10 @@ Also they shall take away the ashes from the altar, and spread a purple cloth ov
 They shall put on it all its implements with which they minister there--the firepans, the forks, the shovels, the basins, and all the utensils of the altar--and they shall spread on it a covering of badger skins, and insert its poles. 
 
 ###### 15 
-And when Aaron and his sons have finished covering the sanctuary and all the furnishings of the sanctuary, when the camp is set to go, then the sons of Kohath shall come to carry _them;_ but they shall not touch any holy thing, lest they die. "These _are_ the things in the tabernacle of meeting which the sons of Kohath are to carry. 
+And when Aaron and his sons have finished covering the sanctuary and all the furnishings of the sanctuary, when the camp is set to go, then the sons of Kohath shall come to carry them; but they shall not touch any holy thing, lest they die. "These are the things in the tabernacle of meeting which the sons of Kohath are to carry. 
 
 ###### 16 
-"The appointed duty of Eleazar the son of Aaron the priest _is_ the oil for the light, the sweet incense, the daily grain offering, the anointing oil, the oversight of all the tabernacle, of all that _is_ in it, with the sanctuary and its furnishings." 
+"The appointed duty of Eleazar the son of Aaron the priest is the oil for the light, the sweet incense, the daily grain offering, the anointing oil, the oversight of all the tabernacle, of all that is in it, with the sanctuary and its furnishings." 
 
 ###### 17 
 Then the Lord spoke to Moses and Aaron, saying: 
@@ -81,36 +81,36 @@ Then the Lord spoke to Moses, saying:
 From thirty years old and above, even to fifty years old, you shall number them, all who enter to perform the service, to do the work in the tabernacle of meeting. 
 
 ###### 24 
-This _is_ the service of the families of the Gershonites, in serving and carrying: 
+This is the service of the families of the Gershonites, in serving and carrying: 
 
 ###### 25 
-They shall carry the curtains of the tabernacle and the tabernacle of meeting _with_ its covering, the covering of badger skins that _is_ on it, the screen for the door of the tabernacle of meeting, 
+They shall carry the curtains of the tabernacle and the tabernacle of meeting with its covering, the covering of badger skins that is on it, the screen for the door of the tabernacle of meeting, 
 
 ###### 26 
-the screen for the door of the gate of the court, the hangings of the court which _are_ around the tabernacle and altar, and their cords, all the furnishings for their service and all that is made for these things: so shall they serve. 
+the screen for the door of the gate of the court, the hangings of the court which are around the tabernacle and altar, and their cords, all the furnishings for their service and all that is made for these things: so shall they serve. 
 
 ###### 27 
 "Aaron and his sons shall assign all the service of the sons of the Gershonites, all their tasks and all their service. And you shall appoint to them all their tasks as their duty. 
 
 ###### 28 
-This _is_ the service of the families of the sons of Gershon in the tabernacle of meeting. And their duties _shall be_ under the authority of Ithamar the son of Aaron the priest.
+This is the service of the families of the sons of Gershon in the tabernacle of meeting. And their duties shall be under the authority of Ithamar the son of Aaron the priest.
 
 ## Duties of the Sons of Merari 
 
 ###### 29 
-"_As for_ the sons of Merari, you shall number them by their families and by their fathers' house. 
+"As for the sons of Merari, you shall number them by their families and by their fathers' house. 
 
 ###### 30 
 From thirty years old and above, even to fifty years old, you shall number them, everyone who enters the service to do the work of the tabernacle of meeting. 
 
 ###### 31 
-And this _is_ what they must carry as all their service for the tabernacle of meeting: the boards of the tabernacle, its bars, its pillars, its sockets, 
+And this is what they must carry as all their service for the tabernacle of meeting: the boards of the tabernacle, its bars, its pillars, its sockets, 
 
 ###### 32 
-and the pillars around the court with their sockets, pegs, and cords, with all their furnishings and all their service; and you shall assign _to each man_ by name the items he must carry. 
+and the pillars around the court with their sockets, pegs, and cords, with all their furnishings and all their service; and you shall assign to each man by name the items he must carry. 
 
 ###### 33 
-This _is_ the service of the families of the sons of Merari, as all their service for the tabernacle of meeting, under the authority of Ithamar the son of Aaron the priest." 
+This is the service of the families of the sons of Merari, as all their service for the tabernacle of meeting, under the authority of Ithamar the son of Aaron the priest." 
 
 ## Census of the Levites 
 
@@ -124,7 +124,7 @@ from thirty years old and above, even to fifty years old, everyone who entered t
 and those who were numbered by their families were two thousand seven hundred and fifty. 
 
 ###### 37 
-These _were_ the ones who were numbered of the families of the Kohathites, all who might serve in the tabernacle of meeting, whom Moses and Aaron numbered according to the commandment of the Lord by the hand of Moses. 
+These were the ones who were numbered of the families of the Kohathites, all who might serve in the tabernacle of meeting, whom Moses and Aaron numbered according to the commandment of the Lord by the hand of Moses. 
 
 ###### 38 
 And those who were numbered of the sons of Gershon, by their families and by their fathers' house, 
@@ -136,7 +136,7 @@ from thirty years old and above, even to fifty years old, everyone who entered t
 those who were numbered by their families, by their fathers' house, were two thousand six hundred and thirty. 
 
 ###### 41 
-These _are_ the ones who were numbered of the families of the sons of Gershon, of all who might serve in the tabernacle of meeting, whom Moses and Aaron numbered according to the commandment of the Lord. 
+These are the ones who were numbered of the families of the sons of Gershon, of all who might serve in the tabernacle of meeting, whom Moses and Aaron numbered according to the commandment of the Lord. 
 
 ###### 42 
 Those of the families of the sons of Merari who were numbered, by their families, by their fathers' house, 
@@ -148,7 +148,7 @@ from thirty years old and above, even to fifty years old, everyone who entered t
 those who were numbered by their families were three thousand two hundred. 
 
 ###### 45 
-These _are_ the ones who were numbered of the families of the sons of Merari, whom Moses and Aaron numbered according to the word of the Lord by the hand of Moses. 
+These are the ones who were numbered of the families of the sons of Merari, whom Moses and Aaron numbered according to the word of the Lord by the hand of Moses. 
 
 ###### 46 
 All who were numbered of the Levites, whom Moses, Aaron, and the leaders of Israel numbered, by their families and by their fathers' houses, 

@@ -90,7 +90,7 @@ Who is left among you who saw this house in its former glory? And how do you see
 
 
 
-Yet now be strong, alert, _and_ courageous, O Zerubbabel, says the Lord; be strong, alert, _and_ courageous, O Joshua son of Jehozadak, the high priest; and be strong, alert, _and_ courageous, all you people of the land, says the Lord, and work! For I am with you, says the Lord of hosts. 
+Yet now be strong, alert, and courageous, O Zerubbabel, says the Lord; be strong, alert, and courageous, O Joshua son of Jehozadak, the high priest; and be strong, alert, and courageous, all you people of the land, says the Lord, and work! For I am with you, says the Lord of hosts. 
 
 
 
@@ -111,7 +111,7 @@ Yet now be strong, alert, _and_ courageous, O Zerubbabel, says the Lord; be stro
 
 
 
-According to the promise that I covenanted with you when you came out of Egypt, so My Spirit stands _and_ abides in the midst of you; fear not. 
+According to the promise that I covenanted with you when you came out of Egypt, so My Spirit stands and abides in the midst of you; fear not. 
 
 
 
@@ -132,7 +132,7 @@ According to the promise that I covenanted with you when you came out of Egypt, 
 
 
 
-For thus says the Lord of hosts: Yet once more, in a little while, I will shake _and_ make tremble the [starry] heavens, the earth, the sea, and the dry land; 
+For thus says the Lord of hosts: Yet once more, in a little while, I will shake and make tremble the [starry] heavens, the earth, the sea, and the dry land; 
 
 
 
@@ -153,7 +153,7 @@ For thus says the Lord of hosts: Yet once more, in a little while, I will shake 
 
 
 
-And I will shake all nations and the desire _and_ the precious things of all nations shall come in, and I will fill this house with splendor, says the Lord of hosts. 
+And I will shake all nations and the desire and the precious things of all nations shall come in, and I will fill this house with splendor, says the Lord of hosts. 
 
 
 
@@ -195,7 +195,7 @@ The silver is Mine and the gold is Mine, says the Lord of hosts.
 
 
 
-The latter glory of this house [with its successor, to which Jesus came] shall be greater than the former, says the Lord of hosts; and in this place will I give peace _and_ prosperity, says the Lord of hosts. 
+The latter glory of this house [with its successor, to which Jesus came] shall be greater than the former, says the Lord of hosts; and in this place will I give peace and prosperity, says the Lord of hosts. 
 
 
 
@@ -258,7 +258,7 @@ Thus says the Lord of hosts: Ask now the priests to decide this question of law:
 
 
 
-If one carries in the skirt of his garment flesh that is holy [because it has been offered in sacrifice to God], and with his skirt _or_ the flaps of his garment he touches bread, or pottage, or wine, or oil, or any kind of food, does what he touches become holy [dedicated to God's service exclusively]? And the priests answered, No! [Holiness is not infectious.] 
+If one carries in the skirt of his garment flesh that is holy [because it has been offered in sacrifice to God], and with his skirt or the flaps of his garment he touches bread, or pottage, or wine, or oil, or any kind of food, does what he touches become holy [dedicated to God's service exclusively]? And the priests answered, No! [Holiness is not infectious.] 
 
 
 
@@ -363,7 +363,7 @@ Through all that time [the harvests have not fulfilled expectations, for] when o
 
 
 
-I smote you with blight and with mildew and with hail in all [the products of] the labors of your hands; yet you returned not _nor_ were converted to Me, says the Lord. 
+I smote you with blight and with mildew and with hail in all [the products of] the labors of your hands; yet you returned not nor were converted to Me, says the Lord. 
 
 
 
@@ -426,7 +426,7 @@ Is the harvested grain any longer in the barn? As to the grapevine, the fig tree
 
 
 
-And again the word of the Lord came to Haggai on the twenty-fourth _day_ of the month, saying, 
+And again the word of the Lord came to Haggai on the twenty-fourth day of the month, saying, 
 
 
 
@@ -489,4 +489,4 @@ And I will [in the distant future] overthrow the throne of kingdoms and I will d
 
 
 
-In that day, says the Lord of hosts, will I take you, O Zerubbabel, My servant, the son of Shealtiel, says the Lord, and will make you [through the Messiah, your descendant] _My_ signet ring; for I have chosen you [as the one with whom to renew My covenant to David's line], says the Lord of hosts.
+In that day, says the Lord of hosts, will I take you, O Zerubbabel, My servant, the son of Shealtiel, says the Lord, and will make you [through the Messiah, your descendant] My signet ring; for I have chosen you [as the one with whom to renew My covenant to David's line], says the Lord of hosts.

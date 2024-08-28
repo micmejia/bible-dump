@@ -90,7 +90,7 @@ His appearance was like lightning, and his garments as white as snow.
 
 
 
-And those keeping guard were so frightened at the sight of him that they were agitated _and_ they trembled and became like dead men. 
+And those keeping guard were so frightened at the sight of him that they were agitated and they trembled and became like dead men. 
 
 
 
@@ -111,7 +111,7 @@ And those keeping guard were so frightened at the sight of him that they were ag
 
 
 
-But the angel said to the women, Do not be alarmed _and_ frightened, for I know that you are looking for Jesus, Who was crucified. 
+But the angel said to the women, Do not be alarmed and frightened, for I know that you are looking for Jesus, Who was crucified. 
 
 
 
@@ -195,7 +195,7 @@ So they left the tomb hastily with fear and great joy and ran to tell the discip
 
 
 
-And _as they went_, behold, Jesus met them and said, Hail (greetings)! And they went up to Him and clasped His feet and worshiped Him. 
+And as they went, behold, Jesus met them and said, Hail (greetings)! And they went up to Him and clasped His feet and worshiped Him. 
 
 
 
@@ -216,7 +216,7 @@ And _as they went_, behold, Jesus met them and said, Hail (greetings)! And they 
 
 
 
-Then Jesus said to them, Do not be alarmed _and_ afraid; go and tell My brethren to go into Galilee, and there they will see Me. 
+Then Jesus said to them, Do not be alarmed and afraid; go and tell My brethren to go into Galilee, and there they will see Me. 
 
 
 
@@ -300,7 +300,7 @@ And said, Tell people, His disciples came at night and stole Him away while we w
 
 
 
-And if the governor hears of it, we will appease him and make you safe _and_ free from trouble _and_ care. 
+And if the governor hears of it, we will appease him and make you safe and free from trouble and care. 
 
 
 
@@ -342,7 +342,7 @@ So they took the money and did as they were instructed; and this story has been 
 
 
 
-Now the eleven disciples went to Galilee, to the mountain to which Jesus had directed _and_ made appointment with them. 
+Now the eleven disciples went to Galilee, to the mountain to which Jesus had directed and made appointment with them. 
 
 
 
@@ -426,4 +426,4 @@ Go then and make disciples of all the nations, baptizing them into the name of t
 
 
 
-Teaching them to observe everything that I have commanded you, and behold, I am with you all the days (perpetually, uniformly, and on every occasion), to the [very] close _and_ consummation of the age. _Amen (so let it be)._
+Teaching them to observe everything that I have commanded you, and behold, I am with you all the days (perpetually, uniformly, and on every occasion), to the [very] close and consummation of the age. Amen (so let it be).

@@ -217,7 +217,7 @@ Then the man of God sent to the king of Israel, saying, Beware that you pass not
 
 
 
-Then the king of Israel sent to the place of which [Elisha] told _and_ warned him; and thus he protected _and_ saved himself there repeatedly. 
+Then the king of Israel sent to the place of which [Elisha] told and warned him; and thus he protected and saved himself there repeatedly. 
 
 
 

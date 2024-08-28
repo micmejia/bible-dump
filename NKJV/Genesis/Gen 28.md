@@ -27,7 +27,7 @@ So Isaac sent Jacob away, and he went to Padan Aram, to Laban the son of Bethuel
 ## Esau Marries Mahalath 
 
 ###### 6 
-Esau saw that Isaac had blessed Jacob and sent him away to Padan Aram to take himself a wife from there, _and that_ as he blessed him he gave him a charge, saying, "You shall not take a wife from the daughters of Canaan," 
+Esau saw that Isaac had blessed Jacob and sent him away to Padan Aram to take himself a wife from there, and that as he blessed him he gave him a charge, saying, "You shall not take a wife from the daughters of Canaan," 
 
 ###### 7 
 and that Jacob had obeyed his father and his mother and had gone to Padan Aram. 
@@ -47,22 +47,22 @@ Now Jacob went out from Beersheba and went toward Haran.
 So he came to a certain place and stayed there all night, because the sun had set. And he took one of the stones of that place and put it at his head, and he lay down in that place to sleep. 
 
 ###### 12 
-Then he dreamed, and behold, a ladder _was_ set up on the earth, and its top reached to heaven; and there the angels of God were ascending and descending on it. 
+Then he dreamed, and behold, a ladder was set up on the earth, and its top reached to heaven; and there the angels of God were ascending and descending on it. 
 
 ###### 13 
-And behold, the Lord stood above it and said: "I _am_ the Lord God of Abraham your father and the God of Isaac; the land on which you lie I will give to you and your descendants. 
+And behold, the Lord stood above it and said: "I am the Lord God of Abraham your father and the God of Isaac; the land on which you lie I will give to you and your descendants. 
 
 ###### 14 
 Also your descendants shall be as the dust of the earth; you shall spread abroad to the west and the east, to the north and the south; and in you and in your seed all the families of the earth shall be blessed. 
 
 ###### 15 
-Behold, I _am_ with you and will keep you wherever you go, and will bring you back to this land; for I will not leave you until I have done what I have spoken to you." 
+Behold, I am with you and will keep you wherever you go, and will bring you back to this land; for I will not leave you until I have done what I have spoken to you." 
 
 ###### 16 
-Then Jacob awoke from his sleep and said, "Surely the Lord is in this place, and I did not know _it._" 
+Then Jacob awoke from his sleep and said, "Surely the Lord is in this place, and I did not know it." 
 
 ###### 17 
-And he was afraid and said, "How awesome _is_ this place! This _is_ none other than the house of God, and this _is_ the gate of heaven!" 
+And he was afraid and said, "How awesome is this place! This is none other than the house of God, and this is the gate of heaven!" 
 
 ###### 18 
 Then Jacob rose early in the morning, and took the stone that he had put at his head, set it up as a pillar, and poured oil on top of it. 

@@ -13,7 +13,7 @@ next: ['2 Kgs 4']
 Now Jehoram the son of Ahab became king over Israel at Samaria in the eighteenth year of Jehoshaphat king of Judah, and reigned twelve years. 
 
 ###### 2 
-And he did evil in the sight of the Lord, but not like his father and mother; for he put away the _sacred_ pillar of Baal that his father had made. 
+And he did evil in the sight of the Lord, but not like his father and mother; for he put away the sacred pillar of Baal that his father had made. 
 
 ###### 3 
 Nevertheless he persisted in the sins of Jeroboam the son of Nebat, who had made Israel sin; he did not depart from them. 
@@ -28,7 +28,7 @@ But it happened, when Ahab died, that the king of Moab rebelled against the king
 So King Jehoram went out of Samaria at that time and mustered all Israel. 
 
 ###### 7 
-Then he went and sent to Jehoshaphat king of Judah, saying, "The king of Moab has rebelled against me. Will you go with me to fight against Moab?" And he said, "I will go up; I _am_ as you _are,_ my people as your people, my horses as your horses." 
+Then he went and sent to Jehoshaphat king of Judah, saying, "The king of Moab has rebelled against me. Will you go with me to fight against Moab?" And he said, "I will go up; I am as you are, my people as your people, my horses as your horses." 
 
 ###### 8 
 Then he said, "Which way shall we go up?" And he answered, "By way of the Wilderness of Edom." 
@@ -40,16 +40,16 @@ So the king of Israel went with the king of Judah and the king of Edom, and they
 And the king of Israel said, "Alas! For the Lord has called these three kings together to deliver them into the hand of Moab." 
 
 ###### 11 
-But Jehoshaphat said, "_Is there_ no prophet of the Lord here, that we may inquire of the Lord by him?" So one of the servants of the king of Israel answered and said, "Elisha the son of Shaphat _is_ here, who poured water on the hands of Elijah." 
+But Jehoshaphat said, "Is there no prophet of the Lord here, that we may inquire of the Lord by him?" So one of the servants of the king of Israel answered and said, "Elisha the son of Shaphat is here, who poured water on the hands of Elijah." 
 
 ###### 12 
 And Jehoshaphat said, "The word of the Lord is with him." So the king of Israel and Jehoshaphat and the king of Edom went down to him. 
 
 ###### 13 
-Then Elisha said to the king of Israel, "What have I to do with you? Go to the prophets of your father and the prophets of your mother." But the king of Israel said to him, "No, for the Lord has called these three kings _together_ to deliver them into the hand of Moab." 
+Then Elisha said to the king of Israel, "What have I to do with you? Go to the prophets of your father and the prophets of your mother." But the king of Israel said to him, "No, for the Lord has called these three kings together to deliver them into the hand of Moab." 
 
 ###### 14 
-And Elisha said, "_As_ the Lord of hosts lives, before whom I stand, surely were it not that I regard the presence of Jehoshaphat king of Judah, I would not look at you, nor see you. 
+And Elisha said, "As the Lord of hosts lives, before whom I stand, surely were it not that I regard the presence of Jehoshaphat king of Judah, I would not look at you, nor see you. 
 
 ###### 15 
 But now bring me a musician." Then it happened, when the musician played, that the hand of the Lord came upon him. 
@@ -73,19 +73,19 @@ Now it happened in the morning, when the grain offering was offered, that sudden
 And when all the Moabites heard that the kings had come up to fight against them, all who were able to bear arms and older were gathered; and they stood at the border. 
 
 ###### 22 
-Then they rose up early in the morning, and the sun was shining on the water; and the Moabites saw the water on the other side _as_ red as blood. 
+Then they rose up early in the morning, and the sun was shining on the water; and the Moabites saw the water on the other side as red as blood. 
 
 ###### 23 
 And they said, "This is blood; the kings have surely struck swords and have killed one another; now therefore, Moab, to the spoil!" 
 
 ###### 24 
-So when they came to the camp of Israel, Israel rose up and attacked the Moabites, so that they fled before them; and they entered _their_ land, killing the Moabites. 
+So when they came to the camp of Israel, Israel rose up and attacked the Moabites, so that they fled before them; and they entered their land, killing the Moabites. 
 
 ###### 25 
-Then they destroyed the cities, and each man threw a stone on every good piece of land and filled it; and they stopped up all the springs of water and cut down all the good trees. But they left the stones of Kir Haraseth _intact._ However the slingers surrounded and attacked it. 
+Then they destroyed the cities, and each man threw a stone on every good piece of land and filled it; and they stopped up all the springs of water and cut down all the good trees. But they left the stones of Kir Haraseth intact. However the slingers surrounded and attacked it. 
 
 ###### 26 
 And when the king of Moab saw that the battle was too fierce for him, he took with him seven hundred men who drew swords, to break through to the king of Edom, but they could not. 
 
 ###### 27 
-Then he took his eldest son who would have reigned in his place, and offered him _as_ a burnt offering upon the wall; and there was great indignation against Israel. So they departed from him and returned to _their own_ land.
+Then he took his eldest son who would have reigned in his place, and offered him as a burnt offering upon the wall; and there was great indignation against Israel. So they departed from him and returned to their own land.

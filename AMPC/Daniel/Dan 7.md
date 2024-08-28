@@ -154,7 +154,7 @@ After this I looked, and behold, another [the Grecian empire of Alexander the Gr
 
 
 
-After this I saw in the night visions, and behold, a fourth beast [the Roman empire]--terrible, powerful _and_ dreadful, and exceedingly strong. And it had great iron teeth; it devoured and crushed and trampled what was left with its feet. And it was different from all the beasts that came before it, and it had ten horns [symbolizing ten kings]. 
+After this I saw in the night visions, and behold, a fourth beast [the Roman empire]--terrible, powerful and dreadful, and exceedingly strong. And it had great iron teeth; it devoured and crushed and trampled what was left with its feet. And it was different from all the beasts that came before it, and it had ten horns [symbolizing ten kings]. 
 
 
 
@@ -217,7 +217,7 @@ I kept looking until thrones were placed [for the assessors with the Judge], and
 
 
 
-A stream of fire came forth from before Him; a thousand thousands ministered to Him and ten thousand times ten thousand rose up _and_ stood before Him; the Judge was seated [the court was in session] and the books were opened. 
+A stream of fire came forth from before Him; a thousand thousands ministered to Him and ten thousand times ten thousand rose up and stood before Him; the Judge was seated [the court was in session] and the books were opened. 
 
 
 
@@ -322,7 +322,7 @@ And there was given Him [the Messiah] dominion and glory and kingdom, that all p
 
 
 
-As for me, Daniel, my spirit was grieved _and_ anxious within me, and the visions of my head alarmed _and_ agitated me. 
+As for me, Daniel, my spirit was grieved and anxious within me, and the visions of my head alarmed and agitated me. 
 
 
 
@@ -406,7 +406,7 @@ But the saints of the Most High [God] shall receive the kingdom and possess the 
 
 
 
-Then I wished to know the truth about the fourth beast--which was different from all the others, exceedingly terrible _and_ shocking, whose teeth were of iron and its nails of bronze, which devoured, broke _and_ crushed, and trampled what was left with its feet-- 
+Then I wished to know the truth about the fourth beast--which was different from all the others, exceedingly terrible and shocking, whose teeth were of iron and its nails of bronze, which devoured, broke and crushed, and trampled what was left with its feet-- 
 
 
 
@@ -490,7 +490,7 @@ Until the Ancient of Days came, and judgment was given to the saints of the Most
 
 
 
-Thus [the angel] said, The fourth beast shall be a fourth kingdom on earth, which shall be different from all other kingdoms and shall devour the whole earth, tread it down, and break it in pieces _and_ crush it. 
+Thus [the angel] said, The fourth beast shall be a fourth kingdom on earth, which shall be different from all other kingdoms and shall devour the whole earth, tread it down, and break it in pieces and crush it. 
 
 
 
@@ -511,7 +511,7 @@ Thus [the angel] said, The fourth beast shall be a fourth kingdom on earth, whic
 
 
 
-And as for the ten horns, out of this kingdom ten kings shall arise; and another shall arise after them, and he shall be different from the former ones, and he shall subdue _and_ put down three kings. 
+And as for the ten horns, out of this kingdom ten kings shall arise; and another shall arise after them, and he shall be different from the former ones, and he shall subdue and put down three kings. 
 
 
 
@@ -595,4 +595,4 @@ And the kingdom and the dominion and the greatness of the kingdom under the whol
 
 
 
-Here is the end of the matter. As for me, Daniel, my [waking] thoughts troubled and alarmed me much and my cheerfulness of countenance was changed in me; but I kept the matter [of the interpreting angel's information] in my heart _and_ mind.
+Here is the end of the matter. As for me, Daniel, my [waking] thoughts troubled and alarmed me much and my cheerfulness of countenance was changed in me; but I kept the matter [of the interpreting angel's information] in my heart and mind.

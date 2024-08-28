@@ -49,7 +49,7 @@ Hear this word that the Lord has spoken against you, O children of Israel, again
 
 
 
-You only have I known (chosen, sympathized with, and loved) of all the families of the earth; therefore I will visit upon you all your wickedness _and_ punish you for all your iniquities. 
+You only have I known (chosen, sympathized with, and loved) of all the families of the earth; therefore I will visit upon you all your wickedness and punish you for all your iniquities. 
 
 
 
@@ -70,7 +70,7 @@ You only have I known (chosen, sympathized with, and loved) of all the families 
 
 
 
-Do two walk together except they make an appointment _and_ have agreed? 
+Do two walk together except they make an appointment and have agreed? 
 
 
 
@@ -133,7 +133,7 @@ Can a bird fall in a snare upon the earth where there is no trap for him? Does a
 
 
 
-Shall a trumpet be blown in the city and the people not be alarmed _and_ afraid? Shall misfortune _or_ evil occur [as punishment] and the Lord has not caused it? 
+Shall a trumpet be blown in the city and the people not be alarmed and afraid? Shall misfortune or evil occur [as punishment] and the Lord has not caused it? 
 
 
 
@@ -322,4 +322,4 @@ That in the day when I visit Israel's transgressions upon him I will also visit 
 
 
 
-And I will smite the winter house with the summer house, and the houses of ivory shall perish and the many _and_ great houses shall come to an end, says the Lord.
+And I will smite the winter house with the summer house, and the houses of ivory shall perish and the many and great houses shall come to an end, says the Lord.

@@ -17,7 +17,7 @@ Come now, you rich [people], weep aloud and lament over the miseries (the woes) 
 ###### 2 
 
 
-Your abundant wealth has rotted _and_ is ruined, and your [many] garments have become moth-eaten. 
+Your abundant wealth has rotted and is ruined, and your [many] garments have become moth-eaten. 
 
 
 ###### 3 
@@ -35,7 +35,7 @@ Your gold and silver are completely rusted through, and their rust will be testi
 ###### 5 
 
 
-[Here] on earth you have abandoned yourselves to soft (prodigal) living and to [the pleasures of] self-indulgence _and_ self-gratification. You have fattened your hearts in a day of slaughter. 
+[Here] on earth you have abandoned yourselves to soft (prodigal) living and to [the pleasures of] self-indulgence and self-gratification. You have fattened your hearts in a day of slaughter. 
 
 
 ###### 6 
@@ -71,13 +71,13 @@ Do not complain, brethren, against one another, so that you [yourselves] may not
 ###### 11 
 
 
-You know how we call those blessed (happy) who were steadfast [who endured]. You have heard of the endurance of Job, and you have seen the Lord's [purpose and how He richly blessed him in the] end, inasmuch as the Lord is full of pity _and_ compassion _and_ tenderness and mercy. 
+You know how we call those blessed (happy) who were steadfast [who endured]. You have heard of the endurance of Job, and you have seen the Lord's [purpose and how He richly blessed him in the] end, inasmuch as the Lord is full of pity and compassion and tenderness and mercy. 
 
 
 ###### 12 
 
 
-But above all [things], my brethren, do not swear, either by heaven or by earth or by any other oath; but let your yes be [a simple] yes, and your no be [a simple] no, so that you may not sin _and_ fall under condemnation. 
+But above all [things], my brethren, do not swear, either by heaven or by earth or by any other oath; but let your yes be [a simple] yes, and your no be [a simple] no, so that you may not sin and fall under condemnation. 
 
 
 ###### 13 
@@ -101,7 +101,7 @@ And the prayer [that is] of faith will save him who is sick, and the Lord will r
 ###### 16 
 
 
-Confess to one another therefore your faults (your slips, your false steps, your offenses, your sins) and pray [also] for one another, that you may be healed _and_ restored [to a spiritual tone of mind and heart]. The earnest (heartfelt, continued) prayer of a righteous man makes tremendous power available [dynamic in its working]. 
+Confess to one another therefore your faults (your slips, your false steps, your offenses, your sins) and pray [also] for one another, that you may be healed and restored [to a spiritual tone of mind and heart]. The earnest (heartfelt, continued) prayer of a righteous man makes tremendous power available [dynamic in its working]. 
 
 
 ###### 17 
@@ -119,7 +119,7 @@ And [then] he prayed again and the heavens supplied rain and the land produced i
 ###### 19 
 
 
-[My] brethren, if anyone among you strays from the Truth _and_ falls into error and another [person] brings him back [to God], 
+[My] brethren, if anyone among you strays from the Truth and falls into error and another [person] brings him back [to God], 
 
 
 ###### 20 

@@ -301,7 +301,7 @@ Neither is it beyond the sea, that you should say, Who shall go over the sea for
 
 
 
-But the word is very near you, in your mouth and in your mind _and_ in your heart, so that you can do it. 
+But the word is very near you, in your mouth and in your mind and in your heart, so that you can do it. 
 
 
 

@@ -49,7 +49,7 @@ Then from Jerusalem came scribes and Pharisees and said,
 
 
 
-Why do Your disciples transgress _and_ violate the rules handed down by the elders of the past? For they do not practice [ceremonially] washing their hands before they eat. 
+Why do Your disciples transgress and violate the rules handed down by the elders of the past? For they do not practice [ceremonially] washing their hands before they eat. 
 
 
 
@@ -70,7 +70,7 @@ Why do Your disciples transgress _and_ violate the rules handed down by the elde
 
 
 
-He replied to them, And why also do you transgress _and_ violate the commandment of God for the sake of the rules handed down to you by your forefathers (the elders)? 
+He replied to them, And why also do you transgress and violate the commandment of God for the sake of the rules handed down to you by your forefathers (the elders)? 
 
 
 
@@ -91,7 +91,7 @@ He replied to them, And why also do you transgress _and_ violate the commandment
 
 
 
-For God commanded, Honor your father and your mother, and, He who curses _or_ reviles _or_ speaks evil of _or_ abuses _or_ treats improperly his father or mother, let him surely come to his end by death. 
+For God commanded, Honor your father and your mother, and, He who curses or reviles or speaks evil of or abuses or treats improperly his father or mother, let him surely come to his end by death. 
 
 
 
@@ -112,7 +112,7 @@ For God commanded, Honor your father and your mother, and, He who curses _or_ re
 
 
 
-But you say, If anyone tells his father or mother, What you would have gained from me [that is, the money and whatever I have that might be used for helping you] is already dedicated as a gift to God, then he is exempt _and_ no longer under obligation to honor _and_ help his father _or his mother_. 
+But you say, If anyone tells his father or mother, What you would have gained from me [that is, the money and whatever I have that might be used for helping you] is already dedicated as a gift to God, then he is exempt and no longer under obligation to honor and help his father or his mother. 
 
 
 
@@ -154,7 +154,7 @@ So for the sake of your tradition (the rules handed down by your forefathers), y
 
 
 
-You pretenders (hypocrites)! Admirably _and_ truly did Isaiah prophesy of you when he said: 
+You pretenders (hypocrites)! Admirably and truly did Isaiah prophesy of you when he said: 
 
 
 
@@ -175,7 +175,7 @@ You pretenders (hypocrites)! Admirably _and_ truly did Isaiah prophesy of you wh
 
 
 
-These people _draw near Me with their mouths and_ honor Me with their lips, but their hearts hold off _and_ are far away from Me. 
+These people draw near Me with their mouths and honor Me with their lips, but their hearts hold off and are far away from Me. 
 
 
 
@@ -217,7 +217,7 @@ Uselessly do they worship Me, for they teach as doctrines the commands of men.
 
 
 
-And Jesus called the people to Him and said to them, Listen and grasp _and_ comprehend this: 
+And Jesus called the people to Him and said to them, Listen and grasp and comprehend this: 
 
 
 
@@ -238,7 +238,7 @@ And Jesus called the people to Him and said to them, Listen and grasp _and_ comp
 
 
 
-It is not what goes into the mouth of a man that makes him unclean _and_ defiled, but what comes out of the mouth; this makes a man unclean _and_ defiles [him]. 
+It is not what goes into the mouth of a man that makes him unclean and defiled, but what comes out of the mouth; this makes a man unclean and defiles [him]. 
 
 
 
@@ -259,7 +259,7 @@ It is not what goes into the mouth of a man that makes him unclean _and_ defiled
 
 
 
-Then the disciples came and said to Him, Do You know that the Pharisees were displeased _and_ offended _and_ indignant when they heard this saying? 
+Then the disciples came and said to Him, Do You know that the Pharisees were displeased and offended and indignant when they heard this saying? 
 
 
 
@@ -301,7 +301,7 @@ He answered, Every plant which My heavenly Father has not planted will be torn u
 
 
 
-Let them alone _and_ disregard them; they are blind guides _and_ teachers. And if a blind man leads a blind man, both will fall into a ditch. 
+Let them alone and disregard them; they are blind guides and teachers. And if a blind man leads a blind man, both will fall into a ditch. 
 
 
 
@@ -343,7 +343,7 @@ But Peter said to Him, Explain this proverb (this maxim) to us.
 
 
 
-And He said, Are you also even yet dull _and_ ignorant [without understanding and unable to put things together]? 
+And He said, Are you also even yet dull and ignorant [without understanding and unable to put things together]? 
 
 
 
@@ -364,7 +364,7 @@ And He said, Are you also even yet dull _and_ ignorant [without understanding an
 
 
 
-Do you not see _and_ understand that whatever goes into the mouth passes into the abdomen and so passes on into the place where discharges are deposited? 
+Do you not see and understand that whatever goes into the mouth passes into the abdomen and so passes on into the place where discharges are deposited? 
 
 
 
@@ -385,7 +385,7 @@ Do you not see _and_ understand that whatever goes into the mouth passes into th
 
 
 
-But whatever comes out of the mouth comes from the heart, and this is what makes a man unclean _and_ defiles [him]. 
+But whatever comes out of the mouth comes from the heart, and this is what makes a man unclean and defiles [him]. 
 
 
 
@@ -406,7 +406,7 @@ But whatever comes out of the mouth comes from the heart, and this is what makes
 
 
 
-For out of the heart come evil thoughts (reasonings and disputings and designs) such as murder, adultery, sexual vice, theft, false witnessing, slander, _and_ irreverent speech. 
+For out of the heart come evil thoughts (reasonings and disputings and designs) such as murder, adultery, sexual vice, theft, false witnessing, slander, and irreverent speech. 
 
 
 
@@ -427,7 +427,7 @@ For out of the heart come evil thoughts (reasonings and disputings and designs) 
 
 
 
-These are what make a man unclean _and_ defile [him]; but eating with unwashed hands does not make him unclean _or_ defile [him]. 
+These are what make a man unclean and defile [him]; but eating with unwashed hands does not make him unclean or defile [him]. 
 
 
 
@@ -469,7 +469,7 @@ And going away from there, Jesus withdrew to the district of Tyre and Sidon.
 
 
 
-And behold, a woman who was a Canaanite from that district came out and, with a [loud, troublesomely urgent] cry, begged, Have mercy on me, O Lord, Son of David! My daughter is miserably _and_ distressingly _and_ cruelly possessed by a demon! 
+And behold, a woman who was a Canaanite from that district came out and, with a [loud, troublesomely urgent] cry, begged, Have mercy on me, O Lord, Son of David! My daughter is miserably and distressingly and cruelly possessed by a demon! 
 
 
 
@@ -658,7 +658,7 @@ And a great multitude came to Him, bringing with them the lame, the maimed, the 
 
 
 
-So that the crowd was amazed when they saw the dumb speaking, the maimed made whole, the lame walking, and the blind seeing; and they recognized _and_ praised _and_ thanked _and_ glorified the God of Israel. 
+So that the crowd was amazed when they saw the dumb speaking, the maimed made whole, the lame walking, and the blind seeing; and they recognized and praised and thanked and glorified the God of Israel. 
 
 
 
@@ -679,7 +679,7 @@ So that the crowd was amazed when they saw the dumb speaking, the maimed made wh
 
 
 
-Then Jesus called His disciples to Him and said, I have pity _and_ sympathy _and_ am deeply moved for the crowd, because they have been with Me now three days and they have nothing [at all left] to eat; and I am not willing to send them away hungry, lest they faint _or_ become exhausted on the way. 
+Then Jesus called His disciples to Him and said, I have pity and sympathy and am deeply moved for the crowd, because they have been with Me now three days and they have nothing [at all left] to eat; and I am not willing to send them away hungry, lest they faint or become exhausted on the way. 
 
 
 
@@ -700,7 +700,7 @@ Then Jesus called His disciples to Him and said, I have pity _and_ sympathy _and
 
 
 
-And the disciples said to Him, Where are we to get bread sufficient to feed so great a crowd in this isolated _and_ desert place? 
+And the disciples said to Him, Where are we to get bread sufficient to feed so great a crowd in this isolated and desert place? 
 
 
 

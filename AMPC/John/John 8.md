@@ -280,7 +280,7 @@ Once more Jesus addressed the crowd. He said, I am the Light of the world. He wh
 
 
 
-Whereupon the Pharisees told Him, You are testifying on Your own behalf; Your testimony is not valid _and_ is worthless. 
+Whereupon the Pharisees told Him, You are testifying on Your own behalf; Your testimony is not valid and is worthless. 
 
 
 
@@ -301,7 +301,7 @@ Whereupon the Pharisees told Him, You are testifying on Your own behalf; Your te
 
 
 
-Jesus answered, Even if I do testify on My own behalf, My testimony is true _and_ reliable _and_ valid, for I know where I came from and where I am going; but you do not know where I come from or where I am going. 
+Jesus answered, Even if I do testify on My own behalf, My testimony is true and reliable and valid, for I know where I came from and where I am going; but you do not know where I come from or where I am going. 
 
 
 
@@ -322,7 +322,7 @@ Jesus answered, Even if I do testify on My own behalf, My testimony is true _and
 
 
 
-You [set yourselves up to] judge according to the flesh (by what you see). [You condemn by external, human standards.] I do not [set Myself up to] judge _or_ condemn _or_ sentence anyone. 
+You [set yourselves up to] judge according to the flesh (by what you see). [You condemn by external, human standards.] I do not [set Myself up to] judge or condemn or sentence anyone. 
 
 
 
@@ -364,7 +364,7 @@ Yet even if I do judge, My judgment is true [My decision is right]; for I am not
 
 
 
-In your [own] Law it is written that the testimony (evidence) of two persons is reliable _and_ valid. 
+In your [own] Law it is written that the testimony (evidence) of two persons is reliable and valid. 
 
 
 
@@ -553,7 +553,7 @@ Then they said to Him, Who are You anyway? Jesus replied, [Why do I even speak t
 
 
 
-I have much to say about you and to judge _and_ condemn. But He Who sent Me is true (reliable), and I tell the world [only] the things that I have heard from Him. 
+I have much to say about you and to judge and condemn. But He Who sent Me is true (reliable), and I tell the world [only] the things that I have heard from Him. 
 
 
 
@@ -721,7 +721,7 @@ They answered Him, We are Abraham's offspring (descendants) and have never been 
 
 
 
-Jesus answered them, I assure you, most solemnly I tell you, Whoever commits _and_ practices sin is the slave of sin. 
+Jesus answered them, I assure you, most solemnly I tell you, Whoever commits and practices sin is the slave of sin. 
 
 
 
@@ -763,7 +763,7 @@ Now a slave does not remain in a household permanently (forever); the son [of th
 
 
 
-So if the Son liberates you [makes you free men], then you are really _and_ unquestionably free. 
+So if the Son liberates you [makes you free men], then you are really and unquestionably free. 
 
 
 
@@ -805,7 +805,7 @@ So if the Son liberates you [makes you free men], then you are really _and_ unqu
 
 
 
-I tell the things which I have seen _and_ learned at My Father's side, and your actions also reflect what you have heard _and_ learned from your father. 
+I tell the things which I have seen and learned at My Father's side, and your actions also reflect what you have heard and learned from your father. 
 
 
 
@@ -847,7 +847,7 @@ They retorted, Abraham is our father. Jesus said, If you were [truly] Abraham's 
 
 
 
-But now [instead] you are wanting _and_ seeking to kill Me, a Man Who has told you the truth which I have heard from God. This is not the way Abraham acted. 
+But now [instead] you are wanting and seeking to kill Me, a Man Who has told you the truth which I have heard from God. This is not the way Abraham acted. 
 
 
 
@@ -868,7 +868,7 @@ But now [instead] you are wanting _and_ seeking to kill Me, a Man Who has told y
 
 
 
-You are doing the works of your [own] father. They said to Him, We are not illegitimate children _and_ born out of fornication; we have one Father, even God. 
+You are doing the works of your [own] father. They said to Him, We are not illegitimate children and born out of fornication; we have one Father, even God. 
 
 
 
@@ -889,7 +889,7 @@ You are doing the works of your [own] father. They said to Him, We are not illeg
 
 
 
-Jesus said to them, If God were your Father, you would love Me _and_ respect Me _and_ welcome Me gladly, for I proceeded (came forth) from God [out of His very presence]. I did not even come on My own authority _or_ of My own accord (as self-appointed); but He sent Me. 
+Jesus said to them, If God were your Father, you would love Me and respect Me and welcome Me gladly, for I proceeded (came forth) from God [out of His very presence]. I did not even come on My own authority or of My own accord (as self-appointed); but He sent Me. 
 
 
 
@@ -931,7 +931,7 @@ Why do you misunderstand what I say? It is because you are unable to hear what I
 
 
 
-You are of your father, the devil, and it is your will to practice the lusts _and_ gratify the desires [which are characteristic] of your father. He was a murderer from the beginning and does not stand in the truth, because there is no truth in him. When he speaks a falsehood, he speaks what is natural to him, for he is a liar [himself] and the father of lies _and_ of all that is false. 
+You are of your father, the devil, and it is your will to practice the lusts and gratify the desires [which are characteristic] of your father. He was a murderer from the beginning and does not stand in the truth, because there is no truth in him. When he speaks a falsehood, he speaks what is natural to him, for he is a liar [himself] and the father of lies and of all that is false. 
 
 
 
@@ -973,7 +973,7 @@ But because I speak the truth, you do not believe Me [do not trust Me, do not re
 
 
 
-Who of you convicts Me of wrongdoing _or_ finds Me guilty of sin? Then if I speak truth, why do you not believe Me [trust Me, rely on, and adhere to Me]? 
+Who of you convicts Me of wrongdoing or finds Me guilty of sin? Then if I speak truth, why do you not believe Me [trust Me, rely on, and adhere to Me]? 
 
 
 
@@ -994,7 +994,7 @@ Who of you convicts Me of wrongdoing _or_ finds Me guilty of sin? Then if I spea
 
 
 
-Whoever is of God listens to God. [Those who belong to God hear the words of God.] This is the reason that you do not listen [to those words, to Me]: because you do not belong to God _and_ are not of God _or_ in harmony with Him. 
+Whoever is of God listens to God. [Those who belong to God hear the words of God.] This is the reason that you do not listen [to those words, to Me]: because you do not belong to God and are not of God or in harmony with Him. 
 
 
 
@@ -1036,7 +1036,7 @@ The Jews answered Him, Are we not right when we say You are a Samaritan and that
 
 
 
-Jesus answered, I am not possessed by a demon. On the contrary, I honor _and_ reverence My Father and you dishonor (despise, vilify, and scorn) Me. 
+Jesus answered, I am not possessed by a demon. On the contrary, I honor and reverence My Father and you dishonor (despise, vilify, and scorn) Me. 
 
 
 
@@ -1078,7 +1078,7 @@ However, I am not in search of honor for Myself. [I do not seek and am not aimin
 
 
 
-I assure you, most solemnly I tell you, if anyone observes My teaching [lives in accordance with My message, keeps My word], he will by no means ever see _and_ experience death. 
+I assure you, most solemnly I tell you, if anyone observes My teaching [lives in accordance with My message, keeps My word], he will by no means ever see and experience death. 
 
 
 
@@ -1141,7 +1141,7 @@ Are You greater than our father Abraham? He died, and all the prophets died! Who
 
 
 
-Jesus answered, If I were to glorify Myself (magnify, praise, and honor Myself), I would have no real glory, for My glory would be nothing _and_ worthless. [My honor must come to Me from My Father.] It is My Father Who glorifies Me [Who extols Me, magnifies, and praises Me], of Whom you say that He is your God. 
+Jesus answered, If I were to glorify Myself (magnify, praise, and honor Myself), I would have no real glory, for My glory would be nothing and worthless. [My honor must come to Me from My Father.] It is My Father Who glorifies Me [Who extols Me, magnifies, and praises Me], of Whom you say that He is your God. 
 
 
 
@@ -1162,7 +1162,7 @@ Jesus answered, If I were to glorify Myself (magnify, praise, and honor Myself),
 
 
 
-Yet you do not know Him _or_ recognize Him _and_ are not acquainted with Him, but I know Him. If I should say that I do not know Him, I would be a liar like you. But I know Him and keep His word [obey His teachings, am faithful to His message]. 
+Yet you do not know Him or recognize Him and are not acquainted with Him, but I know Him. If I should say that I do not know Him, I would be a liar like you. But I know Him and keep His word [obey His teachings, am faithful to His message]. 
 
 
 
@@ -1183,7 +1183,7 @@ Yet you do not know Him _or_ recognize Him _and_ are not acquainted with Him, bu
 
 
 
-Your forefather Abraham was extremely happy at the hope _and_ prospect of seeing My day (My incarnation); and he did see it and was delighted. 
+Your forefather Abraham was extremely happy at the hope and prospect of seeing My day (My incarnation); and he did see it and was delighted. 
 
 
 

@@ -112,7 +112,7 @@ And command them to say to their masters, Thus says the Lord of hosts, the God o
 
 
 
-I have made the earth, the men, and the beasts that are upon the face of the earth by My great power and by My outstretched arm, and I give it to whomever it seems right _and_ suitable to Me. 
+I have made the earth, the men, and the beasts that are upon the face of the earth by My great power and by My outstretched arm, and I give it to whomever it seems right and suitable to Me. 
 
 
 
@@ -133,7 +133,7 @@ I have made the earth, the men, and the beasts that are upon the face of the ear
 
 
 
-And now I have given all these lands into the hand of Nebuchadnezzar king of Babylon, My servant _and_ instrument, and the beasts of the field also I have given him to serve him. 
+And now I have given all these lands into the hand of Nebuchadnezzar king of Babylon, My servant and instrument, and the beasts of the field also I have given him to serve him. 
 
 
 
@@ -301,7 +301,7 @@ Why will you and your people die by the sword, by the famine, and by the pestile
 
 
 
-Do not listen to _and_ believe the words of the [false] prophets who are saying to you, You shall not serve the king of Babylon, for it is a lie that they prophesy to you. 
+Do not listen to and believe the words of the [false] prophets who are saying to you, You shall not serve the king of Babylon, for it is a lie that they prophesy to you. 
 
 
 
@@ -364,7 +364,7 @@ Also I said to the priests and to all these people, Thus says the Lord: Do not l
 
 
 
-Do not listen to them _or_ heed them; serve the king of Babylon, and live. Why should this city be laid waste? 
+Do not listen to them or heed them; serve the king of Babylon, and live. Why should this city be laid waste? 
 
 
 

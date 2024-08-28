@@ -133,7 +133,7 @@ And now your two sons, [Ephraim and Manasseh], who were born to you in the land 
 
 
 
-But other sons who may be born after them shall be your own; and they shall be called after the names of these [two] brothers _and_ reckoned as belonging to them [when they come] into their inheritance. 
+But other sons who may be born after them shall be your own; and they shall be called after the names of these [two] brothers and reckoned as belonging to them [when they come] into their inheritance. 
 
 
 
@@ -322,7 +322,7 @@ And Israel reached out his right hand and laid it on the head of Ephraim, who wa
 
 
 
-Then [Jacob] blessed Joseph and said, God [Himself], before Whom my fathers Abraham and Isaac lived _and_ walked habitually, God [Himself], Who has [been my Shepherd and has led and] fed me from the time I came into being until this day, 
+Then [Jacob] blessed Joseph and said, God [Himself], before Whom my fathers Abraham and Isaac lived and walked habitually, God [Himself], Who has [been my Shepherd and has led and] fed me from the time I came into being until this day, 
 
 
 

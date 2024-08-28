@@ -112,7 +112,7 @@ Nevertheless these you shall not eat of those that chew the cud or divide the ho
 
 
 
-And the coney _or_ rock badger, because it chews the cud but does not divide the hoof; it is unclean to you. 
+And the coney or rock badger, because it chews the cud but does not divide the hoof; it is unclean to you. 
 
 
 
@@ -259,7 +259,7 @@ They shall continue to be an abomination to you; you shall not eat of their fles
 
 
 
-Everything in the waters that has not fins or scales shall be abhorrent _and_ detestable to you. 
+Everything in the waters that has not fins or scales shall be abhorrent and detestable to you. 
 
 
 
@@ -616,7 +616,7 @@ And he who carries their carcass shall wash his clothes and be unclean until the
 
 
 
-These also are unclean to you among the creeping things [that multiply greatly] _and_ creep upon the ground: the weasel, the mouse, any kind of great lizard, 
+These also are unclean to you among the creeping things [that multiply greatly] and creep upon the ground: the weasel, the mouse, any kind of great lizard, 
 
 
 
@@ -742,7 +742,7 @@ Of all the food [in one of these unclean vessels] which may be eaten, that on wh
 
 
 
-And everything upon which any part of their carcass falls shall be unclean; whether an oven, _or_ pan with a lid, or hearth for pots, it shall be broken in pieces; they are unclean, and shall be unclean to you. 
+And everything upon which any part of their carcass falls shall be unclean; whether an oven, or pan with a lid, or hearth for pots, it shall be broken in pieces; they are unclean, and shall be unclean to you. 
 
 
 
@@ -763,7 +763,7 @@ And everything upon which any part of their carcass falls shall be unclean; whet
 
 
 
-Yet a spring or a cistern _or_ reservoir of water shall be clean; but whoever touches their carcass shall be unclean. 
+Yet a spring or a cistern or reservoir of water shall be clean; but whoever touches their carcass shall be unclean. 
 
 
 
@@ -868,7 +868,7 @@ And he who eats of its carcass [ignorantly] shall wash his clothes, and be uncle
 
 
 
-And everything that creeps on the ground _and_ [multiplies in] swarms shall be an abomination; it shall not be eaten. 
+And everything that creeps on the ground and [multiplies in] swarms shall be an abomination; it shall not be eaten. 
 
 
 
@@ -889,7 +889,7 @@ And everything that creeps on the ground _and_ [multiplies in] swarms shall be a
 
 
 
-Whatever goes on its belly, and whatever goes on all fours, or whatever has more [than four] feet among all things that creep on the ground _and_ swarm you shall not eat; for they are detestable. 
+Whatever goes on its belly, and whatever goes on all fours, or whatever has more [than four] feet among all things that creep on the ground and swarm you shall not eat; for they are detestable. 
 
 
 
@@ -910,7 +910,7 @@ Whatever goes on its belly, and whatever goes on all fours, or whatever has more
 
 
 
-You shall not make yourselves loathsome _and_ abominable [by eating] any swarming thing that [multiplies by] swarms, neither shall you make yourselves unclean with them, that you should be defiled by them. 
+You shall not make yourselves loathsome and abominable [by eating] any swarming thing that [multiplies by] swarms, neither shall you make yourselves unclean with them, that you should be defiled by them. 
 
 
 
@@ -931,7 +931,7 @@ You shall not make yourselves loathsome _and_ abominable [by eating] any swarmin
 
 
 
-For I am the Lord your God; so consecrate yourselves and be holy, for I am holy; neither defile yourselves with any manner of thing that multiplies in large numbers _or_ swarms. 
+For I am the Lord your God; so consecrate yourselves and be holy, for I am holy; neither defile yourselves with any manner of thing that multiplies in large numbers or swarms. 
 
 
 
@@ -973,7 +973,7 @@ For I am the Lord Who brought you up out of the land of Egypt to be your God; th
 
 
 
-This is the law of the beast, and of the bird, and of every living creature that moves in the waters, and creeps on the earth _and_ multiplies in large numbers, 
+This is the law of the beast, and of the bird, and of every living creature that moves in the waters, and creeps on the earth and multiplies in large numbers, 
 
 
 

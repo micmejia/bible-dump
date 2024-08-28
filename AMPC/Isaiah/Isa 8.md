@@ -28,7 +28,7 @@ next: ['Isa 9']
 
 
 
-Then the Lord said to me, Take a large tablet [of wood, metal, or stone] and write upon it with a graving tool _and_ in ordinary characters [which the humblest man can read]: Belonging to Maher-shalal-hash-baz [they (the Assyrians) hasten to the spoil (of Syria and Israel), they speed to the prey]. 
+Then the Lord said to me, Take a large tablet [of wood, metal, or stone] and write upon it with a graving tool and in ordinary characters [which the humblest man can read]: Belonging to Maher-shalal-hash-baz [they (the Assyrians) hasten to the spoil (of Syria and Israel), they speed to the prey]. 
 
 
 
@@ -49,7 +49,7 @@ Then the Lord said to me, Take a large tablet [of wood, metal, or stone] and wri
 
 
 
-And I took faithful witnesses to record _and_ attest [this prophecy] for me, Uriah the priest and Zechariah son of Jeberechiah. 
+And I took faithful witnesses to record and attest [this prophecy] for me, Uriah the priest and Zechariah son of Jeberechiah. 
 
 
 
@@ -133,7 +133,7 @@ The Lord spoke to me yet again and said,
 
 
 
-Because this people [Israel and Judah] have refused _and_ despised the waters of Shiloah [Siloam, the only perennial fountain of Jerusalem, and symbolic of God's protection and sustaining power] that go gently, and rejoice in _and_ with Rezin [the king of Syria] and Remaliah's son [Pekah the king of Israel], 
+Because this people [Israel and Judah] have refused and despised the waters of Shiloah [Siloam, the only perennial fountain of Jerusalem, and symbolic of God's protection and sustaining power] that go gently, and rejoice in and with Rezin [the king of Syria] and Remaliah's son [Pekah the king of Israel], 
 
 
 
@@ -154,7 +154,7 @@ Because this people [Israel and Judah] have refused _and_ despised the waters of
 
 
 
-Now therefore, behold, the Lord brings upon them the waters of the River [Euphrates], strong and many--even the king of Assyria and all the glory [of his gorgeous retinue]; and it will rise over all its channels, brooks, valleys, _and_ canals and extend far beyond its banks; 
+Now therefore, behold, the Lord brings upon them the waters of the River [Euphrates], strong and many--even the king of Assyria and all the glory [of his gorgeous retinue]; and it will rise over all its channels, brooks, valleys, and canals and extend far beyond its banks; 
 
 
 
@@ -175,7 +175,7 @@ Now therefore, behold, the Lord brings upon them the waters of the River [Euphra
 
 
 
-And it will sweep on into Judah; it will overflow _and_ go over [the hills], reaching even [but only] to the neck [of which Jerusalem is the head], and the outstretched wings [of the armies of Assyria] shall fill the breadth of Your land, O Immanuel [Messiah, God is with us]! 
+And it will sweep on into Judah; it will overflow and go over [the hills], reaching even [but only] to the neck [of which Jerusalem is the head], and the outstretched wings [of the armies of Assyria] shall fill the breadth of Your land, O Immanuel [Messiah, God is with us]! 
 
 
 
@@ -196,7 +196,7 @@ And it will sweep on into Judah; it will overflow _and_ go over [the hills], rea
 
 
 
-Make an uproar _and_ be broken in pieces, O you peoples [rage, raise the war cry, do your worst, and be utterly dismayed]! Give ear, all you [our enemies] _of_ far countries. Gird yourselves [for war], and be thrown into consternation! Gird yourselves, and be [utterly] dismayed! 
+Make an uproar and be broken in pieces, O you peoples [rage, raise the war cry, do your worst, and be utterly dismayed]! Give ear, all you [our enemies] of far countries. Gird yourselves [for war], and be thrown into consternation! Gird yourselves, and be [utterly] dismayed! 
 
 
 
@@ -238,7 +238,7 @@ Take counsel together [against Judah], but it shall come to nought; speak the wo
 
 
 
-For the Lord spoke thus to me with His strong hand [upon me], and warned _and_ instructed me not to walk in the way of this people, saying, 
+For the Lord spoke thus to me with His strong hand [upon me], and warned and instructed me not to walk in the way of this people, saying, 
 
 
 
@@ -280,7 +280,7 @@ Do not call conspiracy [or hard, or holy] all that this people will call conspir
 
 
 
-The Lord of hosts--regard Him as holy _and_ honor His holy name [by regarding Him as your only hope of safety], and let Him be your fear and let Him be your dread [lest you offend Him by your fear of man and distrust of Him]. 
+The Lord of hosts--regard Him as holy and honor His holy name [by regarding Him as your only hope of safety], and let Him be your fear and let Him be your dread [lest you offend Him by your fear of man and distrust of Him]. 
 
 
 
@@ -343,7 +343,7 @@ And many among them shall stumble thereon; and they shall fall and be broken, an
 
 
 
-Bind up the testimony, seal the law _and_ the teaching among my [Isaiah's] disciples. 
+Bind up the testimony, seal the law and the teaching among my [Isaiah's] disciples. 
 
 
 
@@ -364,7 +364,7 @@ Bind up the testimony, seal the law _and_ the teaching among my [Isaiah's] disci
 
 
 
-And I will wait for the Lord, Who is hiding His face from the house of Jacob; and I will look for _and_ hope in Him. 
+And I will wait for the Lord, Who is hiding His face from the house of Jacob; and I will look for and hope in Him. 
 
 
 
@@ -406,7 +406,7 @@ Behold, I and the children whom the Lord has given me are signs and wonders [tha
 
 
 
-And when the people [instead of putting their trust in God] shall say to you, Consult for direction mediums and wizards who chirp and mutter, should not a people seek _and_ consult their God? Should they consult the dead on behalf of the living? 
+And when the people [instead of putting their trust in God] shall say to you, Consult for direction mediums and wizards who chirp and mutter, should not a people seek and consult their God? Should they consult the dead on behalf of the living? 
 
 
 
@@ -427,7 +427,7 @@ And when the people [instead of putting their trust in God] shall say to you, Co
 
 
 
-[Direct such people] to the teaching and to the testimony! If their teachings are not in accord with this word, it is surely because there is no dawn _and_ no morning for them. 
+[Direct such people] to the teaching and to the testimony! If their teachings are not in accord with this word, it is surely because there is no dawn and no morning for them. 
 
 
 
@@ -469,4 +469,4 @@ And they [who consult mediums and wizards] shall pass through [the land] sorely 
 
 
 
-Or look to the earth, they will behold only distress and darkness, the gloom of anguish, and into thick darkness _and_ widespread, obscure night they shall be driven away.
+Or look to the earth, they will behold only distress and darkness, the gloom of anguish, and into thick darkness and widespread, obscure night they shall be driven away.

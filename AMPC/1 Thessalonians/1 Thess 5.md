@@ -11,7 +11,7 @@ up: ['1 Thessalonians']
 ###### 1 
 
 
-But as to the suitable times and the precise seasons _and_ dates, brethren, you have no necessity for anything being written to you. 
+But as to the suitable times and the precise seasons and dates, brethren, you have no necessity for anything being written to you. 
 
 
 ###### 2 
@@ -23,7 +23,7 @@ For you yourselves know perfectly well that the day of the [return of the] Lord 
 ###### 3 
 
 
-When people are saying, All is well and secure, _and_, There is peace and safety, then in a moment unforeseen destruction (ruin and death) will come upon them as suddenly as labor pains come upon a woman with child; and they shall by no means escape, for there will be no escape. 
+When people are saying, All is well and secure, and, There is peace and safety, then in a moment unforeseen destruction (ruin and death) will come upon them as suddenly as labor pains come upon a woman with child; and they shall by no means escape, for there will be no escape. 
 
 
 ###### 4 
@@ -65,7 +65,7 @@ For God has not appointed us to [incur His] wrath [He did not select us to conde
 ###### 10 
 
 
-Who died for us so that whether we are still alive or are dead [at Christ's appearing], we might live together with Him _and_ share His life. 
+Who died for us so that whether we are still alive or are dead [at Christ's appearing], we might live together with Him and share His life. 
 
 
 ###### 11 
@@ -77,7 +77,7 @@ Therefore encourage (admonish, exhort) one another and edify (strengthen and bui
 ###### 12 
 
 
-Now also we beseech you, brethren, get to know those who labor among you [recognize them for what they are, acknowledge and appreciate and respect them all]--your leaders who are over you in the Lord and those who warn _and_ kindly reprove _and_ exhort you. 
+Now also we beseech you, brethren, get to know those who labor among you [recognize them for what they are, acknowledge and appreciate and respect them all]--your leaders who are over you in the Lord and those who warn and kindly reprove and exhort you. 
 
 
 ###### 13 
@@ -89,19 +89,19 @@ And hold them in very high and most affectionate esteem in [intelligent and symp
 ###### 14 
 
 
-And we earnestly beseech you, brethren, admonish (warn and seriously advise) those who are out of line [the loafers, the disorderly, and the unruly]; encourage the timid _and_ fainthearted, help _and_ give your support to the weak souls, [and] be very patient with everybody [always keeping your temper]. 
+And we earnestly beseech you, brethren, admonish (warn and seriously advise) those who are out of line [the loafers, the disorderly, and the unruly]; encourage the timid and fainthearted, help and give your support to the weak souls, [and] be very patient with everybody [always keeping your temper]. 
 
 
 ###### 15 
 
 
-See that none of you repays another with evil for evil, but always aim to show kindness _and_ seek to do good to one another and to everybody. 
+See that none of you repays another with evil for evil, but always aim to show kindness and seek to do good to one another and to everybody. 
 
 
 ###### 16 
 
 
-Be happy [in your faith] _and_ rejoice _and_ be glad-hearted continually (always); 
+Be happy [in your faith] and rejoice and be glad-hearted continually (always); 
 
 
 ###### 17 
@@ -125,31 +125,31 @@ Do not quench (suppress or subdue) the [Holy] Spirit;
 ###### 20 
 
 
-Do not spurn the gifts _and_ utterances of the prophets [do not depreciate prophetic revelations nor despise inspired instruction or exhortation or warning]. 
+Do not spurn the gifts and utterances of the prophets [do not depreciate prophetic revelations nor despise inspired instruction or exhortation or warning]. 
 
 
 ###### 21 
 
 
-But test _and_ prove all things [until you can recognize] what is good; [to that] hold fast. 
+But test and prove all things [until you can recognize] what is good; [to that] hold fast. 
 
 
 ###### 22 
 
 
-Abstain from evil [shrink from it and keep aloof from it] in whatever form _or_ whatever kind it may be. 
+Abstain from evil [shrink from it and keep aloof from it] in whatever form or whatever kind it may be. 
 
 
 ###### 23 
 
 
-And may the God of peace Himself sanctify you through and through [separate you from profane things, make you pure and wholly consecrated to God]; and may your spirit and soul and body be preserved sound _and_ complete [and found] blameless at the coming of our Lord Jesus Christ (the Messiah). 
+And may the God of peace Himself sanctify you through and through [separate you from profane things, make you pure and wholly consecrated to God]; and may your spirit and soul and body be preserved sound and complete [and found] blameless at the coming of our Lord Jesus Christ (the Messiah). 
 
 
 ###### 24 
 
 
-Faithful is He Who is calling you [to Himself] _and_ utterly trustworthy, and He will also do it [fulfill His call by hallowing and keeping you]. 
+Faithful is He Who is calling you [to Himself] and utterly trustworthy, and He will also do it [fulfill His call by hallowing and keeping you]. 
 
 
 ###### 25 
@@ -173,4 +173,4 @@ I solemnly charge you [in the name of] the Lord to have this letter read before 
 ###### 28 
 
 
-The grace (the unmerited favor and blessings) of our Lord Jesus Christ (the Messiah) be with you all. _Amen, (so be it)._
+The grace (the unmerited favor and blessings) of our Lord Jesus Christ (the Messiah) be with you all. Amen, (so be it).

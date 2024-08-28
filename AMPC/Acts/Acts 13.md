@@ -133,7 +133,7 @@ When they arrived at Salamis, they preached the Word of God [concerning the atta
 
 
 
-When they had passed through the entire island of Cyprus as far as Paphos, they came upon a certain Jewish wizard _or_ sorcerer, a false prophet named Bar-Jesus. 
+When they had passed through the entire island of Cyprus as far as Paphos, they came upon a certain Jewish wizard or sorcerer, a false prophet named Bar-Jesus. 
 
 
 
@@ -154,7 +154,7 @@ When they had passed through the entire island of Cyprus as far as Paphos, they 
 
 
 
-He was closely associated with the proconsul, Sergius Paulus, who was an intelligent _and_ sensible man of sound understanding; he summoned to him Barnabas and Saul and sought to hear the Word of God [concerning salvation in the kingdom of God attained through Christ]. 
+He was closely associated with the proconsul, Sergius Paulus, who was an intelligent and sensible man of sound understanding; he summoned to him Barnabas and Saul and sought to hear the Word of God [concerning salvation in the kingdom of God attained through Christ]. 
 
 
 
@@ -196,7 +196,7 @@ But Elymas the wise man--for that is the translation of his name [which he had g
 
 
 
-But Saul, who is also called Paul, filled with _and_ controlled by the Holy Spirit, looked steadily at [Elymas] 
+But Saul, who is also called Paul, filled with and controlled by the Holy Spirit, looked steadily at [Elymas] 
 
 
 
@@ -217,7 +217,7 @@ But Saul, who is also called Paul, filled with _and_ controlled by the Holy Spir
 
 
 
-And said, You master in every form of deception _and_ recklessness, unscrupulousness, _and_ wickedness, you son of the devil, you enemy of everything that is upright _and_ good, will you never stop perverting _and_ making crooked the straight paths of the Lord _and_ plotting against His saving purposes? 
+And said, You master in every form of deception and recklessness, unscrupulousness, and wickedness, you son of the devil, you enemy of everything that is upright and good, will you never stop perverting and making crooked the straight paths of the Lord and plotting against His saving purposes? 
 
 
 
@@ -259,7 +259,7 @@ And now, behold, the hand of the Lord is upon you, and you will be blind, [so bl
 
 
 
-Then the proconsul believed (became a Christian) when he saw what had occurred, for he was astonished _and_ deeply touched at the teaching concerning the Lord _and_ from Him. 
+Then the proconsul believed (became a Christian) when he saw what had occurred, for he was astonished and deeply touched at the teaching concerning the Lord and from Him. 
 
 
 
@@ -322,7 +322,7 @@ But they [themselves] came on from Perga and arrived at Antioch in Pisidia. And 
 
 
 
-After the reading of the Law and the Prophets, the leaders [of the worship] of the synagogue sent to them saying, Brethren, if you have any word of exhortation _or_ consolation _or_ encouragement for the people, say it. 
+After the reading of the Law and the Prophets, the leaders [of the worship] of the synagogue sent to them saying, Brethren, if you have any word of exhortation or consolation or encouragement for the people, say it. 
 
 
 
@@ -343,7 +343,7 @@ After the reading of the Law and the Prophets, the leaders [of the worship] of t
 
 
 
-So Paul arose, and motioning with his hand said, Men of Israel and you who reverence _and_ fear God, listen! 
+So Paul arose, and motioning with his hand said, Men of Israel and you who reverence and fear God, listen! 
 
 
 
@@ -364,7 +364,7 @@ So Paul arose, and motioning with his hand said, Men of Israel and you who rever
 
 
 
-The God of this people Israel selected our forefathers and made this people great _and_ important during their stay in the land of Egypt, and then with an uplifted arm He led them out from there. 
+The God of this people Israel selected our forefathers and made this people great and important during their stay in the land of Egypt, and then with an uplifted arm He led them out from there. 
 
 
 
@@ -385,7 +385,7 @@ The God of this people Israel selected our forefathers and made this people grea
 
 
 
-And for about forty years _like a fatherly nurse_ He cared for them in the wilderness _and_ endured their behavior. 
+And for about forty years like a fatherly nurse He cared for them in the wilderness and endured their behavior. 
 
 
 
@@ -469,7 +469,7 @@ Then they asked for a king; and God gave them Saul son of Kish, a man of the tri
 
 
 
-And when He had deposed him, He raised up David to be their king; of him He bore witness and said, I have found David son of Jesse a man after My own heart, who will do all My will _and_ carry out My program fully. 
+And when He had deposed him, He raised up David to be their king; of him He bore witness and said, I have found David son of Jesse a man after My own heart, who will do all My will and carry out My program fully. 
 
 
 
@@ -532,7 +532,7 @@ Before His coming John had [already] preached baptism of repentance to all the p
 
 
 
-And as John was ending his course, he asked, What _or_ _who_ do you secretly think that I am? I am not He [the Christ. No], but note that after me One is coming, the sandals of Whose feet I am not worthy to untie! 
+And as John was ending his course, he asked, What or who do you secretly think that I am? I am not He [the Christ. No], but note that after me One is coming, the sandals of Whose feet I am not worthy to untie! 
 
 
 
@@ -553,7 +553,7 @@ And as John was ending his course, he asked, What _or_ _who_ do you secretly thi
 
 
 
-Brethren, sons of the family of Abraham, and all those others among you who reverence _and_ fear God, to us has been sent the message of this salvation [the salvation obtained through Jesus Christ]. 
+Brethren, sons of the family of Abraham, and all those others among you who reverence and fear God, to us has been sent the message of this salvation [the salvation obtained through Jesus Christ]. 
 
 
 
@@ -574,7 +574,7 @@ Brethren, sons of the family of Abraham, and all those others among you who reve
 
 
 
-For those who dwell in Jerusalem and their rulers, because they did not know _or_ recognize Him or understand the utterances of the prophets which are read every Sabbath, have actually fulfilled these very predictions by condemning _and_ sentencing [Him]. 
+For those who dwell in Jerusalem and their rulers, because they did not know or recognize Him or understand the utterances of the prophets which are read every Sabbath, have actually fulfilled these very predictions by condemning and sentencing [Him]. 
 
 
 
@@ -595,7 +595,7 @@ For those who dwell in Jerusalem and their rulers, because they did not know _or
 
 
 
-And although they could find no cause deserving death with which to charge Him, yet they asked Pilate to have Him executed _and_ put out of the way. 
+And although they could find no cause deserving death with which to charge Him, yet they asked Pilate to have Him executed and put out of the way. 
 
 
 
@@ -616,7 +616,7 @@ And although they could find no cause deserving death with which to charge Him, 
 
 
 
-And when they had finished _and_ fulfilled everything that was written about Him, they took Him down from the tree and laid Him in a tomb. 
+And when they had finished and fulfilled everything that was written about Him, they took Him down from the tree and laid Him in a tomb. 
 
 
 
@@ -721,7 +721,7 @@ This He has completely fulfilled for us, their children, by raising up Jesus, as
 
 
 
-And as to His having raised Him from among the dead, now no more to return to [undergo] putrefaction _and_ dissolution [of the grave], He spoke in this way, I will fulfill _and_ give to you the holy and sure mercy _and_ blessings [that were promised and assured] to David. 
+And as to His having raised Him from among the dead, now no more to return to [undergo] putrefaction and dissolution [of the grave], He spoke in this way, I will fulfill and give to you the holy and sure mercy and blessings [that were promised and assured] to David. 
 
 
 
@@ -763,7 +763,7 @@ For this reason He says also in another psalm, You will not allow Your Holy One 
 
 
 
-For David, after he had served God's will _and_ purpose _and_ counsel in his own generation, fell asleep [in death] and was buried among his forefathers, and he did see corruption _and_ undergo putrefaction _and_ dissolution [of the grave]. 
+For David, after he had served God's will and purpose and counsel in his own generation, fell asleep [in death] and was buried among his forefathers, and he did see corruption and undergo putrefaction and dissolution [of the grave]. 
 
 
 
@@ -805,7 +805,7 @@ But He Whom God raised up [to life] saw no corruption [did not experience putref
 
 
 
-So let it be clearly known _and_ understood by you, brethren, that through this Man forgiveness _and_ removal of sins is now proclaimed to you; 
+So let it be clearly known and understood by you, brethren, that through this Man forgiveness and removal of sins is now proclaimed to you; 
 
 
 
@@ -826,7 +826,7 @@ So let it be clearly known _and_ understood by you, brethren, that through this 
 
 
 
-And that through Him everyone who believes [who acknowledges Jesus as his Savior and devotes himself to Him] is absolved (cleared and freed) from every charge from which he could not be justified _and_ freed by the Law of Moses _and_ given right standing with God. 
+And that through Him everyone who believes [who acknowledges Jesus as his Savior and devotes himself to Him] is absolved (cleared and freed) from every charge from which he could not be justified and freed by the Law of Moses and given right standing with God. 
 
 
 
@@ -868,7 +868,7 @@ Take care, therefore, lest there come upon you what is spoken in the prophets:
 
 
 
-Look, you scoffers _and_ scorners, and marvel and perish _and_ vanish away; for I am doing a deed in your days, a deed which you will never have confidence in _or_ believe, [even] if someone [clearly describing it in detail] declares it to you. 
+Look, you scoffers and scorners, and marvel and perish and vanish away; for I am doing a deed in your days, a deed which you will never have confidence in or believe, [even] if someone [clearly describing it in detail] declares it to you. 
 
 
 
@@ -952,7 +952,7 @@ The next Sabbath almost the entire city gathered together to hear the Word of Go
 
 
 
-But when the Jews saw the crowds, filled with envy _and_ jealousy they contradicted what was said by Paul and talked abusively [reviling and slandering him]. 
+But when the Jews saw the crowds, filled with envy and jealousy they contradicted what was said by Paul and talked abusively [reviling and slandering him]. 
 
 
 
@@ -973,7 +973,7 @@ But when the Jews saw the crowds, filled with envy _and_ jealousy they contradic
 
 
 
-And Paul and Barnabas spoke out plainly _and_ boldly, saying, It was necessary that God's message [concerning salvation through Christ] should be spoken to you first. But since you thrust it from you, you pass this judgment on yourselves that you are unworthy of eternal life _and_ out of your own mouth you will be judged. [Now] behold, we turn to the Gentiles (the heathen). 
+And Paul and Barnabas spoke out plainly and boldly, saying, It was necessary that God's message [concerning salvation through Christ] should be spoken to you first. But since you thrust it from you, you pass this judgment on yourselves that you are unworthy of eternal life and out of your own mouth you will be judged. [Now] behold, we turn to the Gentiles (the heathen). 
 
 
 
@@ -1036,7 +1036,7 @@ And when the Gentiles heard this, they rejoiced and glorified (praised and gave 
 
 
 
-And so the Word of the Lord [concerning eternal salvation through Christ] scattered _and_ spread throughout the whole region. 
+And so the Word of the Lord [concerning eternal salvation through Christ] scattered and spread throughout the whole region. 
 
 
 

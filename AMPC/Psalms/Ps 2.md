@@ -49,7 +49,7 @@ Why do the nations assemble with commotion [uproar and confusion of voices], and
 
 
 
-The kings of the earth take their places; the rulers take counsel together against the Lord and His Anointed One (the Messiah, the Christ). _They say_, 
+The kings of the earth take their places; the rulers take counsel together against the Lord and His Anointed One (the Messiah, the Christ). They say, 
 
 
 
@@ -112,7 +112,7 @@ He Who sits in the heavens laughs; the Lord has them in derision [and in supreme
 
 
 
-He speaks to them in His deep anger and troubles (terrifies and confounds) them in His displeasure _and_ fury, _saying_, 
+He speaks to them in His deep anger and troubles (terrifies and confounds) them in His displeasure and fury, saying, 
 
 
 
@@ -217,7 +217,7 @@ You shall break them with a rod of iron; You shall dash them in pieces like pott
 
 
 
-Now therefore, O you kings, act wisely; be instructed _and_ warned, O you rulers of the earth. 
+Now therefore, O you kings, act wisely; be instructed and warned, O you rulers of the earth. 
 
 
 
@@ -238,7 +238,7 @@ Now therefore, O you kings, act wisely; be instructed _and_ warned, O you rulers
 
 
 
-Serve the Lord with reverent awe _and_ worshipful fear; rejoice _and_ be in high spirits with trembling [lest you displease Him]. 
+Serve the Lord with reverent awe and worshipful fear; rejoice and be in high spirits with trembling [lest you displease Him]. 
 
 
 
@@ -259,4 +259,4 @@ Serve the Lord with reverent awe _and_ worshipful fear; rejoice _and_ be in high
 
 
 
-Kiss the Son [pay homage to Him in purity], lest He be angry and you perish in the way, for soon shall His wrath be kindled. O blessed (happy, fortunate, and to be envied) are all those who seek refuge _and_ put their trust in Him!
+Kiss the Son [pay homage to Him in purity], lest He be angry and you perish in the way, for soon shall His wrath be kindled. O blessed (happy, fortunate, and to be envied) are all those who seek refuge and put their trust in Him!

@@ -70,7 +70,7 @@ After two days He will revive us (quicken us, give us life); on the third day He
 
 
 
-Yes, let us know (recognize, be acquainted with, and understand) Him; let us be zealous to know the Lord [to appreciate, give heed to, and cherish Him]. His going forth is prepared _and_ certain as the dawn, and He will come to us as the [heavy] rain, as the latter rain that waters the earth. 
+Yes, let us know (recognize, be acquainted with, and understand) Him; let us be zealous to know the Lord [to appreciate, give heed to, and cherish Him]. His going forth is prepared and certain as the dawn, and He will come to us as the [heavy] rain, as the latter rain that waters the earth. 
 
 
 
@@ -91,7 +91,7 @@ Yes, let us know (recognize, be acquainted with, and understand) Him; let us be 
 
 
 
-O Ephraim, what shall I do with you? [says the Lord] O Judah, what shall I do with you? For your [wavering] love _and_ kindness are like the night mist _or_ like the dew that goes early away. 
+O Ephraim, what shall I do with you? [says the Lord] O Judah, what shall I do with you? For your [wavering] love and kindness are like the night mist or like the dew that goes early away. 
 
 
 
@@ -112,7 +112,7 @@ O Ephraim, what shall I do with you? [says the Lord] O Judah, what shall I do wi
 
 
 
-Therefore have I hewn down _and_ smitten them by means of the prophets; I have slain them by the words of My mouth; My judgments [pronounced upon them by you prophets] are like the light that goes forth. 
+Therefore have I hewn down and smitten them by means of the prophets; I have slain them by the words of My mouth; My judgments [pronounced upon them by you prophets] are like the light that goes forth. 
 
 
 
@@ -133,7 +133,7 @@ Therefore have I hewn down _and_ smitten them by means of the prophets; I have s
 
 
 
-For I desire _and_ delight in dutiful steadfast love _and_ goodness, not sacrifice, and the knowledge of _and_ acquaintance with God more than burnt offerings. 
+For I desire and delight in dutiful steadfast love and goodness, not sacrifice, and the knowledge of and acquaintance with God more than burnt offerings. 
 
 
 
@@ -154,7 +154,7 @@ For I desire _and_ delight in dutiful steadfast love _and_ goodness, not sacrifi
 
 
 
-But they, like [less-privileged] men _and_ like Adam, have transgressed the covenant; there have they dealt faithlessly _and_ treacherously with Me. 
+But they, like [less-privileged] men and like Adam, have transgressed the covenant; there have they dealt faithlessly and treacherously with Me. 
 
 
 
@@ -196,7 +196,7 @@ Gilead is a city of evildoers; it is tracked with bloody [footprints].
 
 
 
-And as troops of robbers lie in wait for a man, so the company of priests murder on the road toward Shechem; yes, they commit villainy _and_ outrages. 
+And as troops of robbers lie in wait for a man, so the company of priests murder on the road toward Shechem; yes, they commit villainy and outrages. 
 
 
 
@@ -217,7 +217,7 @@ And as troops of robbers lie in wait for a man, so the company of priests murder
 
 
 
-I have seen a horrible thing in the house of Israel! There harlotry _and_ idolatry are found in Ephraim; Israel is defiled. 
+I have seen a horrible thing in the house of Israel! There harlotry and idolatry are found in Ephraim; Israel is defiled. 
 
 
 

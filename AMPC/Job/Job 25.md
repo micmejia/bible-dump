@@ -91,7 +91,7 @@ Is there any number to His armies? And upon whom does not His light arise?
 
 
 
-How then can man be justified _and_ righteous before God? Or how can he who is born of a woman be pure _and_ clean? 
+How then can man be justified and righteous before God? Or how can he who is born of a woman be pure and clean? 
 
 
 

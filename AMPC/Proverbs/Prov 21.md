@@ -49,7 +49,7 @@ The king's heart is in the hand of the Lord, as are the watercourses; He turns i
 
 
 
-Every way of a man is right in his own eyes, but the Lord weighs _and_ tries the hearts. 
+Every way of a man is right in his own eyes, but the Lord weighs and tries the hearts. 
 
 
 
@@ -91,7 +91,7 @@ To do righteousness and justice is more acceptable to the Lord than sacrifice.
 
 
 
-Haughtiness of eyes and a proud heart, even the tillage of the wicked _or_ the lamp [of joy] to them [whatever it may be], are sin [in the eyes of God]. 
+Haughtiness of eyes and a proud heart, even the tillage of the wicked or the lamp [of joy] to them [whatever it may be], are sin [in the eyes of God]. 
 
 
 
@@ -112,7 +112,7 @@ Haughtiness of eyes and a proud heart, even the tillage of the wicked _or_ the l
 
 
 
-The thoughts of the [steadily] diligent tend only to plenteousness, but everyone who is impatient _and_ hasty hastens only to want. 
+The thoughts of the [steadily] diligent tend only to plenteousness, but everyone who is impatient and hasty hastens only to want. 
 
 
 
@@ -175,7 +175,7 @@ The violence of the wicked shall sweep them away, because they refuse to do just
 
 
 
-The way of the guilty is exceedingly crooked, but as for the pure, his work is right _and_ his conduct is straight. 
+The way of the guilty is exceedingly crooked, but as for the pure, his work is right and his conduct is straight. 
 
 
 
@@ -196,7 +196,7 @@ The way of the guilty is exceedingly crooked, but as for the pure, his work is r
 
 
 
-It is better to dwell in a corner of the housetop [on the flat oriental roof, exposed to all kinds of weather] than in a house shared with a nagging, quarrelsome, _and_ faultfinding woman. 
+It is better to dwell in a corner of the housetop [on the flat oriental roof, exposed to all kinds of weather] than in a house shared with a nagging, quarrelsome, and faultfinding woman. 
 
 
 
@@ -217,7 +217,7 @@ It is better to dwell in a corner of the housetop [on the flat oriental roof, ex
 
 
 
-The soul _or_ life of the wicked craves _and_ seeks evil; his neighbor finds no favor in his eyes. 
+The soul or life of the wicked craves and seeks evil; his neighbor finds no favor in his eyes. 
 
 
 
@@ -238,7 +238,7 @@ The soul _or_ life of the wicked craves _and_ seeks evil; his neighbor finds no 
 
 
 
-When the scoffer is punished, the fool gets a lesson in being wise; but men of [godly] Wisdom _and_ good sense learn by being instructed. 
+When the scoffer is punished, the fool gets a lesson in being wise; but men of [godly] Wisdom and good sense learn by being instructed. 
 
 
 
@@ -301,7 +301,7 @@ Whoever stops his ears at the cry of the poor will cry out himself and not be he
 
 
 
-A gift in secret pacifies _and_ turns away anger, and a bribe in the lap, strong wrath. 
+A gift in secret pacifies and turns away anger, and a bribe in the lap, strong wrath. 
 
 
 
@@ -322,7 +322,7 @@ A gift in secret pacifies _and_ turns away anger, and a bribe in the lap, strong
 
 
 
-When justice is done, it is a joy to the righteous (the upright, in right standing with God), but to the evildoers it is dismay, calamity, _and_ ruin. 
+When justice is done, it is a joy to the righteous (the upright, in right standing with God), but to the evildoers it is dismay, calamity, and ruin. 
 
 
 
@@ -427,7 +427,7 @@ It is better to dwell in a desert land than with a contentious woman and with ve
 
 
 
-There are precious treasures and oil in the dwelling of the wise, but a self-confident _and_ foolish man swallows it up _and_ wastes it. 
+There are precious treasures and oil in the dwelling of the wise, but a self-confident and foolish man swallows it up and wastes it. 
 
 
 
@@ -448,7 +448,7 @@ There are precious treasures and oil in the dwelling of the wise, but a self-con
 
 
 
-He who earnestly seeks after _and_ craves righteousness, mercy, _and_ loving-kindness will find life in addition to righteousness (uprightness and right standing with God) and honor. 
+He who earnestly seeks after and craves righteousness, mercy, and loving-kindness will find life in addition to righteousness (uprightness and right standing with God) and honor. 
 
 
 
@@ -511,7 +511,7 @@ He who guards his mouth and his tongue keeps himself from troubles.
 
 
 
-The proud _and_ haughty man--Scoffer is his name--deals _and_ acts with overbearing pride. 
+The proud and haughty man--Scoffer is his name--deals and acts with overbearing pride. 
 
 
 
@@ -574,7 +574,7 @@ He covets greedily all the day long, but the [uncompromisingly] righteous gives 
 
 
 
-The sacrifice of the wicked is exceedingly disgusting _and_ abhorrent [to the Lord]--how much more when he brings it with evil intention? 
+The sacrifice of the wicked is exceedingly disgusting and abhorrent [to the Lord]--how much more when he brings it with evil intention? 
 
 
 
@@ -595,7 +595,7 @@ The sacrifice of the wicked is exceedingly disgusting _and_ abhorrent [to the Lo
 
 
 
-A false witness will perish, but the word of a man who hears attentively will endure _and_ go unchallenged. 
+A false witness will perish, but the word of a man who hears attentively will endure and go unchallenged. 
 
 
 
@@ -616,7 +616,7 @@ A false witness will perish, but the word of a man who hears attentively will en
 
 
 
-A wicked man puts on the bold, unfeeling face [of guilt], but as for the upright, he considers, directs, _and_ establishes his way [with the confidence of integrity]. 
+A wicked man puts on the bold, unfeeling face [of guilt], but as for the upright, he considers, directs, and establishes his way [with the confidence of integrity]. 
 
 
 
@@ -658,4 +658,4 @@ There is no [human] wisdom or understanding or counsel [that can prevail] agains
 
 
 
-The horse is prepared for the day of battle, but deliverance _and_ victory are of the Lord.
+The horse is prepared for the day of battle, but deliverance and victory are of the Lord.

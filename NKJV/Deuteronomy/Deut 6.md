@@ -10,16 +10,16 @@ next: ['Deut 7']
 
 
 ###### 1 
-"Now this _is_ the commandment, _and these are_ the statutes and judgments which the Lord your God has commanded to teach you, that you may observe _them_ in the land which you are crossing over to possess, 
+"Now this is the commandment, and these are the statutes and judgments which the Lord your God has commanded to teach you, that you may observe them in the land which you are crossing over to possess, 
 
 ###### 2 
 that you may fear the Lord your God, to keep all His statutes and His commandments which I command you, you and your son and your grandson, all the days of your life, and that your days may be prolonged. 
 
 ###### 3 
-Therefore hear, O Israel, and be careful to observe _it,_ that it may be well with you, and that you may multiply greatly as the Lord God of your fathers has promised you--'a land flowing with milk and honey.' 
+Therefore hear, O Israel, and be careful to observe it, that it may be well with you, and that you may multiply greatly as the Lord God of your fathers has promised you--'a land flowing with milk and honey.' 
 
 ###### 4 
-"Hear, O Israel: The Lord our God, the Lord _is_ one! 
+"Hear, O Israel: The Lord our God, the Lord is one! 
 
 ###### 5 
 You shall love the Lord your God with all your heart, with all your soul, and with all your strength. 
@@ -45,31 +45,31 @@ You shall write them on the doorposts of your house and on your gates.
 houses full of all good things, which you did not fill, hewn-out wells which you did not dig, vineyards and olive trees which you did not plant--when you have eaten and are full-- 
 
 ###### 12 
-_then_ beware, lest you forget the Lord who brought you out of the land of Egypt, from the house of bondage. 
+then beware, lest you forget the Lord who brought you out of the land of Egypt, from the house of bondage. 
 
 ###### 13 
 You shall fear the Lord your God and serve Him, and shall take oaths in His name. 
 
 ###### 14 
-You shall not go after other gods, the gods of the peoples who _are_ all around you 
+You shall not go after other gods, the gods of the peoples who are all around you 
 
 ###### 15 
-(for the Lord your God _is_ a jealous God among you), lest the anger of the Lord your God be aroused against you and destroy you from the face of the earth. 
+(for the Lord your God is a jealous God among you), lest the anger of the Lord your God be aroused against you and destroy you from the face of the earth. 
 
 ###### 16 
-"You shall not tempt the Lord your God as you tempted _Him_ in Massah. 
+"You shall not tempt the Lord your God as you tempted Him in Massah. 
 
 ###### 17 
 You shall diligently keep the commandments of the Lord your God, His testimonies, and His statutes which He has commanded you. 
 
 ###### 18 
-And you shall do _what is_ right and good in the sight of the Lord, that it may be well with you, and that you may go in and possess the good land of which the Lord swore to your fathers, 
+And you shall do what is right and good in the sight of the Lord, that it may be well with you, and that you may go in and possess the good land of which the Lord swore to your fathers, 
 
 ###### 19 
 to cast out all your enemies from before you, as the Lord has spoken. 
 
 ###### 20 
-"When your son asks you in time to come, saying, 'What _is the meaning of_ the testimonies, the statutes, and the judgments which the Lord our God has commanded you?' 
+"When your son asks you in time to come, saying, 'What is the meaning of the testimonies, the statutes, and the judgments which the Lord our God has commanded you?' 
 
 ###### 21 
 then you shall say to your son: 'We were slaves of Pharaoh in Egypt, and the Lord brought us out of Egypt with a mighty hand; 
@@ -81,7 +81,7 @@ and the Lord showed signs and wonders before our eyes, great and severe, against
 Then He brought us out from there, that He might bring us in, to give us the land of which He swore to our fathers. 
 
 ###### 24 
-And the Lord commanded us to observe all these statutes, to fear the Lord our God, for our good always, that He might preserve us alive, as _it is_ this day. 
+And the Lord commanded us to observe all these statutes, to fear the Lord our God, for our good always, that He might preserve us alive, as it is this day. 
 
 ###### 25 
 Then it will be righteousness for us, if we are careful to observe all these commandments before the Lord our God, as He has commanded us.'

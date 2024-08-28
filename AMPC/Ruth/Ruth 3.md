@@ -28,7 +28,7 @@ next: ['Ruth 4']
 
 
 
-Then Naomi her mother-in-law said to Ruth, My daughter, shall I not seek rest _or_ a home for you, that you may prosper? 
+Then Naomi her mother-in-law said to Ruth, My daughter, shall I not seek rest or a home for you, that you may prosper? 
 
 
 

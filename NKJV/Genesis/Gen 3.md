@@ -16,7 +16,7 @@ Now the serpent was more cunning than any beast of the field which the Lord God 
 And the woman said to the serpent, "We may eat the fruit of the trees of the garden; 
 
 ###### 3 
-but of the fruit of the tree which _is_ in the midst of the garden, God has said, 'You shall not eat it, nor shall you touch it, lest you die.' " 
+but of the fruit of the tree which is in the midst of the garden, God has said, 'You shall not eat it, nor shall you touch it, lest you die.' " 
 
 ###### 4 
 Then the serpent said to the woman, "You will not surely die. 
@@ -25,46 +25,46 @@ Then the serpent said to the woman, "You will not surely die.
 For God knows that in the day you eat of it your eyes will be opened, and you will be like God, knowing good and evil." 
 
 ###### 6 
-So when the woman saw that the tree _was_ good for food, that it _was_ pleasant to the eyes, and a tree desirable to make _one_ wise, she took of its fruit and ate. She also gave to her husband with her, and he ate. 
+So when the woman saw that the tree was good for food, that it was pleasant to the eyes, and a tree desirable to make one wise, she took of its fruit and ate. She also gave to her husband with her, and he ate. 
 
 ###### 7 
-Then the eyes of both of them were opened, and they knew that they _were_ naked; and they sewed fig leaves together and made themselves coverings. 
+Then the eyes of both of them were opened, and they knew that they were naked; and they sewed fig leaves together and made themselves coverings. 
 
 ###### 8 
 And they heard the sound of the Lord God walking in the garden in the cool of the day, and Adam and his wife hid themselves from the presence of the Lord God among the trees of the garden. 
 
 ###### 9 
-Then the Lord God called to Adam and said to him, "Where _are_ you?" 
+Then the Lord God called to Adam and said to him, "Where are you?" 
 
 ###### 10 
 So he said, "I heard Your voice in the garden, and I was afraid because I was naked; and I hid myself." 
 
 ###### 11 
-And He said, "Who told you that you _were_ naked? Have you eaten from the tree of which I commanded you that you should not eat?" 
+And He said, "Who told you that you were naked? Have you eaten from the tree of which I commanded you that you should not eat?" 
 
 ###### 12 
-Then the man said, "The woman whom You gave _to be_ with me, she gave me of the tree, and I ate." 
+Then the man said, "The woman whom You gave to be with me, she gave me of the tree, and I ate." 
 
 ###### 13 
-And the Lord God said to the woman, "What _is_ this you have done?" The woman said, "The serpent deceived me, and I ate." 
+And the Lord God said to the woman, "What is this you have done?" The woman said, "The serpent deceived me, and I ate." 
 
 ###### 14 
-So the Lord God said to the serpent: "Because you have done this, You _are_ cursed more than all cattle, And more than every beast of the field; On your belly you shall go, And you shall eat dust All the days of your life. 
+So the Lord God said to the serpent: "Because you have done this, You are cursed more than all cattle, And more than every beast of the field; On your belly you shall go, And you shall eat dust All the days of your life. 
 
 ###### 15 
 And I will put enmity Between you and the woman, And between your seed and her Seed; He shall bruise your head, And you shall bruise His heel." 
 
 ###### 16 
-To the woman He said: "I will greatly multiply your sorrow and your conception; In pain you shall bring forth children; Your desire _shall be_ for your husband, And he shall rule over you." 
+To the woman He said: "I will greatly multiply your sorrow and your conception; In pain you shall bring forth children; Your desire shall be for your husband, And he shall rule over you." 
 
 ###### 17 
-Then to Adam He said, "Because you have heeded the voice of your wife, and have eaten from the tree of which I commanded you, saying, 'You shall not eat of it': "Cursed _is_ the ground for your sake; In toil you shall eat _of_ it All the days of your life. 
+Then to Adam He said, "Because you have heeded the voice of your wife, and have eaten from the tree of which I commanded you, saying, 'You shall not eat of it': "Cursed is the ground for your sake; In toil you shall eat of it All the days of your life. 
 
 ###### 18 
 Both thorns and thistles it shall bring forth for you, And you shall eat the herb of the field. 
 
 ###### 19 
-In the sweat of your face you shall eat bread Till you return to the ground, For out of it you were taken; For dust you _are,_ And to dust you shall return." 
+In the sweat of your face you shall eat bread Till you return to the ground, For out of it you were taken; For dust you are, And to dust you shall return." 
 
 ###### 20 
 And Adam called his wife's name Eve, because she was the mother of all living. 

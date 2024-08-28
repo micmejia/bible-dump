@@ -49,7 +49,7 @@ Then Joseph could not restrain himself [any longer] before all those who stood b
 
 
 
-And he wept _and_ sobbed aloud, and the Egyptians [who had just left him] heard it, and the household of Pharaoh heard about it. 
+And he wept and sobbed aloud, and the Egyptians [who had just left him] heard it, and the household of Pharaoh heard about it. 
 
 
 
@@ -70,7 +70,7 @@ And he wept _and_ sobbed aloud, and the Egyptians [who had just left him] heard 
 
 
 
-And Joseph said to his brothers, I am Joseph! Is my father still alive? And his brothers could not reply, for they were distressingly disturbed _and_ dismayed at [the startling realization that they were in] his presence. 
+And Joseph said to his brothers, I am Joseph! Is my father still alive? And his brothers could not reply, for they were distressingly disturbed and dismayed at [the startling realization that they were in] his presence. 
 
 
 
@@ -112,7 +112,7 @@ And Joseph said to his brothers, Come near to me, I pray you. And they did so. A
 
 
 
-But now, do not be distressed _and_ disheartened or vexed _and_ angry with yourselves because you sold me here, for God sent me ahead of you to preserve life. 
+But now, do not be distressed and disheartened or vexed and angry with yourselves because you sold me here, for God sent me ahead of you to preserve life. 
 
 
 
@@ -154,7 +154,7 @@ For these two years the famine has been in the land, and there are still five ye
 
 
 
-God sent me before you to preserve for you a posterity _and_ to continue a remnant on the earth, to save your lives by a great escape _and_ save for you many survivors. 
+God sent me before you to preserve for you a posterity and to continue a remnant on the earth, to save your lives by a great escape and save for you many survivors. 
 
 
 
@@ -238,7 +238,7 @@ You will live in the land of Goshen, and you will be close to me--you and your c
 
 
 
-And there I will sustain _and_ provide for you, so that you and your household and all that are yours may not come to poverty _and_ want, for there are yet five [more] years of [the scarcity, hunger, and starvation of] famine. 
+And there I will sustain and provide for you, so that you and your household and all that are yours may not come to poverty and want, for there are yet five [more] years of [the scarcity, hunger, and starvation of] famine. 
 
 
 
@@ -427,7 +427,7 @@ You therefore command them, saying, You do this: take wagons from the land of Eg
 
 
 
-Also do not look with regret _or_ concern upon your goods, for the best of all the land of Egypt is yours. 
+Also do not look with regret or concern upon your goods, for the best of all the land of Egypt is yours. 
 
 
 
@@ -490,7 +490,7 @@ To each of them he gave changes of raiment, but to Benjamin he gave 300 pieces o
 
 
 
-And to his father he sent as follows: ten donkeys loaded with the good things of Egypt, and ten she-donkeys laden with grain, bread, and nourishing food _and_ provision for his father [to supply all who were with him] on the way. 
+And to his father he sent as follows: ten donkeys loaded with the good things of Egypt, and ten she-donkeys laden with grain, bread, and nourishing food and provision for his father [to supply all who were with him] on the way. 
 
 
 
@@ -553,7 +553,7 @@ So they went up out of Egypt and came into the land of Canaan to Jacob their fat
 
 
 
-And they said to him, Joseph is still alive! And he is governor over all the land of Egypt! And Jacob's heart began to stop beating _and_ [he almost] fainted, for he did not believe them. 
+And they said to him, Joseph is still alive! And he is governor over all the land of Egypt! And Jacob's heart began to stop beating and [he almost] fainted, for he did not believe them. 
 
 
 

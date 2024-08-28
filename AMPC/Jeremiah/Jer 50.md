@@ -28,7 +28,7 @@ next: ['Jer 51']
 
 
 
-The word that the Lord spoke concerning _and_ against Babylon and concerning _and_ against the land of the Chaldeans through Jeremiah the prophet: 
+The word that the Lord spoke concerning and against Babylon and concerning and against the land of the Chaldeans through Jeremiah the prophet: 
 
 
 
@@ -49,7 +49,7 @@ The word that the Lord spoke concerning _and_ against Babylon and concerning _an
 
 
 
-Declare it among the nations and publish it and set up a signal [to spread the news]--publish and conceal it not; say, Babylon has been taken; Bel [the patron god] is put to shame, Merodach (Bel) is dismayed _and_ broken down. [Babylon's] images are put to shame, her [senseless] idols are thrown down! 
+Declare it among the nations and publish it and set up a signal [to spread the news]--publish and conceal it not; say, Babylon has been taken; Bel [the patron god] is put to shame, Merodach (Bel) is dismayed and broken down. [Babylon's] images are put to shame, her [senseless] idols are thrown down! 
 
 
 
@@ -154,7 +154,7 @@ My people have been lost sheep; their shepherds have led them astray [to favorit
 
 
 
-All who found them devoured them; and their adversaries said, We are not guilty, because they have sinned against the Lord [and are no longer holy to Him], their true habitation of righteousness _and_ justice, even the Lord, the hope of their fathers. 
+All who found them devoured them; and their adversaries said, We are not guilty, because they have sinned against the Lord [and are no longer holy to Him], their true habitation of righteousness and justice, even the Lord, the hope of their fathers. 
 
 
 
@@ -196,7 +196,7 @@ Flee out of the midst of Babylon, and go forth out of the land of the Chaldeans;
 
 
 
-For behold, I will raise and cause to come up against Babylon an assembly of great nations from the north country. They will equip _and_ set themselves against her; from there she will be taken. Their arrows will be like [both] an expert, mighty warrior _and_ like his arrows--none [of them] will return in vain. 
+For behold, I will raise and cause to come up against Babylon an assembly of great nations from the north country. They will equip and set themselves against her; from there she will be taken. Their arrows will be like [both] an expert, mighty warrior and like his arrows--none [of them] will return in vain. 
 
 
 
@@ -238,7 +238,7 @@ And Chaldea shall become plunder; all who plunder her shall be satisfied, says t
 
 
 
-Though you are glad, though you rejoice, O you who plunder My heritage, though you are wanton _and_ skip about like a heifer at grass and neigh like strong stallions, 
+Though you are glad, though you rejoice, O you who plunder My heritage, though you are wanton and skip about like a heifer at grass and neigh like strong stallions, 
 
 
 
@@ -259,7 +259,7 @@ Though you are glad, though you rejoice, O you who plunder My heritage, though y
 
 
 
-Your mother [Babylon] shall be put to great shame; she who bore you shall blush _and_ be disgraced. Behold, she shall be at the rear of the nations [least of the nations]--a wilderness, waste, and desert. 
+Your mother [Babylon] shall be put to great shame; she who bore you shall blush and be disgraced. Behold, she shall be at the rear of the nations [least of the nations]--a wilderness, waste, and desert. 
 
 
 
@@ -280,7 +280,7 @@ Your mother [Babylon] shall be put to great shame; she who bore you shall blush 
 
 
 
-Because of the wrath of the Lord she shall not be inhabited but shall be wholly desolate; everyone who goes by Babylon shall be appalled and hiss _and_ mock at all her wounds _and_ plagues. 
+Because of the wrath of the Lord she shall not be inhabited but shall be wholly desolate; everyone who goes by Babylon shall be appalled and hiss and mock at all her wounds and plagues. 
 
 
 
@@ -322,7 +322,7 @@ Set yourselves in array against Babylon round about, all you archers. Shoot at h
 
 
 
-Raise the battle cry against her round about! She gives her hand [in agreement] _and_ surrenders; her supports _and_ battlements fall, her walls are thrown down. For this is the vengeance of the Lord: take vengeance on her; as she has done [to others], do to her. 
+Raise the battle cry against her round about! She gives her hand [in agreement] and surrenders; her supports and battlements fall, her walls are thrown down. For this is the vengeance of the Lord: take vengeance on her; as she has done [to others], do to her. 
 
 
 
@@ -364,7 +364,7 @@ Exterminate the sower from Babylon, and the one who handles the sickle in the ti
 
 
 
-Israel is a hunted _and_ scattered sheep [driven hither and thither and preyed upon by savage beasts]; the lions have chased him. First the king of Assyria devoured him, and now at last Nebuchadrezzar king of Babylon has broken _and_ gnawed his bones. 
+Israel is a hunted and scattered sheep [driven hither and thither and preyed upon by savage beasts]; the lions have chased him. First the king of Assyria devoured him, and now at last Nebuchadrezzar king of Babylon has broken and gnawed his bones. 
 
 
 
@@ -385,7 +385,7 @@ Israel is a hunted _and_ scattered sheep [driven hither and thither and preyed u
 
 
 
-Therefore thus says the Lord of hosts, the God of Israel: Behold, I will visit _and_ punish the king of Babylon and his land, just as I visited _and_ punished the king of Assyria. 
+Therefore thus says the Lord of hosts, the God of Israel: Behold, I will visit and punish the king of Babylon and his land, just as I visited and punished the king of Assyria. 
 
 
 
@@ -406,7 +406,7 @@ Therefore thus says the Lord of hosts, the God of Israel: Behold, I will visit _
 
 
 
-And I will bring Israel [home] again to his fold _and_ pasturage, and he will feed on Carmel and Bashan [in the most fertile districts both west and east], and his soul will be satisfied upon the hills of Ephraim and Gilead. 
+And I will bring Israel [home] again to his fold and pasturage, and he will feed on Carmel and Bashan [in the most fertile districts both west and east], and his soul will be satisfied upon the hills of Ephraim and Gilead. 
 
 
 
@@ -469,7 +469,7 @@ Go up against [Babylon] the land of Merathaim [two rebellions, double or intense
 
 
 
-The cry _and_ noise of battle is in the land, and [the noise] of great destruction. 
+The cry and noise of battle is in the land, and [the noise] of great destruction. 
 
 
 
@@ -511,7 +511,7 @@ How the hammer of the whole earth is crushed and broken! How Babylon has become 
 
 
 
-I set a trap for you, and you also were taken, O Babylon, and you did not know it; you were found and also caught because you have struggled _and_ contended against the Lord. 
+I set a trap for you, and you also were taken, O Babylon, and you did not know it; you were found and also caught because you have struggled and contended against the Lord. 
 
 
 
@@ -532,7 +532,7 @@ I set a trap for you, and you also were taken, O Babylon, and you did not know i
 
 
 
-The Lord has opened His armory and has brought forth [the nations who unknowingly are] the weapons of His indignation _and_ wrath, for the Lord God of hosts has work to do in the land of the Chaldeans. 
+The Lord has opened His armory and has brought forth [the nations who unknowingly are] the weapons of His indignation and wrath, for the Lord God of hosts has work to do in the land of the Chaldeans. 
 
 
 
@@ -553,7 +553,7 @@ The Lord has opened His armory and has brought forth [the nations who unknowingl
 
 
 
-Come against her from every quarter _and_ from the utmost border. Open her granaries _and_ storehouses; pile up [their contents] like heaps of rubbish. Burn _and_ destroy her utterly; let nothing be left of her. 
+Come against her from every quarter and from the utmost border. Open her granaries and storehouses; pile up [their contents] like heaps of rubbish. Burn and destroy her utterly; let nothing be left of her. 
 
 
 
@@ -616,7 +616,7 @@ Listen! The voice of those [Jews] who flee and escape out of the land of Babylon
 
 
 
-Call together [many] archers against Babylon, all those who bend the bow. Encamp against her round about; let none from there escape. Recompense her according to her deeds; just as she has done, do to her. For against the Lord, against the Holy One of Israel, has she been proudly defiant _and_ presumptuous. 
+Call together [many] archers against Babylon, all those who bend the bow. Encamp against her round about; let none from there escape. Recompense her according to her deeds; just as she has done, do to her. For against the Lord, against the Holy One of Israel, has she been proudly defiant and presumptuous. 
 
 
 
@@ -637,7 +637,7 @@ Call together [many] archers against Babylon, all those who bend the bow. Encamp
 
 
 
-Therefore shall her young men fall in her streets _and_ squares, and all her soldiers shall be destroyed on that day, says the Lord. 
+Therefore shall her young men fall in her streets and squares, and all her soldiers shall be destroyed on that day, says the Lord. 
 
 
 
@@ -658,7 +658,7 @@ Therefore shall her young men fall in her streets _and_ squares, and all her sol
 
 
 
-Behold, I am against you, O Babylon [you who are pride and presumption personified], says the Lord, the Lord of hosts, for your day has come, the time when I will visit _and_ punish you. 
+Behold, I am against you, O Babylon [you who are pride and presumption personified], says the Lord, the Lord of hosts, for your day has come, the time when I will visit and punish you. 
 
 
 
@@ -721,7 +721,7 @@ Thus says the Lord of hosts: The children of Israel and the children of Judah ar
 
 
 
-Their Redeemer is strong; the Lord of hosts is His name. He will surely _and_ thoroughly plead their case _and_ defend their cause, that He may give rest to [the land of Israel and to the Babylonian-enslaved nations of] the earth, but unrest to the inhabitants of Babylon. 
+Their Redeemer is strong; the Lord of hosts is His name. He will surely and thoroughly plead their case and defend their cause, that He may give rest to [the land of Israel and to the Babylonian-enslaved nations of] the earth, but unrest to the inhabitants of Babylon. 
 
 
 
@@ -763,7 +763,7 @@ A sword upon the Chaldeans, says the Lord--upon the inhabitants of Babylon and u
 
 
 
-A sword upon the babbling liars (the diviners), that they may become fools! A sword upon her mighty warriors, that they may be dismayed _and_ destroyed! 
+A sword upon the babbling liars (the diviners), that they may become fools! A sword upon her mighty warriors, that they may be dismayed and destroyed! 
 
 
 
@@ -805,7 +805,7 @@ A sword upon their horses and upon their chariots and upon all the mixed foreign
 
 
 
-A sword _and_ a drought upon her waters, that they may be dried up! For it is a land of images, and they are mad over idols (objects of terror in which they foolishly trust). 
+A sword and a drought upon her waters, that they may be dried up! For it is a land of images, and they are mad over idols (objects of terror in which they foolishly trust). 
 
 
 
@@ -889,7 +889,7 @@ Behold, a people is coming from the north; and a great nation and many kings are
 
 
 
-They lay hold of bow, lance, _and_ spear; they are cruel _and_ have no mercy _or_ compassion. They sound like the roaring of the sea; they ride upon horses, every man equipped like a man [ready] for the battle against you, O Daughter of Babylon! 
+They lay hold of bow, lance, and spear; they are cruel and have no mercy or compassion. They sound like the roaring of the sea; they ride upon horses, every man equipped like a man [ready] for the battle against you, O Daughter of Babylon! 
 
 
 
@@ -910,7 +910,7 @@ They lay hold of bow, lance, _and_ spear; they are cruel _and_ have no mercy _or
 
 
 
-The king of Babylon has heard the news about them, and his hands fall feeble _and_ helpless; anguish has seized him, and pangs like that of a woman in childbirth. 
+The king of Babylon has heard the news about them, and his hands fall feeble and helpless; anguish has seized him, and pangs like that of a woman in childbirth. 
 
 
 
@@ -931,7 +931,7 @@ The king of Babylon has heard the news about them, and his hands fall feeble _an
 
 
 
-See, there comes up one like a lion from the jungles (the pride) of the Jordan against the strong habitation [of Babylon] _and_ into the permanent pasturage _and_ sheepfold; for in a twinkling I will drive him [Babylon] from there. And I will appoint over him the one whom I choose. For who is like Me? And who will challenge Me _and_ prosecute Me for this proceeding? And what [earthly, national] shepherd can stand before Me _and_ defy Me? 
+See, there comes up one like a lion from the jungles (the pride) of the Jordan against the strong habitation [of Babylon] and into the permanent pasturage and sheepfold; for in a twinkling I will drive him [Babylon] from there. And I will appoint over him the one whom I choose. For who is like Me? And who will challenge Me and prosecute Me for this proceeding? And what [earthly, national] shepherd can stand before Me and defy Me? 
 
 
 
@@ -952,7 +952,7 @@ See, there comes up one like a lion from the jungles (the pride) of the Jordan a
 
 
 
-Therefore hear the plan of the Lord which He has made against Babylon, and His purposes which He has formed against the land of the Chaldeans: Surely they shall be dragged away, even the little ones of the flock; surely He shall make their habitation desolate because of them _and_ their fold amazed _and_ appalled at their fate. 
+Therefore hear the plan of the Lord which He has made against Babylon, and His purposes which He has formed against the land of the Chaldeans: Surely they shall be dragged away, even the little ones of the flock; surely He shall make their habitation desolate because of them and their fold amazed and appalled at their fate. 
 
 
 

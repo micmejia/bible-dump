@@ -364,7 +364,7 @@ The Josephites said, The hill country is not enough for us, and all the Canaanit
 
 
 
-And Joshua said to the house of Joseph, to Ephraim and to Manasseh, You are a great _and_ numerous people and have great power; you shall not have only one lot 
+And Joshua said to the house of Joseph, to Ephraim and to Manasseh, You are a great and numerous people and have great power; you shall not have only one lot 
 
 
 

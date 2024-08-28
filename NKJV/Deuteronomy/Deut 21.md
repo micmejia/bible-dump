@@ -10,31 +10,31 @@ next: ['Deut 22']
 
 
 ###### 1 
-"If _anyone_ is found slain, lying in the field in the land which the Lord your God is giving you to possess, _and_ it is not known who killed him, 
+"If anyone is found slain, lying in the field in the land which the Lord your God is giving you to possess, and it is not known who killed him, 
 
 ###### 2 
-then your elders and your judges shall go out and measure _the distance_ from the slain man to the surrounding cities. 
+then your elders and your judges shall go out and measure the distance from the slain man to the surrounding cities. 
 
 ###### 3 
-And it shall be _that_ the elders of the city nearest to the slain man will take a heifer which has not been worked _and_ which has not pulled with a yoke. 
+And it shall be that the elders of the city nearest to the slain man will take a heifer which has not been worked and which has not pulled with a yoke. 
 
 ###### 4 
 The elders of that city shall bring the heifer down to a valley with flowing water, which is neither plowed nor sown, and they shall break the heifer's neck there in the valley. 
 
 ###### 5 
-Then the priests, the sons of Levi, shall come near, for the Lord your God has chosen them to minister to Him and to bless in the name of the Lord; by their word every controversy and every assault shall be _settled._ 
+Then the priests, the sons of Levi, shall come near, for the Lord your God has chosen them to minister to Him and to bless in the name of the Lord; by their word every controversy and every assault shall be settled. 
 
 ###### 6 
-And all the elders of that city nearest to the slain _man_ shall wash their hands over the heifer whose neck was broken in the valley. 
+And all the elders of that city nearest to the slain man shall wash their hands over the heifer whose neck was broken in the valley. 
 
 ###### 7 
-Then they shall answer and say, 'Our hands have not shed this blood, nor have our eyes seen _it._ 
+Then they shall answer and say, 'Our hands have not shed this blood, nor have our eyes seen it. 
 
 ###### 8 
 Provide atonement, O Lord, for Your people Israel, whom You have redeemed, and do not lay innocent blood to the charge of Your people Israel.' And atonement shall be provided on their behalf for the blood. 
 
 ###### 9 
-So you shall put away the _guilt of_ innocent blood from among you when you do _what is_ right in the sight of the Lord.
+So you shall put away the guilt of innocent blood from among you when you do what is right in the sight of the Lord.
 
 ## Female Captives 
 
@@ -56,18 +56,18 @@ And it shall be, if you have no delight in her, then you shall set her free, but
 ## Firstborn Inheritance Rights 
 
 ###### 15 
-"If a man has two wives, one loved and the other unloved, and they have borne him children, _both_ the loved and the unloved, and _if_ the firstborn son is of her who is unloved, 
+"If a man has two wives, one loved and the other unloved, and they have borne him children, both the loved and the unloved, and if the firstborn son is of her who is unloved, 
 
 ###### 16 
-then it shall be, on the day he bequeaths his possessions to his sons, _that_ he must not bestow firstborn status on the son of the loved wife in preference to the son of the unloved, the _true_ firstborn. 
+then it shall be, on the day he bequeaths his possessions to his sons, that he must not bestow firstborn status on the son of the loved wife in preference to the son of the unloved, the true firstborn. 
 
 ###### 17 
-But he shall acknowledge the son of the unloved wife _as_ the firstborn by giving him a double portion of all that he has, for he _is_ the beginning of his strength; the right of the firstborn _is_ his.
+But he shall acknowledge the son of the unloved wife as the firstborn by giving him a double portion of all that he has, for he is the beginning of his strength; the right of the firstborn is his.
 
 ## The Rebellious Son 
 
 ###### 18 
-"If a man has a stubborn and rebellious son who will not obey the voice of his father or the voice of his mother, and _who,_ when they have chastened him, will not heed them, 
+"If a man has a stubborn and rebellious son who will not obey the voice of his father or the voice of his mother, and who, when they have chastened him, will not heed them, 
 
 ###### 19 
 then his father and his mother shall take hold of him and bring him out to the elders of his city, to the gate of his city. 
@@ -84,4 +84,4 @@ Then all the men of his city shall stone him to death with stones; so you shall 
 "If a man has committed a sin deserving of death, and he is put to death, and you hang him on a tree, 
 
 ###### 23 
-his body shall not remain overnight on the tree, but you shall surely bury him that day, so that you do not defile the land which the Lord your God is giving you _as_ an inheritance; for he who is hanged _is_ accursed of God.
+his body shall not remain overnight on the tree, but you shall surely bury him that day, so that you do not defile the land which the Lord your God is giving you as an inheritance; for he who is hanged is accursed of God.

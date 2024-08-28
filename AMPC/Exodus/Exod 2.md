@@ -70,7 +70,7 @@ And the woman became pregnant and bore a son; and when she saw that he was [exce
 
 
 
-And when she could no longer hide him, she took for him an ark _or_ basket made of bulrushes _or_ papyrus [making it watertight by] daubing it with bitumen and pitch. Then she put the child in it and laid it among the rushes by the brink of the river [Nile]. 
+And when she could no longer hide him, she took for him an ark or basket made of bulrushes or papyrus [making it watertight by] daubing it with bitumen and pitch. Then she put the child in it and laid it among the rushes by the brink of the river [Nile]. 
 
 
 
@@ -280,7 +280,7 @@ He looked this way and that way, and when he saw no one, he killed the Egyptian 
 
 
 
-He went out the second day and saw two Hebrew men quarreling _and_ fighting; and he said to the unjust aggressor, Why are you striking your comrade? 
+He went out the second day and saw two Hebrew men quarreling and fighting; and he said to the unjust aggressor, Why are you striking your comrade? 
 
 
 
@@ -469,7 +469,7 @@ And Moses was content to dwell with the man; and he gave Moses Zipporah his daug
 
 
 
-And she bore a son, and he called his name Gershom [expulsion, or a stranger there]; for he said, I have been a stranger _and_ a sojourner in a foreign land. 
+And she bore a son, and he called his name Gershom [expulsion, or a stranger there]; for he said, I have been a stranger and a sojourner in a foreign land. 
 
 
 
@@ -490,7 +490,7 @@ And she bore a son, and he called his name Gershom [expulsion, or a stranger the
 
 
 
-However, after a long time [nearly forty years] the king of Egypt died; and the Israelites were sighing _and_ groaning because of the bondage. They kept crying, and their cry because of slavery ascended to God. 
+However, after a long time [nearly forty years] the king of Egypt died; and the Israelites were sighing and groaning because of the bondage. They kept crying, and their cry because of slavery ascended to God. 
 
 
 
@@ -511,7 +511,7 @@ However, after a long time [nearly forty years] the king of Egypt died; and the 
 
 
 
-And God heard their sighing _and_ groaning and [earnestly] remembered His covenant with Abraham, with Isaac, and with Jacob. 
+And God heard their sighing and groaning and [earnestly] remembered His covenant with Abraham, with Isaac, and with Jacob. 
 
 
 
@@ -532,4 +532,4 @@ And God heard their sighing _and_ groaning and [earnestly] remembered His covena
 
 
 
-God saw the Israelites and took knowledge of them _and_ concerned Himself about them [knowing all, understanding, remembering all].
+God saw the Israelites and took knowledge of them and concerned Himself about them [knowing all, understanding, remembering all].

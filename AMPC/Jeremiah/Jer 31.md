@@ -70,7 +70,7 @@ Thus says the Lord: The people who survived the sword found favor in the wildern
 
 
 
-The Lord appeared from of old to me [Israel], saying, Yes, I have loved you with an everlasting love; therefore with loving-kindness have I drawn you _and_ continued My faithfulness to you. 
+The Lord appeared from of old to me [Israel], saying, Yes, I have loved you with an everlasting love; therefore with loving-kindness have I drawn you and continued My faithfulness to you. 
 
 
 
@@ -112,7 +112,7 @@ Again I will build you and you will be built, O Virgin Israel! You will again be
 
 
 
-Again you shall plant vineyards upon the mountains of Samaria; the planters shall plant and make the fruit common _and_ enjoy it [undisturbed]. 
+Again you shall plant vineyards upon the mountains of Samaria; the planters shall plant and make the fruit common and enjoy it [undisturbed]. 
 
 
 
@@ -217,7 +217,7 @@ They will come with weeping [in penitence and for joy], pouring out prayers [for
 
 
 
-Hear the word of the Lord, O you nations, and declare it in the isles _and_ coastlands far away, and say, He Who scattered Israel will gather him and will keep him as a shepherd keeps his flock. 
+Hear the word of the Lord, O you nations, and declare it in the isles and coastlands far away, and say, He Who scattered Israel will gather him and will keep him as a shepherd keeps his flock. 
 
 
 
@@ -259,7 +259,7 @@ For the Lord has ransomed Jacob and has redeemed him from the hand of him who wa
 
 
 
-They shall come and sing aloud on the height of Zion and shall flow together _and_ be radiant with joy over the goodness of the Lord--for the corn, for the juice [of the grape], for the oil, and for the young of the flock and the herd. And their life shall be like a watered garden, and they shall not sorrow _or_ languish any more at all. 
+They shall come and sing aloud on the height of Zion and shall flow together and be radiant with joy over the goodness of the Lord--for the corn, for the juice [of the grape], for the oil, and for the young of the flock and the herd. And their life shall be like a watered garden, and they shall not sorrow or languish any more at all. 
 
 
 
@@ -427,7 +427,7 @@ Surely after I [Ephraim] was turned [from You], I repented; and after I was inst
 
 
 
-Is Ephraim My dear son? Is he a darling child _and_ beloved? For as often as I speak against him, I do [earnestly] remember him still. Therefore My affection is stirred _and_ My heart yearns for him; I will surely have mercy, pity, _and_ loving-kindness for him, says the Lord. 
+Is Ephraim My dear son? Is he a darling child and beloved? For as often as I speak against him, I do [earnestly] remember him still. Therefore My affection is stirred and My heart yearns for him; I will surely have mercy, pity, and loving-kindness for him, says the Lord. 
 
 
 
@@ -448,7 +448,7 @@ Is Ephraim My dear son? Is he a darling child _and_ beloved? For as often as I s
 
 
 
-Set up for yourselves highway markers [back to Canaan], make for yourselves guideposts; turn your thoughts _and_ attention to the way by which you went [into exile]. Retrace your steps, O Virgin Israel, return to these your cities. 
+Set up for yourselves highway markers [back to Canaan], make for yourselves guideposts; turn your thoughts and attention to the way by which you went [into exile]. Retrace your steps, O Virgin Israel, return to these your cities. 
 
 
 
@@ -469,7 +469,7 @@ Set up for yourselves highway markers [back to Canaan], make for yourselves guid
 
 
 
-How long will you waver _and_ hesitate [to return], O you backsliding daughter? For the Lord has created a new thing in the land [of Israel]: a female shall compass (woo, win, and protect) a man. 
+How long will you waver and hesitate [to return], O you backsliding daughter? For the Lord has created a new thing in the land [of Israel]: a female shall compass (woo, win, and protect) a man. 
 
 
 
@@ -490,7 +490,7 @@ How long will you waver _and_ hesitate [to return], O you backsliding daughter? 
 
 
 
-Thus says the Lord of hosts, the God of Israel: Once more they shall use these words in the land of Judah and in her cities when I release them from exile: The Lord bless you, O habitation of justice _and_ righteousness, O holy mountain! 
+Thus says the Lord of hosts, the God of Israel: Once more they shall use these words in the land of Judah and in her cities when I release them from exile: The Lord bless you, O habitation of justice and righteousness, O holy mountain! 
 
 
 
@@ -532,7 +532,7 @@ And [the people of] Judah and all its cities shall dwell there together--[nomad]
 
 
 
-For I will [fully] satisfy the weary soul, and I will replenish every languishing _and_ sorrowful person. 
+For I will [fully] satisfy the weary soul, and I will replenish every languishing and sorrowful person. 
 
 
 
@@ -742,7 +742,7 @@ And they will no more teach each man his neighbor and each man his brother, sayi
 
 
 
-Thus says the Lord, Who gives the sun for a light by day and the fixed order of the moon and of the stars for a light by night, Who stirs up the sea's roaring billows _or_ stills the waves when they roar--the Lord of hosts is His name: 
+Thus says the Lord, Who gives the sun for a light by day and the fixed order of the moon and of the stars for a light by night, Who stirs up the sea's roaring billows or stills the waves when they roar--the Lord of hosts is His name: 
 
 
 

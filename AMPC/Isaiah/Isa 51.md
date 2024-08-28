@@ -28,7 +28,7 @@ next: ['Isa 52']
 
 
 
-Hearken to Me, you who follow after rightness _and_ justice, you who seek _and_ inquire of [and require] the Lord [claiming Him by necessity and by right]: look to the rock from which you were hewn and to the hole in the quarry from which you were dug; 
+Hearken to Me, you who follow after rightness and justice, you who seek and inquire of [and require] the Lord [claiming Him by necessity and by right]: look to the rock from which you were hewn and to the hole in the quarry from which you were dug; 
 
 
 
@@ -70,7 +70,7 @@ Look to Abraham your father and to Sarah who bore you; for I called him when he 
 
 
 
-For the Lord will comfort Zion; He will comfort all her waste places. And He will make her wilderness like Eden, and her desert like the garden of the Lord. Joy and gladness will be found in her, thanksgiving and the voice of song _or_ instrument of praise. 
+For the Lord will comfort Zion; He will comfort all her waste places. And He will make her wilderness like Eden, and her desert like the garden of the Lord. Joy and gladness will be found in her, thanksgiving and the voice of song or instrument of praise. 
 
 
 
@@ -112,7 +112,7 @@ Listen to Me [the Lord], O My people, and give ear to Me, O My nation; for a [di
 
 
 
-My rightness _and_ justice are near, My salvation is going forth, and My arms shall rule the peoples; the islands shall wait for _and_ expect Me, and on My arm shall they trust _and_ wait with hope. 
+My rightness and justice are near, My salvation is going forth, and My arms shall rule the peoples; the islands shall wait for and expect Me, and on My arm shall they trust and wait with hope. 
 
 
 
@@ -133,7 +133,7 @@ My rightness _and_ justice are near, My salvation is going forth, and My arms sh
 
 
 
-Lift up your eyes to the heavens, and look upon the earth beneath; for the heavens shall be dissolved _and_ vanish away like smoke, and the earth shall wax old like a garment, and they that dwell therein shall die in like manner [like gnats]. But My salvation shall be forever, and My rightness _and_ justice [and faithfully fulfilled promise] shall not be abolished. 
+Lift up your eyes to the heavens, and look upon the earth beneath; for the heavens shall be dissolved and vanish away like smoke, and the earth shall wax old like a garment, and they that dwell therein shall die in like manner [like gnats]. But My salvation shall be forever, and My rightness and justice [and faithfully fulfilled promise] shall not be abolished. 
 
 
 
@@ -154,7 +154,7 @@ Lift up your eyes to the heavens, and look upon the earth beneath; for the heave
 
 
 
-Listen to Me, you who know rightness _and_ justice _and_ right standing with God, the people in whose heart is My law _and_ My instruction: fear not the reproach of men, neither be afraid _nor_ dismayed at their revilings. 
+Listen to Me, you who know rightness and justice and right standing with God, the people in whose heart is My law and My instruction: fear not the reproach of men, neither be afraid nor dismayed at their revilings. 
 
 
 
@@ -175,7 +175,7 @@ Listen to Me, you who know rightness _and_ justice _and_ right standing with God
 
 
 
-For [in comparison with the Lord they are so weak that things as insignificant as] the moth shall eat them up like a garment, and the worm shall eat them like wool. But My rightness _and_ justice [and faithfully fulfilled promise] shall be forever, and My salvation to all generations. 
+For [in comparison with the Lord they are so weak that things as insignificant as] the moth shall eat them up like a garment, and the worm shall eat them like wool. But My rightness and justice [and faithfully fulfilled promise] shall be forever, and My salvation to all generations. 
 
 
 
@@ -196,7 +196,7 @@ For [in comparison with the Lord they are so weak that things as insignificant a
 
 
 
-[Zion now cries to the Lord, the God of Israel] Awake, awake, put on strength _and_ might, O arm of the Lord; awake, as in the ancient days, as in the generations of long ago. Was it not You Who cut Rahab [Egypt] in pieces, Who pierced the dragon [symbol of Egypt]? 
+[Zion now cries to the Lord, the God of Israel] Awake, awake, put on strength and might, O arm of the Lord; awake, as in the ancient days, as in the generations of long ago. Was it not You Who cut Rahab [Egypt] in pieces, Who pierced the dragon [symbol of Egypt]? 
 
 
 
@@ -280,7 +280,7 @@ I, even I, am He Who comforts you. Who are you, that you should be afraid of man
 
 
 
-That you should forget the Lord your Maker, Who stretched forth the heavens and laid the foundations of the earth, and fear continually every day because of the fury of the oppressor, when he makes ready to destroy _or_ even though he did so? And where is the fury of the oppressor? 
+That you should forget the Lord your Maker, Who stretched forth the heavens and laid the foundations of the earth, and fear continually every day because of the fury of the oppressor, when he makes ready to destroy or even though he did so? And where is the fury of the oppressor? 
 
 
 
@@ -301,7 +301,7 @@ That you should forget the Lord your Maker, Who stretched forth the heavens and 
 
 
 
-The captive exile _and_ he who is bent down by chains shall speedily be released; and he shall not die and go down to the pit of destruction, nor shall his food fail. 
+The captive exile and he who is bent down by chains shall speedily be released; and he shall not die and go down to the pit of destruction, nor shall his food fail. 
 
 
 
@@ -322,7 +322,7 @@ The captive exile _and_ he who is bent down by chains shall speedily be released
 
 
 
-For I am the Lord your God, Who stirs up the sea so that its waves roar _and_ Who by rebuke restrains it--the Lord of hosts is His name. 
+For I am the Lord your God, Who stirs up the sea so that its waves roar and Who by rebuke restrains it--the Lord of hosts is His name. 
 
 
 
@@ -364,7 +364,7 @@ And I have put My words in your mouth and have covered you with the shadow of My
 
 
 
-Arouse yourself, awake! Stand up, O Jerusalem, you who have drunk at the hand of the Lord the cup of His wrath, you who have drunk the cup of staggering _and_ intoxication to the dregs. 
+Arouse yourself, awake! Stand up, O Jerusalem, you who have drunk at the hand of the Lord the cup of His wrath, you who have drunk the cup of staggering and intoxication to the dregs. 
 
 
 
@@ -406,7 +406,7 @@ There is none to guide her among all the sons she has borne; neither is there an
 
 
 
-Two kinds of calamities have befallen you--but who feels sorry for _and_ commiserates you?--they are desolation and destruction [on the land and city], and famine and sword [on the inhabitants]--how shall I comfort you _or_ by whom? 
+Two kinds of calamities have befallen you--but who feels sorry for and commiserates you?--they are desolation and destruction [on the land and city], and famine and sword [on the inhabitants]--how shall I comfort you or by whom? 
 
 
 
@@ -469,7 +469,7 @@ Therefore, now hear this, you who are afflicted, and [who are] drunk, but not wi
 
 
 
-Thus says your Lord, the Lord, and your God, Who pleads the cause of His people: Behold, I have taken from your hand the cup of staggering _and_ intoxication; the cup of My wrath you shall drink no more. 
+Thus says your Lord, the Lord, and your God, Who pleads the cause of His people: Behold, I have taken from your hand the cup of staggering and intoxication; the cup of My wrath you shall drink no more. 
 
 
 
@@ -490,4 +490,4 @@ Thus says your Lord, the Lord, and your God, Who pleads the cause of His people:
 
 
 
-And I will put it into the hands of your tormentors _and_ oppressors, those who said to you, Bow down, that we may ride _or_ tread over you; and you have made your back like the ground and like the street for them to pass over.
+And I will put it into the hands of your tormentors and oppressors, those who said to you, Bow down, that we may ride or tread over you; and you have made your back like the ground and like the street for them to pass over.

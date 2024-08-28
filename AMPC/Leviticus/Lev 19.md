@@ -91,7 +91,7 @@ Each of you shall give due respect to his mother and his father, and keep My Sab
 
 
 
-Do not turn to idols _and_ things of nought or make for yourselves molten gods. I the Lord am your God. 
+Do not turn to idols and things of nought or make for yourselves molten gods. I the Lord am your God. 
 
 
 
@@ -196,7 +196,7 @@ But everyone who eats it shall bear his iniquity, for he has profaned a holy thi
 
 
 
-And when you reap the harvest of your land, you shall not reap your field to its very corners, neither shall you gather the fallen ears _or_ gleanings of your harvest. 
+And when you reap the harvest of your land, you shall not reap your field to its very corners, neither shall you gather the fallen ears or gleanings of your harvest. 
 
 
 
@@ -280,7 +280,7 @@ And you shall not swear by My name falsely, neither shall you profane the name o
 
 
 
-You shall not defraud _or_ oppress your neighbor or rob him; the wages of a hired servant shall not remain with you all night until morning. 
+You shall not defraud or oppress your neighbor or rob him; the wages of a hired servant shall not remain with you all night until morning. 
 
 
 
@@ -322,7 +322,7 @@ You shall not curse the deaf or put a stumbling block before the blind, but you 
 
 
 
-You shall do no injustice in judging a case; you shall not be partial to the poor or show a preference for the mighty, but in righteousness _and_ according to the merits of the case judge your neighbor. 
+You shall do no injustice in judging a case; you shall not be partial to the poor or show a preference for the mighty, but in righteousness and according to the merits of the case judge your neighbor. 
 
 
 
@@ -343,7 +343,7 @@ You shall do no injustice in judging a case; you shall not be partial to the poo
 
 
 
-You shall not go up and down as a dispenser of gossip _and_ scandal among your people, nor shall you [secure yourself by false testimony or by silence and] endanger the life of your neighbor. I am the Lord. 
+You shall not go up and down as a dispenser of gossip and scandal among your people, nor shall you [secure yourself by false testimony or by silence and] endanger the life of your neighbor. I am the Lord. 
 
 
 
@@ -448,7 +448,7 @@ And if a man lies carnally with a woman who is a slave betrothed to a husband an
 
 
 
-But he shall bring his guilt _or_ trespass offering to the Lord to the door of the Tent of Meeting, a ram for a guilt _or_ trespass offering. 
+But he shall bring his guilt or trespass offering to the Lord to the door of the Tent of Meeting, a ram for a guilt or trespass offering. 
 
 
 
@@ -469,7 +469,7 @@ But he shall bring his guilt _or_ trespass offering to the Lord to the door of t
 
 
 
-The priest shall make atonement for him with the ram of the guilt _or_ trespass offering before the Lord for his sin, and he shall be forgiven for committing the sin. 
+The priest shall make atonement for him with the ram of the guilt or trespass offering before the Lord for his sin, and he shall be forgiven for committing the sin. 
 
 
 
@@ -490,7 +490,7 @@ The priest shall make atonement for him with the ram of the guilt _or_ trespass 
 
 
 
-And when you come into the land and have planted all kinds of trees for food, then you shall count the fruit of them as inedible _and_ forbidden to you for three years; it shall not be eaten. 
+And when you come into the land and have planted all kinds of trees for food, then you shall count the fruit of them as inedible and forbidden to you for three years; it shall not be eaten. 
 
 
 
@@ -553,7 +553,7 @@ But in the fifth year you may eat of the fruit [of the trees], that their produc
 
 
 
-You shall not eat anything with the blood; neither shall you use magic, omens, _or_ witchcraft [or predict events by horoscope or signs and lucky days]. 
+You shall not eat anything with the blood; neither shall you use magic, omens, or witchcraft [or predict events by horoscope or signs and lucky days]. 
 
 
 
@@ -595,7 +595,7 @@ You shall not round the corners of the hair of your heads nor trim the corners o
 
 
 
-You shall not make any cuttings in your flesh for the dead nor print _or_ tattoo any marks upon you; I am the Lord. 
+You shall not make any cuttings in your flesh for the dead nor print or tattoo any marks upon you; I am the Lord. 
 
 
 
@@ -700,7 +700,7 @@ You shall rise up before the hoary head and honor the face of the old man and [r
 
 
 
-And if a stranger dwells temporarily with you in your land, you shall not suppress _and_ mistreat him. 
+And if a stranger dwells temporarily with you in your land, you shall not suppress and mistreat him. 
 
 
 
@@ -763,7 +763,7 @@ You shall do no unrighteousness in judgment, in measures of length or weight or 
 
 
 
-You shall have accurate _and_ just balances, just weights, just ephah and hin measures. I am the Lord your God, Who brought you out of the land of Egypt. 
+You shall have accurate and just balances, just weights, just ephah and hin measures. I am the Lord your God, Who brought you out of the land of Egypt. 
 
 
 

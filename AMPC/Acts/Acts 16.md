@@ -112,7 +112,7 @@ As they went on their way from town to town, they delivered over [to the assembl
 
 
 
-So the churches were strengthened _and_ made firm in the faith, and they increased in number day after day. 
+So the churches were strengthened and made firm in the faith, and they increased in number day after day. 
 
 
 
@@ -322,7 +322,7 @@ One of those who listened to us was a woman named Lydia, from the city of Thyati
 
 
 
-And when she was baptized along with her household, she earnestly entreated us, saying, If in your opinion I am one really convinced [that Jesus is the Messiah and the Author of salvation] _and_ that I will be faithful to the Lord, come to my house and stay. And she induced us [to do it]. 
+And when she was baptized along with her household, she earnestly entreated us, saying, If in your opinion I am one really convinced [that Jesus is the Messiah and the Author of salvation] and that I will be faithful to the Lord, come to my house and stay. And she induced us [to do it]. 
 
 
 
@@ -385,7 +385,7 @@ She kept following Paul and [the rest of] us, shouting loudly, These men are the
 
 
 
-And she did this for many days. Then Paul, being sorely annoyed _and_ worn out, turned and said to the spirit within her, I charge you in the name of Jesus Christ to come out of her! And it came out that very moment. 
+And she did this for many days. Then Paul, being sorely annoyed and worn out, turned and said to the spirit within her, I charge you in the name of Jesus Christ to come out of her! And it came out that very moment. 
 
 
 
@@ -616,7 +616,7 @@ But Paul shouted, Do not harm yourself, for we are all here!
 
 
 
-Then [the jailer] called for lights and rushed in, and trembling _and_ terrified he fell down before Paul and Silas. 
+Then [the jailer] called for lights and rushed in, and trembling and terrified he fell down before Paul and Silas. 
 
 
 
@@ -658,7 +658,7 @@ And he brought them out [of the dungeon] and said, Men, what is it necessary for
 
 
 
-And they answered, Believe in the Lord Jesus _Christ_ [give yourself up to Him,  take yourself out of your own keeping and entrust yourself into His keeping] and you will be saved, [and this applies both to] you and your household as well. 
+And they answered, Believe in the Lord Jesus Christ [give yourself up to Him,  take yourself out of your own keeping and entrust yourself into His keeping] and you will be saved, [and this applies both to] you and your household as well. 
 
 
 
@@ -721,7 +721,7 @@ And he took them the same hour of the night and bathed [them because of their bl
 
 
 
-Then he took them up into his house and set food before them; and he leaped much for joy _and_ exulted with all his family that he believed in God [accepting and joyously welcoming what He had made known through Christ]. 
+Then he took them up into his house and set food before them; and he leaped much for joy and exulted with all his family that he believed in God [accepting and joyously welcoming what He had made known through Christ]. 
 
 
 
@@ -742,7 +742,7 @@ Then he took them up into his house and set food before them; and he leaped much
 
 
 
-But when it was day, the magistrates sent policemen, saying, Release those fellows _and_ let them go. 
+But when it was day, the magistrates sent policemen, saying, Release those fellows and let them go. 
 
 
 
@@ -763,7 +763,7 @@ But when it was day, the magistrates sent policemen, saying, Release those fello
 
 
 
-And the jailer repeated the words to Paul, saying, The magistrates have sent to release you _and_ let you go; now therefore come out and go in peace. 
+And the jailer repeated the words to Paul, saying, The magistrates have sent to release you and let you go; now therefore come out and go in peace. 
 
 
 
@@ -784,7 +784,7 @@ And the jailer repeated the words to Paul, saying, The magistrates have sent to 
 
 
 
-But Paul answered them, They have beaten us openly _and_ publicly, without a trial _and_ uncondemned, men who are Roman citizens, and have thrown us into prison; and do they now thrust us out secretly? No, indeed! Let them come here themselves and conduct us out! 
+But Paul answered them, They have beaten us openly and publicly, without a trial and uncondemned, men who are Roman citizens, and have thrown us into prison; and do they now thrust us out secretly? No, indeed! Let them come here themselves and conduct us out! 
 
 
 
@@ -847,4 +847,4 @@ So they came themselves and [striving to appease them by entreaty] apologized to
 
 
 
-So [Paul and Silas] left the prison and went to Lydia's house; and when they had seen the brethren, they warned _and_ urged _and_ consoled _and_ encouraged them and departed.
+So [Paul and Silas] left the prison and went to Lydia's house; and when they had seen the brethren, they warned and urged and consoled and encouraged them and departed.

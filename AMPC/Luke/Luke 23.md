@@ -91,7 +91,7 @@ So Pilate asked Him, Are You the King of the Jews? And He answered him, [It is j
 
 
 
-And Pilate said to the chief priests and the throngs, I find no guilt _or_ crime in this Man. 
+And Pilate said to the chief priests and the throngs, I find no guilt or crime in this Man. 
 
 
 
@@ -112,7 +112,7 @@ And Pilate said to the chief priests and the throngs, I find no guilt _or_ crime
 
 
 
-But they were urgent _and_ emphatic, saying, He stirs up _and_ excites the people, teaching throughout all Judea--from Galilee, where He began, even to this place. 
+But they were urgent and emphatic, saying, He stirs up and excites the people, teaching throughout all Judea--from Galilee, where He began, even to this place. 
 
 
 
@@ -217,7 +217,7 @@ So he asked Him many questions, but He made no reply.
 
 
 
-Meanwhile, the chief priests and the scribes stood by, continuing vehemently _and_ violently to accuse Him. 
+Meanwhile, the chief priests and the scribes stood by, continuing vehemently and violently to accuse Him. 
 
 
 
@@ -238,7 +238,7 @@ Meanwhile, the chief priests and the scribes stood by, continuing vehemently _an
 
 
 
-And Herod, with his soldiers, treated Him with contempt and scoffed at _and_ ridiculed Him; then, dressing Him up in bright _and_ gorgeous apparel, he sent Him back to Pilate. 
+And Herod, with his soldiers, treated Him with contempt and scoffed at and ridiculed Him; then, dressing Him up in bright and gorgeous apparel, he sent Him back to Pilate. 
 
 
 
@@ -301,7 +301,7 @@ Pilate then called together the chief priests and the rulers and the people,
 
 
 
-And said to them, You brought this Man before me as One Who was perverting _and_ misleading _and_ turning away _and_ corrupting the people; and behold, after examining Him before you, I have not found any offense (crime or guilt) in this Man in regard to your accusations against Him; 
+And said to them, You brought this Man before me as One Who was perverting and misleading and turning away and corrupting the people; and behold, after examining Him before you, I have not found any offense (crime or guilt) in this Man in regard to your accusations against Him; 
 
 
 
@@ -343,7 +343,7 @@ No, nor indeed did Herod, for he sent Him back to us; behold, He has done nothin
 
 
 
-I will therefore chastise Him _and_ deliver Him amended (reformed, taught His lesson) and release Him. 
+I will therefore chastise Him and deliver Him amended (reformed, taught His lesson) and release Him. 
 
 
 
@@ -364,7 +364,7 @@ I will therefore chastise Him _and_ deliver Him amended (reformed, taught His le
 
 
 
-_For it was necessary for him to release to them one prisoner at the Feast_. 
+For it was necessary for him to release to them one prisoner at the Feast. 
 
 
 
@@ -490,7 +490,7 @@ A third time he said to them, Why? What wrong has He done? I have found [no offe
 
 
 
-But they were insistent _and_ urgent, demanding with loud cries that He should be crucified. And their voices prevailed (accomplished their purpose). 
+But they were insistent and urgent, demanding with loud cries that He should be crucified. And their voices prevailed (accomplished their purpose). 
 
 
 
@@ -721,7 +721,7 @@ And when they came to the place which is called The Skull [Latin: Calvary; Hebre
 
 
 
-And Jesus prayed, Father, forgive them, for they know not what they do. And they divided His garments _and_ distributed them by casting lots for them. 
+And Jesus prayed, Father, forgive them, for they know not what they do. And they divided His garments and distributed them by casting lots for them. 
 
 
 
@@ -742,7 +742,7 @@ And Jesus prayed, Father, forgive them, for they know not what they do. And they
 
 
 
-Now the people stood by [calmly and leisurely] watching; but the rulers scoffed _and_ sneered (turned up their noses) at Him, saying, He rescued others [from death]; let Him now rescue Himself, if He is the Christ (the Messiah) of God, His Chosen One! 
+Now the people stood by [calmly and leisurely] watching; but the rulers scoffed and sneered (turned up their noses) at Him, saying, He rescued others [from death]; let Him now rescue Himself, if He is the Christ (the Messiah) of God, His Chosen One! 
 
 
 
@@ -763,7 +763,7 @@ Now the people stood by [calmly and leisurely] watching; but the rulers scoffed 
 
 
 
-The soldiers also ridiculed _and_ made sport of Him, coming up and offering Him vinegar (a sour wine mixed with water) 
+The soldiers also ridiculed and made sport of Him, coming up and offering Him vinegar (a sour wine mixed with water) 
 
 
 
@@ -805,7 +805,7 @@ And saying, If you are the King of the Jews, save (rescue) Yourself [from death]
 
 
 
-For there was also an inscription above Him _in letters of Greek and Latin and Hebrew_: This is the King of the Jews. 
+For there was also an inscription above Him in letters of Greek and Latin and Hebrew: This is the King of the Jews. 
 
 
 
@@ -847,7 +847,7 @@ One of the criminals who was suspended kept up a railing at Him, saying, Are You
 
 
 
-But the other one reproved him, saying, Do you not even fear God, seeing you yourself are under the same sentence of condemnation _and_ suffering the same penalty? 
+But the other one reproved him, saying, Do you not even fear God, seeing you yourself are under the same sentence of condemnation and suffering the same penalty? 
 
 
 
@@ -889,7 +889,7 @@ And we indeed suffer it justly, receiving the due reward of our actions; but thi
 
 
 
-Then he said to Jesus, _Lord_, remember me when You come in Your kingly glory! 
+Then he said to Jesus, Lord, remember me when You come in Your kingly glory! 
 
 
 
@@ -931,7 +931,7 @@ And He answered him, Truly I tell you, today you shall be with Me in Paradise.
 
 
 
-It was now about the sixth hour (midday), and darkness enveloped the whole land _and_ earth until the ninth hour (about three o'clock in the afternoon), 
+It was now about the sixth hour (midday), and darkness enveloped the whole land and earth until the ninth hour (about three o'clock in the afternoon), 
 
 
 
@@ -952,7 +952,7 @@ It was now about the sixth hour (midday), and darkness enveloped the whole land 
 
 
 
-While the sun's light faded _or_ _was darkened_; and the curtain [of the Holy of Holies] of the temple was torn in two. 
+While the sun's light faded or was darkened; and the curtain [of the Holy of Holies] of the temple was torn in two. 
 
 
 
@@ -994,7 +994,7 @@ And Jesus, crying out with a loud voice, said, Father, into Your hands I commit 
 
 
 
-Now the centurion, having seen what had taken place, recognized God _and_ thanked _and_ praised Him, and said, Indeed, without question, this Man was upright (just and innocent)! 
+Now the centurion, having seen what had taken place, recognized God and thanked and praised Him, and said, Indeed, without question, this Man was upright (just and innocent)! 
 
 
 
@@ -1078,7 +1078,7 @@ Now notice, there was a man named Joseph from the Jewish town of Arimathea. He w
 
 
 
-Who had not agreed with _or_ assented to the purpose and action of the others; and he was expecting _and_ waiting for the kingdom of God. 
+Who had not agreed with or assented to the purpose and action of the others; and he was expecting and waiting for the kingdom of God. 
 
 
 

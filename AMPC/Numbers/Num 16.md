@@ -49,7 +49,7 @@ Now Korah son of Izhar, the son of Kohath, the son of Levi, with Dathan and Abir
 
 
 
-And they rose up before Moses, with certain of the Israelites, 250 princes _or_ leaders of the congregation called to the assembly, men well known _and_ of distinction. 
+And they rose up before Moses, with certain of the Israelites, 250 princes or leaders of the congregation called to the assembly, men well known and of distinction. 
 
 
 
@@ -805,7 +805,7 @@ Speak to Eleazar son of Aaron, the priest, that he take up the censers out of th
 
 
 
-The censers of these men who have sinned against themselves _and_ at the cost of their own lives. Let the censers be made into hammered plates for a covering of the altar [of burnt offering], for they were used in offering before the Lord and therefore they are sacred. They shall be a sign [of warning] to the Israelites. 
+The censers of these men who have sinned against themselves and at the cost of their own lives. Let the censers be made into hammered plates for a covering of the altar [of burnt offering], for they were used in offering before the Lord and therefore they are sacred. They shall be a sign [of warning] to the Israelites. 
 
 
 

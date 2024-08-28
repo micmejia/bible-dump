@@ -154,7 +154,7 @@ But Peter said, Silver and gold (money) I do not have; but what I do have, that 
 
 
 
-Then he took hold of the man's right hand with a firm grip and raised him up. And at once his feet and ankle bones became strong _and_ steady, 
+Then he took hold of the man's right hand with a firm grip and raised him up. And at once his feet and ankle bones became strong and steady, 
 
 
 
@@ -238,7 +238,7 @@ And they recognized him as the man who usually sat [begging] for alms at the Bea
 
 
 
-Now while he [still] firmly clung to Peter and John, all the people in utmost amazement ran together _and_ crowded around them in the covered porch (walk) called Solomon's. 
+Now while he [still] firmly clung to Peter and John, all the people in utmost amazement ran together and crowded around them in the covered porch (walk) called Solomon's. 
 
 
 
@@ -259,7 +259,7 @@ Now while he [still] firmly clung to Peter and John, all the people in utmost am
 
 
 
-And Peter, seeing it, answered the people, You men of Israel, why are you so surprised _and_ wondering at this? Why do you keep staring at us, as though by our [own individual] power _or_ [active] piety we had made this man [able] to walk? 
+And Peter, seeing it, answered the people, You men of Israel, why are you so surprised and wondering at this? Why do you keep staring at us, as though by our [own individual] power or [active] piety we had made this man [able] to walk? 
 
 
 
@@ -280,7 +280,7 @@ And Peter, seeing it, answered the people, You men of Israel, why are you so sur
 
 
 
-The God of Abraham and of Isaac and of Jacob, the God of our forefathers, has glorified His Servant _and_ Son Jesus [doing Him this honor], Whom you indeed delivered up and denied _and_ rejected _and_ disowned in the presence of Pilate, when he had determined to let Him go. 
+The God of Abraham and of Isaac and of Jacob, the God of our forefathers, has glorified His Servant and Son Jesus [doing Him this honor], Whom you indeed delivered up and denied and rejected and disowned in the presence of Pilate, when he had determined to let Him go. 
 
 
 
@@ -301,7 +301,7 @@ The God of Abraham and of Isaac and of Jacob, the God of our forefathers, has gl
 
 
 
-But you denied _and_ rejected _and_ disowned the Pure _and_ Holy, the Just _and_ Blameless One, and demanded [the pardon of] a murderer to be granted to you. 
+But you denied and rejected and disowned the Pure and Holy, the Just and Blameless One, and demanded [the pardon of] a murderer to be granted to you. 
 
 
 
@@ -343,7 +343,7 @@ But you killed the very Source (the Author) of life, Whom God raised from the de
 
 
 
-And His name, through _and_ by faith in His name, has made this man whom you see and recognize well _and_ strong. [Yes] the faith which is through _and_ by Him [Jesus] has given the man this perfect soundness [of body] before all of you. 
+And His name, through and by faith in His name, has made this man whom you see and recognize well and strong. [Yes] the faith which is through and by Him [Jesus] has given the man this perfect soundness [of body] before all of you. 
 
 
 
@@ -385,7 +385,7 @@ And now, brethren, I know that you acted in ignorance [not aware of what you wer
 
 
 
-Thus has God fulfilled what He foretold by the mouth of all the prophets, that His Christ (the Messiah) should undergo ill treatment _and_ be afflicted _and_ suffer. 
+Thus has God fulfilled what He foretold by the mouth of all the prophets, that His Christ (the Messiah) should undergo ill treatment and be afflicted and suffer. 
 
 
 
@@ -406,7 +406,7 @@ Thus has God fulfilled what He foretold by the mouth of all the prophets, that H
 
 
 
-So repent (change your mind and purpose); turn around _and_ return [to God], that your sins may be erased (blotted out, wiped clean), that times of refreshing (of recovering from the effects of heat, of reviving with fresh air) may come from the presence of the Lord; 
+So repent (change your mind and purpose); turn around and return [to God], that your sins may be erased (blotted out, wiped clean), that times of refreshing (of recovering from the effects of heat, of reviving with fresh air) may come from the presence of the Lord; 
 
 
 
@@ -427,7 +427,7 @@ So repent (change your mind and purpose); turn around _and_ return [to God], tha
 
 
 
-And that He may send [to you] the Christ (the Messiah), Who before was designated _and_ appointed for you--even Jesus, 
+And that He may send [to you] the Christ (the Messiah), Who before was designated and appointed for you--even Jesus, 
 
 
 
@@ -469,7 +469,7 @@ Whom heaven must receive [and retain] until the time for the complete restoratio
 
 
 
-Thus Moses said _to the forefathers_, The Lord God will raise up for you a Prophet from among your brethren as [He raised up] me; Him you shall listen to _and_ understand by hearing _and_ heed in all things whatever He tells you. 
+Thus Moses said to the forefathers, The Lord God will raise up for you a Prophet from among your brethren as [He raised up] me; Him you shall listen to and understand by hearing and heed in all things whatever He tells you. 
 
 
 
@@ -490,7 +490,7 @@ Thus Moses said _to the forefathers_, The Lord God will raise up for you a Proph
 
 
 
-And it shall be that every soul that does not listen to _and_ understand by hearing _and_ heed that Prophet shall be utterly exterminated from among the people. 
+And it shall be that every soul that does not listen to and understand by hearing and heed that Prophet shall be utterly exterminated from among the people. 
 
 
 
@@ -511,7 +511,7 @@ And it shall be that every soul that does not listen to _and_ understand by hear
 
 
 
-Indeed, all the prophets from Samuel and those who came afterwards, as many as have spoken, also promised _and_ foretold _and_ proclaimed these days. 
+Indeed, all the prophets from Samuel and those who came afterwards, as many as have spoken, also promised and foretold and proclaimed these days. 
 
 
 
@@ -532,7 +532,7 @@ Indeed, all the prophets from Samuel and those who came afterwards, as many as h
 
 
 
-You are the descendants (sons) of the prophets and the heirs of the covenant which God made _and_ gave to your forefathers, saying to Abraham, And in your Seed (Heir) shall all the families of the earth be blessed _and_ benefited. 
+You are the descendants (sons) of the prophets and the heirs of the covenant which God made and gave to your forefathers, saying to Abraham, And in your Seed (Heir) shall all the families of the earth be blessed and benefited. 
 
 
 
@@ -553,4 +553,4 @@ You are the descendants (sons) of the prophets and the heirs of the covenant whi
 
 
 
-It was to you first that God sent His Servant _and_ Son _Jesus_, when He raised Him up [provided and gave Him for us], to bless you in turning every one of you from your wickedness _and_ evil ways.
+It was to you first that God sent His Servant and Son Jesus, when He raised Him up [provided and gave Him for us], to bless you in turning every one of you from your wickedness and evil ways.

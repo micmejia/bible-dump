@@ -70,7 +70,7 @@ I go the way of all the earth. Be strong and show yourself a man;
 
 
 
-Keep the charge of the Lord your God, walk in His ways, keep His statutes, His commandments, His precepts, and His testimonies, as it is written in the Law of Moses, that you may do wisely _and_ prosper in all that you do and wherever you turn, 
+Keep the charge of the Lord your God, walk in His ways, keep His statutes, His commandments, His precepts, and His testimonies, as it is written in the Law of Moses, that you may do wisely and prosper in all that you do and wherever you turn, 
 
 
 
@@ -91,7 +91,7 @@ Keep the charge of the Lord your God, walk in His ways, keep His statutes, His c
 
 
 
-That the Lord may fulfill His promise to me, saying, If your sons take heed to their way, to walk before Me in truth with all their heart _and_ mind and with all their soul, there shall not fail you [to have] a man on the throne of Israel. 
+That the Lord may fulfill His promise to me, saying, If your sons take heed to their way, to walk before Me in truth with all their heart and mind and with all their soul, there shall not fail you [to have] a man on the throne of Israel. 
 
 
 

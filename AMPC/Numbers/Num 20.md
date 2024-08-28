@@ -301,7 +301,7 @@ These are the waters of Meribah [strife], where the Israelites contended with th
 
 
 
-And Moses sent messengers from Kadesh to the king of Edom, saying, Thus says your kinsman Israel: You know all the adversity _and_ birth pangs that have come upon us [as a nation]: 
+And Moses sent messengers from Kadesh to the king of Edom, saying, Thus says your kinsman Israel: You know all the adversity and birth pangs that have come upon us [as a nation]: 
 
 
 
@@ -616,4 +616,4 @@ And Moses stripped Aaron of his [priestly] garments and put them on Eleazar his 
 
 
 
-When all the congregation saw that Aaron was dead, they wept _and_ mourned for him thirty days, all the house of Israel.
+When all the congregation saw that Aaron was dead, they wept and mourned for him thirty days, all the house of Israel.

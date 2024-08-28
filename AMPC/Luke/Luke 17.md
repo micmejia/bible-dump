@@ -28,7 +28,7 @@ next: ['Luke 18']
 
 
 
-And [Jesus] said to His disciples, Temptations (snares, traps set to entice to sin) are sure to come, but woe to him by _or_ through whom they come! 
+And [Jesus] said to His disciples, Temptations (snares, traps set to entice to sin) are sure to come, but woe to him by or through whom they come! 
 
 
 
@@ -49,7 +49,7 @@ And [Jesus] said to His disciples, Temptations (snares, traps set to entice to s
 
 
 
-It would be more profitable for him if a millstone were hung around his neck and he were hurled into the sea than that he should cause to sin _or_ be a snare to one of these little ones [lowly in rank or influence]. 
+It would be more profitable for him if a millstone were hung around his neck and he were hurled into the sea than that he should cause to sin or be a snare to one of these little ones [lowly in rank or influence]. 
 
 
 
@@ -70,7 +70,7 @@ It would be more profitable for him if a millstone were hung around his neck and
 
 
 
-Pay attention _and_ always be on your guard [looking out for one another]. If your brother sins (misses the mark), solemnly tell him so _and_ reprove him, and if he repents (feels sorry for having sinned), forgive him. 
+Pay attention and always be on your guard [looking out for one another]. If your brother sins (misses the mark), solemnly tell him so and reprove him, and if he repents (feels sorry for having sinned), forgive him. 
 
 
 
@@ -196,7 +196,7 @@ Will he not instead tell him, Get my supper ready and gird yourself and serve me
 
 
 
-Is he grateful _and_ does he praise the servant because he did what he was ordered to do? 
+Is he grateful and does he praise the servant because he did what he was ordered to do? 
 
 
 
@@ -217,7 +217,7 @@ Is he grateful _and_ does he praise the servant because he did what he was order
 
 
 
-Even so on your part, when you have done everything that was assigned _and_ commanded you, say, We are unworthy servants [possessing no merit, for we have not gone beyond our obligation]; we have [merely] done what was our duty to do. 
+Even so on your part, when you have done everything that was assigned and commanded you, say, We are unworthy servants [possessing no merit, for we have not gone beyond our obligation]; we have [merely] done what was our duty to do. 
 
 
 
@@ -280,7 +280,7 @@ And as He was going into one village, He was met by ten lepers, who stood at a d
 
 
 
-And they raised up their voices and called, Jesus, Master, take pity _and_ have mercy on us! 
+And they raised up their voices and called, Jesus, Master, take pity and have mercy on us! 
 
 
 
@@ -301,7 +301,7 @@ And they raised up their voices and called, Jesus, Master, take pity _and_ have 
 
 
 
-And when He saw them, He said to them, Go [at once] and show yourselves to the priests. And as they went, they were cured _and_ made clean. 
+And when He saw them, He said to them, Go [at once] and show yourselves to the priests. And as they went, they were cured and made clean. 
 
 
 
@@ -322,7 +322,7 @@ And when He saw them, He said to them, Go [at once] and show yourselves to the p
 
 
 
-Then one of them, upon seeing that he was cured, turned back, recognizing _and_ thanking _and_ praising God with a loud voice; 
+Then one of them, upon seeing that he was cured, turned back, recognizing and thanking and praising God with a loud voice; 
 
 
 
@@ -385,7 +385,7 @@ Then Jesus asked, Were not [all] ten cleansed? Where are the nine?
 
 
 
-Was there no one found to return and to recognize _and_ give thanks _and_ praise to God except this alien? 
+Was there no one found to return and to recognize and give thanks and praise to God except this alien? 
 
 
 
@@ -427,7 +427,7 @@ And He said to him, Get up and go on your way. Your faith (your trust and confid
 
 
 
-Asked by the Pharisees when the kingdom of God would come, He replied to them by saying, The kingdom of God does not come with signs to be observed _or_ with visible display, 
+Asked by the Pharisees when the kingdom of God would come, He replied to them by saying, The kingdom of God does not come with signs to be observed or with visible display, 
 
 
 
@@ -448,7 +448,7 @@ Asked by the Pharisees when the kingdom of God would come, He replied to them by
 
 
 
-Nor will people say, Look! Here [it is]! or, See, [it is] there! For behold, the kingdom of God is within you [in your hearts] _and_ among you [surrounding you]. 
+Nor will people say, Look! Here [it is]! or, See, [it is] there! For behold, the kingdom of God is within you [in your hearts] and among you [surrounding you]. 
 
 
 
@@ -532,7 +532,7 @@ For like the lightning, that flashes and lights up the sky from one end to the o
 
 
 
-But first He must suffer many things and be disapproved _and_ repudiated _and_ rejected by this age _and_ generation. 
+But first He must suffer many things and be disapproved and repudiated and rejected by this age and generation. 
 
 
 
@@ -763,7 +763,7 @@ There will be two women grinding together; one will be taken and the other will 
 
 
 
-_Two men will be in the field; one will be taken and the other will be left._ 
+Two men will be in the field; one will be taken and the other will be left. 
 
 
 
@@ -784,4 +784,4 @@ _Two men will be in the field; one will be taken and the other will be left._
 
 
 
-Then they asked Him, Where, Lord? He said to them, Wherever the dead body is, there will the vultures _or_ eagles be gathered together.
+Then they asked Him, Where, Lord? He said to them, Wherever the dead body is, there will the vultures or eagles be gathered together.

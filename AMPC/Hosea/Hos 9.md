@@ -112,7 +112,7 @@ They shall not pour out wine offerings to the Lord, neither shall they be pleasi
 
 
 
-What will you do on the day of the appointed solemn assembly _or_ festival and on the day of the feast of the Lord [when you are in exile]? 
+What will you do on the day of the appointed solemn assembly or festival and on the day of the feast of the Lord [when you are in exile]? 
 
 
 
@@ -133,7 +133,7 @@ What will you do on the day of the appointed solemn assembly _or_ festival and o
 
 
 
-For behold, they are gone away from devastation _and_ destruction; Egypt shall gather them in; Memphis shall bury them. Their precious things of silver shall be in the possession of nettles; thorns shall be [growing] in their tents. 
+For behold, they are gone away from devastation and destruction; Egypt shall gather them in; Memphis shall bury them. Their precious things of silver shall be in the possession of nettles; thorns shall be [growing] in their tents. 
 
 
 
@@ -154,7 +154,7 @@ For behold, they are gone away from devastation _and_ destruction; Egypt shall g
 
 
 
-The days of visitation _and_ punishment have come; the days of recompense have come; Israel shall know it. The prophet is [considered] a crazed fool and the man who is inspired is [treated as if] mad _or_ a fanatic, because of the abundance of your iniquity and because the enmity, hostility, _and_ persecution are great. 
+The days of visitation and punishment have come; the days of recompense have come; Israel shall know it. The prophet is [considered] a crazed fool and the man who is inspired is [treated as if] mad or a fanatic, because of the abundance of your iniquity and because the enmity, hostility, and persecution are great. 
 
 
 
@@ -175,7 +175,7 @@ The days of visitation _and_ punishment have come; the days of recompense have c
 
 
 
-Ephraim was [intended to be] a watchman with my God [and a prophet to the surrounding nations]; but he, that prophet, has become a fowler's snare in all his ways. There is enmity, hostility, _and_ persecution in the house of his God. 
+Ephraim was [intended to be] a watchman with my God [and a prophet to the surrounding nations]; but he, that prophet, has become a fowler's snare in all his ways. There is enmity, hostility, and persecution in the house of his God. 
 
 
 
@@ -217,7 +217,7 @@ They have deeply corrupted themselves as in the days of Gibeah. The Lord will [e
 
 
 
-I found Israel like grapes in the wilderness; I saw your fathers as the first ripe fruit on the fig tree in its first season, but they went to Baal-peor and consecrated themselves to that shameful thing [Baal], and they became detestable _and_ loathsome like that which they loved. 
+I found Israel like grapes in the wilderness; I saw your fathers as the first ripe fruit on the fig tree in its first season, but they went to Baal-peor and consecrated themselves to that shameful thing [Baal], and they became detestable and loathsome like that which they loved. 
 
 
 
@@ -259,7 +259,7 @@ As for Ephraim, their glory shall fly away like a bird; there shall be no birth,
 
 
 
-Though they bring up their children, yet will I bereave them so that not a man shall be left; yes, woe also to them when I look away _and_ depart from them! 
+Though they bring up their children, yet will I bereave them so that not a man shall be left; yes, woe also to them when I look away and depart from them! 
 
 
 
@@ -364,4 +364,4 @@ Ephraim is smitten, their root is dried up, they shall bear no fruit. Yes, thoug
 
 
 
-My God will cast them away because they did not listen to _and_ obey Him, and they shall be wanderers _and_ fugitives among the nations.
+My God will cast them away because they did not listen to and obey Him, and they shall be wanderers and fugitives among the nations.

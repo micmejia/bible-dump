@@ -49,7 +49,7 @@ Now Dinah daughter of Leah, whom she bore to Jacob, went out [unattended] to see
 
 
 
-And when Shechem son of Hamor the Hivite, prince of the country, saw her, he seized her, lay with her, and humbled, defiled, _and_ disgraced her. 
+And when Shechem son of Hamor the Hivite, prince of the country, saw her, he seized her, lay with her, and humbled, defiled, and disgraced her. 
 
 
 
@@ -70,7 +70,7 @@ And when Shechem son of Hamor the Hivite, prince of the country, saw her, he sei
 
 
 
-But his soul longed for _and_ clung to Dinah daughter of Jacob, and he loved the girl and spoke comfortingly to her young heart's wishes. 
+But his soul longed for and clung to Dinah daughter of Jacob, and he loved the girl and spoke comfortingly to her young heart's wishes. 
 
 
 
@@ -280,7 +280,7 @@ Ask me ever so much dowry and [marriage] gift, and I will give according to what
 
 
 
-The sons of Jacob answered Shechem and Hamor his father deceitfully, [justifying their intended action by saying, in effect, we are going to do this] because Shechem had defiled _and_ disgraced their sister Dinah. 
+The sons of Jacob answered Shechem and Hamor his father deceitfully, [justifying their intended action by saying, in effect, we are going to do this] because Shechem had defiled and disgraced their sister Dinah. 
 
 
 
@@ -301,7 +301,7 @@ The sons of Jacob answered Shechem and Hamor his father deceitfully, [justifying
 
 
 
-They said to them, We cannot do this thing _and_ give our sister to one who is not circumcised, for that would be a reproach _and_ disgrace to us. 
+They said to them, We cannot do this thing and give our sister to one who is not circumcised, for that would be a reproach and disgrace to us. 
 
 
 
@@ -511,7 +511,7 @@ Shall not their cattle and their possessions and all their beasts be ours? Only 
 
 
 
-And all the people who went out of the town gate listened _and_ heeded what Hamor and Shechem said; and every male was circumcised who was a resident of that town. 
+And all the people who went out of the town gate listened and heeded what Hamor and Shechem said; and every male was circumcised who was a resident of that town. 
 
 
 
@@ -574,7 +574,7 @@ And they killed Hamor and Shechem his son with the edge of the sword and took Di
 
 
 
-[Then the rest of] Jacob's [eleven] sons came upon the slain and plundered the town, because there their sister had been defiled _and_ disgraced. 
+[Then the rest of] Jacob's [eleven] sons came upon the slain and plundered the town, because there their sister had been defiled and disgraced. 
 
 
 
@@ -637,7 +637,7 @@ All their wealth and all their little ones and their wives they took captive, ma
 
 
 
-And Jacob said to Simeon and Levi, You have ruined me, making me infamous _and_ embroiling me with the inhabitants of the land, the Canaanites and the Perizzites! And we are few in number, and they will gather together against me and attack me; and I shall be destroyed, I and my household. 
+And Jacob said to Simeon and Levi, You have ruined me, making me infamous and embroiling me with the inhabitants of the land, the Canaanites and the Perizzites! And we are few in number, and they will gather together against me and attack me; and I shall be destroyed, I and my household. 
 
 
 

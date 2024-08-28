@@ -70,7 +70,7 @@ I counsel you to keep the king's command, and that in regard to the oath of God 
 
 
 
-Be not panic-stricken _and_ hasty to get out of his presence. Persist not in an evil thing, for he does whatever he pleases. 
+Be not panic-stricken and hasty to get out of his presence. Persist not in an evil thing, for he does whatever he pleases. 
 
 
 
@@ -91,7 +91,7 @@ Be not panic-stricken _and_ hasty to get out of his presence. Persist not in an 
 
 
 
-For the word of a king is authority _and_ power, and who can say to him, What are you doing? 
+For the word of a king is authority and power, and who can say to him, What are you doing? 
 
 
 
@@ -133,7 +133,7 @@ Whoever observes the [king's] command will experience no harm, and a wise man's 
 
 
 
-For every purpose _and_ matter has its [right] time and judgment, although the misery _and_ wickedness of man lies heavily upon him [who rebels against the king]. 
+For every purpose and matter has its [right] time and judgment, although the misery and wickedness of man lies heavily upon him [who rebels against the king]. 
 
 
 
@@ -154,7 +154,7 @@ For every purpose _and_ matter has its [right] time and judgment, although the m
 
 
 
-For he does not know what is to be, for who can tell him how _and_ when it will be? 
+For he does not know what is to be, for who can tell him how and when it will be? 
 
 
 
@@ -175,7 +175,7 @@ For he does not know what is to be, for who can tell him how _and_ when it will 
 
 
 
-There is no man who has power over the spirit to retain the breath of life, neither has he power over the day of death; and there is no discharge in battle [against death], neither will wickedness deliver those who are its possessors _and_ given to it. 
+There is no man who has power over the spirit to retain the breath of life, neither has he power over the day of death; and there is no discharge in battle [against death], neither will wickedness deliver those who are its possessors and given to it. 
 
 
 
@@ -196,7 +196,7 @@ There is no man who has power over the spirit to retain the breath of life, neit
 
 
 
-All this have I seen while applying my mind to every work that is done under the sun. There is a time in which one man has power over another to his own hurt _or_ to the other man's. 
+All this have I seen while applying my mind to every work that is done under the sun. There is a time in which one man has power over another to his own hurt or to the other man's. 
 
 
 
@@ -259,7 +259,7 @@ Because the sentence against an evil work is not executed speedily, the hearts o
 
 
 
-Though a sinner does evil a hundred times and his days [seemingly] are prolonged [in his wickedness], yet surely I know that it will be well with those who [reverently] fear God, who revere _and_ worship Him, realizing His continual presence. 
+Though a sinner does evil a hundred times and his days [seemingly] are prolonged [in his wickedness], yet surely I know that it will be well with those who [reverently] fear God, who revere and worship Him, realizing His continual presence. 
 
 
 
@@ -280,7 +280,7 @@ Though a sinner does evil a hundred times and his days [seemingly] are prolonged
 
 
 
-But it will not be well with the wicked, neither will he prolong his days like a shadow, because he does not [reverently] fear _and_ worship God. 
+But it will not be well with the wicked, neither will he prolong his days like a shadow, because he does not [reverently] fear and worship God. 
 
 
 
@@ -343,7 +343,7 @@ Then I commended enjoyment, because a man has no better thing under the sun [wit
 
 
 
-When I applied my mind to know wisdom and to see the business activity _and_ the painful effort that take place upon the earth--how neither day nor night some men's eyes sleep-- 
+When I applied my mind to know wisdom and to see the business activity and the painful effort that take place upon the earth--how neither day nor night some men's eyes sleep-- 
 
 
 
@@ -364,4 +364,4 @@ When I applied my mind to know wisdom and to see the business activity _and_ the
 
 
 
-Then I saw all the work of God, that man cannot find out the work that is done under the sun--because however much a man may toil in seeking, yet he will not find it out; yes, more than that, though a wise man thinks _and_ claims he knows, yet will he not be able to find it out.
+Then I saw all the work of God, that man cannot find out the work that is done under the sun--because however much a man may toil in seeking, yet he will not find it out; yes, more than that, though a wise man thinks and claims he knows, yet will he not be able to find it out.

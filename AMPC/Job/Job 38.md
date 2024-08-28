@@ -91,7 +91,7 @@ Gird up now your loins like a man, and I will demand of you, and you declare to 
 
 
 
-Where were you when I laid the foundation of the earth? Declare to Me, if you have _and_ know understanding. 
+Where were you when I laid the foundation of the earth? Declare to Me, if you have and know understanding. 
 
 
 
@@ -175,7 +175,7 @@ When the morning stars sang together and all the sons of God shouted for joy?
 
 
 
-Or who shut up the sea with doors when it broke forth _and_ issued out of the womb?-- 
+Or who shut up the sea with doors when it broke forth and issued out of the womb?-- 
 
 
 
@@ -574,7 +574,7 @@ To cause it to rain on the uninhabited land [and] on the desert where no man liv
 
 
 
-To satisfy the waste _and_ desolate ground and to cause the tender grass to spring forth? 
+To satisfy the waste and desolate ground and to cause the tender grass to spring forth? 
 
 
 

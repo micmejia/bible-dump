@@ -111,7 +111,7 @@ What the crawling locust left, the swarming locust has eaten; and what the swarm
 
 
 
-Awake, you drunkards, and weep; wail, all you drinkers of wine, because of the [fresh] sweet juice [of the grape], for it is cut off _and_ removed from your mouth. 
+Awake, you drunkards, and weep; wail, all you drinkers of wine, because of the [fresh] sweet juice [of the grape], for it is cut off and removed from your mouth. 
 
 
 
@@ -153,7 +153,7 @@ For a [heathen and hostile] nation [of locusts, illustrative of a human foe] has
 
 
 
-It has laid waste My vine [symbol of God's people] and barked _and_ broken My fig tree; it has made them completely bare and thrown them down; their branches are made white. 
+It has laid waste My vine [symbol of God's people] and barked and broken My fig tree; it has made them completely bare and thrown them down; their branches are made white. 
 
 
 
@@ -195,7 +195,7 @@ Lament like a virgin [bride] girded with sackcloth for the husband of her youth 
 
 
 
-The meal _or_ cereal offering and the drink offering are cut off from the house of the Lord; the priests, the Lord's ministers, mourn. 
+The meal or cereal offering and the drink offering are cut off from the house of the Lord; the priests, the Lord's ministers, mourn. 
 
 
 
@@ -258,7 +258,7 @@ Be ashamed, O you tillers of the soil; wail, O you vinedressers, for the wheat a
 
 
 
-The vine is dried up and the fig tree fails; the pomegranate tree, the palm tree also, and the apple _or_ quince tree, even all the trees of the field are withered, so that joy has withered _and_ fled away from the sons of men. 
+The vine is dried up and the fig tree fails; the pomegranate tree, the palm tree also, and the apple or quince tree, even all the trees of the field are withered, so that joy has withered and fled away from the sons of men. 
 
 
 
@@ -279,7 +279,7 @@ The vine is dried up and the fig tree fails; the pomegranate tree, the palm tree
 
 
 
-Gird yourselves and lament, you priests; wail, you ministers of the altar; come, lie all night in sackcloth, you ministers of my [Joel's] God, for the cereal _or_ meal offering and the drink offering are withheld from the house of your God. 
+Gird yourselves and lament, you priests; wail, you ministers of the altar; come, lie all night in sackcloth, you ministers of my [Joel's] God, for the cereal or meal offering and the drink offering are withheld from the house of your God. 
 
 
 
@@ -363,7 +363,7 @@ Is not the food cut off before our eyes, joy and gladness from the house of our 
 
 
 
-The seed [grain] rots _and_ shrivels under the clods, the garners are desolate _and_ empty, the barns are in ruins because the grain has failed. 
+The seed [grain] rots and shrivels under the clods, the garners are desolate and empty, the barns are in ruins because the grain has failed. 
 
 
 
@@ -384,7 +384,7 @@ The seed [grain] rots _and_ shrivels under the clods, the garners are desolate _
 
 
 
-How the beasts groan! The herds of cattle are perplexed _and_ huddle together because they have no pasture; even the flocks of sheep suffer punishment (are forsaken and made wretched). 
+How the beasts groan! The herds of cattle are perplexed and huddle together because they have no pasture; even the flocks of sheep suffer punishment (are forsaken and made wretched). 
 
 
 
@@ -405,7 +405,7 @@ How the beasts groan! The herds of cattle are perplexed _and_ huddle together be
 
 
 
-O Lord, to You will I cry, for the fire has devoured the pastures _and_ folds of the plain _and_ the wilderness, and flame has burned all the trees of the field. 
+O Lord, to You will I cry, for the fire has devoured the pastures and folds of the plain and the wilderness, and flame has burned all the trees of the field. 
 
 
 
@@ -426,4 +426,4 @@ O Lord, to You will I cry, for the fire has devoured the pastures _and_ folds of
 
 
 
-Even the wild beasts of the field pant _and_ cry to You, for the water brooks are dried up and fire has consumed the pastures _and_ folds of the wilderness _and_ the plain.
+Even the wild beasts of the field pant and cry to You, for the water brooks are dried up and fire has consumed the pastures and folds of the wilderness and the plain.

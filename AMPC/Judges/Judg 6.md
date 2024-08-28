@@ -721,7 +721,7 @@ Then all the Midianites and the Amalekites and the people of the east came toget
 
 
 
-But the Spirit of the Lord clothed Gideon with Himself _and_ took possession of him, and he blew a trumpet, and [the clan of] Abiezer was gathered to him. 
+But the Spirit of the Lord clothed Gideon with Himself and took possession of him, and he blew a trumpet, and [the clan of] Abiezer was gathered to him. 
 
 
 

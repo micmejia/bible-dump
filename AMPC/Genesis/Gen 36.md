@@ -154,7 +154,7 @@ Now Esau took his wives, his sons, his daughters, and all the members of his hou
 
 
 
-For their great flocks _and_ herds _and_ possessions [which they had collected] made it impossible for them to dwell together; the land in which they were strangers could not support them because of their livestock. 
+For their great flocks and herds and possessions [which they had collected] made it impossible for them to dwell together; the land in which they were strangers could not support them because of their livestock. 
 
 
 

@@ -154,7 +154,7 @@ But at the place which the Lord your God will choose in which to make His Name [
 
 
 
-And you shall roast _or_ boil and eat it in the place which the Lord your God will choose. And in the morning you shall turn and go to your tents. 
+And you shall roast or boil and eat it in the place which the Lord your God will choose. And in the morning you shall turn and go to your tents. 
 
 
 
@@ -238,7 +238,7 @@ Then you shall keep the Feast of Weeks to the Lord your God with a tribute of a 
 
 
 
-And you shall rejoice before the Lord your God, you and your son and daughter, your manservant and maidservant, and the Levite who is within your towns, the stranger _or_ temporary resident, the fatherless, and the widow who are among you, at the place in which the Lord your God chooses to make His Name [and His Presence] dwell. 
+And you shall rejoice before the Lord your God, you and your son and daughter, your manservant and maidservant, and the Levite who is within your towns, the stranger or temporary resident, the fatherless, and the widow who are among you, at the place in which the Lord your God chooses to make His Name [and His Presence] dwell. 
 
 
 
@@ -280,7 +280,7 @@ And you shall [earnestly] remember that you were a slave in Egypt, and you shall
 
 
 
-You shall observe the Feast of Tabernacles _or_ Booths for seven days after you have gathered in from your threshing floor and wine vat. 
+You shall observe the Feast of Tabernacles or Booths for seven days after you have gathered in from your threshing floor and wine vat. 
 
 
 
@@ -301,7 +301,7 @@ You shall observe the Feast of Tabernacles _or_ Booths for seven days after you 
 
 
 
-You shall rejoice in your Feast, you, your son and daughter, your manservant and maidservant, the Levite, the transient _and_ the stranger, the fatherless, and the widow who are within your towns. 
+You shall rejoice in your Feast, you, your son and daughter, your manservant and maidservant, the Levite, the transient and the stranger, the fatherless, and the widow who are within your towns. 
 
 
 
@@ -343,7 +343,7 @@ For seven days you shall keep a solemn Feast to the Lord your God in the place w
 
 
 
-Three times a year shall all your males appear before the Lord your God in the place which He chooses: at the Feast of Unleavened Bread, at the Feast of Weeks, and at the Feast of Tabernacles _or_ Booths. They shall not appear before the Lord empty-handed: 
+Three times a year shall all your males appear before the Lord your God in the place which He chooses: at the Feast of Unleavened Bread, at the Feast of Weeks, and at the Feast of Tabernacles or Booths. They shall not appear before the Lord empty-handed: 
 
 
 
@@ -406,7 +406,7 @@ You shall appoint judges and officers in all your towns which the Lord your God 
 
 
 
-You shall not misinterpret _or_ misapply judgment; you shall not be partial, or take a bribe, for a bribe blinds the eyes of the wise and perverts the words of the righteous. 
+You shall not misinterpret or misapply judgment; you shall not be partial, or take a bribe, for a bribe blinds the eyes of the wise and perverts the words of the righteous. 
 
 
 
@@ -469,4 +469,4 @@ You shall not plant for yourselves any kind of tree dedicated to [the goddess] A
 
 
 
-Neither shall you set up an idolatrous stone _or_ image, which the Lord your God hates.
+Neither shall you set up an idolatrous stone or image, which the Lord your God hates.

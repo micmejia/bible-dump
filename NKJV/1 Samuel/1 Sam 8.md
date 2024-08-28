@@ -13,7 +13,7 @@ next: ['1 Sam 9']
 Now it came to pass when Samuel was old that he made his sons judges over Israel. 
 
 ###### 2 
-The name of his firstborn was Joel, and the name of his second, Abijah; _they were_ judges in Beersheba. 
+The name of his firstborn was Joel, and the name of his second, Abijah; they were judges in Beersheba. 
 
 ###### 3 
 But his sons did not walk in his ways; they turned aside after dishonest gain, took bribes, and perverted justice. 
@@ -40,22 +40,22 @@ Now therefore, heed their voice. However, you shall solemnly forewarn them, and 
 So Samuel told all the words of the Lord to the people who asked him for a king. 
 
 ###### 11 
-And he said, "This will be the behavior of the king who will reign over you: He will take your sons and appoint _them_ for his own chariots and _to be_ his horsemen, and _some_ will run before his chariots. 
+And he said, "This will be the behavior of the king who will reign over you: He will take your sons and appoint them for his own chariots and to be his horsemen, and some will run before his chariots. 
 
 ###### 12 
-He will appoint captains over his thousands and captains over his fifties, _will set some_ to plow his ground and reap his harvest, and _some_ to make his weapons of war and equipment for his chariots. 
+He will appoint captains over his thousands and captains over his fifties, will set some to plow his ground and reap his harvest, and some to make his weapons of war and equipment for his chariots. 
 
 ###### 13 
-He will take your daughters _to be_ perfumers, cooks, and bakers. 
+He will take your daughters to be perfumers, cooks, and bakers. 
 
 ###### 14 
-And he will take the best of your fields, your vineyards, and your olive groves, and give _them_ to his servants. 
+And he will take the best of your fields, your vineyards, and your olive groves, and give them to his servants. 
 
 ###### 15 
 He will take a tenth of your grain and your vintage, and give it to his officers and servants. 
 
 ###### 16 
-And he will take your male servants, your female servants, your finest young men, and your donkeys, and put _them_ to his work. 
+And he will take your male servants, your female servants, your finest young men, and your donkeys, and put them to his work. 
 
 ###### 17 
 He will take a tenth of your sheep. And you will be his servants. 

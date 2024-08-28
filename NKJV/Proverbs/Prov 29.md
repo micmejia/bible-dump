@@ -10,13 +10,13 @@ next: ['Prov 30']
 
 
 ###### 1 
-He who is often rebuked, _and_ hardens _his_ neck, Will suddenly be destroyed, and that without remedy. 
+He who is often rebuked, and hardens his neck, Will suddenly be destroyed, and that without remedy. 
 
 ###### 2 
-When the righteous are in authority, the people rejoice; But when a wicked _man_ rules, the people groan. 
+When the righteous are in authority, the people rejoice; But when a wicked man rules, the people groan. 
 
 ###### 3 
-Whoever loves wisdom makes his father rejoice, But a companion of harlots wastes _his_ wealth. 
+Whoever loves wisdom makes his father rejoice, But a companion of harlots wastes his wealth. 
 
 ###### 4 
 The king establishes the land by justice, But he who receives bribes overthrows it. 
@@ -28,31 +28,31 @@ A man who flatters his neighbor Spreads a net for his feet.
 By transgression an evil man is snared, But the righteous sings and rejoices. 
 
 ###### 7 
-The righteous considers the cause of the poor, _But_ the wicked does not understand _such_ knowledge. 
+The righteous considers the cause of the poor, But the wicked does not understand such knowledge. 
 
 ###### 8 
-Scoffers set a city aflame, But wise _men_ turn away wrath. 
+Scoffers set a city aflame, But wise men turn away wrath. 
 
 ###### 9 
-_If_ a wise man contends with a foolish man, Whether _the fool_ rages or laughs, _there is_ no peace. 
+If a wise man contends with a foolish man, Whether the fool rages or laughs, there is no peace. 
 
 ###### 10 
 The bloodthirsty hate the blameless, But the upright seek his well-being. 
 
 ###### 11 
-A fool vents all his feelings, But a wise _man_ holds them back. 
+A fool vents all his feelings, But a wise man holds them back. 
 
 ###### 12 
-If a ruler pays attention to lies, All his servants _become_ wicked. 
+If a ruler pays attention to lies, All his servants become wicked. 
 
 ###### 13 
-The poor _man_ and the oppressor have this in common: The Lord gives light to the eyes of both. 
+The poor man and the oppressor have this in common: The Lord gives light to the eyes of both. 
 
 ###### 14 
 The king who judges the poor with truth, His throne will be established forever. 
 
 ###### 15 
-The rod and rebuke give wisdom, But a child left _to himself_ brings shame to his mother. 
+The rod and rebuke give wisdom, But a child left to himself brings shame to his mother. 
 
 ###### 16 
 When the wicked are multiplied, transgression increases; But the righteous will see their fall. 
@@ -61,13 +61,13 @@ When the wicked are multiplied, transgression increases; But the righteous will 
 Correct your son, and he will give you rest; Yes, he will give delight to your soul. 
 
 ###### 18 
-Where _there is_ no revelation, the people cast off restraint; But happy _is_ he who keeps the law. 
+Where there is no revelation, the people cast off restraint; But happy is he who keeps the law. 
 
 ###### 19 
 A servant will not be corrected by mere words; For though he understands, he will not respond. 
 
 ###### 20 
-Do you see a man hasty in his words? _There is_ more hope for a fool than for him. 
+Do you see a man hasty in his words? There is more hope for a fool than for him. 
 
 ###### 21 
 He who pampers his servant from childhood Will have him as a son in the end. 
@@ -85,7 +85,7 @@ Whoever is a partner with a thief hates his own life; He swears to tell the trut
 The fear of man brings a snare, But whoever trusts in the Lord shall be safe. 
 
 ###### 26 
-Many seek the ruler's favor, But justice for man _comes_ from the Lord. 
+Many seek the ruler's favor, But justice for man comes from the Lord. 
 
 ###### 27 
-An unjust man _is_ an abomination to the righteous, And _he who is_ upright in the way _is_ an abomination to the wicked.
+An unjust man is an abomination to the righteous, And he who is upright in the way is an abomination to the wicked.

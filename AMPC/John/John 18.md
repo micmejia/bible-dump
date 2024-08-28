@@ -49,7 +49,7 @@ Having said these things, Jesus went out with His disciples beyond (across) the 
 
 
 
-And Judas, who was betraying Him _and_ delivering Him up, also knew the place, because Jesus had often retired there with His disciples. 
+And Judas, who was betraying Him and delivering Him up, also knew the place, because Jesus had often retired there with His disciples. 
 
 
 
@@ -70,7 +70,7 @@ And Judas, who was betraying Him _and_ delivering Him up, also knew the place, b
 
 
 
-So Judas, obtaining _and_ taking charge of the band of soldiers and some guards (attendants) of the high priests and Pharisees, came there with lanterns and torches and weapons. 
+So Judas, obtaining and taking charge of the band of soldiers and some guards (attendants) of the high priests and Pharisees, came there with lanterns and torches and weapons. 
 
 
 
@@ -196,7 +196,7 @@ Jesus answered, I told you that I am He. So, if you want Me [if it is only I for
 
 
 
-Thus what He had said was fulfilled _and_ verified, Of those whom You have given Me, I have not lost even one. 
+Thus what He had said was fulfilled and verified, Of those whom You have given Me, I have not lost even one. 
 
 
 
@@ -301,7 +301,7 @@ And they brought Him first to Annas, for he was the father-in-law of Caiaphas, w
 
 
 
-It was Caiaphas who had counseled the Jews that it was expedient _and_ for their welfare that one man should die for (instead of, in behalf of) the people. 
+It was Caiaphas who had counseled the Jews that it was expedient and for their welfare that one man should die for (instead of, in behalf of) the people. 
 
 
 
@@ -490,7 +490,7 @@ But when He said this, one of the attendants who stood by struck Jesus, saying, 
 
 
 
-Jesus replied, If I have said anything wrong [if I have spoken abusively, if there was evil in what I said] tell what was wrong with it. But if I spoke rightly _and_ properly, why do you strike Me? 
+Jesus replied, If I have said anything wrong [if I have spoken abusively, if there was evil in what I said] tell what was wrong with it. But if I spoke rightly and properly, why do you strike Me? 
 
 
 
@@ -658,7 +658,7 @@ They retorted, If He were not an evildoer (criminal), we would not have handed H
 
 
 
-Pilate said to them, Take Him yourselves and judge _and_ sentence _and_ punish Him according to your [own] law. The Jews answered, It is not lawful for us to put anyone to death. 
+Pilate said to them, Take Him yourselves and judge and sentence and punish Him according to your [own] law. The Jews answered, It is not lawful for us to put anyone to death. 
 
 
 
@@ -742,7 +742,7 @@ Jesus replied, Are you saying this of yourself [on your own initiative], or have
 
 
 
-Pilate answered, Am I a Jew? Your [own] people _and_ nation and their chief priests have delivered You to me. What have You done? 
+Pilate answered, Am I a Jew? Your [own] people and nation and their chief priests have delivered You to me. What have You done? 
 
 
 
@@ -784,7 +784,7 @@ Jesus answered, My kingdom (kingship, royal power) belongs not to this world. If
 
 
 
-Pilate said to Him, Then You are a King? Jesus answered, You say it! [You speak correctly!] For I am a King. [Certainly I am a King!] This is why I was born, and for this I have come into the world, to bear witness to the Truth. Everyone who is of the Truth [who is a friend of the Truth, who belongs to the Truth] hears _and_ listens to My voice. 
+Pilate said to Him, Then You are a King? Jesus answered, You say it! [You speak correctly!] For I am a King. [Certainly I am a King!] This is why I was born, and for this I have come into the world, to bear witness to the Truth. Everyone who is of the Truth [who is a friend of the Truth, who belongs to the Truth] hears and listens to My voice. 
 
 
 

@@ -12,7 +12,7 @@ next: ['Jas 3']
 ###### 1 
 
 
-My brethren, pay no servile regard to people [show no prejudice, no partiality]. Do not [attempt to] hold _and_ practice the faith of our Lord Jesus Christ [the Lord] of glory [together with snobbery]! 
+My brethren, pay no servile regard to people [show no prejudice, no partiality]. Do not [attempt to] hold and practice the faith of our Lord Jesus Christ [the Lord] of glory [together with snobbery]! 
 
 
 ###### 2 
@@ -30,13 +30,13 @@ And you pay special attention to the one who wears the splendid clothes and say 
 ###### 4 
 
 
-Are you not discriminating among your own and becoming critics _and_ judges with wrong motives? 
+Are you not discriminating among your own and becoming critics and judges with wrong motives? 
 
 
 ###### 5 
 
 
-Listen, my beloved brethren: Has not God chosen those who are poor in the eyes of the world to be rich in faith _and_ in their position as believers and to inherit the kingdom which He has promised to those who love Him? 
+Listen, my beloved brethren: Has not God chosen those who are poor in the eyes of the world to be rich in faith and in their position as believers and to inherit the kingdom which He has promised to those who love Him? 
 
 
 ###### 6 
@@ -48,7 +48,7 @@ But you [in contrast] have insulted (humiliated, dishonored, and shown your cont
 ###### 7 
 
 
-Is it not they who slander _and_ blaspheme that precious name by which you are distinguished _and_ called [the name of Christ invoked in baptism]? 
+Is it not they who slander and blaspheme that precious name by which you are distinguished and called [the name of Christ invoked in baptism]? 
 
 
 ###### 8 
@@ -60,13 +60,13 @@ If indeed you [really] fulfill the royal Law in accordance with the Scripture, Y
 ###### 9 
 
 
-But if you show servile regard (prejudice, favoritism) for people, you commit sin and are rebuked _and_ convicted by the Law as violators _and_ offenders. 
+But if you show servile regard (prejudice, favoritism) for people, you commit sin and are rebuked and convicted by the Law as violators and offenders. 
 
 
 ###### 10 
 
 
-For whosoever keeps the Law [as a] whole but stumbles _and_ offends in one [single instance] has become guilty of [breaking] all of it. 
+For whosoever keeps the Law [as a] whole but stumbles and offends in one [single instance] has become guilty of [breaking] all of it. 
 
 
 ###### 11 
@@ -126,7 +126,7 @@ You believe that God is one; you do well. So do the demons believe and shudder [
 ###### 20 
 
 
-Are you willing to be shown [proof], you foolish (unproductive, spiritually deficient) fellow, that faith apart from [good] works is inactive _and_ ineffective _and_ worthless? 
+Are you willing to be shown [proof], you foolish (unproductive, spiritually deficient) fellow, that faith apart from [good] works is inactive and ineffective and worthless? 
 
 
 ###### 21 
@@ -138,7 +138,7 @@ Was not our forefather Abraham [shown to be] justified (made acceptable to God) 
 ###### 22 
 
 
-You see that [his] faith was cooperating with his works, and [his] faith was completed _and_ reached its supreme expression [when he implemented it] by [good] works. 
+You see that [his] faith was cooperating with his works, and [his] faith was completed and reached its supreme expression [when he implemented it] by [good] works. 
 
 
 ###### 23 

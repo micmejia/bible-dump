@@ -28,7 +28,7 @@ next: ['Gen 50']
 
 
 
-And Jacob called for his sons and said, Gather yourselves together [around me], that I may tell you what shall befall you in the latter _or_ last days. 
+And Jacob called for his sons and said, Gather yourselves together [around me], that I may tell you what shall befall you in the latter or last days. 
 
 
 
@@ -70,7 +70,7 @@ Gather yourselves together and hear, you sons of Jacob; and hearken to Israel yo
 
 
 
-Reuben, you are my firstborn, my might, the beginning (the firstfruits) of my manly strength _and_ vigor; [your birthright gave you] the preeminence in dignity and the preeminence in power. 
+Reuben, you are my firstborn, my might, the beginning (the firstfruits) of my manly strength and vigor; [your birthright gave you] the preeminence in dignity and the preeminence in power. 
 
 
 
@@ -91,7 +91,7 @@ Reuben, you are my firstborn, my might, the beginning (the firstfruits) of my ma
 
 
 
-But unstable _and_ boiling over like water, you shall not excel _and_ have the preeminence [of the firstborn], because you went to your father's bed; you defiled it--he went to my couch! 
+But unstable and boiling over like water, you shall not excel and have the preeminence [of the firstborn], because you went to your father's bed; you defiled it--he went to my couch! 
 
 
 
@@ -196,7 +196,7 @@ Judah, you are the one whom your brothers shall praise; your hand shall be on th
 
 
 
-Judah, a lion's cub! With the prey, my son, you have gone high up [the mountain]. He stooped down, he crouched like a lion, and like a lioness--who dares provoke _and_ rouse him? 
+Judah, a lion's cub! With the prey, my son, you have gone high up [the mountain]. He stooped down, he crouched like a lion, and like a lioness--who dares provoke and rouse him? 
 
 
 
@@ -217,7 +217,7 @@ Judah, a lion's cub! With the prey, my son, you have gone high up [the mountain]
 
 
 
-The scepter _or_ leadership shall not depart from Judah, nor the ruler's staff from between his feet, until Shiloh [the Messiah, the Peaceful One] comes to Whom it belongs, and to Him shall be the obedience of the people. 
+The scepter or leadership shall not depart from Judah, nor the ruler's staff from between his feet, until Shiloh [the Messiah, the Peaceful One] comes to Whom it belongs, and to Him shall be the obedience of the people. 
 
 
 
@@ -259,7 +259,7 @@ Binding His foal to the vine and His donkey's colt to the choice vine, He washes
 
 
 
-His eyes are darker _and_ more sparkling than wine, and His teeth whiter than milk. 
+His eyes are darker and more sparkling than wine, and His teeth whiter than milk. 
 
 
 
@@ -280,7 +280,7 @@ His eyes are darker _and_ more sparkling than wine, and His teeth whiter than mi
 
 
 
-Zebulun shall live toward the seashore, and he shall be a haven _and_ a landing place for ships; and his border shall be toward Sidon. 
+Zebulun shall live toward the seashore, and he shall be a haven and a landing place for ships; and his border shall be toward Sidon. 
 
 
 
@@ -406,7 +406,7 @@ I wait for Your salvation, O Lord.
 
 
 
-Gad--a raiding troop shall raid him, but he shall raid at their heels _and_ assault them [victoriously]. 
+Gad--a raiding troop shall raid him, but he shall raid at their heels and assault them [victoriously]. 
 
 
 
@@ -427,7 +427,7 @@ Gad--a raiding troop shall raid him, but he shall raid at their heels _and_ assa
 
 
 
-Asher's food [supply] shall be rich _and_ fat, and he shall yield _and_ deliver royal delights. 
+Asher's food [supply] shall be rich and fat, and he shall yield and deliver royal delights. 
 
 
 
@@ -490,7 +490,7 @@ Joseph is a fruitful bough, a fruitful bough by a well (spring or fountain), who
 
 
 
-Skilled archers have bitterly attacked _and_ sorely worried him; they have shot at him and persecuted him. 
+Skilled archers have bitterly attacked and sorely worried him; they have shot at him and persecuted him. 
 
 
 
@@ -511,7 +511,7 @@ Skilled archers have bitterly attacked _and_ sorely worried him; they have shot 
 
 
 
-But his bow remained strong _and_ steady _and_ rested in the Strength that does not fail him, for the arms of his hands were made strong _and_ active by the hands of the Mighty God of Jacob, by the name of the Shepherd, the Rock of Israel, 
+But his bow remained strong and steady and rested in the Strength that does not fail him, for the arms of his hands were made strong and active by the hands of the Mighty God of Jacob, by the name of the Shepherd, the Rock of Israel, 
 
 
 
@@ -553,7 +553,7 @@ By the God of your father, Who will help you, and by the Almighty, Who will bles
 
 
 
-The blessings of your father [on you] are greater than the blessings of my forefathers [Abraham and Isaac on me] _and_ are as lasting as the bounties of the eternal hills; they shall be on the head of Joseph, and on the crown of the head of him who was the consecrated one _and_ the one separated from his brethren _and_ [the one who] is prince among them. 
+The blessings of your father [on you] are greater than the blessings of my forefathers [Abraham and Isaac on me] and are as lasting as the bounties of the eternal hills; they shall be on the head of Joseph, and on the crown of the head of him who was the consecrated one and the one separated from his brethren and [the one who] is prince among them. 
 
 
 

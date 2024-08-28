@@ -28,7 +28,7 @@ next: ['Jer 13']
 
 
 
-Uncompromisingly righteous _and_ rigidly just are You, O Lord, when I complain against _and_ contend with You. Yet let me plead _and_ reason the case with You: Why does the way of the wicked prosper? Why are all they at ease _and_ thriving who deal very treacherously _and_ deceitfully? 
+Uncompromisingly righteous and rigidly just are You, O Lord, when I complain against and contend with You. Yet let me plead and reason the case with You: Why does the way of the wicked prosper? Why are all they at ease and thriving who deal very treacherously and deceitfully? 
 
 
 
@@ -70,7 +70,7 @@ You have planted them, yes, they have taken root; they grow, yes, they bring for
 
 
 
-But You, O Lord, know _and_ understand me _and_ my devotion to You; You see me and try my heart toward You. [O Lord] pull [these rebellious ones] out like sheep for the slaughter and devote _and_ prepare them for the day of slaughter. 
+But You, O Lord, know and understand me and my devotion to You; You see me and try my heart toward You. [O Lord] pull [these rebellious ones] out like sheep for the slaughter and devote and prepare them for the day of slaughter. 
 
 
 
@@ -91,7 +91,7 @@ But You, O Lord, know _and_ understand me _and_ my devotion to You; You see me a
 
 
 
-How long must the land mourn and the grass _and_ herbs of the whole country wither? Through the wickedness of those who dwell in it, the beasts and the birds are consumed _and_ are swept away [by the drought], because men [mocked] me, saying, He shall not [live to] see our final end. 
+How long must the land mourn and the grass and herbs of the whole country wither? Through the wickedness of those who dwell in it, the beasts and the birds are consumed and are swept away [by the drought], because men [mocked] me, saying, He shall not [live to] see our final end. 
 
 
 
@@ -112,7 +112,7 @@ How long must the land mourn and the grass _and_ herbs of the whole country with
 
 
 
-[But the Lord rebukes Jeremiah's impatience, saying] If you have raced with men on foot and they have tired you out, then how can you compete with horses? And if [you take to flight] in a land of peace where you feel secure, then what will you do [when you tread the tangled maze of jungle haunted by lions] in the swelling _and_ flooding of the Jordan? 
+[But the Lord rebukes Jeremiah's impatience, saying] If you have raced with men on foot and they have tired you out, then how can you compete with horses? And if [you take to flight] in a land of peace where you feel secure, then what will you do [when you tread the tangled maze of jungle haunted by lions] in the swelling and flooding of the Jordan? 
 
 
 
@@ -133,7 +133,7 @@ How long must the land mourn and the grass _and_ herbs of the whole country with
 
 
 
-For even your brethren and the house of your father--even they have dealt treacherously with you; yes, even they are [like a pack of hounds] in full cry after you. Believe them not, though they speak fair words _and_ promise good things to you. 
+For even your brethren and the house of your father--even they have dealt treacherously with you; yes, even they are [like a pack of hounds] in full cry after you. Believe them not, though they speak fair words and promise good things to you. 
 
 
 
@@ -259,7 +259,7 @@ They have made it a desolation, and desolate it mourns before Me; the whole land
 
 
 
-Destroyers have come upon all the bare heights in the desert, for the sword of the Lord devours from one end of the land even to the other; no flesh has peace _or_ can find the means to escape. 
+Destroyers have come upon all the bare heights in the desert, for the sword of the Lord devours from one end of the land even to the other; no flesh has peace or can find the means to escape. 
 
 
 
@@ -280,7 +280,7 @@ Destroyers have come upon all the bare heights in the desert, for the sword of t
 
 
 
-They have sown wheat but have reaped thorns; they have worn themselves out but without profit. And they shall be ashamed of your [lack of] harvests _and_ revenues because of the fierce _and_ glowing anger of the Lord. 
+They have sown wheat but have reaped thorns; they have worn themselves out but without profit. And they shall be ashamed of your [lack of] harvests and revenues because of the fierce and glowing anger of the Lord. 
 
 
 

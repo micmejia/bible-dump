@@ -91,7 +91,7 @@ For thus says the Lord concerning the sons and daughters who are born in this pl
 
 
 
-They shall die of deadly diseases. They shall not be lamented, nor shall they be buried, but they shall be like dung upon the face of the ground. They shall perish _and_ be consumed by the sword and by famine, and their dead bodies shall be food for the fowls of the air and for the beasts of the earth. 
+They shall die of deadly diseases. They shall not be lamented, nor shall they be buried, but they shall be like dung upon the face of the ground. They shall perish and be consumed by the sword and by famine, and their dead bodies shall be food for the fowls of the air and for the beasts of the earth. 
 
 
 
@@ -112,7 +112,7 @@ They shall die of deadly diseases. They shall not be lamented, nor shall they be
 
 
 
-For thus says the Lord: Enter not into the house of mourning, nor go to lament or bemoan [the dead], for I have taken away My peace from this people, says the Lord, even My steadfast love _and_ loving-kindness and tender mercy. 
+For thus says the Lord: Enter not into the house of mourning, nor go to lament or bemoan [the dead], for I have taken away My peace from this people, says the Lord, even My steadfast love and loving-kindness and tender mercy. 
 
 
 
@@ -259,7 +259,7 @@ Then you shall say to them, [It is] because your fathers have forsaken Me, says 
 
 
 
-And because you have done worse than your fathers. For behold, every one of you walks after the stubbornness of his own evil heart, so that you do not listen to _and_ obey Me. 
+And because you have done worse than your fathers. For behold, every one of you walks after the stubbornness of his own evil heart, so that you do not listen to and obey Me. 
 
 
 
@@ -385,7 +385,7 @@ For My eyes are on all their ways; they are not hidden from My face, neither is 
 
 
 
-First [before I bring them back to their land] I will doubly recompense _and_ punish them for their iniquity and their sin, because they have polluted My land with the carcasses of their detestable idols and with the abominable things offered to false gods with which they have filled My inheritance. 
+First [before I bring them back to their land] I will doubly recompense and punish them for their iniquity and their sin, because they have polluted My land with the carcasses of their detestable idols and with the abominable things offered to false gods with which they have filled My inheritance. 
 
 
 
@@ -406,7 +406,7 @@ First [before I bring them back to their land] I will doubly recompense _and_ pu
 
 
 
-[Then said Jeremiah] O Lord, my Strength and my Stronghold, and my Refuge in the day of affliction, to You shall the nations come from the ends of the earth and shall say, Surely our fathers have inherited nothing but lies, emptiness, _and_ futility, worthless things in which there is no profit! 
+[Then said Jeremiah] O Lord, my Strength and my Stronghold, and my Refuge in the day of affliction, to You shall the nations come from the ends of the earth and shall say, Surely our fathers have inherited nothing but lies, emptiness, and futility, worthless things in which there is no profit! 
 
 
 
@@ -448,4 +448,4 @@ Can a man make gods for himself? Such are not gods!
 
 
 
-Therefore [says the Lord] behold, I will make them know--[yes] this once I will make them know My power and My might; and they will know _and_ recognize that My name is the Lord.
+Therefore [says the Lord] behold, I will make them know--[yes] this once I will make them know My power and My might; and they will know and recognize that My name is the Lord.

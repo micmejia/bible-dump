@@ -91,7 +91,7 @@ For Pharaoh will say of the Israelites, They are entangled in the land; the wild
 
 
 
-I will harden (make stubborn, strong) Pharaoh's heart, that he will pursue them, and I will gain honor _and_ glory over Pharaoh and all his host, and the Egyptians shall know that I am the Lord. And they did so. 
+I will harden (make stubborn, strong) Pharaoh's heart, that he will pursue them, and I will gain honor and glory over Pharaoh and all his host, and the Egyptians shall know that I am the Lord. And they did so. 
 
 
 
@@ -175,7 +175,7 @@ And took 600 chosen chariots and all the other chariots of Egypt, with officers 
 
 
 
-The Lord made hard _and_ strong the heart of Pharaoh king of Egypt, and he pursued the Israelites, for [they] left proudly _and_ defiantly. 
+The Lord made hard and strong the heart of Pharaoh king of Egypt, and he pursued the Israelites, for [they] left proudly and defiantly. 
 
 
 
@@ -301,7 +301,7 @@ Moses told the people, Fear not; stand still (firm, confident, undismayed) and s
 
 
 
-The Lord will fight for you, and you shall hold your peace _and_ remain at rest. 
+The Lord will fight for you, and you shall hold your peace and remain at rest. 
 
 
 
@@ -385,7 +385,7 @@ And I, behold, I will harden (make stubborn and strong) the hearts of the Egypti
 
 
 
-The Egyptians shall know _and_ realize that I am the Lord when I have gained honor _and_ glory over Pharaoh, his chariots, and his horsemen. 
+The Egyptians shall know and realize that I am the Lord when I have gained honor and glory over Pharaoh, his chariots, and his horsemen. 
 
 
 
@@ -574,7 +574,7 @@ Then the Lord said to Moses, Stretch out your hand over the sea, that the waters
 
 
 
-So Moses stretched forth his hand over the sea, and the sea returned to its strength _and_ normal flow when the morning appeared; and the Egyptians fled into it [being met by it]; and the Lord overthrew the Egyptians _and_ shook them off into the midst of the sea. 
+So Moses stretched forth his hand over the sea, and the sea returned to its strength and normal flow when the morning appeared; and the Egyptians fled into it [being met by it]; and the Lord overthrew the Egyptians and shook them off into the midst of the sea. 
 
 
 

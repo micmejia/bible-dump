@@ -28,7 +28,7 @@ next: ['Zech 13']
 
 
 
-The burden _or_ oracle (the thing to be lifted up) of the word of the Lord concerning Israel: Thus says the Lord, Who stretches out the heavens and lays the foundation of the earth and forms the spirit of man within him: 
+The burden or oracle (the thing to be lifted up) of the word of the Lord concerning Israel: Thus says the Lord, Who stretches out the heavens and lays the foundation of the earth and forms the spirit of man within him: 
 
 
 
@@ -49,7 +49,7 @@ The burden _or_ oracle (the thing to be lifted up) of the word of the Lord conce
 
 
 
-Behold, I am about to make Jerusalem a cup _or_ bowl of reeling to all the peoples round about, and in the siege against Jerusalem will there also be a siege against _and_ upon Judah. 
+Behold, I am about to make Jerusalem a cup or bowl of reeling to all the peoples round about, and in the siege against Jerusalem will there also be a siege against and upon Judah. 
 
 
 
@@ -70,7 +70,7 @@ Behold, I am about to make Jerusalem a cup _or_ bowl of reeling to all the peopl
 
 
 
-And in that day I will make Jerusalem a burdensome stone for all peoples; all who lift it _or_ burden themselves with it shall be sorely wounded. And all the nations of the earth shall come _and_ gather together against it. 
+And in that day I will make Jerusalem a burdensome stone for all peoples; all who lift it or burden themselves with it shall be sorely wounded. And all the nations of the earth shall come and gather together against it. 
 
 
 
@@ -91,7 +91,7 @@ And in that day I will make Jerusalem a burdensome stone for all peoples; all wh
 
 
 
-In that day, says the Lord, I will smite every horse [of the armies that contend against Jerusalem] with terror _and_ panic and his rider with madness; and I will open My eyes _and_ regard with favor the house of Judah and will smite every horse of the opposing nations with blindness. 
+In that day, says the Lord, I will smite every horse [of the armies that contend against Jerusalem] with terror and panic and his rider with madness; and I will open My eyes and regard with favor the house of Judah and will smite every horse of the opposing nations with blindness. 
 
 
 
@@ -133,7 +133,7 @@ And the chiefs of Judah shall say in their hearts, The inhabitants of Jerusalem 
 
 
 
-In that day will I make the chiefs of Judah like a big, blazing pot among [sticks of] wood and like a flaming torch among sheaves [of grain], and they shall devour all the peoples round about, on the right hand and on the left; and they of Jerusalem shall yet again dwell _and_ sit securely in their own place, in Jerusalem. 
+In that day will I make the chiefs of Judah like a big, blazing pot among [sticks of] wood and like a flaming torch among sheaves [of grain], and they shall devour all the peoples round about, on the right hand and on the left; and they of Jerusalem shall yet again dwell and sit securely in their own place, in Jerusalem. 
 
 
 
@@ -154,7 +154,7 @@ In that day will I make the chiefs of Judah like a big, blazing pot among [stick
 
 
 
-And the Lord shall save _and_ give victory to the tents of Judah first, that the glory of the house of David and the glory of the inhabitants of Jerusalem may not be magnified _and_ exalted above Judah. 
+And the Lord shall save and give victory to the tents of Judah first, that the glory of the house of David and the glory of the inhabitants of Jerusalem may not be magnified and exalted above Judah. 
 
 
 
@@ -175,7 +175,7 @@ And the Lord shall save _and_ give victory to the tents of Judah first, that the
 
 
 
-In that day will the Lord guard _and_ defend the inhabitants of Jerusalem, and he who is [spiritually] feeble _and_ stumbles among them in that day [of persecution] shall become [strong and noble] like David; and the house of David [shall maintain its supremacy] like God, like the Angel of the Lord Who is before them. 
+In that day will the Lord guard and defend the inhabitants of Jerusalem, and he who is [spiritually] feeble and stumbles among them in that day [of persecution] shall become [strong and noble] like David; and the house of David [shall maintain its supremacy] like God, like the Angel of the Lord Who is before them. 
 
 
 
@@ -217,7 +217,7 @@ And it shall be in that day that I will make it My aim to destroy all the nation
 
 
 
-And I will pour out upon the house of David and upon the inhabitants of Jerusalem the Spirit of grace _or_ unmerited favor and supplication. And they shall look [earnestly] upon Me Whom they have pierced, and they shall mourn for Him as one mourns for his only son, and shall be in bitterness for Him as one who is in bitterness for his firstborn. 
+And I will pour out upon the house of David and upon the inhabitants of Jerusalem the Spirit of grace or unmerited favor and supplication. And they shall look [earnestly] upon Me Whom they have pierced, and they shall mourn for Him as one mourns for his only son, and shall be in bitterness for Him as one who is in bitterness for his firstborn. 
 
 
 

@@ -11,13 +11,13 @@ next: ['Rev 2']
 ###### 1 
 
 
-[This is] the revelation of Jesus Christ [His unveiling of the divine mysteries]. God gave it to Him to disclose _and_ make known to His bond servants certain things which must shortly _and_ speedily come to pass in their entirety. And He sent and communicated it through His angel (messenger) to His bond servant John, 
+[This is] the revelation of Jesus Christ [His unveiling of the divine mysteries]. God gave it to Him to disclose and make known to His bond servants certain things which must shortly and speedily come to pass in their entirety. And He sent and communicated it through His angel (messenger) to His bond servant John, 
 
 
 ###### 2 
 
 
-Who has testified to _and_ vouched for all that he saw [in his visions], the word of God and the testimony of Jesus Christ. 
+Who has testified to and vouched for all that he saw [in his visions], the word of God and the testimony of Jesus Christ. 
 
 
 ###### 3 
@@ -35,31 +35,31 @@ John to the seven assemblies (churches) that are in Asia: May grace (God's unmer
 ###### 5 
 
 
-And from Jesus Christ the faithful _and_ trustworthy Witness, the Firstborn of the dead [first to be brought back to life] and the Prince (Ruler) of the kings of the earth. To Him Who ever loves us and has once [for all] loosed _and_ freed us from our sins by His own blood, 
+And from Jesus Christ the faithful and trustworthy Witness, the Firstborn of the dead [first to be brought back to life] and the Prince (Ruler) of the kings of the earth. To Him Who ever loves us and has once [for all] loosed and freed us from our sins by His own blood, 
 
 
 ###### 6 
 
 
-And formed us into a kingdom (a royal race), priests to His God and Father--to Him be the glory and the power _and_ the majesty and the dominion throughout the ages _and_ forever and ever. Amen (so be it). 
+And formed us into a kingdom (a royal race), priests to His God and Father--to Him be the glory and the power and the majesty and the dominion throughout the ages and forever and ever. Amen (so be it). 
 
 
 ###### 7 
 
 
-Behold, He is coming with the clouds, and every eye will see Him, even those who pierced Him; and all the tribes of the earth shall gaze upon Him _and_ beat their breasts _and_ mourn _and_ lament over Him. Even so [must it be]. Amen (so be it). 
+Behold, He is coming with the clouds, and every eye will see Him, even those who pierced Him; and all the tribes of the earth shall gaze upon Him and beat their breasts and mourn and lament over Him. Even so [must it be]. Amen (so be it). 
 
 
 ###### 8 
 
 
-I am the Alpha and the Omega, _the Beginning and the End_, says the Lord God, He Who is and Who was and Who is to come, the Almighty (the Ruler of all). 
+I am the Alpha and the Omega, the Beginning and the End, says the Lord God, He Who is and Who was and Who is to come, the Almighty (the Ruler of all). 
 
 
 ###### 9 
 
 
-I, John, your brother and companion (sharer and participator) with you in the tribulation and kingdom and patient endurance [which are] in Jesus _Christ_, was on the isle called Patmos, [banished] on account of [my witnessing to] the Word of God and the testimony (the proof, the evidence) for Jesus _Christ_. 
+I, John, your brother and companion (sharer and participator) with you in the tribulation and kingdom and patient endurance [which are] in Jesus Christ, was on the isle called Patmos, [banished] on account of [my witnessing to] the Word of God and the testimony (the proof, the evidence) for Jesus Christ. 
 
 
 ###### 10 
@@ -71,7 +71,7 @@ I was in the Spirit [rapt in His power] on the Lord's Day, and I heard behind me
 ###### 11 
 
 
-Saying, _I am the Alpha and the Omega, the First and the Last_. Write promptly what you see (your vision) in a book and send it to the seven churches _which are in Asia_--to Ephesus and to Smyrna and to Pergamum and to Thyatira and to Sardis and to Philadelphia and to Laodicea. 
+Saying, I am the Alpha and the Omega, the First and the Last. Write promptly what you see (your vision) in a book and send it to the seven churches which are in Asia--to Ephesus and to Smyrna and to Pergamum and to Thyatira and to Sardis and to Philadelphia and to Laodicea. 
 
 
 ###### 12 

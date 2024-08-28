@@ -49,7 +49,7 @@ At that time Merodach-baladan son of Baladan king of Babylon sent [messengers wi
 
 
 
-And Hezekiah was glad _and_ welcomed them and showed them the house of his spices _and_ precious things--the silver, the gold, the spices, the precious ointment, all the house of his armor _and_ his jewels, and all that was found in his treasuries. There was nothing in his house nor in all his dominion that Hezekiah did not show them. 
+And Hezekiah was glad and welcomed them and showed them the house of his spices and precious things--the silver, the gold, the spices, the precious ointment, all the house of his armor and his jewels, and all that was found in his treasuries. There was nothing in his house nor in all his dominion that Hezekiah did not show them. 
 
 
 

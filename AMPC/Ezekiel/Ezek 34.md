@@ -91,7 +91,7 @@ You eat the fat, you clothe yourselves with the wool, you kill the fatlings, but
 
 
 
-The diseased _and_ weak you have not strengthened, the sick you have not healed, the hurt _and_ crippled you have not bandaged, those gone astray you have not brought back, the lost you have not sought to find, but with force and hardhearted harshness you have ruled them. 
+The diseased and weak you have not strengthened, the sick you have not healed, the hurt and crippled you have not bandaged, those gone astray you have not brought back, the lost you have not sought to find, but with force and hardhearted harshness you have ruled them. 
 
 
 
@@ -343,7 +343,7 @@ I will feed My sheep and I will cause them to lie down, says the Lord God.
 
 
 
-I will seek that which was lost and bring back that which has strayed, and I will bandage the hurt _and_ the crippled and will strengthen the weak _and_ the sick, but I will destroy the fat and the strong [who have become hardhearted and perverse]; I will feed them with judgment _and_ punishment. 
+I will seek that which was lost and bring back that which has strayed, and I will bandage the hurt and the crippled and will strengthen the weak and the sick, but I will destroy the fat and the strong [who have become hardhearted and perverse]; I will feed them with judgment and punishment. 
 
 
 
@@ -427,7 +427,7 @@ And My flock, must they feed on what your feet have trodden and drink what your 
 
 
 
-Therefore thus says the Lord God to them: Behold, I, I Myself, will judge between fat sheep and impoverished sheep, _or_ fat goats and lean goats. 
+Therefore thus says the Lord God to them: Behold, I, I Myself, will judge between fat sheep and impoverished sheep, or fat goats and lean goats. 
 
 
 
@@ -448,7 +448,7 @@ Therefore thus says the Lord God to them: Behold, I, I Myself, will judge betwee
 
 
 
-Because you push with side and with shoulder and thrust with your horns all those that have become weak _and_ diseased, till you have scattered them abroad, 
+Because you push with side and with shoulder and thrust with your horns all those that have become weak and diseased, till you have scattered them abroad, 
 
 
 
@@ -532,7 +532,7 @@ And I the Lord will be their God and My Servant David a Prince among them; I the
 
 
 
-And I will confirm with them a covenant of peace and will cause the evil beasts to cease out of the land, and [My people] shall dwell safely in the wilderness, desert, _or_ pastureland and sleep [confidently] in the woods. 
+And I will confirm with them a covenant of peace and will cause the evil beasts to cease out of the land, and [My people] shall dwell safely in the wilderness, desert, or pastureland and sleep [confidently] in the woods. 
 
 
 
@@ -574,7 +574,7 @@ And I will make them and the places round about My hill a blessing, and I will c
 
 
 
-And the tree of the field shall yield its fruit and the earth shall yield its increase; and [My people] shall be secure in their land, and they shall be confident _and_ know (understand and realize) that I am the Lord, when I have broken the bars of their yoke and have delivered them out of the hand of those who made slaves of them. 
+And the tree of the field shall yield its fruit and the earth shall yield its increase; and [My people] shall be secure in their land, and they shall be confident and know (understand and realize) that I am the Lord, when I have broken the bars of their yoke and have delivered them out of the hand of those who made slaves of them. 
 
 
 

@@ -28,7 +28,7 @@ next: ['2 Sam 5']
 
 
 
-When Ish-bosheth, Saul's son [king over Israel], heard that Abner was dead in Hebron, his courage failed, and all the Israelites were troubled _and_ dismayed. 
+When Ish-bosheth, Saul's son [king over Israel], heard that Abner was dead in Hebron, his courage failed, and all the Israelites were troubled and dismayed. 
 
 
 

@@ -154,7 +154,7 @@ Would I lie against my right? Yet, notwithstanding my right, I am counted a liar
 
 
 
-What man is like Job, who drinks up scoffing _and_ scorning like water, 
+What man is like Job, who drinks up scoffing and scorning like water, 
 
 
 
@@ -196,7 +196,7 @@ Who goes in company with the workers of iniquity and walks with wicked men?
 
 
 
-For he has said, It profits a man nothing that he should delight himself with God _and_ consent to Him. 
+For he has said, It profits a man nothing that he should delight himself with God and consent to Him. 
 
 
 
@@ -364,7 +364,7 @@ If now you have understanding, hear this; listen to my words.
 
 
 
-Is it possible that an enemy of right should govern? And will you condemn Him Who is just _and_ mighty? 
+Is it possible that an enemy of right should govern? And will you condemn Him Who is just and mighty? 
 
 
 
@@ -385,7 +385,7 @@ Is it possible that an enemy of right should govern? And will you condemn Him Wh
 
 
 
-[God] Who says to a king, You are worthless _and_ vile, or to princes _and_ nobles, You are ungodly _and_ evil? 
+[God] Who says to a king, You are worthless and vile, or to princes and nobles, You are ungodly and evil? 
 
 
 
@@ -511,7 +511,7 @@ There is no darkness nor thick gloom where the evildoers may hide themselves.
 
 
 
-He breaks in pieces mighty men without inquiry [before a jury] _and_ in ways past finding out and sets others in their stead. 
+He breaks in pieces mighty men without inquiry [before a jury] and in ways past finding out and sets others in their stead. 
 
 
 
@@ -532,7 +532,7 @@ He breaks in pieces mighty men without inquiry [before a jury] _and_ in ways pas
 
 
 
-Therefore He takes knowledge of their works, and He overturns them in the night, so that they are crushed _and_ destroyed. 
+Therefore He takes knowledge of their works, and He overturns them in the night, so that they are crushed and destroyed. 
 
 
 
@@ -574,7 +574,7 @@ God strikes them down as wicked men in the open sight of beholders,
 
 
 
-Because they turned aside from Him and would not consider _or_ show regard for any of His ways, 
+Because they turned aside from Him and would not consider or show regard for any of His ways, 
 
 
 
@@ -742,7 +742,7 @@ Men of understanding will tell me, indeed, every wise man who hears me [will agr
 
 
 
-That Job speaks without knowledge, and his words are without wisdom _and_ insight. 
+That Job speaks without knowledge, and his words are without wisdom and insight. 
 
 
 

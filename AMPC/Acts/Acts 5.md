@@ -49,7 +49,7 @@ But a certain man named Ananias with his wife Sapphira sold a piece of property,
 
 
 
-And with his wife's knowledge _and_ connivance he kept back _and_ wrongfully appropriated some of the proceeds, bringing only a part and putting it at the feet of the apostles. 
+And with his wife's knowledge and connivance he kept back and wrongfully appropriated some of the proceeds, bringing only a part and putting it at the feet of the apostles. 
 
 
 
@@ -70,7 +70,7 @@ And with his wife's knowledge _and_ connivance he kept back _and_ wrongfully app
 
 
 
-But Peter said, Ananias, why has Satan filled your heart that you should lie to _and_ attempt to deceive the Holy Spirit, and should [in violation of your promise] withdraw secretly _and_ appropriate to your own use part of the price from the sale of the land? 
+But Peter said, Ananias, why has Satan filled your heart that you should lie to and attempt to deceive the Holy Spirit, and should [in violation of your promise] withdraw secretly and appropriate to your own use part of the price from the sale of the land? 
 
 
 
@@ -91,7 +91,7 @@ But Peter said, Ananias, why has Satan filled your heart that you should lie to 
 
 
 
-As long as it remained unsold, was it not still your own? And [even] after it was sold, was not [the money] at your disposal _and_ under your control? Why then, is it that you have proposed _and_ purposed in your heart to do this thing? [How could you have the heart to do such a deed?] You have not [simply] lied to men [playing false and showing yourself utterly deceitful] but to God. 
+As long as it remained unsold, was it not still your own? And [even] after it was sold, was not [the money] at your disposal and under your control? Why then, is it that you have proposed and purposed in your heart to do this thing? [How could you have the heart to do such a deed?] You have not [simply] lied to men [playing false and showing yourself utterly deceitful] but to God. 
 
 
 
@@ -112,7 +112,7 @@ As long as it remained unsold, was it not still your own? And [even] after it wa
 
 
 
-Upon hearing these words, Ananias fell down and died. And great dread _and_ terror took possession of all who heard of it. 
+Upon hearing these words, Ananias fell down and died. And great dread and terror took possession of all who heard of it. 
 
 
 
@@ -196,7 +196,7 @@ And Peter said to her, Tell me, did you sell the land for so much? Yes, she said
 
 
 
-Then Peter said to her, How could you two have agreed _and_ conspired together to try to deceive the Spirit of the Lord? Listen! The feet of those who have buried your husband are at the door, and they will carry you out [also]. 
+Then Peter said to her, How could you two have agreed and conspired together to try to deceive the Spirit of the Lord? Listen! The feet of those who have buried your husband are at the door, and they will carry you out [also]. 
 
 
 
@@ -259,7 +259,7 @@ And the whole church and all others who heard of these things were appalled [gre
 
 
 
-Now by the hands of the apostles (special messengers) numerous _and_ startling signs _and_ wonders were being performed among the people. And by common consent they all met together [at the temple] in the covered porch (walk) called Solomon's. 
+Now by the hands of the apostles (special messengers) numerous and startling signs and wonders were being performed among the people. And by common consent they all met together [at the temple] in the covered porch (walk) called Solomon's. 
 
 
 
@@ -280,7 +280,7 @@ Now by the hands of the apostles (special messengers) numerous _and_ startling s
 
 
 
-And none of those who were not of their number dared to join _and_ associate with them, but the people held them in high regard _and_ praised _and_ made much of them. 
+And none of those who were not of their number dared to join and associate with them, but the people held them in high regard and praised and made much of them. 
 
 
 
@@ -301,7 +301,7 @@ And none of those who were not of their number dared to join _and_ associate wit
 
 
 
-More _and_ more there were being added to the Lord those who believed [those who acknowledged Jesus as their Savior and devoted themselves to Him joined and gathered with them], crowds both of men and of women, 
+More and more there were being added to the Lord those who believed [those who acknowledged Jesus as their Savior and devoted themselves to Him joined and gathered with them], crowds both of men and of women, 
 
 
 
@@ -343,7 +343,7 @@ So that they [even] kept carrying out the sick into the streets and placing them
 
 
 
-And the people gathered also from the towns _and_ hamlets around Jerusalem, bringing the sick and those troubled with foul spirits, and they were all cured. 
+And the people gathered also from the towns and hamlets around Jerusalem, bringing the sick and those troubled with foul spirits, and they were all cured. 
 
 
 
@@ -364,7 +364,7 @@ And the people gathered also from the towns _and_ hamlets around Jerusalem, brin
 
 
 
-But the high priest rose up and all who were his supporters, that is, the party of the Sadducees, and being filled with jealousy _and_ indignation _and_ rage, 
+But the high priest rose up and all who were his supporters, that is, the party of the Sadducees, and being filled with jealousy and indignation and rage, 
 
 
 
@@ -511,7 +511,7 @@ We found the prison quite safely locked up and the guards were on duty outside t
 
 
 
-Now when the military leader of the temple area and the chief priests heard these facts, they were much perplexed _and_ thoroughly at a loss about them, wondering into what this might grow. 
+Now when the military leader of the temple area and the chief priests heard these facts, they were much perplexed and thoroughly at a loss about them, wondering into what this might grow. 
 
 
 
@@ -595,7 +595,7 @@ So they brought them and set them before the council (Sanhedrin). And the high p
 
 
 
-Saying, We definitely commanded _and_ strictly charged you not to teach in _or_ about this Name; yet here you have flooded Jerusalem with your doctrine and you intend to bring this Man's blood upon us. 
+Saying, We definitely commanded and strictly charged you not to teach in or about this Name; yet here you have flooded Jerusalem with your doctrine and you intend to bring this Man's blood upon us. 
 
 
 
@@ -658,7 +658,7 @@ The God of our forefathers raised up Jesus, Whom you killed by hanging Him on a 
 
 
 
-God exalted Him to His right hand to be Prince _and_ Leader and Savior _and_ Deliverer _and_ Preserver, in order to grant repentance to Israel and to bestow forgiveness _and_ release from sins. 
+God exalted Him to His right hand to be Prince and Leader and Savior and Deliverer and Preserver, in order to grant repentance to Israel and to bestow forgiveness and release from sins. 
 
 
 
@@ -700,7 +700,7 @@ And we are witnesses of these things, and the Holy Spirit is also, Whom God has 
 
 
 
-Now when they heard this, they were cut to the heart _and_ infuriated and wanted to kill the disciples. 
+Now when they heard this, they were cut to the heart and infuriated and wanted to kill the disciples. 
 
 
 
@@ -763,7 +763,7 @@ Then he addressed them [the council, saying]: Men of Israel, take care in regard
 
 
 
-For before our time there arose Theudas, asserting himself to be a person of importance, with whom a number of men allied themselves, about 400; but he was killed and all who had listened to _and_ adhered to him were scattered and brought to nothing. 
+For before our time there arose Theudas, asserting himself to be a person of importance, with whom a number of men allied themselves, about 400; but he was killed and all who had listened to and adhered to him were scattered and brought to nothing. 
 
 
 
@@ -805,7 +805,7 @@ And after this one rose up Judas the Galilean, [who led an uprising] during the 
 
 
 
-Now in the present case let me say to you, stand off (withdraw) from these men and let them alone. For if this doctrine _or_ purpose or undertaking _or_ movement is of human origin, it will fail (be overthrown and come to nothing); 
+Now in the present case let me say to you, stand off (withdraw) from these men and let them alone. For if this doctrine or purpose or undertaking or movement is of human origin, it will fail (be overthrown and come to nothing); 
 
 
 
@@ -826,7 +826,7 @@ Now in the present case let me say to you, stand off (withdraw) from these men a
 
 
 
-But if it is of God, you will not be able to stop _or_ overthrow _or_ destroy them; you might even be found fighting against God! 
+But if it is of God, you will not be able to stop or overthrow or destroy them; you might even be found fighting against God! 
 
 
 
@@ -847,7 +847,7 @@ But if it is of God, you will not be able to stop _or_ overthrow _or_ destroy th
 
 
 
-So, convinced by him, they took his advice; and summoning the apostles, they flogged them and sternly forbade them to speak in _or_ about the name of Jesus, and allowed them to go. 
+So, convinced by him, they took his advice; and summoning the apostles, they flogged them and sternly forbade them to speak in or about the name of Jesus, and allowed them to go. 
 
 
 
@@ -868,7 +868,7 @@ So, convinced by him, they took his advice; and summoning the apostles, they flo
 
 
 
-So they went out from the presence of the council (Sanhedrin), rejoicing that they were being counted worthy [dignified by the indignity] to suffer shame _and_ be exposed to disgrace for [the sake of] His name. 
+So they went out from the presence of the council (Sanhedrin), rejoicing that they were being counted worthy [dignified by the indignity] to suffer shame and be exposed to disgrace for [the sake of] His name. 
 
 
 
@@ -889,4 +889,4 @@ So they went out from the presence of the council (Sanhedrin), rejoicing that th
 
 
 
-Yet [in spite of the threats] they never ceased for a single day, both in the temple area and at home, to teach _and_ to proclaim the good news (Gospel) of Jesus [as] the Christ (the Messiah).
+Yet [in spite of the threats] they never ceased for a single day, both in the temple area and at home, to teach and to proclaim the good news (Gospel) of Jesus [as] the Christ (the Messiah).

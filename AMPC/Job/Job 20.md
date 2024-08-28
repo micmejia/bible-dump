@@ -112,7 +112,7 @@ Do you not know from of old, since the time that man was placed on the earth,
 
 
 
-That the triumphing of the wicked is short, and the joy of the godless _and_ defiled is but for a moment? 
+That the triumphing of the wicked is short, and the joy of the godless and defiled is but for a moment? 
 
 
 
@@ -427,7 +427,7 @@ For he has oppressed and forsaken the poor; he has violently taken away a house 
 
 
 
-Because his desire _and_ greed knew no quietness within him, he will not save anything of that in which he delights. 
+Because his desire and greed knew no quietness within him, he will not save anything of that in which he delights. 
 
 
 
@@ -595,7 +595,7 @@ The heavens shall reveal his iniquity, and the earth shall rise up against him.
 
 
 
-The produce _and_ increase of his house will go into exile [with the victors], dragged away in the day of [God's] wrath. 
+The produce and increase of his house will go into exile [with the victors], dragged away in the day of [God's] wrath. 
 
 
 

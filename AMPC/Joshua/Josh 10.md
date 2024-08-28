@@ -259,7 +259,7 @@ As they fled before Israel, while they were descending [the pass] to Beth-horon,
 
 
 
-Then Joshua spoke to the Lord on the day when the Lord gave the Amorites over to the Israelites, and he said in the sight of Israel, Sun, be silent _and_ stand still at Gibeon, and you, moon, in the Valley of Ajalon! 
+Then Joshua spoke to the Lord on the day when the Lord gave the Amorites over to the Israelites, and he said in the sight of Israel, Sun, be silent and stand still at Gibeon, and you, moon, in the Valley of Ajalon! 
 
 
 

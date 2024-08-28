@@ -28,7 +28,7 @@ next: ['Prov 4']
 
 
 
-My son, forget not my law _or_ teaching, but let your heart keep my commandments; 
+My son, forget not my law or teaching, but let your heart keep my commandments; 
 
 
 
@@ -91,7 +91,7 @@ Let not mercy and kindness [shutting out all hatred and selfishness] and truth [
 
 
 
-So shall you find favor, good understanding, _and_ high esteem in the sight [or judgment] of God and man. 
+So shall you find favor, good understanding, and high esteem in the sight [or judgment] of God and man. 
 
 
 
@@ -112,7 +112,7 @@ So shall you find favor, good understanding, _and_ high esteem in the sight [or 
 
 
 
-Lean on, trust in, _and_ be confident in the Lord with all your heart _and_ mind and do not rely on your own insight _or_ understanding. 
+Lean on, trust in, and be confident in the Lord with all your heart and mind and do not rely on your own insight or understanding. 
 
 
 
@@ -133,7 +133,7 @@ Lean on, trust in, _and_ be confident in the Lord with all your heart _and_ mind
 
 
 
-In all your ways know, recognize, _and_ acknowledge Him, and He will direct _and_ make straight _and_ plain your paths. 
+In all your ways know, recognize, and acknowledge Him, and He will direct and make straight and plain your paths. 
 
 
 
@@ -154,7 +154,7 @@ In all your ways know, recognize, _and_ acknowledge Him, and He will direct _and
 
 
 
-Be not wise in your own eyes; reverently fear _and_ worship the Lord and turn [entirely] away from evil. 
+Be not wise in your own eyes; reverently fear and worship the Lord and turn [entirely] away from evil. 
 
 
 
@@ -175,7 +175,7 @@ Be not wise in your own eyes; reverently fear _and_ worship the Lord and turn [e
 
 
 
-It shall be health to your nerves _and_ sinews, and marrow _and_ moistening to your bones. 
+It shall be health to your nerves and sinews, and marrow and moistening to your bones. 
 
 
 
@@ -196,7 +196,7 @@ It shall be health to your nerves _and_ sinews, and marrow _and_ moistening to y
 
 
 
-Honor the Lord with your capital _and_ sufficiency [from righteous labors] and with the firstfruits of all your income; 
+Honor the Lord with your capital and sufficiency [from righteous labors] and with the firstfruits of all your income; 
 
 
 
@@ -238,7 +238,7 @@ So shall your storage places be filled with plenty, and your vats shall be overf
 
 
 
-My son, do not despise _or_ shrink from the chastening of the Lord [His correction by punishment or by subjection to suffering or trial]; neither be weary of _or_ impatient about _or_ loathe _or_ abhor His reproof, 
+My son, do not despise or shrink from the chastening of the Lord [His correction by punishment or by subjection to suffering or trial]; neither be weary of or impatient about or loathe or abhor His reproof, 
 
 
 
@@ -280,7 +280,7 @@ For whom the Lord loves He corrects, even as a father corrects the son in whom h
 
 
 
-Happy (blessed, fortunate, enviable) is the man who finds skillful _and_ godly Wisdom, and the man who gets understanding [drawing it forth from God's Word and life's experiences], 
+Happy (blessed, fortunate, enviable) is the man who finds skillful and godly Wisdom, and the man who gets understanding [drawing it forth from God's Word and life's experiences], 
 
 
 
@@ -322,7 +322,7 @@ For the gaining of it is better than the gaining of silver, and the profit of it
 
 
 
-Skillful _and_ godly Wisdom is more precious than rubies; and nothing you can wish for is to be compared to her. 
+Skillful and godly Wisdom is more precious than rubies; and nothing you can wish for is to be compared to her. 
 
 
 
@@ -406,7 +406,7 @@ She is a tree of life to those who lay hold on her; and happy (blessed, fortunat
 
 
 
-The Lord by skillful _and_ godly Wisdom has founded the earth; by understanding He has established the heavens. 
+The Lord by skillful and godly Wisdom has founded the earth; by understanding He has established the heavens. 
 
 
 
@@ -448,7 +448,7 @@ By His knowledge the deeps were broken up, and the skies distill the dew.
 
 
 
-My son, let them not escape from your sight, but keep sound _and_ godly Wisdom and discretion, 
+My son, let them not escape from your sight, but keep sound and godly Wisdom and discretion, 
 
 
 
@@ -490,7 +490,7 @@ And they will be life to your inner self, and a gracious ornament to your neck (
 
 
 
-Then you will walk in your way securely _and_ in confident trust, and you shall not dash your foot _or_ stumble. 
+Then you will walk in your way securely and in confident trust, and you shall not dash your foot or stumble. 
 
 
 
@@ -532,7 +532,7 @@ When you lie down, you shall not be afraid; yes, you shall lie down, and your sl
 
 
 
-Be not afraid of sudden terror _and_ panic, nor of the stormy blast _or_ the storm and ruin of the wicked when it comes [for you will be guiltless], 
+Be not afraid of sudden terror and panic, nor of the stormy blast or the storm and ruin of the wicked when it comes [for you will be guiltless], 
 
 
 
@@ -553,7 +553,7 @@ Be not afraid of sudden terror _and_ panic, nor of the stormy blast _or_ the sto
 
 
 
-For the Lord shall be your confidence, firm _and_ strong, and shall keep your foot from being caught [in a trap or some hidden danger]. 
+For the Lord shall be your confidence, firm and strong, and shall keep your foot from being caught [in a trap or some hidden danger]. 
 
 
 
@@ -616,7 +616,7 @@ Do not say to your neighbor, Go, and come again; and tomorrow I will give it--wh
 
 
 
-Do not contrive _or_ dig up _or_ cultivate evil against your neighbor, who dwells trustingly _and_ confidently beside you. 
+Do not contrive or dig up or cultivate evil against your neighbor, who dwells trustingly and confidently beside you. 
 
 
 
@@ -658,7 +658,7 @@ Contend not with a man for no reason--when he has done you no wrong.
 
 
 
-Do not resentfully envy _and_ be jealous of an unscrupulous, grasping man, and choose none of his ways. 
+Do not resentfully envy and be jealous of an unscrupulous, grasping man, and choose none of his ways. 
 
 
 
@@ -679,7 +679,7 @@ Do not resentfully envy _and_ be jealous of an unscrupulous, grasping man, and c
 
 
 
-For the perverse are an abomination [extremely disgusting and detestable] to the Lord; but His confidential communion _and_ secret counsel are with the [uncompromisingly] righteous (those who are upright and in right standing with Him). 
+For the perverse are an abomination [extremely disgusting and detestable] to the Lord; but His confidential communion and secret counsel are with the [uncompromisingly] righteous (those who are upright and in right standing with Him). 
 
 
 
@@ -700,7 +700,7 @@ For the perverse are an abomination [extremely disgusting and detestable] to the
 
 
 
-The curse of the Lord is in _and_ on the house of the wicked, but He declares blessed (joyful and favored with blessings) the home of the just _and_ consistently righteous. 
+The curse of the Lord is in and on the house of the wicked, but He declares blessed (joyful and favored with blessings) the home of the just and consistently righteous. 
 
 
 
@@ -721,7 +721,7 @@ The curse of the Lord is in _and_ on the house of the wicked, but He declares bl
 
 
 
-Though He scoffs at the scoffers _and_ scorns the scorners, yet He gives His undeserved favor to the low [in rank], the humble, _and_ the afflicted. 
+Though He scoffs at the scoffers and scorns the scorners, yet He gives His undeserved favor to the low [in rank], the humble, and the afflicted. 
 
 
 

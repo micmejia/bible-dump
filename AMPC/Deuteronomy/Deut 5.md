@@ -154,7 +154,7 @@ I am the Lord your God, Who brought you out of the land of Egypt, from the house
 
 
 
-You shall have no other gods before Me _or_ besides Me. 
+You shall have no other gods before Me or besides Me. 
 
 
 
@@ -217,7 +217,7 @@ You shall not bow down to them or serve them; for I, the Lord your God, am a jea
 
 
 
-And showing mercy _and_ steadfast love to thousands _and_ to a thousand generations of those who love Me and keep My commandments. 
+And showing mercy and steadfast love to thousands and to a thousand generations of those who love Me and keep My commandments. 
 
 
 
@@ -238,7 +238,7 @@ And showing mercy _and_ steadfast love to thousands _and_ to a thousand generati
 
 
 
-You shall not take the name of the Lord your God in vain, for the Lord will not hold him guiltless who takes His name in falsehood _or_ without purpose. 
+You shall not take the name of the Lord your God in vain, for the Lord will not hold him guiltless who takes His name in falsehood or without purpose. 
 
 
 
@@ -301,7 +301,7 @@ Six days you shall labor and do all your work,
 
 
 
-But the seventh day is a Sabbath to the Lord your God; in it you shall not do any work, you or your son or your daughter, or your manservant or your maidservant, or your ox or your donkey or any of your livestock, or the stranger _or_ sojourner who is within your gates, that your manservant and your maidservant may rest as well as you. 
+But the seventh day is a Sabbath to the Lord your God; in it you shall not do any work, you or your son or your daughter, or your manservant or your maidservant, or your ox or your donkey or any of your livestock, or the stranger or sojourner who is within your gates, that your manservant and your maidservant may rest as well as you. 
 
 
 
@@ -322,7 +322,7 @@ But the seventh day is a Sabbath to the Lord your God; in it you shall not do an
 
 
 
-And [earnestly] remember that you were a servant in the land of Egypt and that the Lord your God brought you out from there with a mighty hand and an outstretched arm; therefore the Lord your God commanded you to observe _and_ take heed to the Sabbath day. 
+And [earnestly] remember that you were a servant in the land of Egypt and that the Lord your God brought you out from there with a mighty hand and an outstretched arm; therefore the Lord your God commanded you to observe and take heed to the Sabbath day. 
 
 
 
@@ -406,7 +406,7 @@ Neither shall you commit adultery.
 
 
 
-Neither shall you act slyly _or_ steal. 
+Neither shall you act slyly or steal. 
 
 
 

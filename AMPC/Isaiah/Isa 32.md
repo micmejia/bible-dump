@@ -70,7 +70,7 @@ And each one of them shall be like a hiding place from the wind and a shelter fr
 
 
 
-Then the eyes of those who see will not be closed _or_ dimmed, and the ears of those who hear will listen. 
+Then the eyes of those who see will not be closed or dimmed, and the ears of those who hear will listen. 
 
 
 
@@ -91,7 +91,7 @@ Then the eyes of those who see will not be closed _or_ dimmed, and the ears of t
 
 
 
-And the mind of the rash will understand knowledge _and_ have good judgment, and the tongue of the stammerers will speak readily and plainly. 
+And the mind of the rash will understand knowledge and have good judgment, and the tongue of the stammerers will speak readily and plainly. 
 
 
 
@@ -112,7 +112,7 @@ And the mind of the rash will understand knowledge _and_ have good judgment, and
 
 
 
-The fool (the unbeliever and the ungodly) will no more be called noble, nor the crafty _and_ greedy [for gain] said to be bountiful _and_ princely. 
+The fool (the unbeliever and the ungodly) will no more be called noble, nor the crafty and greedy [for gain] said to be bountiful and princely. 
 
 
 
@@ -154,7 +154,7 @@ For the fool speaks folly and his mind plans iniquity: practicing profane ungodl
 
 
 
-The instruments _and_ methods of the fraudulent _and_ greedy [for gain] are evil; he devises wicked devices to ruin the poor _and_ the lowly with lying words, even when the plea of the needy is just _and_ right. 
+The instruments and methods of the fraudulent and greedy [for gain] are evil; he devises wicked devices to ruin the poor and the lowly with lying words, even when the plea of the needy is just and right. 
 
 
 
@@ -175,7 +175,7 @@ The instruments _and_ methods of the fraudulent _and_ greedy [for gain] are evil
 
 
 
-But the noble, openhearted, _and_ liberal man devises noble things; and he stands for what is noble, openhearted, _and_ generous. 
+But the noble, openhearted, and liberal man devises noble things; and he stands for what is noble, openhearted, and generous. 
 
 
 
@@ -196,7 +196,7 @@ But the noble, openhearted, _and_ liberal man devises noble things; and he stand
 
 
 
-Rise up, you women who are at ease! Hear my [Isaiah's] voice, you confident _and_ careless daughters! Listen to what I am saying! 
+Rise up, you women who are at ease! Hear my [Isaiah's] voice, you confident and careless daughters! Listen to what I am saying! 
 
 
 
@@ -217,7 +217,7 @@ Rise up, you women who are at ease! Hear my [Isaiah's] voice, you confident _and
 
 
 
-In little more than a year you will be shaken with anxiety, you careless _and_ complacent women; for the vintage will fail, and the ingathering will not come. 
+In little more than a year you will be shaken with anxiety, you careless and complacent women; for the vintage will fail, and the ingathering will not come. 
 
 
 
@@ -406,7 +406,7 @@ My people shall dwell in a peaceable habitation, in safe dwellings, and in quiet
 
 
 
-But it [the wrath of the Lord] shall hail, coming down overpoweringly on the forest [the army of the Assyrians], and the capital city shall be utterly humbled _and_ laid prostrate. 
+But it [the wrath of the Lord] shall hail, coming down overpoweringly on the forest [the army of the Assyrians], and the capital city shall be utterly humbled and laid prostrate. 
 
 
 
@@ -427,4 +427,4 @@ But it [the wrath of the Lord] shall hail, coming down overpoweringly on the for
 
 
 
-Happy _and_ fortunate are you who cast your seed upon all waters [when the river overflows its banks; for the seed will sink into the mud and when the waters subside, the plant will spring up; you will find it after many days and reap an abundant harvest], you who safely send forth the ox and the donkey [to range freely].
+Happy and fortunate are you who cast your seed upon all waters [when the river overflows its banks; for the seed will sink into the mud and when the waters subside, the plant will spring up; you will find it after many days and reap an abundant harvest], you who safely send forth the ox and the donkey [to range freely].

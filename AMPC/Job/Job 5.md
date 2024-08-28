@@ -49,7 +49,7 @@ Call now--is there any who will answer you? And to which of the holy [angels] wi
 
 
 
-For vexation _and_ rage kill the foolish man; jealousy _and_ indignation slay the simple. 
+For vexation and rage kill the foolish man; jealousy and indignation slay the simple. 
 
 
 
@@ -154,7 +154,7 @@ For affliction comes not forth from the dust, neither does trouble spring forth 
 
 
 
-But man is born to trouble as the sparks _and_ the flames fly upward. 
+But man is born to trouble as the sparks and the flames fly upward. 
 
 
 
@@ -175,7 +175,7 @@ But man is born to trouble as the sparks _and_ the flames fly upward.
 
 
 
-As for me, I would seek God _and_ inquire of _and_ require Him, and to God would I commit my cause-- 
+As for me, I would seek God and inquire of and require Him, and to God would I commit my cause-- 
 
 
 
@@ -259,7 +259,7 @@ So that He sets on high those who are lowly, and those who mourn He lifts to saf
 
 
 
-He frustrates the devices of the crafty, so that their hands cannot perform their enterprise _or_ anything of [lasting] worth. 
+He frustrates the devices of the crafty, so that their hands cannot perform their enterprise or anything of [lasting] worth. 
 
 
 
@@ -364,7 +364,7 @@ So the poor have hope, and iniquity shuts her mouth.
 
 
 
-Happy _and_ fortunate is the man whom God reproves; so do not despise _or_ reject the correction of the Almighty [subjecting you to trial and suffering]. 
+Happy and fortunate is the man whom God reproves; so do not despise or reject the correction of the Almighty [subjecting you to trial and suffering]. 
 
 
 
@@ -511,7 +511,7 @@ For you shall be in league with the stones of the field, and the beasts of the f
 
 
 
-And you shall know that your tent shall be in peace, and you shall visit your fold _and_ your dwelling and miss nothing [from them]. 
+And you shall know that your tent shall be in peace, and you shall visit your fold and your dwelling and miss nothing [from them]. 
 
 
 
@@ -574,4 +574,4 @@ You shall come to your grave in ripe old age, and as a shock of grain goes up [t
 
 
 
-This is what we have searched out; it is true. Hear _and_ heed it and know for yourself [for your good].
+This is what we have searched out; it is true. Hear and heed it and know for yourself [for your good].

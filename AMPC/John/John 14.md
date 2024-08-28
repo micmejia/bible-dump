@@ -28,7 +28,7 @@ next: ['John 15']
 
 
 
-Do not let your hearts be troubled (distressed, agitated). You believe in _and_ adhere to _and_ trust in _and_ rely on God; believe in _and_ adhere to _and_ trust in _and_ rely also on Me. 
+Do not let your hearts be troubled (distressed, agitated). You believe in and adhere to and trust in and rely on God; believe in and adhere to and trust in and rely also on Me. 
 
 
 
@@ -196,7 +196,7 @@ Philip said to Him, Lord, show us the Father [cause us to see the Father--that i
 
 
 
-Jesus replied, Have I been with all of you for so long a time, and do you not recognize _and_ know Me yet, Philip? Anyone who has seen Me has seen the Father. How can you say then, Show us the Father? 
+Jesus replied, Have I been with all of you for so long a time, and do you not recognize and know Me yet, Philip? Anyone who has seen Me has seen the Father. How can you say then, Show us the Father? 
 
 
 
@@ -217,7 +217,7 @@ Jesus replied, Have I been with all of you for so long a time, and do you not re
 
 
 
-Do you not believe that I am in the Father, and that the Father is in Me? What I am telling you I do not say on My own authority _and_ of My own accord; but the Father Who lives continually in Me does the (_His_) works (His own miracles, deeds of power). 
+Do you not believe that I am in the Father, and that the Father is in Me? What I am telling you I do not say on My own authority and of My own accord; but the Father Who lives continually in Me does the (His) works (His own miracles, deeds of power). 
 
 
 
@@ -280,7 +280,7 @@ I assure you, most solemnly I tell you, if anyone steadfastly believes in Me, he
 
 
 
-And I will do [I Myself will grant] whatever you ask in My Name [as presenting all that I Am], so that the Father may be glorified _and_ extolled in (through) the Son. 
+And I will do [I Myself will grant] whatever you ask in My Name [as presenting all that I Am], so that the Father may be glorified and extolled in (through) the Son. 
 
 
 
@@ -364,7 +364,7 @@ And I will ask the Father, and He will give you another Comforter (Counselor, He
 
 
 
-The Spirit of Truth, Whom the world cannot receive (welcome, take to its heart), because it does not see Him or know _and_ recognize Him. But you know _and_ recognize Him, for He lives with you [constantly] and will be in you. 
+The Spirit of Truth, Whom the world cannot receive (welcome, take to its heart), because it does not see Him or know and recognize Him. But you know and recognize Him, for He lives with you [constantly] and will be in you. 
 
 
 
@@ -511,7 +511,7 @@ Jesus answered, If a person [really] loves Me, he will keep My word [obey My tea
 
 
 
-Anyone who does not [really] love Me does not observe _and_ obey My teaching. And the teaching which you hear _and_ heed is not Mine, but [comes] from the Father Who sent Me. 
+Anyone who does not [really] love Me does not observe and obey My teaching. And the teaching which you hear and heed is not Mine, but [comes] from the Father Who sent Me. 
 
 
 
@@ -574,7 +574,7 @@ But the Comforter (Counselor, Helper, Intercessor, Advocate, Strengthener, Stand
 
 
 
-Peace I leave with you; My [own] peace I now give _and_ bequeath to you. Not as the world gives do I give to you. Do not let your hearts be troubled, neither let them be afraid. [Stop allowing yourselves to be agitated and disturbed; and do not permit yourselves to be fearful and intimidated and cowardly and unsettled.] 
+Peace I leave with you; My [own] peace I now give and bequeath to you. Not as the world gives do I give to you. Do not let your hearts be troubled, neither let them be afraid. [Stop allowing yourselves to be agitated and disturbed; and do not permit yourselves to be fearful and intimidated and cowardly and unsettled.] 
 
 
 
@@ -595,7 +595,7 @@ Peace I leave with you; My [own] peace I now give _and_ bequeath to you. Not as 
 
 
 
-You heard Me tell you, I am going away and I am coming [back] to you. If you [really] loved Me, you would have been glad, because I am going to the Father; for the Father is greater _and_ mightier than I am. 
+You heard Me tell you, I am going away and I am coming [back] to you. If you [really] loved Me, you would have been glad, because I am going to the Father; for the Father is greater and mightier than I am. 
 
 
 
@@ -616,7 +616,7 @@ You heard Me tell you, I am going away and I am coming [back] to you. If you [re
 
 
 
-And now I have told you [this] before it occurs, so that when it does take place you may believe _and_ have faith in _and_ rely on Me. 
+And now I have told you [this] before it occurs, so that when it does take place you may believe and have faith in and rely on Me. 
 
 
 

@@ -19,7 +19,7 @@ She has slaughtered her meat, She has mixed her wine, She has also furnished her
 She has sent out her maidens, She cries out from the highest places of the city, 
 
 ###### 4 
-"Whoever _is_ simple, let him turn in here!" _As for_ him who lacks understanding, she says to him, 
+"Whoever is simple, let him turn in here!" As for him who lacks understanding, she says to him, 
 
 ###### 5 
 "Come, eat of my bread And drink of the wine I have mixed. 
@@ -28,39 +28,39 @@ She has sent out her maidens, She cries out from the highest places of the city,
 Forsake foolishness and live, And go in the way of understanding. 
 
 ###### 7 
-"He who corrects a scoffer gets shame for himself, And he who rebukes a wicked _man only_ harms himself. 
+"He who corrects a scoffer gets shame for himself, And he who rebukes a wicked man only harms himself. 
 
 ###### 8 
-Do not correct a scoffer, lest he hate you; Rebuke a wise _man,_ and he will love you. 
+Do not correct a scoffer, lest he hate you; Rebuke a wise man, and he will love you. 
 
 ###### 9 
-Give _instruction_ to a wise _man,_ and he will be still wiser; Teach a just _man,_ and he will increase in learning. 
+Give instruction to a wise man, and he will be still wiser; Teach a just man, and he will increase in learning. 
 
 ###### 10 
-"The fear of the Lord _is_ the beginning of wisdom, And the knowledge of the Holy One _is_ understanding. 
+"The fear of the Lord is the beginning of wisdom, And the knowledge of the Holy One is understanding. 
 
 ###### 11 
 For by me your days will be multiplied, And years of life will be added to you. 
 
 ###### 12 
-If you are wise, you are wise for yourself, And _if_ you scoff, you will bear _it_ alone." 
+If you are wise, you are wise for yourself, And if you scoff, you will bear it alone." 
 
 ## The Way of Folly 
 
 ###### 13 
-A foolish woman is clamorous; _She is_ simple, and knows nothing. 
+A foolish woman is clamorous; She is simple, and knows nothing. 
 
 ###### 14 
-For she sits at the door of her house, On a seat _by_ the highest places of the city, 
+For she sits at the door of her house, On a seat by the highest places of the city, 
 
 ###### 15 
 To call to those who pass by, Who go straight on their way: 
 
 ###### 16 
-"Whoever _is_ simple, let him turn in here"; And _as for_ him who lacks understanding, she says to him, 
+"Whoever is simple, let him turn in here"; And as for him who lacks understanding, she says to him, 
 
 ###### 17 
-"Stolen water is sweet, And bread _eaten_ in secret is pleasant." 
+"Stolen water is sweet, And bread eaten in secret is pleasant." 
 
 ###### 18 
-But he does not know that the dead _are_ there, _That_ her guests _are_ in the depths of hell.
+But he does not know that the dead are there, That her guests are in the depths of hell.

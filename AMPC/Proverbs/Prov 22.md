@@ -91,7 +91,7 @@ A prudent man sees the evil and hides himself, but the simple pass on and are pu
 
 
 
-The reward of humility _and_ the reverent _and_ worshipful fear of the Lord is riches and honor and life. 
+The reward of humility and the reverent and worshipful fear of the Lord is riches and honor and life. 
 
 
 
@@ -112,7 +112,7 @@ The reward of humility _and_ the reverent _and_ worshipful fear of the Lord is r
 
 
 
-Thorns and snares are in the way of the obstinate _and_ willful; he who guards himself will be far from them. 
+Thorns and snares are in the way of the obstinate and willful; he who guards himself will be far from them. 
 
 
 
@@ -175,7 +175,7 @@ The rich rule over the poor, and the borrower is servant to the lender.
 
 
 
-He who sows iniquity will reap calamity _and_ futility, and the rod of his wrath [with which he smites others] will fail. 
+He who sows iniquity will reap calamity and futility, and the rod of his wrath [with which he smites others] will fail. 
 
 
 
@@ -238,7 +238,7 @@ Drive out the scoffer, and contention will go out; yes, strife and abuse will ce
 
 
 
-He who loves purity _and_ the pure in heart _and_ who is gracious in speech--because of the grace of his lips will he have the king for his friend. 
+He who loves purity and the pure in heart and who is gracious in speech--because of the grace of his lips will he have the king for his friend. 
 
 
 
@@ -259,7 +259,7 @@ He who loves purity _and_ the pure in heart _and_ who is gracious in speech--bec
 
 
 
-The eyes of the Lord keep guard over knowledge _and_ him who has it, but He overthrows the words of the treacherous. 
+The eyes of the Lord keep guard over knowledge and him who has it, but He overthrows the words of the treacherous. 
 
 
 
@@ -301,7 +301,7 @@ The sluggard says, There is a lion outside! I shall be slain in the streets!
 
 
 
-The mouth of a loose woman is a deep pit [for ensnaring wild animals]; he with whom the Lord is indignant _and_ who is abhorrent to Him will fall into it. 
+The mouth of a loose woman is a deep pit [for ensnaring wild animals]; he with whom the Lord is indignant and who is abhorrent to Him will fall into it. 
 
 
 
@@ -343,7 +343,7 @@ Foolishness is bound up in the heart of a child, but the rod of discipline will 
 
 
 
-He who oppresses the poor to get gain for himself _and_ he who gives to the rich--both will surely come to want. 
+He who oppresses the poor to get gain for himself and he who gives to the rich--both will surely come to want. 
 
 
 
@@ -553,7 +553,7 @@ Lest you learn his ways and get yourself into a snare.
 
 
 
-Be not one of those who strike hands _and_ pledge themselves, or of those who become security for another's debts. 
+Be not one of those who strike hands and pledge themselves, or of those who become security for another's debts. 
 
 
 
@@ -616,4 +616,4 @@ Remove not the ancient landmark which your fathers have set up.
 
 
 
-Do you see a man diligent _and_ skillful in his business? He will stand before kings; he will not stand before obscure men.
+Do you see a man diligent and skillful in his business? He will stand before kings; he will not stand before obscure men.

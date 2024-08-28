@@ -175,7 +175,7 @@ At one time I will suddenly speak concerning a nation or kingdom, that I will pl
 
 
 
-And if [the people of] that nation concerning which I have spoken turn from their evil, I will relent _and_ reverse My decision concerning the evil that I thought to do to them. 
+And if [the people of] that nation concerning which I have spoken turn from their evil, I will relent and reverse My decision concerning the evil that I thought to do to them. 
 
 
 
@@ -217,7 +217,7 @@ At another time I will suddenly speak concerning a nation or kingdom, that I wil
 
 
 
-And if they do evil in My sight, obeying not My voice, then I will regret _and_ reverse My decision concerning the good with which I said I would benefit them. 
+And if they do evil in My sight, obeying not My voice, then I will regret and reverse My decision concerning the good with which I said I would benefit them. 
 
 
 
@@ -238,7 +238,7 @@ And if they do evil in My sight, obeying not My voice, then I will regret _and_ 
 
 
 
-Now therefore say to the men of Judah and to the inhabitants of Jerusalem, Thus says the Lord: Behold, I am shaping evil against you and devising a plan against you. Return now each one from his evil way; reform your [accustomed] ways _and_ make your [individual] actions good _and_ right. 
+Now therefore say to the men of Judah and to the inhabitants of Jerusalem, Thus says the Lord: Behold, I am shaping evil against you and devising a plan against you. Return now each one from his evil way; reform your [accustomed] ways and make your [individual] actions good and right. 
 
 
 
@@ -280,7 +280,7 @@ But they will say, That is in vain! For we will walk after our own devices, and 
 
 
 
-Therefore thus says the Lord: Ask now among the nations: Who has heard such things? Virgin Israel has done a very vile _and_ horrible thing. 
+Therefore thus says the Lord: Ask now among the nations: Who has heard such things? Virgin Israel has done a very vile and horrible thing. 
 
 
 
@@ -301,7 +301,7 @@ Therefore thus says the Lord: Ask now among the nations: Who has heard such thin
 
 
 
-Will the snow of Mount Lebanon fail _and_ vanish from its rocks [which tower above the land of Israel]? Will the cold, rushing waters of strange lands [that dash down from afar] be dried up? 
+Will the snow of Mount Lebanon fail and vanish from its rocks [which tower above the land of Israel]? Will the cold, rushing waters of strange lands [that dash down from afar] be dried up? 
 
 
 
@@ -322,7 +322,7 @@ Will the snow of Mount Lebanon fail _and_ vanish from its rocks [which tower abo
 
 
 
-Yet My people have forgotten Me; they burn incense to false gods, they have been caused to stumble in their ways and in the ancient roads, to walk in bypaths, in a way not graded _and_ built up [not on a highway], 
+Yet My people have forgotten Me; they burn incense to false gods, they have been caused to stumble in their ways and in the ancient roads, to walk in bypaths, in a way not graded and built up [not on a highway], 
 
 
 
@@ -343,7 +343,7 @@ Yet My people have forgotten Me; they burn incense to false gods, they have been
 
 
 
-Making their land a desolation _and_ a horror, a thing to be hissed at perpetually; everyone who passes by shall be astounded _and_ horrified and shake his head. 
+Making their land a desolation and a horror, a thing to be hissed at perpetually; everyone who passes by shall be astounded and horrified and shake his head. 
 
 
 

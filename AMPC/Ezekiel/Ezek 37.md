@@ -49,7 +49,7 @@ The hand of the Lord was upon me, and He brought me out in the Spirit of the Lor
 
 
 
-And He caused me to pass round about among them, and behold, there were very many [human bones] in the open valley _or_ plain, and behold, they were very dry. 
+And He caused me to pass round about among them, and behold, there were very many [human bones] in the open valley or plain, and behold, they were very dry. 
 
 
 
@@ -112,7 +112,7 @@ Again He said to me, Prophesy to these bones and say to them, O you dry bones, h
 
 
 
-Thus says the Lord God to these bones: Behold, I will cause breath _and_ spirit to enter you, and you shall live; 
+Thus says the Lord God to these bones: Behold, I will cause breath and spirit to enter you, and you shall live; 
 
 
 
@@ -133,7 +133,7 @@ Thus says the Lord God to these bones: Behold, I will cause breath _and_ spirit 
 
 
 
-And I will lay sinews upon you and bring up flesh upon you and cover you with skin, and I will put breath _and_ spirit in you, and you [dry bones] shall live; and you shall know, understand, _and_ realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
+And I will lay sinews upon you and bring up flesh upon you and cover you with skin, and I will put breath and spirit in you, and you [dry bones] shall live; and you shall know, understand, and realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
 
 
 
@@ -154,7 +154,7 @@ And I will lay sinews upon you and bring up flesh upon you and cover you with sk
 
 
 
-So I prophesied as I was commanded; and as I prophesied, there was a [thundering] noise and behold, a shaking _and_ trembling _and_ a rattling, and the bones came together, bone to its bone. 
+So I prophesied as I was commanded; and as I prophesied, there was a [thundering] noise and behold, a shaking and trembling and a rattling, and the bones came together, bone to its bone. 
 
 
 
@@ -175,7 +175,7 @@ So I prophesied as I was commanded; and as I prophesied, there was a [thundering
 
 
 
-And I looked and behold, there were sinews upon [the bones] and flesh came upon them and skin covered them over, but there was no breath _or_ spirit in them. 
+And I looked and behold, there were sinews upon [the bones] and flesh came upon them and skin covered them over, but there was no breath or spirit in them. 
 
 
 
@@ -196,7 +196,7 @@ And I looked and behold, there were sinews upon [the bones] and flesh came upon 
 
 
 
-Then said He to me, Prophesy to the breath _and_ spirit, son of man, and say to the breath _and_ spirit, Thus says the Lord God: Come from the four winds, O breath _and_ spirit, and breathe upon these slain that they may live. 
+Then said He to me, Prophesy to the breath and spirit, son of man, and say to the breath and spirit, Thus says the Lord God: Come from the four winds, O breath and spirit, and breathe upon these slain that they may live. 
 
 
 
@@ -217,7 +217,7 @@ Then said He to me, Prophesy to the breath _and_ spirit, son of man, and say to 
 
 
 
-So I prophesied as He commanded me, and the breath _and_ spirit came into [the bones], and they lived and stood up upon their feet, an exceedingly great host. 
+So I prophesied as He commanded me, and the breath and spirit came into [the bones], and they lived and stood up upon their feet, an exceedingly great host. 
 
 
 
@@ -301,7 +301,7 @@ And you shall know that I am the Lord [your Sovereign Ruler], when I have opened
 
 
 
-And I shall put My Spirit in you and you shall live, and I shall place you in your own land. Then you shall know, understand, _and_ realize that I the Lord have spoken it and performed it, says the Lord. 
+And I shall put My Spirit in you and you shall live, and I shall place you in your own land. Then you shall know, understand, and realize that I the Lord have spoken it and performed it, says the Lord. 
 
 
 
@@ -490,7 +490,7 @@ And I will make them one nation in the land, upon the mountains of Israel, and o
 
 
 
-They shall not defile themselves any more with their idols and their detestable things or with any of their transgressions, but I will save them out of all their dwelling places _and_ from all their backslidings in which they have sinned, and I will cleanse them. So shall they be My people, and I will be their God. 
+They shall not defile themselves any more with their idols and their detestable things or with any of their transgressions, but I will save them out of all their dwelling places and from all their backslidings in which they have sinned, and I will cleanse them. So shall they be My people, and I will be their God. 
 
 
 
@@ -574,7 +574,7 @@ I will make a covenant of peace with them; it shall be an everlasting covenant w
 
 
 
-My tabernacle _or_ dwelling place also shall be with them; and I will be their God, and they shall be My people. 
+My tabernacle or dwelling place also shall be with them; and I will be their God, and they shall be My people. 
 
 
 
@@ -595,4 +595,4 @@ My tabernacle _or_ dwelling place also shall be with them; and I will be their G
 
 
 
-Then the nations shall know, understand, _and_ realize that I the Lord do set apart _and_ consecrate Israel for holy use, when My sanctuary shall be in their midst forevermore.
+Then the nations shall know, understand, and realize that I the Lord do set apart and consecrate Israel for holy use, when My sanctuary shall be in their midst forevermore.

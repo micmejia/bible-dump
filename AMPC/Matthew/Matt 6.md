@@ -28,7 +28,7 @@ next: ['Matt 7']
 
 
 
-Take care not to do your good deeds publicly _or_ before men, in order to be seen by them; otherwise you will have no reward [reserved for and awaiting you] with _and_ from your Father Who is in heaven. 
+Take care not to do your good deeds publicly or before men, in order to be seen by them; otherwise you will have no reward [reserved for and awaiting you] with and from your Father Who is in heaven. 
 
 
 
@@ -49,7 +49,7 @@ Take care not to do your good deeds publicly _or_ before men, in order to be see
 
 
 
-Thus, whenever you give to the poor, do not blow a trumpet before you, as the hypocrites in the synagogues and in the streets like to do, that they may be recognized _and_ honored _and_ praised by men. Truly I tell you, they have their reward in full already. 
+Thus, whenever you give to the poor, do not blow a trumpet before you, as the hypocrites in the synagogues and in the streets like to do, that they may be recognized and honored and praised by men. Truly I tell you, they have their reward in full already. 
 
 
 
@@ -91,7 +91,7 @@ But when you give to charity, do not let your left hand know what your right han
 
 
 
-So that your deeds of charity may be in secret; and your Father Who sees in secret will reward you _openly_. 
+So that your deeds of charity may be in secret; and your Father Who sees in secret will reward you openly. 
 
 
 
@@ -133,7 +133,7 @@ Also when you pray, you must not be like the hypocrites, for they love to pray s
 
 
 
-But when you pray, go into your [most] private room, and, closing the door, pray to your Father, Who is in secret; and your Father, Who sees in secret, will reward you _in the open_. 
+But when you pray, go into your [most] private room, and, closing the door, pray to your Father, Who is in secret; and your Father, Who sees in secret, will reward you in the open. 
 
 
 
@@ -280,7 +280,7 @@ And forgive us our debts, as we also have forgiven (left, remitted, and let go o
 
 
 
-And lead (bring) us not into temptation, but deliver us from the evil one. _For Yours is the kingdom and the power and the glory forever. Amen._ 
+And lead (bring) us not into temptation, but deliver us from the evil one. For Yours is the kingdom and the power and the glory forever. Amen. 
 
 
 
@@ -343,7 +343,7 @@ But if you do not forgive others their trespasses [their reckless and willful si
 
 
 
-And whenever you are fasting, do not look gloomy _and_ sour _and_ dreary like the hypocrites, for they put on a dismal countenance, that their fasting may be apparent to _and_ seen by men. Truly I say to you, they have their reward in full already. 
+And whenever you are fasting, do not look gloomy and sour and dreary like the hypocrites, for they put on a dismal countenance, that their fasting may be apparent to and seen by men. Truly I say to you, they have their reward in full already. 
 
 
 
@@ -385,7 +385,7 @@ But when you fast, perfume your head and wash your face,
 
 
 
-So that your fasting may not be noticed by men but by your Father, Who sees in secret; and your Father, Who sees in secret, will reward you _in the open_. 
+So that your fasting may not be noticed by men but by your Father, Who sees in secret; and your Father, Who sees in secret, will reward you in the open. 
 
 
 
@@ -406,7 +406,7 @@ So that your fasting may not be noticed by men but by your Father, Who sees in s
 
 
 
-Do not gather _and_ heap up _and_ store up for yourselves treasures on earth, where moth and rust _and_ worm consume _and_ destroy, and where thieves break through and steal. 
+Do not gather and heap up and store up for yourselves treasures on earth, where moth and rust and worm consume and destroy, and where thieves break through and steal. 
 
 
 
@@ -427,7 +427,7 @@ Do not gather _and_ heap up _and_ store up for yourselves treasures on earth, wh
 
 
 
-But gather _and_ heap up _and_ store for yourselves treasures in heaven, where neither moth nor rust _nor_ worm consume _and_ destroy, and where thieves do not break through and steal; 
+But gather and heap up and store for yourselves treasures in heaven, where neither moth nor rust nor worm consume and destroy, and where thieves do not break through and steal; 
 
 
 
@@ -511,7 +511,7 @@ But if your eye is unsound, your whole body will be full of darkness. If then th
 
 
 
-No one can serve two masters; for either he will hate the one and love the other, or he will stand by _and_ be devoted to the one and despise and be against the other. You cannot serve God and mammon (deceitful riches, money, possessions, or whatever is trusted in). 
+No one can serve two masters; for either he will hate the one and love the other, or he will stand by and be devoted to the one and despise and be against the other. You cannot serve God and mammon (deceitful riches, money, possessions, or whatever is trusted in). 
 
 
 
@@ -532,7 +532,7 @@ No one can serve two masters; for either he will hate the one and love the other
 
 
 
-Therefore I tell you, stop being perpetually uneasy (anxious and worried) about your life, what you shall eat _or what you shall drink_; or about your body, what you shall put on. Is not life greater [in quality] than food, and the body [far above and more excellent] than clothing? 
+Therefore I tell you, stop being perpetually uneasy (anxious and worried) about your life, what you shall eat or what you shall drink; or about your body, what you shall put on. Is not life greater [in quality] than food, and the body [far above and more excellent] than clothing? 
 
 
 
@@ -574,7 +574,7 @@ Look at the birds of the air; they neither sow nor reap nor gather into barns, a
 
 
 
-And who of you by worrying _and_ being anxious can add one unit of measure (cubit) to his stature _or_ to the span of his life? 
+And who of you by worrying and being anxious can add one unit of measure (cubit) to his stature or to the span of his life? 
 
 
 
@@ -595,7 +595,7 @@ And who of you by worrying _and_ being anxious can add one unit of measure (cubi
 
 
 
-And why should you be anxious about clothes? Consider the lilies of the field _and_ learn thoroughly how they grow; they neither toil nor spin. 
+And why should you be anxious about clothes? Consider the lilies of the field and learn thoroughly how they grow; they neither toil nor spin. 
 
 
 
@@ -637,7 +637,7 @@ Yet I tell you, even Solomon in all his magnificence (excellence, dignity, and g
 
 
 
-But if God so clothes the grass of the field, which today is alive _and_ green and tomorrow is tossed into the furnace, will He not much more surely clothe you, O you of little faith? 
+But if God so clothes the grass of the field, which today is alive and green and tomorrow is tossed into the furnace, will He not much more surely clothe you, O you of little faith? 
 
 
 
@@ -658,7 +658,7 @@ But if God so clothes the grass of the field, which today is alive _and_ green a
 
 
 
-Therefore do not worry _and_ be anxious, saying, What are we going to have to eat? or, What are we going to have to drink? or, What are we going to have to wear? 
+Therefore do not worry and be anxious, saying, What are we going to have to eat? or, What are we going to have to drink? or, What are we going to have to wear? 
 
 
 
@@ -679,7 +679,7 @@ Therefore do not worry _and_ be anxious, saying, What are we going to have to ea
 
 
 
-For the Gentiles (heathen) wish for _and_ crave _and_ diligently seek all these things, and your heavenly Father knows well that you need them all. 
+For the Gentiles (heathen) wish for and crave and diligently seek all these things, and your heavenly Father knows well that you need them all. 
 
 
 
@@ -721,4 +721,4 @@ But seek (aim at and strive after) first of all His kingdom and His righteousnes
 
 
 
-So do not worry _or_ be anxious about tomorrow, for tomorrow will have worries _and_ anxieties of its own. Sufficient for each day is its own trouble.
+So do not worry or be anxious about tomorrow, for tomorrow will have worries and anxieties of its own. Sufficient for each day is its own trouble.

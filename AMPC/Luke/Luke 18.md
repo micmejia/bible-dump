@@ -49,7 +49,7 @@ Also [Jesus] told them a parable to the effect that they ought always to pray an
 
 
 
-He said, In a certain city there was a judge who neither reverenced _and_ feared God nor respected _or_ considered man. 
+He said, In a certain city there was a judge who neither reverenced and feared God nor respected or considered man. 
 
 
 
@@ -70,7 +70,7 @@ He said, In a certain city there was a judge who neither reverenced _and_ feared
 
 
 
-And there was a widow in that city who kept coming to him and saying, Protect _and_ defend _and_ give me justice against my adversary. 
+And there was a widow in that city who kept coming to him and saying, Protect and defend and give me justice against my adversary. 
 
 
 
@@ -91,7 +91,7 @@ And there was a widow in that city who kept coming to him and saying, Protect _a
 
 
 
-And for a time he would not; but later he said to himself, Though I have neither reverence _or_ fear for God nor respect _or_ consideration for man, 
+And for a time he would not; but later he said to himself, Though I have neither reverence or fear for God nor respect or consideration for man, 
 
 
 
@@ -112,7 +112,7 @@ And for a time he would not; but later he said to himself, Though I have neither
 
 
 
-Yet because this widow continues to bother me, I will defend _and_ protect _and_ avenge her, lest she give me intolerable annoyance _and_ wear me out by her continual coming _or_ at the last she come and rail on me _or_ assault me _or_ strangle me. 
+Yet because this widow continues to bother me, I will defend and protect and avenge her, lest she give me intolerable annoyance and wear me out by her continual coming or at the last she come and rail on me or assault me or strangle me. 
 
 
 
@@ -154,7 +154,7 @@ Then the Lord said, Listen to what the unjust judge says!
 
 
 
-And will not [our just] God defend _and_ protect _and_ avenge His elect (His chosen ones), who cry to Him day and night? Will He defer them _and_ delay help on their behalf? 
+And will not [our just] God defend and protect and avenge His elect (His chosen ones), who cry to Him day and night? Will He defer them and delay help on their behalf? 
 
 
 
@@ -175,7 +175,7 @@ And will not [our just] God defend _and_ protect _and_ avenge His elect (His cho
 
 
 
-I tell you, He will defend _and_ protect _and_ avenge them speedily. However, when the Son of Man comes, will He find [persistence in] faith on the earth? 
+I tell you, He will defend and protect and avenge them speedily. However, when the Son of Man comes, will He find [persistence in] faith on the earth? 
 
 
 
@@ -196,7 +196,7 @@ I tell you, He will defend _and_ protect _and_ avenge them speedily. However, wh
 
 
 
-He also told this parable to some people who trusted in themselves _and_ were confident that they were righteous [that they were upright and in right standing with God] and scorned _and_ made nothing of all the rest of men: 
+He also told this parable to some people who trusted in themselves and were confident that they were righteous [that they were upright and in right standing with God] and scorned and made nothing of all the rest of men: 
 
 
 
@@ -238,7 +238,7 @@ Two men went up into the temple [enclosure] to pray, the one a Pharisee and the 
 
 
 
-The Pharisee took his stand ostentatiously and began to pray thus before _and_ with himself: God, I thank You that I am not like the rest of men--extortioners (robbers), swindlers [unrighteous in heart and life], adulterers--or even like this tax collector here. 
+The Pharisee took his stand ostentatiously and began to pray thus before and with himself: God, I thank You that I am not like the rest of men--extortioners (robbers), swindlers [unrighteous in heart and life], adulterers--or even like this tax collector here. 
 
 
 
@@ -364,7 +364,7 @@ But Jesus called them [the parents] to Him, saying, Allow the little children to
 
 
 
-Truly I say to you, whoever does not accept _and_ receive _and_ welcome the kingdom of God like a little child [does] shall not in any way enter it [at all]. 
+Truly I say to you, whoever does not accept and receive and welcome the kingdom of God like a little child [does] shall not in any way enter it [at all]. 
 
 
 
@@ -490,7 +490,7 @@ And when Jesus heard it, He said to him, One thing you still lack. Sell everythi
 
 
 
-But when he heard this, he became distressed _and_ very sorrowful, for he was rich--exceedingly so. 
+But when he heard this, he became distressed and very sorrowful, for he was rich--exceedingly so. 
 
 
 
@@ -658,7 +658,7 @@ Who will not receive in return many times more in this world and, in the coming 
 
 
 
-Then taking the Twelve [apostles] aside, He said to them, Listen! We are going up to Jerusalem, and all things that are written about the Son of Man through _and_ by the prophets will be fulfilled. 
+Then taking the Twelve [apostles] aside, He said to them, Listen! We are going up to Jerusalem, and all things that are written about the Son of Man through and by the prophets will be fulfilled. 
 
 
 
@@ -679,7 +679,7 @@ Then taking the Twelve [apostles] aside, He said to them, Listen! We are going u
 
 
 
-For He will be handed over to the Gentiles and will be made sport of _and_ scoffed _and_ jeered at and insulted and spit upon. 
+For He will be handed over to the Gentiles and will be made sport of and scoffed and jeered at and insulted and spit upon. 
 
 
 
@@ -721,7 +721,7 @@ They will flog Him and kill Him; and on the third day He will rise again.
 
 
 
-But they understood nothing of these things; His words were a mystery _and_ hidden from them, and they did not comprehend what He was telling them. 
+But they understood nothing of these things; His words were a mystery and hidden from them, and they did not comprehend what He was telling them. 
 
 
 
@@ -805,7 +805,7 @@ They told him, Jesus of Nazareth is passing by.
 
 
 
-And he shouted, saying, Jesus, Son of David, take pity _and_ have mercy on me! 
+And he shouted, saying, Jesus, Son of David, take pity and have mercy on me! 
 
 
 
@@ -826,7 +826,7 @@ And he shouted, saying, Jesus, Son of David, take pity _and_ have mercy on me!
 
 
 
-But those who were in front reproved him, telling him to keep quiet; yet he screamed _and_ shrieked so much the more, Son of David, take pity _and_ have mercy on me! 
+But those who were in front reproved him, telling him to keep quiet; yet he screamed and shrieked so much the more, Son of David, take pity and have mercy on me! 
 
 
 
@@ -910,4 +910,4 @@ And Jesus said to him, Receive your sight! Your faith (your trust and confidence
 
 
 
-And instantly he received his sight and began to follow Jesus, recognizing, praising, _and_ honoring God; and all the people, when they saw it, praised God.
+And instantly he received his sight and began to follow Jesus, recognizing, praising, and honoring God; and all the people, when they saw it, praised God.

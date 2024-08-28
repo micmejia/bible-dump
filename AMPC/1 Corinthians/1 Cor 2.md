@@ -28,7 +28,7 @@ next: ['1 Cor 3']
 
 
 
-As for myself, brethren, when I came to you, I did not come proclaiming to you the testimony _and_ evidence _or_ _mystery and secret_ of God [concerning what He has done through Christ for the salvation of men] in lofty words of eloquence or human philosophy _and_ wisdom; 
+As for myself, brethren, when I came to you, I did not come proclaiming to you the testimony and evidence or mystery and secret of God [concerning what He has done through Christ for the salvation of men] in lofty words of eloquence or human philosophy and wisdom; 
 
 
 
@@ -133,7 +133,7 @@ So that your faith might not rest in the wisdom of men (human philosophy), but i
 
 
 
-Yet when we are among the full-grown (spiritually mature Christians who are ripe in understanding), we do impart a [higher] wisdom (the knowledge of the divine plan previously hidden); but it is indeed not a wisdom of this present age _or_ of this world nor of the leaders _and_ rulers of this age, who are being brought to nothing _and_ are doomed to pass away. 
+Yet when we are among the full-grown (spiritually mature Christians who are ripe in understanding), we do impart a [higher] wisdom (the knowledge of the divine plan previously hidden); but it is indeed not a wisdom of this present age or of this world nor of the leaders and rulers of this age, who are being brought to nothing and are doomed to pass away. 
 
 
 
@@ -154,7 +154,7 @@ Yet when we are among the full-grown (spiritually mature Christians who are ripe
 
 
 
-But rather what we are setting forth is a wisdom of God once hidden [from the human understanding] and now revealed to us by God--[that wisdom] which God devised _and_ decreed before the ages for our glorification [to lift us into the glory of His presence]. 
+But rather what we are setting forth is a wisdom of God once hidden [from the human understanding] and now revealed to us by God--[that wisdom] which God devised and decreed before the ages for our glorification [to lift us into the glory of His presence]. 
 
 
 
@@ -175,7 +175,7 @@ But rather what we are setting forth is a wisdom of God once hidden [from the hu
 
 
 
-None of the rulers of this age _or_ world perceived _and_ recognized _and_ understood this, for if they had, they would never have crucified the Lord of glory. 
+None of the rulers of this age or world perceived and recognized and understood this, for if they had, they would never have crucified the Lord of glory. 
 
 
 
@@ -217,7 +217,7 @@ But, on the contrary, as the Scripture says, What eye has not seen and ear has n
 
 
 
-Yet to us God has unveiled _and_ revealed them by _and_ through His Spirit, for the [Holy] Spirit searches diligently, exploring _and_ examining everything, even sounding the profound and bottomless things of God [the divine counsels and things hidden and beyond man's scrutiny]. 
+Yet to us God has unveiled and revealed them by and through His Spirit, for the [Holy] Spirit searches diligently, exploring and examining everything, even sounding the profound and bottomless things of God [the divine counsels and things hidden and beyond man's scrutiny]. 
 
 
 
@@ -259,7 +259,7 @@ For what person perceives (knows and understands) what passes through a man's th
 
 
 
-Now we have not received the spirit [that belongs to] the world, but the [Holy] Spirit Who is from God, [given to us] that we might realize _and_ comprehend _and_ appreciate the gifts [of divine favor and blessing so freely and lavishly] bestowed on us by God. 
+Now we have not received the spirit [that belongs to] the world, but the [Holy] Spirit Who is from God, [given to us] that we might realize and comprehend and appreciate the gifts [of divine favor and blessing so freely and lavishly] bestowed on us by God. 
 
 
 
@@ -280,7 +280,7 @@ Now we have not received the spirit [that belongs to] the world, but the [Holy] 
 
 
 
-And we are setting these truths forth in words not taught by human wisdom but taught by the [Holy] Spirit, combining _and_ interpreting spiritual truths with spiritual language [to those who possess the Holy Spirit]. 
+And we are setting these truths forth in words not taught by human wisdom but taught by the [Holy] Spirit, combining and interpreting spiritual truths with spiritual language [to those who possess the Holy Spirit]. 
 
 
 
@@ -301,7 +301,7 @@ And we are setting these truths forth in words not taught by human wisdom but ta
 
 
 
-But the natural, nonspiritual man does not accept _or_ welcome _or_ admit into his heart the gifts _and_ teachings _and_ revelations of the Spirit of God, for they are folly (meaningless nonsense) to him; and he is incapable of knowing them [of progressively recognizing, understanding, and becoming better acquainted with them] because they are spiritually discerned _and_ estimated _and_ appreciated. 
+But the natural, nonspiritual man does not accept or welcome or admit into his heart the gifts and teachings and revelations of the Spirit of God, for they are folly (meaningless nonsense) to him; and he is incapable of knowing them [of progressively recognizing, understanding, and becoming better acquainted with them] because they are spiritually discerned and estimated and appreciated. 
 
 
 
@@ -322,7 +322,7 @@ But the natural, nonspiritual man does not accept _or_ welcome _or_ admit into h
 
 
 
-But the spiritual man tries all things [he examines, investigates, inquires into, questions, and discerns all things], yet is himself to be put on trial and judged by no one [he can read the meaning of everything, but no one can properly discern _or_ appraise _or_ get an insight into him]. 
+But the spiritual man tries all things [he examines, investigates, inquires into, questions, and discerns all things], yet is himself to be put on trial and judged by no one [he can read the meaning of everything, but no one can properly discern or appraise or get an insight into him]. 
 
 
 
@@ -343,4 +343,4 @@ But the spiritual man tries all things [he examines, investigates, inquires into
 
 
 
-For who has known _or_ understood the mind (the counsels and purposes) of the Lord so as to guide _and_ instruct Him _and_ give Him knowledge? But we have the mind of Christ (the Messiah) _and_ do hold the thoughts (feelings and purposes) of His heart.
+For who has known or understood the mind (the counsels and purposes) of the Lord so as to guide and instruct Him and give Him knowledge? But we have the mind of Christ (the Messiah) and do hold the thoughts (feelings and purposes) of His heart.

@@ -28,7 +28,7 @@ next: ['Ezek 46']
 
 
 
-Moreover, when you shall divide the land by apportioned _and_ assigned lots for inheritance, you shall set apart as an offering to the Lord a portion of the land to be used for holy purposes. The length shall be 25,000 _cubits_, and the breadth 20,000. It shall be holy (set apart and consecrated to sacred use) in its every area. 
+Moreover, when you shall divide the land by apportioned and assigned lots for inheritance, you shall set apart as an offering to the Lord a portion of the land to be used for holy purposes. The length shall be 25,000 cubits, and the breadth 20,000. It shall be holy (set apart and consecrated to sacred use) in its every area. 
 
 
 
@@ -49,7 +49,7 @@ Moreover, when you shall divide the land by apportioned _and_ assigned lots for 
 
 
 
-Of this there shall belong to the sanctuary a square plot 500 by 500, and 50 _cubits_ for the open space around it. 
+Of this there shall belong to the sanctuary a square plot 500 by 500, and 50 cubits for the open space around it. 
 
 
 
@@ -70,7 +70,7 @@ Of this there shall belong to the sanctuary a square plot 500 by 500, and 50 _cu
 
 
 
-And in this sacred section you shall measure off a portion 25,000 _cubits_ in length and 10,000 _cubits_ in breadth. And in it shall be the sanctuary which is most holy. 
+And in this sacred section you shall measure off a portion 25,000 cubits in length and 10,000 cubits in breadth. And in it shall be the sanctuary which is most holy. 
 
 
 
@@ -112,7 +112,7 @@ It is a holy portion of the land; it shall be for the priests, the ministers of 
 
 
 
-And another portion of land, 25,000 _cubits_ long and 10,000 _cubits_ wide, shall also be for the Levites, the ministers of the temple, and they shall possess it as a place in which to live. 
+And another portion of land, 25,000 cubits long and 10,000 cubits wide, shall also be for the Levites, the ministers of the temple, and they shall possess it as a place in which to live. 
 
 
 
@@ -133,7 +133,7 @@ And another portion of land, 25,000 _cubits_ long and 10,000 _cubits_ wide, shal
 
 
 
-And you shall appoint for the possession of the city an area of 5,000 _cubits_ wide and 25,000 _cubits_ long, along beside the portion set aside as a holy section. It shall belong to the whole house of Israel. 
+And you shall appoint for the possession of the city an area of 5,000 cubits wide and 25,000 cubits long, along beside the portion set aside as a holy section. It shall belong to the whole house of Israel. 
 
 
 
@@ -154,7 +154,7 @@ And you shall appoint for the possession of the city an area of 5,000 _cubits_ w
 
 
 
-And to the prince shall belong the land on the one side and on the other side of the portion set aside as a holy section and the property of the city, in front of the holy section and the property of the city, from the west side westward and from the east side eastward; and the length shall be answerable to that of one of the tribal portions _and_ parallel to it from the western boundary to the eastern boundary of the land. 
+And to the prince shall belong the land on the one side and on the other side of the portion set aside as a holy section and the property of the city, in front of the holy section and the property of the city, from the west side westward and from the east side eastward; and the length shall be answerable to that of one of the tribal portions and parallel to it from the western boundary to the eastern boundary of the land. 
 
 
 
@@ -196,7 +196,7 @@ It shall be for the prince--his possession in Israel. And My princes shall no mo
 
 
 
-Thus says the Lord God: That is enough for you, O princes of Israel! Stop the violence and plundering _and_ oppression [that you did when you were given no property], and do justice and righteousness, and take away your exactions _and_ cease your evictions of My people, says the Lord God. 
+Thus says the Lord God: That is enough for you, O princes of Israel! Stop the violence and plundering and oppression [that you did when you were given no property], and do justice and righteousness, and take away your exactions and cease your evictions of My people, says the Lord God. 
 
 
 
@@ -322,7 +322,7 @@ And as to the set portion of oil, you shall offer the tenth part of a bath of oi
 
 
 
-And [you shall offer] one lamb out of every flock of two hundred, out of the well-watered pastures of Israel _and_ from all the families of Israel, to provide for a meal offering and for a burnt offering and for peace offerings, to make atonement for those who brought them, says the Lord God. 
+And [you shall offer] one lamb out of every flock of two hundred, out of the well-watered pastures of Israel and from all the families of Israel, to provide for a meal offering and for a burnt offering and for peace offerings, to make atonement for those who brought them, says the Lord God. 
 
 
 
@@ -364,7 +364,7 @@ All the people of the land shall give this offering for the prince in Israel.
 
 
 
-And it shall be the prince's part to furnish [from the contributions of the people] the burnt offerings, meal offerings, and drink offerings at the feasts and on the New Moons and on the Sabbaths, at all the appointed feasts of the house of Israel. He shall prepare _and_ make the sin offering, the meal offering, the burnt offering, and the peace offerings to make atonement for, bringing forgiveness _and_ reconciliation to, the house of Israel. 
+And it shall be the prince's part to furnish [from the contributions of the people] the burnt offerings, meal offerings, and drink offerings at the feasts and on the New Moons and on the Sabbaths, at all the appointed feasts of the house of Israel. He shall prepare and make the sin offering, the meal offering, the burnt offering, and the peace offerings to make atonement for, bringing forgiveness and reconciliation to, the house of Israel. 
 
 
 
@@ -427,7 +427,7 @@ And the priest shall take some of the blood of the sin offering and put it upon 
 
 
 
-You shall do this on the seventh day of the month for everyone who has sinned through error _or_ ignorance and for him who is simple-minded. So shall you make atonement for the temple. 
+You shall do this on the seventh day of the month for everyone who has sinned through error or ignorance and for him who is simple-minded. So shall you make atonement for the temple. 
 
 
 
@@ -532,4 +532,4 @@ And he shall prepare as a meal offering to be offered with each bullock an ephah
 
 
 
-In the seventh [month], on the fifteenth day of the month, he shall make the same provision _and_ preparation for the seven days of the feast, for sin offerings, burnt offerings, bloodless _or_ meal offerings, and for the oil.
+In the seventh [month], on the fifteenth day of the month, he shall make the same provision and preparation for the seven days of the feast, for sin offerings, burnt offerings, bloodless or meal offerings, and for the oil.

@@ -28,7 +28,7 @@ next: ['Jer 47']
 
 
 
-The word of the Lord that came to Jeremiah the prophet concerning _and_ against the [Gentile] nations. 
+The word of the Lord that came to Jeremiah the prophet concerning and against the [Gentile] nations. 
 
 
 
@@ -49,7 +49,7 @@ The word of the Lord that came to Jeremiah the prophet concerning _and_ against 
 
 
 
-Concerning _and_ against Egypt: against the army of Pharaoh Necho king of Egypt, which was by the river Euphrates at Carchemish, which Nebuchadrezzar king of Babylon smote _and_ defeated in the fourth year of Jehoiakim son of Josiah king of Judah: 
+Concerning and against Egypt: against the army of Pharaoh Necho king of Egypt, which was by the river Euphrates at Carchemish, which Nebuchadrezzar king of Babylon smote and defeated in the fourth year of Jehoiakim son of Josiah king of Judah: 
 
 
 
@@ -154,7 +154,7 @@ Let not the swift flee nor the mighty man escape; in the north by the river Euph
 
 
 
-Who is this that rises up like the Nile [River], like the branches [of the Nile in the delta of Egypt] whose waters surge _and_ toss? 
+Who is this that rises up like the Nile [River], like the branches [of the Nile in the delta of Egypt] whose waters surge and toss? 
 
 
 
@@ -175,7 +175,7 @@ Who is this that rises up like the Nile [River], like the branches [of the Nile 
 
 
 
-Egypt rises like the Nile, like the rivers whose waters surge _and_ toss. She says, I will rise, I will cover the earth; I will destroy cities and their inhabitants. 
+Egypt rises like the Nile, like the rivers whose waters surge and toss. She says, I will rise, I will cover the earth; I will destroy cities and their inhabitants. 
 
 
 
@@ -238,7 +238,7 @@ But that day is a day of the Lord, the Lord of hosts--a day of vengeance, that H
 
 
 
-Go up into Gilead and take [healing] balm, O Virgin Daughter of Egypt! In vain do you use many medicines; for you there is no healing _or_ remedy. 
+Go up into Gilead and take [healing] balm, O Virgin Daughter of Egypt! In vain do you use many medicines; for you there is no healing or remedy. 
 
 
 
@@ -259,7 +259,7 @@ Go up into Gilead and take [healing] balm, O Virgin Daughter of Egypt! In vain d
 
 
 
-The nations have heard of your disgrace _and_ shame, and your cry has filled the earth. For warrior has stumbled against _and_ thrown down warrior, and they have fallen both of them together. 
+The nations have heard of your disgrace and shame, and your cry has filled the earth. For warrior has stumbled against and thrown down warrior, and they have fallen both of them together. 
 
 
 
@@ -322,7 +322,7 @@ Declare in Egypt and proclaim in Migdol; and publish in Memphis and in Tahpanhes
 
 
 
-Why is your strong one [the sacred bull-god Apis] swept _and_ dragged away? He stood not, because the Lord drove him _and_ thrust him down. 
+Why is your strong one [the sacred bull-god Apis] swept and dragged away? He stood not, because the Lord drove him and thrust him down. 
 
 
 
@@ -343,7 +343,7 @@ Why is your strong one [the sacred bull-god Apis] swept _and_ dragged away? He s
 
 
 
-[The Lord] made many to stumble _and_ fall; yes, they fell one upon another. And they said, Arise, and let us go back to our own people and to the land of our birth, away from the sword of the oppressor. 
+[The Lord] made many to stumble and fall; yes, they fell one upon another. And they said, Arise, and let us go back to our own people and to the land of our birth, away from the sword of the oppressor. 
 
 
 
@@ -364,7 +364,7 @@ Why is your strong one [the sacred bull-god Apis] swept _and_ dragged away? He s
 
 
 
-They cried there, Pharaoh king of Egypt is destroyed _and_ is only a noise; he has let the appointed time [in which God had him on probation] pass by! 
+They cried there, Pharaoh king of Egypt is destroyed and is only a noise; he has let the appointed time [in which God had him on probation] pass by! 
 
 
 
@@ -406,7 +406,7 @@ As I live, says the King, Whose name is the Lord of hosts, surely like Tabor amo
 
 
 
-O you daughter who dwells in Egypt _and_ you who dwell with her, furnish yourselves [with all you will need] to go into exile, for Memphis will be waste, desolate, _and_ burned up, without inhabitant. 
+O you daughter who dwells in Egypt and you who dwell with her, furnish yourselves [with all you will need] to go into exile, for Memphis will be waste, desolate, and burned up, without inhabitant. 
 
 
 
@@ -469,7 +469,7 @@ Also her hired troops in the midst of her are like fatted calves [in the stall],
 
 
 
-The sound [of Egypt fleeing from the enemy] is like the rustling of an escaping serpent, for her foes advance with a mighty army and come against her with axes, like those who fell trees _and_ cut wood. 
+The sound [of Egypt fleeing from the enemy] is like the rustling of an escaping serpent, for her foes advance with a mighty army and come against her with axes, like those who fell trees and cut wood. 
 
 
 
@@ -532,7 +532,7 @@ The Daughter of Egypt shall be disgraced; she shall be delivered into the hands 
 
 
 
-The Lord of hosts, the God of Israel, says: Behold, I will visit punishment upon Amon [the chief god of the sacred city, the capital of Upper Egypt] of No _or_ Thebes, and upon Pharaoh and Egypt, with her gods and her kings--even Pharaoh and all those [Jews and others] who put their trust in [Pharaoh as a support against Babylon]. 
+The Lord of hosts, the God of Israel, says: Behold, I will visit punishment upon Amon [the chief god of the sacred city, the capital of Upper Egypt] of No or Thebes, and upon Pharaoh and Egypt, with her gods and her kings--even Pharaoh and all those [Jews and others] who put their trust in [Pharaoh as a support against Babylon]. 
 
 
 
@@ -595,4 +595,4 @@ But fear not, O My servant Jacob, and be not dismayed, O Israel. For behold, I w
 
 
 
-Fear not, O Jacob My servant, says the Lord, for I am with you. For I will make a full _and_ complete end of all the nations to which I have driven you; yet I will not make a full end of you. But I will chasten _and_ correct you in just measure, and I will not hold you guiltless by any means _or_ leave you unpunished.
+Fear not, O Jacob My servant, says the Lord, for I am with you. For I will make a full and complete end of all the nations to which I have driven you; yet I will not make a full end of you. But I will chasten and correct you in just measure, and I will not hold you guiltless by any means or leave you unpunished.

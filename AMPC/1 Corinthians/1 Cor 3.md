@@ -70,7 +70,7 @@ I fed you with milk, not solid food, for you were not yet strong enough [to be r
 
 
 
-For you are still [unspiritual, having the nature] of the flesh [under the control of ordinary impulses]. For as long as [there are] envying and jealousy _and_ wrangling and factions among you, are you not unspiritual _and_ of the flesh, behaving yourselves after a human standard _and_ like mere (unchanged) men? 
+For you are still [unspiritual, having the nature] of the flesh [under the control of ordinary impulses]. For as long as [there are] envying and jealousy and wrangling and factions among you, are you not unspiritual and of the flesh, behaving yourselves after a human standard and like mere (unchanged) men? 
 
 
 
@@ -133,7 +133,7 @@ What then is Apollos? What is Paul? Ministering servants [not heads of parties] 
 
 
 
-I planted, Apollos watered, but God [all the while] was making it grow _and_ [He] gave the increase. 
+I planted, Apollos watered, but God [all the while] was making it grow and [He] gave the increase. 
 
 
 
@@ -154,7 +154,7 @@ I planted, Apollos watered, but God [all the while] was making it grow _and_ [He
 
 
 
-So neither he who plants is anything nor he who waters, but [only] God Who makes it grow _and_ become greater. 
+So neither he who plants is anything nor he who waters, but [only] God Who makes it grow and become greater. 
 
 
 
@@ -196,7 +196,7 @@ He who plants and he who waters are equal (one in aim, of the same importance an
 
 
 
-For we are fellow workmen (joint promoters, laborers together) with _and_ for God; _you_ are God's garden _and_ vineyard _and_ field under cultivation, [you are] God's building. 
+For we are fellow workmen (joint promoters, laborers together) with and for God; you are God's garden and vineyard and field under cultivation, [you are] God's building. 
 
 
 
@@ -217,7 +217,7 @@ For we are fellow workmen (joint promoters, laborers together) with _and_ for Go
 
 
 
-According to the grace (the special endowment for my task) of God bestowed on me, like a skillful architect _and_ master builder I laid [the] foundation, and now another [man] is building upon it. But let each [man] be careful how he builds upon it, 
+According to the grace (the special endowment for my task) of God bestowed on me, like a skillful architect and master builder I laid [the] foundation, and now another [man] is building upon it. But let each [man] be careful how he builds upon it, 
 
 
 
@@ -280,7 +280,7 @@ But if anyone builds upon the Foundation, whether it be with gold, silver, preci
 
 
 
-The work of each [one] will become [plainly, openly] known (shown for what it is); for the day [of Christ] will disclose _and_ declare it, because it will be revealed with fire, and the fire will test _and_ critically appraise the character _and_ worth of the work each person has done. 
+The work of each [one] will become [plainly, openly] known (shown for what it is); for the day [of Christ] will disclose and declare it, because it will be revealed with fire, and the fire will test and critically appraise the character and worth of the work each person has done. 
 
 
 
@@ -343,7 +343,7 @@ But if any person's work is burned up [under the test], he will suffer the loss 
 
 
 
-Do you not discern _and_ understand that you [the whole church at Corinth] are God's temple (His sanctuary), and that God's Spirit has His permanent dwelling in you [to be at home in you, collectively as a church and also individually]? 
+Do you not discern and understand that you [the whole church at Corinth] are God's temple (His sanctuary), and that God's Spirit has His permanent dwelling in you [to be at home in you, collectively as a church and also individually]? 
 
 
 
@@ -364,7 +364,7 @@ Do you not discern _and_ understand that you [the whole church at Corinth] are G
 
 
 
-If anyone does hurt to God's temple _or_ corrupts it [with false doctrines] _or_ destroys it, God will do hurt to him _and_ bring him to the corruption of death _and_ destroy him. For the temple of God is holy (sacred to Him) and that [temple] you [the believing church and its individual believers] are. 
+If anyone does hurt to God's temple or corrupts it [with false doctrines] or destroys it, God will do hurt to him and bring him to the corruption of death and destroy him. For the temple of God is holy (sacred to Him) and that [temple] you [the believing church and its individual believers] are. 
 
 
 
@@ -427,7 +427,7 @@ For this world's wisdom is foolishness (absurdity and stupidity) with God, for i
 
 
 
-And again, The Lord knows the thoughts _and_ reasonings of the [humanly] wise _and_ recognizes how futile they are. 
+And again, The Lord knows the thoughts and reasonings of the [humanly] wise and recognizes how futile they are. 
 
 
 
@@ -469,7 +469,7 @@ So let no one exult proudly concerning men [boasting of having this or that man 
 
 
 
-Whether Paul or Apollos or Cephas (Peter), or the universe or life or death, or the immediate _and_ threatening present or the [subsequent and uncertain] future--all are yours, 
+Whether Paul or Apollos or Cephas (Peter), or the universe or life or death, or the immediate and threatening present or the [subsequent and uncertain] future--all are yours, 
 
 
 

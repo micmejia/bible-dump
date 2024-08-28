@@ -175,7 +175,7 @@ Pharaoh sent to find out, and behold, there was not one of the cattle of the Isr
 
 
 
-The Lord said to Moses and Aaron, Take handfuls of ashes _or_ soot from the brickkiln and let Moses sprinkle them toward the heavens in the sight of Pharaoh. 
+The Lord said to Moses and Aaron, Take handfuls of ashes or soot from the brickkiln and let Moses sprinkle them toward the heavens in the sight of Pharaoh. 
 
 
 
@@ -217,7 +217,7 @@ And it shall become small dust over all the land of Egypt, and become boils brea
 
 
 
-So they took ashes _or_ soot of the kiln and stood before Pharaoh; and Moses threw them toward the sky, and it became boils erupting in sores on man and beast. 
+So they took ashes or soot of the kiln and stood before Pharaoh; and Moses threw them toward the sky, and it became boils erupting in sores on man and beast. 
 
 
 
@@ -259,7 +259,7 @@ And the magicians could not stand before Moses because of their boils; for the b
 
 
 
-But the Lord hardened the heart of Pharaoh, making it strong _and_ obstinate, and he did not listen to them or heed them, just as the Lord had told Moses. 
+But the Lord hardened the heart of Pharaoh, making it strong and obstinate, and he did not listen to them or heed them, just as the Lord had told Moses. 
 
 
 
@@ -301,7 +301,7 @@ Then the Lord said to Moses, Rise up early in the morning and stand before Phara
 
 
 
-For this time I will send all My plagues upon your heart and upon your servants and your people, that you may recognize _and_ know that there is none like Me in all the earth. 
+For this time I will send all My plagues upon your heart and upon your servants and your people, that you may recognize and know that there is none like Me in all the earth. 
 
 
 
@@ -385,7 +385,7 @@ Since you are still exalting yourself [in haughty defiance] against My people by
 
 
 
-Behold, tomorrow about this time I will cause it to rain a very heavy _and_ dreadful fall of hail, such as has not been in Egypt from its founding until now. 
+Behold, tomorrow about this time I will cause it to rain a very heavy and dreadful fall of hail, such as has not been in Egypt from its founding until now. 
 
 
 
@@ -427,7 +427,7 @@ Send therefore now and gather your cattle in hastily, and all that you have in t
 
 
 
-Then he who feared the word of the Lord among the servants of Pharaoh made his servants and his livestock flee into the houses _and_ shelters. 
+Then he who feared the word of the Lord among the servants of Pharaoh made his servants and his livestock flee into the houses and shelters. 
 
 
 
@@ -490,7 +490,7 @@ The Lord said to Moses, Stretch forth your hand toward the heavens, that there m
 
 
 
-Then Moses stretched forth his rod toward the heavens, and the Lord sent thunder and hail, and fire (lightning) ran down to _and_ along the ground, and the Lord rained hail upon the land of Egypt. 
+Then Moses stretched forth his rod toward the heavens, and the Lord sent thunder and hail, and fire (lightning) ran down to and along the ground, and the Lord rained hail upon the land of Egypt. 
 
 
 
@@ -658,7 +658,7 @@ But as for you and your servants, I know that you do not yet [reverently] fear t
 
 
 
-The flax and the barley were smitten _and_ ruined, for the barley was in the ear and the flax in bloom. 
+The flax and the barley were smitten and ruined, for the barley was in the ear and the flax in bloom. 
 
 
 
@@ -721,7 +721,7 @@ So Moses left the city and Pharaoh, and stretched forth his hands to the Lord; a
 
 
 
-But when Pharaoh saw that the rain, the hail, and the thunder had ceased, he sinned yet more, and toughened _and_ stiffened his hard heart, he and his servants. 
+But when Pharaoh saw that the rain, the hail, and the thunder had ceased, he sinned yet more, and toughened and stiffened his hard heart, he and his servants. 
 
 
 
@@ -742,4 +742,4 @@ But when Pharaoh saw that the rain, the hail, and the thunder had ceased, he sin
 
 
 
-So Pharaoh's heart was strong _and_ obstinate; he would not let the Israelites go, just as the Lord had said by Moses.
+So Pharaoh's heart was strong and obstinate; he would not let the Israelites go, just as the Lord had said by Moses.

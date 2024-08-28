@@ -237,7 +237,7 @@ And for these, even for the priests, shall be this holy offering of land: toward
 
 
 
-The set-apart _and_ sacred portion shall be for the consecrated priests of the sons of Zadok, who have kept My charge and who did not go astray when the children of Israel went astray, as the other Levites did. 
+The set-apart and sacred portion shall be for the consecrated priests of the sons of Zadok, who have kept My charge and who did not go astray when the children of Israel went astray, as the other Levites did. 
 
 
 
@@ -300,7 +300,7 @@ And opposite the border of the priests the [other] Levites shall have 25,000 [me
 
 
 
-And they shall not sell any of it or exchange it; they shall not convey _or_ transfer this the firstfruits of the land, for it has been offered to the Lord and is holy to Him. 
+And they shall not sell any of it or exchange it; they shall not convey or transfer this the firstfruits of the land, for it has been offered to the Lord and is holy to Him. 
 
 
 
@@ -321,7 +321,7 @@ And they shall not sell any of it or exchange it; they shall not convey _or_ tra
 
 
 
-And the remaining strip of 5,000 [measures] in breadth and 25,000 in length shall be for the city's secular use, for a place in which to dwell and for open country _or_ suburbs. The city shall be in the midst of the plot. 
+And the remaining strip of 5,000 [measures] in breadth and 25,000 in length shall be for the city's secular use, for a place in which to dwell and for open country or suburbs. The city shall be in the midst of the plot. 
 
 
 
@@ -363,7 +363,7 @@ And these shall be the dimensions of it: the north side 4,500 [measures] and the
 
 
 
-And the city shall have suburbs _or_ open country: toward the north 250 [measures] and toward the south 250, toward the east 250 and toward the west 250. 
+And the city shall have suburbs or open country: toward the north 250 [measures] and toward the south 250, toward the east 250 and toward the west 250. 
 
 
 
@@ -594,7 +594,7 @@ And beside the border of Zebulun, from the east side to the west side, Gad, one 
 
 
 
-And beside the border of Gad, at the south side southward, the border shall extend from Tamar to the waters of Meribath-kadesh and on along the Brook [of Egypt] to the Great _or_ Mediterranean Sea. 
+And beside the border of Gad, at the south side southward, the border shall extend from Tamar to the waters of Meribath-kadesh and on along the Brook [of Egypt] to the Great or Mediterranean Sea. 
 
 
 
@@ -741,4 +741,4 @@ On the west side's 4,500 measures, three gates: one gate of Gad, one gate of Ash
 
 
 
-The distance around the city shall be 18,000 [4 x 4,500] measures; and the name of the city from that day _and_ ever after shall be, the lord is there.
+The distance around the city shall be 18,000 [4 x 4,500] measures; and the name of the city from that day and ever after shall be, the lord is there.

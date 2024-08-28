@@ -10,22 +10,22 @@ next: ['1 Chr 6']
 
 
 ###### 1 
-Now the sons of Reuben the firstborn of Israel--he _was_ indeed the firstborn, but because he defiled his father's bed, his birthright was given to the sons of Joseph, the son of Israel, so that the genealogy is not listed according to the birthright; 
+Now the sons of Reuben the firstborn of Israel--he was indeed the firstborn, but because he defiled his father's bed, his birthright was given to the sons of Joseph, the son of Israel, so that the genealogy is not listed according to the birthright; 
 
 ###### 2 
-yet Judah prevailed over his brothers, and from him _came_ a ruler, although the birthright was Joseph's-- 
+yet Judah prevailed over his brothers, and from him came a ruler, although the birthright was Joseph's-- 
 
 ###### 3 
 the sons of Reuben the firstborn of Israel were Hanoch, Pallu, Hezron, and Carmi. 
 
 ###### 4 
-The sons of Joel _were_ Shemaiah his son, Gog his son, Shimei his son, 
+The sons of Joel were Shemaiah his son, Gog his son, Shimei his son, 
 
 ###### 5 
 Micah his son, Reaiah his son, Baal his son, 
 
 ###### 6 
-and Beerah his son, whom Tiglath-Pileser king of Assyria carried into captivity. He _was_ leader of the Reubenites. 
+and Beerah his son, whom Tiglath-Pileser king of Assyria carried into captivity. He was leader of the Reubenites. 
 
 ###### 7 
 And his brethren by their families, when the genealogy of their generations was registered: the chief, Jeiel, and Zechariah, 
@@ -37,7 +37,7 @@ and Bela the son of Azaz, the son of Shema, the son of Joel, who dwelt in Aroer,
 Eastward they settled as far as the entrance of the wilderness this side of the River Euphrates, because their cattle had multiplied in the land of Gilead. 
 
 ###### 10 
-Now in the days of Saul they made war with the Hagrites, who fell by their hand; and they dwelt in their tents throughout the entire _area_ east of Gilead.
+Now in the days of Saul they made war with the Hagrites, who fell by their hand; and they dwelt in their tents throughout the entire area east of Gilead.
 
 ## The Family of Gad 
 
@@ -45,45 +45,45 @@ Now in the days of Saul they made war with the Hagrites, who fell by their hand;
 And the children of Gad dwelt next to them in the land of Bashan as far as Salcah: 
 
 ###### 12 
-Joel _was_ the chief, Shapham the next, then Jaanai and Shaphat in Bashan, 
+Joel was the chief, Shapham the next, then Jaanai and Shaphat in Bashan, 
 
 ###### 13 
-and their brethren of their father's house: Michael, Meshullam, Sheba, Jorai, Jachan, Zia, and Eber--seven _in all._ 
+and their brethren of their father's house: Michael, Meshullam, Sheba, Jorai, Jachan, Zia, and Eber--seven in all. 
 
 ###### 14 
-These _were_ the children of Abihail the son of Huri, the son of Jaroah, the son of Gilead, the son of Michael, the son of Jeshishai, the son of Jahdo, the son of Buz; 
+These were the children of Abihail the son of Huri, the son of Jaroah, the son of Gilead, the son of Michael, the son of Jeshishai, the son of Jahdo, the son of Buz; 
 
 ###### 15 
-Ahi the son of Abdiel, the son of Guni, _was_ chief of their father's house. 
+Ahi the son of Abdiel, the son of Guni, was chief of their father's house. 
 
 ###### 16 
-And _the Gadites_ dwelt in Gilead, in Bashan and in its villages, and in all the common-lands of Sharon within their borders. 
+And the Gadites dwelt in Gilead, in Bashan and in its villages, and in all the common-lands of Sharon within their borders. 
 
 ###### 17 
 All these were registered by genealogies in the days of Jotham king of Judah, and in the days of Jeroboam king of Israel. 
 
 ###### 18 
-The sons of Reuben, the Gadites, and half the tribe of Manasseh _had_ forty-four thousand seven hundred and sixty valiant men, men able to bear shield and sword, to shoot with the bow, and skillful in war, who went to war. 
+The sons of Reuben, the Gadites, and half the tribe of Manasseh had forty-four thousand seven hundred and sixty valiant men, men able to bear shield and sword, to shoot with the bow, and skillful in war, who went to war. 
 
 ###### 19 
 They made war with the Hagrites, Jetur, Naphish, and Nodab. 
 
 ###### 20 
-And they were helped against them, and the Hagrites were delivered into their hand, and all who _were_ with them, for they cried out to God in the battle. He heeded their prayer, because they put their trust in Him. 
+And they were helped against them, and the Hagrites were delivered into their hand, and all who were with them, for they cried out to God in the battle. He heeded their prayer, because they put their trust in Him. 
 
 ###### 21 
 Then they took away their livestock--fifty thousand of their camels, two hundred and fifty thousand of their sheep, and two thousand of their donkeys--also one hundred thousand of their men; 
 
 ###### 22 
-for many fell dead, because the war _was_ God's. And they dwelt in their place until the captivity.
+for many fell dead, because the war was God's. And they dwelt in their place until the captivity.
 
 ## The Family of Manasseh (East) 
 
 ###### 23 
-So the children of the half-tribe of Manasseh dwelt in the land. Their _numbers_ increased from Bashan to Baal Hermon, that is, to Senir, or Mount Hermon. 
+So the children of the half-tribe of Manasseh dwelt in the land. Their numbers increased from Bashan to Baal Hermon, that is, to Senir, or Mount Hermon. 
 
 ###### 24 
-These _were_ the heads of their fathers' houses: Epher, Ishi, Eliel, Azriel, Jeremiah, Hodaviah, and Jahdiel. They were mighty men of valor, famous men, _and_ heads of their fathers' houses. 
+These were the heads of their fathers' houses: Epher, Ishi, Eliel, Azriel, Jeremiah, Hodaviah, and Jahdiel. They were mighty men of valor, famous men, and heads of their fathers' houses. 
 
 ###### 25 
 And they were unfaithful to the God of their fathers, and played the harlot after the gods of the peoples of the land, whom God had destroyed before them. 

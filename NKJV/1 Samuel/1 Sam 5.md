@@ -19,16 +19,16 @@ When the Philistines took the ark of God, they brought it into the house of Dago
 And when the people of Ashdod arose early in the morning, there was Dagon, fallen on its face to the earth before the ark of the Lord. So they took Dagon and set it in its place again. 
 
 ###### 4 
-And when they arose early the next morning, there was Dagon, fallen on its face to the ground before the ark of the Lord. The head of Dagon and both the palms of its hands _were_ broken off on the threshold; only Dagon's _torso_ was left of it. 
+And when they arose early the next morning, there was Dagon, fallen on its face to the ground before the ark of the Lord. The head of Dagon and both the palms of its hands were broken off on the threshold; only Dagon's torso was left of it. 
 
 ###### 5 
 Therefore neither the priests of Dagon nor any who come into Dagon's house tread on the threshold of Dagon in Ashdod to this day. 
 
 ###### 6 
-But the hand of the Lord was heavy on the people of Ashdod, and He ravaged them and struck them with tumors, _both_ Ashdod and its territory. 
+But the hand of the Lord was heavy on the people of Ashdod, and He ravaged them and struck them with tumors, both Ashdod and its territory. 
 
 ###### 7 
-And when the men of Ashdod saw how _it was,_ they said, "The ark of the God of Israel must not remain with us, for His hand is harsh toward us and Dagon our god." 
+And when the men of Ashdod saw how it was, they said, "The ark of the God of Israel must not remain with us, for His hand is harsh toward us and Dagon our god." 
 
 ###### 8 
 Therefore they sent and gathered to themselves all the lords of the Philistines, and said, "What shall we do with the ark of the God of Israel?" And they answered, "Let the ark of the God of Israel be carried away to Gath." So they carried the ark of the God of Israel away. 

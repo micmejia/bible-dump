@@ -196,7 +196,7 @@ Now will I shortly pour out My wrath upon you and finish spending My anger again
 
 
 
-And My eye will not spare, nor will I have pity. I will punish you according to your ways while your abominations are right in the midst of you. And you shall know, understand, _and_ realize that it is I the Lord Who smites you. 
+And My eye will not spare, nor will I have pity. I will punish you according to your ways while your abominations are right in the midst of you. And you shall know, understand, and realize that it is I the Lord Who smites you. 
 
 
 
@@ -238,7 +238,7 @@ Behold, the day! Behold, it has come! Your doom has gone forth, the rod has blos
 
 
 
-Violence has grown up into a rod of wickedness; none of [Israel] shall remain, none of their abundance, none of their wealth; neither shall there be preeminence among them _or_ wailing for them. 
+Violence has grown up into a rod of wickedness; none of [Israel] shall remain, none of their abundance, none of their wealth; neither shall there be preeminence among them or wailing for them. 
 
 
 
@@ -385,7 +385,7 @@ All hands shall be feeble and all knees shall be weak as water.
 
 
 
-They shall also gird themselves with sackcloth; horror _and_ dismay shall cover them, and shame shall be upon all faces and baldness upon all their heads [as evidence of grief]. 
+They shall also gird themselves with sackcloth; horror and dismay shall cover them, and shame shall be upon all faces and baldness upon all their heads [as evidence of grief]. 
 
 
 
@@ -406,7 +406,7 @@ They shall also gird themselves with sackcloth; horror _and_ dismay shall cover 
 
 
 
-They shall cast their silver into the streets, and their gold shall be [discarded] like an unclean thing _or_ rubbish; their silver and their gold shall not be able to deliver them in the day of the wrath of the Lord; they shall not satisfy their animal cravings nor fill their stomachs with them, for [wealth] has been the stumbling block of their iniquity. 
+They shall cast their silver into the streets, and their gold shall be [discarded] like an unclean thing or rubbish; their silver and their gold shall not be able to deliver them in the day of the wrath of the Lord; they shall not satisfy their animal cravings nor fill their stomachs with them, for [wealth] has been the stumbling block of their iniquity. 
 
 
 
@@ -511,7 +511,7 @@ Prepare the chain [of imprisonment], for the land is full of bloodguiltiness [mu
 
 
 
-Therefore I will bring in the worst of the [heathen] nations, who will take possession of the houses [of the people of Judah]; I will also silence their strongholds _and_ put an end to their proud might, and their holy places _and_ those who sanctify them shall be profaned. 
+Therefore I will bring in the worst of the [heathen] nations, who will take possession of the houses [of the people of Judah]; I will also silence their strongholds and put an end to their proud might, and their holy places and those who sanctify them shall be profaned. 
 
 
 
@@ -532,7 +532,7 @@ Therefore I will bring in the worst of the [heathen] nations, who will take poss
 
 
 
-Distress, panic, _and_ destruction shall come, and they [of Judah] shall seek peace, and there shall be none. 
+Distress, panic, and destruction shall come, and they [of Judah] shall seek peace, and there shall be none. 
 
 
 
@@ -553,7 +553,7 @@ Distress, panic, _and_ destruction shall come, and they [of Judah] shall seek pe
 
 
 
-Calamity shall come upon calamity and rumor shall be upon rumor, and they shall seek a vision of the prophet; and the law _and_ instruction shall cease from the [distracted] priest and counsel from the [dismayed] elders. 
+Calamity shall come upon calamity and rumor shall be upon rumor, and they shall seek a vision of the prophet; and the law and instruction shall cease from the [distracted] priest and counsel from the [dismayed] elders. 
 
 
 
@@ -574,4 +574,4 @@ Calamity shall come upon calamity and rumor shall be upon rumor, and they shall 
 
 
 
-The king [of Judah] shall wear mourning and the prince shall clothe himself with garments of despair _and_ desolation, while the hands of the people of the land shall tremble [palsied by terror]; for I will do to them in accordance with their ways, and according to their deserts will I judge them; and they shall know, recognize, _and_ realize that I am the Lord.
+The king [of Judah] shall wear mourning and the prince shall clothe himself with garments of despair and desolation, while the hands of the people of the land shall tremble [palsied by terror]; for I will do to them in accordance with their ways, and according to their deserts will I judge them; and they shall know, recognize, and realize that I am the Lord.

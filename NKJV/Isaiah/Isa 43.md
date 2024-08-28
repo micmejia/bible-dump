@@ -37,22 +37,22 @@ Bring out the blind people who have eyes, And the deaf who have ears.
 Let all the nations be gathered together, And let the people be assembled. Who among them can declare this, And show us former things? Let them bring out their witnesses, that they may be justified; Or let them hear and say, "It is truth." 
 
 ###### 10 
-"You _are_ My witnesses," says the Lord, "And My servant whom I have chosen, That you may know and believe Me, And understand that I _am_ He. Before Me there was no God formed, Nor shall there be after Me. 
+"You are My witnesses," says the Lord, "And My servant whom I have chosen, That you may know and believe Me, And understand that I am He. Before Me there was no God formed, Nor shall there be after Me. 
 
 ###### 11 
-I, _even_ I, _am_ the Lord, And besides Me _there is_ no savior. 
+I, even I, am the Lord, And besides Me there is no savior. 
 
 ###### 12 
-I have declared and saved, I have proclaimed, And _there was_ no foreign _god_ among you; Therefore you _are_ My witnesses," Says the Lord, "that I _am_ God. 
+I have declared and saved, I have proclaimed, And there was no foreign god among you; Therefore you are My witnesses," Says the Lord, "that I am God. 
 
 ###### 13 
-Indeed before the day _was,_ I _am_ He; And _there is_ no one who can deliver out of My hand; I work, and who will reverse it?" 
+Indeed before the day was, I am He; And there is no one who can deliver out of My hand; I work, and who will reverse it?" 
 
 ###### 14 
 Thus says the Lord, your Redeemer, The Holy One of Israel: "For your sake I will send to Babylon, And bring them all down as fugitives-- The Chaldeans, who rejoice in their ships. 
 
 ###### 15 
-I _am_ the Lord, your Holy One, The Creator of Israel, your King." 
+I am the Lord, your Holy One, The Creator of Israel, your King." 
 
 ###### 16 
 Thus says the Lord, who makes a way in the sea And a path through the mighty waters, 
@@ -64,10 +64,10 @@ Who brings forth the chariot and horse, The army and the power (They shall lie d
 "Do not remember the former things, Nor consider the things of old. 
 
 ###### 19 
-Behold, I will do a new thing, Now it shall spring forth; Shall you not know it? I will even make a road in the wilderness _And_ rivers in the desert. 
+Behold, I will do a new thing, Now it shall spring forth; Shall you not know it? I will even make a road in the wilderness And rivers in the desert. 
 
 ###### 20 
-The beast of the field will honor Me, The jackals and the ostriches, Because I give waters in the wilderness _And_ rivers in the desert, To give drink to My people, My chosen. 
+The beast of the field will honor Me, The jackals and the ostriches, Because I give waters in the wilderness And rivers in the desert, To give drink to My people, My chosen. 
 
 ###### 21 
 This people I have formed for Myself; They shall declare My praise.
@@ -84,10 +84,10 @@ You have not brought Me the sheep for your burnt offerings, Nor have you honored
 You have bought Me no sweet cane with money, Nor have you satisfied Me with the fat of your sacrifices; But you have burdened Me with your sins, You have wearied Me with your iniquities. 
 
 ###### 25 
-"I, _even_ I, _am_ He who blots out your transgressions for My own sake; And I will not remember your sins. 
+"I, even I, am He who blots out your transgressions for My own sake; And I will not remember your sins. 
 
 ###### 26 
-Put Me in remembrance; Let us contend together; State your _case,_ that you may be acquitted. 
+Put Me in remembrance; Let us contend together; State your case, that you may be acquitted. 
 
 ###### 27 
 Your first father sinned, And your mediators have transgressed against Me. 

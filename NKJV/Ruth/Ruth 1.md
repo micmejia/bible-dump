@@ -12,13 +12,13 @@ next: ['Ruth 2']
 Now it came to pass, in the days when the judges ruled, that there was a famine in the land. And a certain man of Bethlehem, Judah, went to dwell in the country of Moab, he and his wife and his two sons. 
 
 ###### 2 
-The name of the man _was_ Elimelech, the name of his wife _was_ Naomi, and the names of his two sons _were_ Mahlon and Chilion--Ephrathites of Bethlehem, Judah. And they went to the country of Moab and remained there. 
+The name of the man was Elimelech, the name of his wife was Naomi, and the names of his two sons were Mahlon and Chilion--Ephrathites of Bethlehem, Judah. And they went to the country of Moab and remained there. 
 
 ###### 3 
 Then Elimelech, Naomi's husband, died; and she was left, and her two sons. 
 
 ###### 4 
-Now they took wives of the women of Moab: the name of the one _was_ Orpah, and the name of the other Ruth. And they dwelt there about ten years. 
+Now they took wives of the women of Moab: the name of the one was Orpah, and the name of the other Ruth. And they dwelt there about ten years. 
 
 ###### 5 
 Then both Mahlon and Chilion also died; so the woman survived her two sons and her husband.
@@ -41,10 +41,10 @@ The Lord grant that you may find rest, each in the house of her husband." So she
 And they said to her, "Surely we will return with you to your people." 
 
 ###### 11 
-But Naomi said, "Turn back, my daughters; why will you go with me? _Are_ there still sons in my womb, that they may be your husbands? 
+But Naomi said, "Turn back, my daughters; why will you go with me? Are there still sons in my womb, that they may be your husbands? 
 
 ###### 12 
-Turn back, my daughters, go--for I am too old to have a husband. If I should say I have hope, _if_ I should have a husband tonight and should also bear sons, 
+Turn back, my daughters, go--for I am too old to have a husband. If I should say I have hope, if I should have a husband tonight and should also bear sons, 
 
 ###### 13 
 would you wait for them till they were grown? Would you restrain yourselves from having husbands? No, my daughters; for it grieves me very much for your sakes that the hand of the Lord has gone out against me!" 
@@ -56,16 +56,16 @@ Then they lifted up their voices and wept again; and Orpah kissed her mother-in-
 And she said, "Look, your sister-in-law has gone back to her people and to her gods; return after your sister-in-law." 
 
 ###### 16 
-But Ruth said: "Entreat me not to leave you, _Or to_ turn back from following after you; For wherever you go, I will go; And wherever you lodge, I will lodge; Your people _shall be_ my people, And your God, my God. 
+But Ruth said: "Entreat me not to leave you, Or to turn back from following after you; For wherever you go, I will go; And wherever you lodge, I will lodge; Your people shall be my people, And your God, my God. 
 
 ###### 17 
-Where you die, I will die, And there will I be buried. The Lord do so to me, and more also, If _anything but_ death parts you and me." 
+Where you die, I will die, And there will I be buried. The Lord do so to me, and more also, If anything but death parts you and me." 
 
 ###### 18 
 When she saw that she was determined to go with her, she stopped speaking to her. 
 
 ###### 19 
-Now the two of them went until they came to Bethlehem. And it happened, when they had come to Bethlehem, that all the city was excited because of them; and the women said, "_Is_ this Naomi?" 
+Now the two of them went until they came to Bethlehem. And it happened, when they had come to Bethlehem, that all the city was excited because of them; and the women said, "Is this Naomi?" 
 
 ###### 20 
 But she said to them, "Do not call me Naomi; call me Mara, for the Almighty has dealt very bitterly with me. 

@@ -112,7 +112,7 @@ And the foundations of the thresholds shook at the voice of him who cried, and t
 
 
 
-Then said I, Woe is me! For I am undone _and_ ruined, because I am a man of unclean lips, and I dwell in the midst of a people of unclean lips; for my eyes have seen the King, the Lord of hosts! 
+Then said I, Woe is me! For I am undone and ruined, because I am a man of unclean lips, and I dwell in the midst of a people of unclean lips; for my eyes have seen the King, the Lord of hosts! 
 
 
 
@@ -154,7 +154,7 @@ Then flew one of the seraphim [heavenly beings] to me, having a live coal in his
 
 
 
-And with it he touched my mouth and said, Behold, this has touched your lips; your iniquity _and_ guilt are taken away, and your sin is completely atoned for _and_ forgiven. 
+And with it he touched my mouth and said, Behold, this has touched your lips; your iniquity and guilt are taken away, and your sin is completely atoned for and forgiven. 
 
 
 
@@ -196,7 +196,7 @@ Also I heard the voice of the Lord, saying, Whom shall I send? And who will go f
 
 
 
-And He said, Go and tell this people, Hear _and_ hear continually, but understand not; and see _and_ see continually, but do not apprehend with your mind. 
+And He said, Go and tell this people, Hear and hear continually, but understand not; and see and see continually, but do not apprehend with your mind. 
 
 
 
@@ -280,4 +280,4 @@ And the Lord removes [His] people far away, and the forsaken places are many in 
 
 
 
-And though a tenth [of the people] remain in the land, it will be for their destruction [eaten up and burned] like a terebinth tree or like an oak whose stump _and_ substance remain when they are felled _or_ have cast their leaves. The holy seed [the elect remnant] is the stump _and_ substance [of Israel].
+And though a tenth [of the people] remain in the land, it will be for their destruction [eaten up and burned] like a terebinth tree or like an oak whose stump and substance remain when they are felled or have cast their leaves. The holy seed [the elect remnant] is the stump and substance [of Israel].

@@ -133,7 +133,7 @@ And you shall make the poles of acacia wood, overlaid with gold.
 
 
 
-You shall put the altar [of incense] in front _and_ outside of the veil that screens the ark of the Testimony, before the mercy seat that is over the Testimony (the Law, the tables of stone), where I will meet with you. 
+You shall put the altar [of incense] in front and outside of the veil that screens the ark of the Testimony, before the mercy seat that is over the Testimony (the Law, the tables of stone), where I will meet with you. 
 
 
 
@@ -154,7 +154,7 @@ You shall put the altar [of incense] in front _and_ outside of the veil that scr
 
 
 
-And Aaron shall burn on it incense of sweet spices; every morning when he trims _and_ fills the lamps he shall burn it. 
+And Aaron shall burn on it incense of sweet spices; every morning when he trims and fills the lamps he shall burn it. 
 
 
 
@@ -217,7 +217,7 @@ You shall offer no unholy incense on the altar nor burnt sacrifice nor cereal of
 
 
 
-Aaron shall make atonement upon the horns of it once a year; with the blood of the sin offering of atonement once in the year shall he make atonement upon _and_ for it throughout your generations. It is most holy to the Lord. 
+Aaron shall make atonement upon the horns of it once a year; with the blood of the sin offering of atonement once in the year shall he make atonement upon and for it throughout your generations. It is most holy to the Lord. 
 
 
 
@@ -385,7 +385,7 @@ And the Lord said to Moses,
 
 
 
-You shall also make a laver _or_ large basin of bronze, and its base of bronze, for washing; and you shall put it [outside in the court] between the Tent of Meeting and the altar [of burnt offering], and you shall put water in it; 
+You shall also make a laver or large basin of bronze, and its base of bronze, for washing; and you shall put it [outside in the court] between the Tent of Meeting and the altar [of burnt offering], and you shall put water in it; 
 
 
 
@@ -616,7 +616,7 @@ And the altar of burnt offering with all its utensils, and the laver [for cleans
 
 
 
-You shall sanctify (separate) them, that they may be most holy; whoever _and_ whatever touches them must be holy (set apart to God). 
+You shall sanctify (separate) them, that they may be most holy; whoever and whatever touches them must be holy (set apart to God). 
 
 
 
@@ -742,7 +742,7 @@ Then the Lord said to Moses, Take sweet spices--stacte, onycha, and galbanum, sw
 
 
 
-And make of them incense, a perfume after the perfumer's art, seasoned with salt _and_ mixed, pure and sacred. 
+And make of them incense, a perfume after the perfumer's art, seasoned with salt and mixed, pure and sacred. 
 
 
 

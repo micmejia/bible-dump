@@ -28,7 +28,7 @@ next: ['Lam 3']
 
 
 
-How the Lord has covered the Daughter of Zion with a cloud in His anger! He has cast down from heaven to the earth the beauty _and_ splendor of Israel and has not [earnestly] remembered His footstool in the day of His anger! 
+How the Lord has covered the Daughter of Zion with a cloud in His anger! He has cast down from heaven to the earth the beauty and splendor of Israel and has not [earnestly] remembered His footstool in the day of His anger! 
 
 
 
@@ -49,7 +49,7 @@ How the Lord has covered the Daughter of Zion with a cloud in His anger! He has 
 
 
 
-The Lord has swallowed up all the country places _and_ habitations of Jacob and has spared not _nor_ pitied; He has demolished in His wrath the strongholds of the Daughter of Judah. He has cast down to the ground the kingdom and its rulers, polluting them _and_ depriving them of their sanctity. 
+The Lord has swallowed up all the country places and habitations of Jacob and has spared not nor pitied; He has demolished in His wrath the strongholds of the Daughter of Judah. He has cast down to the ground the kingdom and its rulers, polluting them and depriving them of their sanctity. 
 
 
 
@@ -91,7 +91,7 @@ He has broken off in His fierce anger every horn (means of defense) of Israel. H
 
 
 
-He has bent His bow like an enemy; He has stood with His right hand set like a foe and has slain all the delights _and_ pride of the eye; on _and_ in the tent of the Daughter of Zion He has poured out His wrath like fire. 
+He has bent His bow like an enemy; He has stood with His right hand set like a foe and has slain all the delights and pride of the eye; on and in the tent of the Daughter of Zion He has poured out His wrath like fire. 
 
 
 
@@ -133,7 +133,7 @@ The Lord has become like an enemy; He has destroyed Israel. He has destroyed all
 
 
 
-And He has violently broken down His temple like a booth _or_ hedge of a garden; He has destroyed the place of His appointed assembly. The Lord has caused the solemn appointed feasts and Sabbaths to be forgotten in Zion and has spurned _and_ rejected in the indignation of His anger the king and the priest. 
+And He has violently broken down His temple like a booth or hedge of a garden; He has destroyed the place of His appointed assembly. The Lord has caused the solemn appointed feasts and Sabbaths to be forgotten in Zion and has spurned and rejected in the indignation of His anger the king and the priest. 
 
 
 
@@ -154,7 +154,7 @@ And He has violently broken down His temple like a booth _or_ hedge of a garden;
 
 
 
-The Lord has scorned, rejected, _and_ cast off His altar; He has abhorred _and_ disowned His sanctuary. He has given into the hand of the enemy the walls of her palaces [and high buildings]; they have raised a clamor in the house of the Lord as on a day of a solemn appointed feast. 
+The Lord has scorned, rejected, and cast off His altar; He has abhorred and disowned His sanctuary. He has given into the hand of the enemy the walls of her palaces [and high buildings]; they have raised a clamor in the house of the Lord as on a day of a solemn appointed feast. 
 
 
 
@@ -301,7 +301,7 @@ What [example of suffering in the past] is sufficient for me to remind you for y
 
 
 
-Your prophets have predicted for you falsehood and delusion _and_ foolish things; and they have not exposed your iniquity _and_ guilt to avert your captivity [by causing you to repent]. But they have divined _and_ declared to you false _and_ deceptive prophecies, worthless _and_ misleading. 
+Your prophets have predicted for you falsehood and delusion and foolish things; and they have not exposed your iniquity and guilt to avert your captivity [by causing you to repent]. But they have divined and declared to you false and deceptive prophecies, worthless and misleading. 
 
 
 
@@ -364,7 +364,7 @@ All your enemies have opened wide their mouths against you; they scornfully hiss
 
 
 
-The Lord has done what He planned; He has carried out _and_ finished His word which He threatened _and_ decreed in the days of old. He has demolished without pity; He has made the enemy rejoice over you and has exalted the might of your foes. 
+The Lord has done what He planned; He has carried out and finished His word which He threatened and decreed in the days of old. He has demolished without pity; He has made the enemy rejoice over you and has exalted the might of your foes. 
 
 
 
@@ -427,7 +427,7 @@ Arise [from your bed], cry out in the night, at the beginning of the watches; po
 
 
 
-Behold, O Lord, and consider [carefully] to whom You have done this. Should _and_ shall women eat the fruit of their own bodies, the children whom they have tended _and_ swaddled with their hands? Should _and_ shall priest and prophet be slain in the place set apart [for the worship] of the Lord? 
+Behold, O Lord, and consider [carefully] to whom You have done this. Should and shall women eat the fruit of their own bodies, the children whom they have tended and swaddled with their hands? Should and shall priest and prophet be slain in the place set apart [for the worship] of the Lord? 
 
 
 

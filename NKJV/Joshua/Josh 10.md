@@ -13,7 +13,7 @@ next: ['Josh 11']
 Now it came to pass when Adoni-Zedek king of Jerusalem heard how Joshua had taken Ai and had utterly destroyed it--as he had done to Jericho and its king, so he had done to Ai and its king--and how the inhabitants of Gibeon had made peace with Israel and were among them, 
 
 ###### 2 
-that they feared greatly, because Gibeon _was_ a great city, like one of the royal cities, and because it _was_ greater than Ai, and all its men _were_ mighty. 
+that they feared greatly, because Gibeon was a great city, like one of the royal cities, and because it was greater than Ai, and all its men were mighty. 
 
 ###### 3 
 Therefore Adoni-Zedek king of Jerusalem sent to Hoham king of Hebron, Piram king of Jarmuth, Japhia king of Lachish, and Debir king of Eglon, saying, 
@@ -22,7 +22,7 @@ Therefore Adoni-Zedek king of Jerusalem sent to Hoham king of Hebron, Piram king
 "Come up to me and help me, that we may attack Gibeon, for it has made peace with Joshua and with the children of Israel." 
 
 ###### 5 
-Therefore the five kings of the Amorites, the king of Jerusalem, the king of Hebron, the king of Jarmuth, the king of Lachish, _and_ the king of Eglon, gathered together and went up, they and all their armies, and camped before Gibeon and made war against it. 
+Therefore the five kings of the Amorites, the king of Jerusalem, the king of Hebron, the king of Jarmuth, the king of Lachish, and the king of Eglon, gathered together and went up, they and all their armies, and camped before Gibeon and made war against it. 
 
 ###### 6 
 And the men of Gibeon sent to Joshua at the camp at Gilgal, saying, "Do not forsake your servants; come up to us quickly, save us and help us, for all the kings of the Amorites who dwell in the mountains have gathered together against us." 
@@ -40,13 +40,13 @@ Joshua therefore came upon them suddenly, having marched all night from Gilgal.
 So the Lord routed them before Israel, killed them with a great slaughter at Gibeon, chased them along the road that goes to Beth Horon, and struck them down as far as Azekah and Makkedah. 
 
 ###### 11 
-And it happened, as they fled before Israel _and_ were on the descent of Beth Horon, that the Lord cast down large hailstones from heaven on them as far as Azekah, and they died. _There were_ more who died from the hailstones than the children of Israel killed with the sword. 
+And it happened, as they fled before Israel and were on the descent of Beth Horon, that the Lord cast down large hailstones from heaven on them as far as Azekah, and they died. There were more who died from the hailstones than the children of Israel killed with the sword. 
 
 ###### 12 
 Then Joshua spoke to the Lord in the day when the Lord delivered up the Amorites before the children of Israel, and he said in the sight of Israel: "Sun, stand still over Gibeon; And Moon, in the Valley of Aijalon." 
 
 ###### 13 
-So the sun stood still, And the moon stopped, Till the people had revenge Upon their enemies. _Is_ this not written in the Book of Jasher? So the sun stood still in the midst of heaven, and did not hasten to go _down_ for about a whole day. 
+So the sun stood still, And the moon stopped, Till the people had revenge Upon their enemies. Is this not written in the Book of Jasher? So the sun stood still in the midst of heaven, and did not hasten to go down for about a whole day. 
 
 ###### 14 
 And there has been no day like that, before it or after it, that the Lord heeded the voice of a man; for the Lord fought for Israel. 
@@ -66,7 +66,7 @@ And it was told Joshua, saying, "The five kings have been found hidden in the ca
 So Joshua said, "Roll large stones against the mouth of the cave, and set men by it to guard them. 
 
 ###### 19 
-And do not stay _there_ yourselves, _but_ pursue your enemies, and attack their rear _guard._ Do not allow them to enter their cities, for the Lord your God has delivered them into your hand." 
+And do not stay there yourselves, but pursue your enemies, and attack their rear guard. Do not allow them to enter their cities, for the Lord your God has delivered them into your hand." 
 
 ###### 20 
 Then it happened, while Joshua and the children of Israel made an end of slaying them with a very great slaughter, till they had finished, that those who escaped entered fortified cities. 
@@ -78,7 +78,7 @@ And all the people returned to the camp, to Joshua at Makkedah, in peace. No one
 Then Joshua said, "Open the mouth of the cave, and bring out those five kings to me from the cave." 
 
 ###### 23 
-And they did so, and brought out those five kings to him from the cave: the king of Jerusalem, the king of Hebron, the king of Jarmuth, the king of Lachish, _and_ the king of Eglon. 
+And they did so, and brought out those five kings to him from the cave: the king of Jerusalem, the king of Hebron, the king of Jarmuth, the king of Lachish, and the king of Eglon. 
 
 ###### 24 
 So it was, when they brought out those kings to Joshua, that Joshua called for all the men of Israel, and said to the captains of the men of war who went with him, "Come near, put your feet on the necks of these kings." And they drew near and put their feet on their necks. 
@@ -90,24 +90,24 @@ Then Joshua said to them, "Do not be afraid, nor be dismayed; be strong and of g
 And afterward Joshua struck them and killed them, and hanged them on five trees; and they were hanging on the trees until evening. 
 
 ###### 27 
-So it was at the time of the going down of the sun _that_ Joshua commanded, and they took them down from the trees, cast them into the cave where they had been hidden, and laid large stones against the cave's mouth, _which remain_ until this very day.
+So it was at the time of the going down of the sun that Joshua commanded, and they took them down from the trees, cast them into the cave where they had been hidden, and laid large stones against the cave's mouth, which remain until this very day.
 
 ## Conquest of the Southland 
 
 ###### 28 
-On that day Joshua took Makkedah, and struck it and its king with the edge of the sword. He utterly destroyed them--all the people who _were_ in it. He let none remain. He also did to the king of Makkedah as he had done to the king of Jericho. 
+On that day Joshua took Makkedah, and struck it and its king with the edge of the sword. He utterly destroyed them--all the people who were in it. He let none remain. He also did to the king of Makkedah as he had done to the king of Jericho. 
 
 ###### 29 
 Then Joshua passed from Makkedah, and all Israel with him, to Libnah; and they fought against Libnah. 
 
 ###### 30 
-And the Lord also delivered it and its king into the hand of Israel; he struck it and all the people who _were_ in it with the edge of the sword. He let none remain in it, but did to its king as he had done to the king of Jericho. 
+And the Lord also delivered it and its king into the hand of Israel; he struck it and all the people who were in it with the edge of the sword. He let none remain in it, but did to its king as he had done to the king of Jericho. 
 
 ###### 31 
 Then Joshua passed from Libnah, and all Israel with him, to Lachish; and they encamped against it and fought against it. 
 
 ###### 32 
-And the Lord delivered Lachish into the hand of Israel, who took it on the second day, and struck it and all the people who _were_ in it with the edge of the sword, according to all that he had done to Libnah. 
+And the Lord delivered Lachish into the hand of Israel, who took it on the second day, and struck it and all the people who were in it with the edge of the sword, according to all that he had done to Libnah. 
 
 ###### 33 
 Then Horam king of Gezer came up to help Lachish; and Joshua struck him and his people, until he left him none remaining. 
@@ -116,19 +116,19 @@ Then Horam king of Gezer came up to help Lachish; and Joshua struck him and his 
 From Lachish Joshua passed to Eglon, and all Israel with him; and they encamped against it and fought against it. 
 
 ###### 35 
-They took it on that day and struck it with the edge of the sword; all the people who _were_ in it he utterly destroyed that day, according to all that he had done to Lachish. 
+They took it on that day and struck it with the edge of the sword; all the people who were in it he utterly destroyed that day, according to all that he had done to Lachish. 
 
 ###### 36 
 So Joshua went up from Eglon, and all Israel with him, to Hebron; and they fought against it. 
 
 ###### 37 
-And they took it and struck it with the edge of the sword--its king, all its cities, and all the people who _were_ in it; he left none remaining, according to all that he had done to Eglon, but utterly destroyed it and all the people who _were_ in it. 
+And they took it and struck it with the edge of the sword--its king, all its cities, and all the people who were in it; he left none remaining, according to all that he had done to Eglon, but utterly destroyed it and all the people who were in it. 
 
 ###### 38 
 Then Joshua returned, and all Israel with him, to Debir; and they fought against it. 
 
 ###### 39 
-And he took it and its king and all its cities; they struck them with the edge of the sword and utterly destroyed all the people who _were_ in it. He left none remaining; as he had done to Hebron, so he did to Debir and its king, as he had done also to Libnah and its king. 
+And he took it and its king and all its cities; they struck them with the edge of the sword and utterly destroyed all the people who were in it. He left none remaining; as he had done to Hebron, so he did to Debir and its king, as he had done also to Libnah and its king. 
 
 ###### 40 
 So Joshua conquered all the land: the mountain country and the South and the lowland and the wilderness slopes, and all their kings; he left none remaining, but utterly destroyed all that breathed, as the Lord God of Israel had commanded. 

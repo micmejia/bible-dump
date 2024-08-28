@@ -133,7 +133,7 @@ But now what have I here, says the Lord, seeing that My people have been taken a
 
 
 
-Therefore My people shall know what My name is _and_ what it means; therefore they shall know in that day that I am He who speaks; behold, I Am! 
+Therefore My people shall know what My name is and what it means; therefore they shall know in that day that I am He who speaks; behold, I Am! 
 
 
 
@@ -238,7 +238,7 @@ The Lord has made bare His holy arm before the eyes of all the nations [revealin
 
 
 
-Depart, depart, go out from there [the lands of exile]! Touch no unclean thing! Go out of the midst of her [Babylon]; cleanse yourselves _and_ be clean, you who bear the vessels of the Lord [on your journey from there]. 
+Depart, depart, go out from there [the lands of exile]! Touch no unclean thing! Go out of the midst of her [Babylon]; cleanse yourselves and be clean, you who bear the vessels of the Lord [on your journey from there]. 
 
 
 
@@ -280,7 +280,7 @@ For you will not go out with haste, nor will you go in flight [as was necessary 
 
 
 
-Behold, My Servant shall deal wisely _and_ shall prosper; He shall be exalted and extolled and shall stand very high. 
+Behold, My Servant shall deal wisely and shall prosper; He shall be exalted and extolled and shall stand very high. 
 
 
 
@@ -301,7 +301,7 @@ Behold, My Servant shall deal wisely _and_ shall prosper; He shall be exalted an
 
 
 
-[For many the Servant of God became an object of horror; many were astonished at Him.] His face _and_ His whole appearance were marred more than any man's, and His form beyond that of the sons of men--but just as many were astonished at Him, 
+[For many the Servant of God became an object of horror; many were astonished at Him.] His face and His whole appearance were marred more than any man's, and His form beyond that of the sons of men--but just as many were astonished at Him, 
 
 
 
@@ -322,4 +322,4 @@ Behold, My Servant shall deal wisely _and_ shall prosper; He shall be exalted an
 
 
 
-So shall He startle _and_ sprinkle many nations, and kings shall shut their mouths because of Him; for that which has not been told them shall they see, and that which they have not heard shall they consider _and_ understand.
+So shall He startle and sprinkle many nations, and kings shall shut their mouths because of Him; for that which has not been told them shall they see, and that which they have not heard shall they consider and understand.

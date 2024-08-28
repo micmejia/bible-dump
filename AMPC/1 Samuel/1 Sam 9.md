@@ -28,7 +28,7 @@ next: ['1 Sam 10']
 
 
 
-There was a man of Benjamin whose name was Kish son of Abiel, the son of Zeror, the son of Becorath, the son of Aphiah, a Benjamite, a mighty man of wealth _and_ valor. 
+There was a man of Benjamin whose name was Kish son of Abiel, the son of Zeror, the son of Becorath, the son of Aphiah, a Benjamite, a mighty man of wealth and valor. 
 
 
 

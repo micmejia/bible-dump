@@ -49,7 +49,7 @@ Does any of you dare, when he has a matter of complaint against another [brother
 
 
 
-Do you not know that the saints (the believers) will [one day] judge _and_ govern the world? And if the world [itself] is to be judged _and_ ruled by you, are you unworthy _and_ incompetent to try [such petty matters] of the smallest courts of justice? 
+Do you not know that the saints (the believers) will [one day] judge and govern the world? And if the world [itself] is to be judged and ruled by you, are you unworthy and incompetent to try [such petty matters] of the smallest courts of justice? 
 
 
 
@@ -70,7 +70,7 @@ Do you not know that the saints (the believers) will [one day] judge _and_ gover
 
 
 
-Do you not know also that we [Christians] are to judge the [very] angels _and_ pronounce opinion between right and wrong [for them]? How much more then [as to] matters pertaining to this world _and_ of this life only! 
+Do you not know also that we [Christians] are to judge the [very] angels and pronounce opinion between right and wrong [for them]? How much more then [as to] matters pertaining to this world and of this life only! 
 
 
 
@@ -91,7 +91,7 @@ Do you not know also that we [Christians] are to judge the [very] angels _and_ p
 
 
 
-If then you do have such cases of everyday life to decide, why do you appoint [as judges to lay them before] those who [from the standpoint] of the church count for least _and_ are without standing? 
+If then you do have such cases of everyday life to decide, why do you appoint [as judges to lay them before] those who [from the standpoint] of the church count for least and are without standing? 
 
 
 
@@ -112,7 +112,7 @@ If then you do have such cases of everyday life to decide, why do you appoint [a
 
 
 
-I say this to move you to shame. Can it be that there really is not one man among you who [in action is governed by piety and integrity and] is wise _and_ competent enough to decide [the private grievances, disputes, and quarrels] between members of the brotherhood, 
+I say this to move you to shame. Can it be that there really is not one man among you who [in action is governed by piety and integrity and] is wise and competent enough to decide [the private grievances, disputes, and quarrels] between members of the brotherhood, 
 
 
 
@@ -154,7 +154,7 @@ But brother goes to law against brother, and that before [Gentile judges who are
 
 
 
-Why, the very fact of your having lawsuits with one another at all is a defect (a defeat, an evidence of positive moral loss for you). Why not rather let yourselves suffer wrong _and_ be deprived of what is your due? Why not rather be cheated (defrauded and robbed)? 
+Why, the very fact of your having lawsuits with one another at all is a defect (a defeat, an evidence of positive moral loss for you). Why not rather let yourselves suffer wrong and be deprived of what is your due? Why not rather be cheated (defrauded and robbed)? 
 
 
 
@@ -196,7 +196,7 @@ But [instead it is you] yourselves who wrong and defraud, and that even your own
 
 
 
-Do you not know that the unrighteous _and_ the wrongdoers will not inherit _or_ have any share in the kingdom of God? Do not be deceived (misled): neither the impure _and_ immoral, nor idolaters, nor adulterers, nor those who participate in homosexuality, 
+Do you not know that the unrighteous and the wrongdoers will not inherit or have any share in the kingdom of God? Do not be deceived (misled): neither the impure and immoral, nor idolaters, nor adulterers, nor those who participate in homosexuality, 
 
 
 
@@ -217,7 +217,7 @@ Do you not know that the unrighteous _and_ the wrongdoers will not inherit _or_ 
 
 
 
-Nor cheats (swindlers and thieves), nor greedy graspers, nor drunkards, nor foulmouthed revilers _and_ slanderers, nor extortioners _and_ robbers will inherit _or_ have any share in the kingdom of God. 
+Nor cheats (swindlers and thieves), nor greedy graspers, nor drunkards, nor foulmouthed revilers and slanderers, nor extortioners and robbers will inherit or have any share in the kingdom of God. 
 
 
 
@@ -259,7 +259,7 @@ And such some of you were [once]. But you were washed clean (purified by a compl
 
 
 
-Everything is permissible (allowable and lawful) for me; but not all things are helpful (good for me to do, expedient and profitable when considered with other things). Everything is lawful for me, but I will not become the slave of anything _or_ be brought under its power. 
+Everything is permissible (allowable and lawful) for me; but not all things are helpful (good for me to do, expedient and profitable when considered with other things). Everything is lawful for me, but I will not become the slave of anything or be brought under its power. 
 
 
 
@@ -280,7 +280,7 @@ Everything is permissible (allowable and lawful) for me; but not all things are 
 
 
 
-Food [is intended] for the stomach and the stomach for food, but God will finally end [the functions of] both _and_ bring them to nothing. The body is not intended for sexual immorality, but [is intended] for the Lord, and the Lord [is intended] for the body [to save, sanctify, and raise it again]. 
+Food [is intended] for the stomach and the stomach for food, but God will finally end [the functions of] both and bring them to nothing. The body is not intended for sexual immorality, but [is intended] for the Lord, and the Lord [is intended] for the body [to save, sanctify, and raise it again]. 
 
 
 
@@ -322,7 +322,7 @@ And God both raised the Lord to life and will also raise us up by His power.
 
 
 
-Do you not see _and_ know that your bodies are members (bodily parts) of Christ (the Messiah)? Am I therefore to take the parts of Christ and make [them] parts of a prostitute? Never! Never! 
+Do you not see and know that your bodies are members (bodily parts) of Christ (the Messiah)? Am I therefore to take the parts of Christ and make [them] parts of a prostitute? Never! Never! 
 
 
 
@@ -343,7 +343,7 @@ Do you not see _and_ know that your bodies are members (bodily parts) of Christ 
 
 
 
-Or do you not know _and_ realize that when a man joins himself to a prostitute, he becomes one body with her? The two, it is written, shall become one flesh. 
+Or do you not know and realize that when a man joins himself to a prostitute, he becomes one body with her? The two, it is written, shall become one flesh. 
 
 
 
@@ -385,7 +385,7 @@ But the person who is united to the Lord becomes one spirit with Him.
 
 
 
-Shun immorality _and_ all sexual looseness [flee from impurity in thought, word, or deed]. Any other sin which a man commits is one outside the body, but he who commits sexual immorality sins against his own body. 
+Shun immorality and all sexual looseness [flee from impurity in thought, word, or deed]. Any other sin which a man commits is one outside the body, but he who commits sexual immorality sins against his own body. 
 
 
 
@@ -427,4 +427,4 @@ Do you not know that your body is the temple (the very sanctuary) of the Holy Sp
 
 
 
-You were bought with a price [purchased with a preciousness and paid for, made His own]. So then, honor God _and_ bring glory to Him in your body.
+You were bought with a price [purchased with a preciousness and paid for, made His own]. So then, honor God and bring glory to Him in your body.

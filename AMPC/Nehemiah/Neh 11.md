@@ -28,7 +28,7 @@ next: ['Neh 12']
 
 
 
-Now the leaders of the people dwelt at Jerusalem; the rest of the people also cast lots to bring one of ten to dwell in Jerusalem, the holy city, while nine-tenths dwelt in other towns _and_ villages. 
+Now the leaders of the people dwelt at Jerusalem; the rest of the people also cast lots to bring one of ten to dwell in Jerusalem, the holy city, while nine-tenths dwelt in other towns and villages. 
 
 
 

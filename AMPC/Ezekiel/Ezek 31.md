@@ -154,7 +154,7 @@ All the birds of the heavens made their nests in its boughs, and under its branc
 
 
 
-Thus was it beautiful in its greatness, in the length of its branches, for its root was by many _and_ great waters. 
+Thus was it beautiful in its greatness, in the length of its branches, for its root was by many and great waters. 
 
 
 
@@ -175,7 +175,7 @@ Thus was it beautiful in its greatness, in the length of its branches, for its r
 
 
 
-The cedars in the garden of God could not hide _or_ rival it; the cypress trees did not have boughs like it and the plane trees did not have branches like it, nor was any tree in the garden of God like it in its beauty. 
+The cedars in the garden of God could not hide or rival it; the cypress trees did not have boughs like it and the plane trees did not have branches like it, nor was any tree in the garden of God like it in its beauty. 
 
 
 
@@ -217,7 +217,7 @@ I made it beautiful with the multitude of its branches, so that all the trees of
 
 
 
-Therefore thus said the Lord God: Because it is exalted in stature and has set its top among the thick boughs _and_ the clouds, and its heart is proud of its height, 
+Therefore thus said the Lord God: Because it is exalted in stature and has set its top among the thick boughs and the clouds, and its heart is proud of its height, 
 
 
 
@@ -238,7 +238,7 @@ Therefore thus said the Lord God: Because it is exalted in stature and has set i
 
 
 
-I will even deliver it into the hand of a mighty one of the nations; he shall surely deal with it. I have driven it out for its wickedness _and_ lawlessness. 
+I will even deliver it into the hand of a mighty one of the nations; he shall surely deal with it. I have driven it out for its wickedness and lawlessness. 
 
 
 
@@ -301,7 +301,7 @@ Upon its ruins all the birds of the heavens will dwell, and all the wild beasts 
 
 
 
-All this is so that none of the trees by the waters may exalt themselves because of their height or shoot up their top among the thick boughs _and_ the clouds, and that none of their mighty ones should stand upon [their own estimate of] themselves for their height, all that drink water. For they are all delivered over to death, to the lower world, in the midst of the children of men, with those who go down to the pit (the grave). 
+All this is so that none of the trees by the waters may exalt themselves because of their height or shoot up their top among the thick boughs and the clouds, and that none of their mighty ones should stand upon [their own estimate of] themselves for their height, all that drink water. For they are all delivered over to death, to the lower world, in the midst of the children of men, with those who go down to the pit (the grave). 
 
 
 
@@ -322,7 +322,7 @@ All this is so that none of the trees by the waters may exalt themselves because
 
 
 
-Thus says the Lord God: When [Assyria] goes down to Sheol (the place of the dead), I will cause a mourning; I will cover the deep for it and I will restrain its floods, and the many waters [that contributed to its prosperity] will be stayed; and I will cause Lebanon to be in black gloom _and_ to mourn for it, and all the trees of the field, dismayed, will faint because of it. 
+Thus says the Lord God: When [Assyria] goes down to Sheol (the place of the dead), I will cause a mourning; I will cover the deep for it and I will restrain its floods, and the many waters [that contributed to its prosperity] will be stayed; and I will cause Lebanon to be in black gloom and to mourn for it, and all the trees of the field, dismayed, will faint because of it. 
 
 
 
@@ -385,4 +385,4 @@ They also shall go down into Sheol with it to those who were slain by the sword-
 
 
 
-To whom [O Egypt] among the trees of Eden are you thus like in glory and in greatness? Yet you [also] shall be brought down with the trees of Eden to the netherworld. You shall lie among the uncircumcised heathen with those who are slain by the sword. This is how it shall be with Pharaoh and all the multitude of his strength, his tumult, _and_ his store [of wealth and glory], says the Lord God.
+To whom [O Egypt] among the trees of Eden are you thus like in glory and in greatness? Yet you [also] shall be brought down with the trees of Eden to the netherworld. You shall lie among the uncircumcised heathen with those who are slain by the sword. This is how it shall be with Pharaoh and all the multitude of his strength, his tumult, and his store [of wealth and glory], says the Lord God.

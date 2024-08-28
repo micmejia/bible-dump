@@ -10,16 +10,16 @@ next: ['Job 14']
 
 
 ###### 1 
-"Behold, my eye has seen all _this,_ My ear has heard and understood it. 
+"Behold, my eye has seen all this, My ear has heard and understood it. 
 
 ###### 2 
-What you know, I also know; I _am_ not inferior to you. 
+What you know, I also know; I am not inferior to you. 
 
 ###### 3 
 But I would speak to the Almighty, And I desire to reason with God. 
 
 ###### 4 
-But you forgers of lies, You _are_ all worthless physicians. 
+But you forgers of lies, You are all worthless physicians. 
 
 ###### 5 
 Oh, that you would be silent, And it would be your wisdom! 
@@ -43,10 +43,10 @@ He will surely rebuke you If you secretly show partiality.
 Will not His excellence make you afraid, And the dread of Him fall upon you? 
 
 ###### 12 
-Your platitudes _are_ proverbs of ashes, Your defenses are defenses of clay. 
+Your platitudes are proverbs of ashes, Your defenses are defenses of clay. 
 
 ###### 13 
-"Hold your peace with me, and let me speak, Then let come on me what _may!_ 
+"Hold your peace with me, and let me speak, Then let come on me what may! 
 
 ###### 14 
 Why do I take my flesh in my teeth, And put my life in my hands? 
@@ -55,21 +55,21 @@ Why do I take my flesh in my teeth, And put my life in my hands?
 Though He slay me, yet will I trust Him. Even so, I will defend my own ways before Him. 
 
 ###### 16 
-He also _shall_ be my salvation, For a hypocrite could not come before Him. 
+He also shall be my salvation, For a hypocrite could not come before Him. 
 
 ###### 17 
 Listen carefully to my speech, And to my declaration with your ears. 
 
 ###### 18 
-See now, I have prepared _my_ case, I know that I shall be vindicated. 
+See now, I have prepared my case, I know that I shall be vindicated. 
 
 ###### 19 
-Who _is_ he _who_ will contend with me? If now I hold my tongue, I perish.
+Who is he who will contend with me? If now I hold my tongue, I perish.
 
 ## Job's Despondent Prayer 
 
 ###### 20 
-"Only two _things_ do not do to me, Then I will not hide myself from You: 
+"Only two things do not do to me, Then I will not hide myself from You: 
 
 ###### 21 
 Withdraw Your hand far from me, And let not the dread of You make me afraid. 
@@ -78,7 +78,7 @@ Withdraw Your hand far from me, And let not the dread of You make me afraid.
 Then call, and I will answer; Or let me speak, then You respond to me. 
 
 ###### 23 
-How many _are_ my iniquities and sins? Make me know my transgression and my sin. 
+How many are my iniquities and sins? Make me know my transgression and my sin. 
 
 ###### 24 
 Why do You hide Your face, And regard me as Your enemy? 
@@ -93,4 +93,4 @@ For You write bitter things against me, And make me inherit the iniquities of my
 You put my feet in the stocks, And watch closely all my paths. You set a limit for the soles of my feet. 
 
 ###### 28 
-"_Man_ decays like a rotten thing, Like a garment that is moth-eaten.
+"Man decays like a rotten thing, Like a garment that is moth-eaten.

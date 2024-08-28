@@ -112,7 +112,7 @@ A gentle tongue [with its healing power] is a tree of life, but willful contrari
 
 
 
-A fool despises his father's instruction _and_ correction, but he who regards reproof acquires prudence. 
+A fool despises his father's instruction and correction, but he who regards reproof acquires prudence. 
 
 
 
@@ -133,7 +133,7 @@ A fool despises his father's instruction _and_ correction, but he who regards re
 
 
 
-In the house of the [uncompromisingly] righteous is great [priceless] treasure, but with the income of the wicked is trouble _and_ vexation. 
+In the house of the [uncompromisingly] righteous is great [priceless] treasure, but with the income of the wicked is trouble and vexation. 
 
 
 
@@ -154,7 +154,7 @@ In the house of the [uncompromisingly] righteous is great [priceless] treasure, 
 
 
 
-The lips of the wise disperse knowledge [sifting it as chaff from the grain]; not so the minds _and_ hearts of the self-confident _and_ foolish. 
+The lips of the wise disperse knowledge [sifting it as chaff from the grain]; not so the minds and hearts of the self-confident and foolish. 
 
 
 
@@ -175,7 +175,7 @@ The lips of the wise disperse knowledge [sifting it as chaff from the grain]; no
 
 
 
-The sacrifice of the wicked is an abomination, hateful _and_ exceedingly offensive to the Lord, but the prayer of the upright is His delight! 
+The sacrifice of the wicked is an abomination, hateful and exceedingly offensive to the Lord, but the prayer of the upright is His delight! 
 
 
 
@@ -196,7 +196,7 @@ The sacrifice of the wicked is an abomination, hateful _and_ exceedingly offensi
 
 
 
-The way of the wicked is an abomination, extremely disgusting _and_ shamefully vile to the Lord, but He loves him who pursues righteousness (moral and spiritual rectitude in every area and relation). 
+The way of the wicked is an abomination, extremely disgusting and shamefully vile to the Lord, but He loves him who pursues righteousness (moral and spiritual rectitude in every area and relation). 
 
 
 
@@ -301,7 +301,7 @@ A glad heart makes a cheerful countenance, but by sorrow of heart the spirit is 
 
 
 
-The mind of him who has understanding seeks knowledge and inquires after _and_ craves it, but the mouth of the [self-confident] fool feeds on folly. 
+The mind of him who has understanding seeks knowledge and inquires after and craves it, but the mouth of the [self-confident] fool feeds on folly. 
 
 
 
@@ -322,7 +322,7 @@ The mind of him who has understanding seeks knowledge and inquires after _and_ c
 
 
 
-All the days of the desponding _and_ afflicted are made evil [by anxious thoughts and forebodings], but he who has a glad heart has a continual feast [regardless of circumstances]. 
+All the days of the desponding and afflicted are made evil [by anxious thoughts and forebodings], but he who has a glad heart has a continual feast [regardless of circumstances]. 
 
 
 
@@ -343,7 +343,7 @@ All the days of the desponding _and_ afflicted are made evil [by anxious thought
 
 
 
-Better is little with the reverent, worshipful fear of the Lord than great _and_ rich treasure and trouble with it. 
+Better is little with the reverent, worshipful fear of the Lord than great and rich treasure and trouble with it. 
 
 
 
@@ -406,7 +406,7 @@ A hot-tempered man stirs up strife, but he who is slow to anger appeases content
 
 
 
-The way of the sluggard is overgrown with thorns [it pricks, lacerates, and entangles him], but the way of the righteous is plain _and_ raised like a highway. 
+The way of the sluggard is overgrown with thorns [it pricks, lacerates, and entangles him], but the way of the righteous is plain and raised like a highway. 
 
 
 
@@ -427,7 +427,7 @@ The way of the sluggard is overgrown with thorns [it pricks, lacerates, and enta
 
 
 
-A wise son makes a glad father, but a self-confident _and_ foolish man despises his mother _and_ puts her to shame. 
+A wise son makes a glad father, but a self-confident and foolish man despises his mother and puts her to shame. 
 
 
 
@@ -448,7 +448,7 @@ A wise son makes a glad father, but a self-confident _and_ foolish man despises 
 
 
 
-Folly is pleasure to him who is without heart _and_ sense, but a man of understanding walks uprightly [making straight his course]. 
+Folly is pleasure to him who is without heart and sense, but a man of understanding walks uprightly [making straight his course]. 
 
 
 
@@ -553,7 +553,7 @@ The Lord tears down the house of the proud, but He makes secure the boundaries o
 
 
 
-The thoughts of the wicked are shamefully vile _and_ exceedingly offensive to the Lord, but the words of the pure are pleasing words to Him. 
+The thoughts of the wicked are shamefully vile and exceedingly offensive to the Lord, but the words of the pure are pleasing words to Him. 
 
 
 
@@ -679,7 +679,7 @@ The ear that listens to the reproof [that leads to or gives] life will remain am
 
 
 
-He who refuses _and_ ignores instruction _and_ correction despises himself, but he who heeds reproof gets understanding. 
+He who refuses and ignores instruction and correction despises himself, but he who heeds reproof gets understanding. 
 
 
 
@@ -700,4 +700,4 @@ He who refuses _and_ ignores instruction _and_ correction despises himself, but 
 
 
 
-The reverent _and_ worshipful fear of the Lord brings instruction in Wisdom, and humility comes before honor.
+The reverent and worshipful fear of the Lord brings instruction in Wisdom, and humility comes before honor.

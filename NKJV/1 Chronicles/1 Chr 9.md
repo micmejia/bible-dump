@@ -10,10 +10,10 @@ next: ['1 Chr 10']
 
 
 ###### 1 
-So all Israel was recorded by genealogies, and indeed, they _were_ inscribed in the book of the kings of Israel. But Judah was carried away captive to Babylon because of their unfaithfulness. 
+So all Israel was recorded by genealogies, and indeed, they were inscribed in the book of the kings of Israel. But Judah was carried away captive to Babylon because of their unfaithfulness. 
 
 ###### 2 
-And the first inhabitants who _dwelt_ in their possessions in their cities _were_ Israelites, priests, Levites, and the Nethinim.
+And the first inhabitants who dwelt in their possessions in their cities were Israelites, priests, Levites, and the Nethinim.
 
 ## Dwellers in Jerusalem 
 
@@ -36,7 +36,7 @@ Of the sons of Benjamin: Sallu the son of Meshullam, the son of Hodaviah, the so
 Ibneiah the son of Jeroham; Elah the son of Uzzi, the son of Michri; Meshullam the son of Shephatiah, the son of Reuel, the son of Ibnijah; 
 
 ###### 9 
-and their brethren, according to their generations--nine hundred and fifty-six. All these men _were_ heads of a father's _house_ in their fathers' houses.
+and their brethren, according to their generations--nine hundred and fifty-six. All these men were heads of a father's house in their fathers' houses.
 
 ## The Priests at Jerusalem 
 
@@ -50,7 +50,7 @@ Azariah the son of Hilkiah, the son of Meshullam, the son of Zadok, the son of M
 Adaiah the son of Jeroham, the son of Pashur, the son of Malchijah; Maasai the son of Adiel, the son of Jahzerah, the son of Meshullam, the son of Meshillemith, the son of Immer; 
 
 ###### 13 
-and their brethren, heads of their fathers' houses--one thousand seven hundred and sixty. _They were_ very able men for the work of the service of the house of God.
+and their brethren, heads of their fathers' houses--one thousand seven hundred and sixty. They were very able men for the work of the service of the house of God.
 
 ## The Levites at Jerusalem 
 
@@ -66,68 +66,68 @@ Obadiah the son of Shemaiah, the son of Galal, the son of Jeduthun; and Berechia
 ## The Levite Gatekeepers 
 
 ###### 17 
-And the gatekeepers _were_ Shallum, Akkub, Talmon, Ahiman, and their brethren. Shallum _was_ the chief. 
+And the gatekeepers were Shallum, Akkub, Talmon, Ahiman, and their brethren. Shallum was the chief. 
 
 ###### 18 
-Until then _they had been_ gatekeepers for the camps of the children of Levi at the King's Gate on the east. 
+Until then they had been gatekeepers for the camps of the children of Levi at the King's Gate on the east. 
 
 ###### 19 
-Shallum the son of Kore, the son of Ebiasaph, the son of Korah, and his brethren, from his father's house, the Korahites, _were_ in charge of the work of the service, gatekeepers of the tabernacle. Their fathers had been keepers of the entrance to the camp of the Lord. 
+Shallum the son of Kore, the son of Ebiasaph, the son of Korah, and his brethren, from his father's house, the Korahites, were in charge of the work of the service, gatekeepers of the tabernacle. Their fathers had been keepers of the entrance to the camp of the Lord. 
 
 ###### 20 
-And Phinehas the son of Eleazar had been the officer over them in time past; the Lord _was_ with him. 
+And Phinehas the son of Eleazar had been the officer over them in time past; the Lord was with him. 
 
 ###### 21 
-Zechariah the son of Meshelemiah _was_ keeper of the door of the tabernacle of meeting. 
+Zechariah the son of Meshelemiah was keeper of the door of the tabernacle of meeting. 
 
 ###### 22 
-All those chosen as gatekeepers _were_ two hundred and twelve. They were recorded by their genealogy, in their villages. David and Samuel the seer had appointed them to their trusted office. 
+All those chosen as gatekeepers were two hundred and twelve. They were recorded by their genealogy, in their villages. David and Samuel the seer had appointed them to their trusted office. 
 
 ###### 23 
-So they and their children _were_ in charge of the gates of the house of the Lord, the house of the tabernacle, by assignment. 
+So they and their children were in charge of the gates of the house of the Lord, the house of the tabernacle, by assignment. 
 
 ###### 24 
 The gatekeepers were assigned to the four directions: the east, west, north, and south. 
 
 ###### 25 
-And their brethren in their villages _had_ to come with them from time to time for seven days. 
+And their brethren in their villages had to come with them from time to time for seven days. 
 
 ###### 26 
-For in this trusted office _were_ four chief gatekeepers; they were Levites. And they had charge over the chambers and treasuries of the house of God. 
+For in this trusted office were four chief gatekeepers; they were Levites. And they had charge over the chambers and treasuries of the house of God. 
 
 ###### 27 
-And they lodged _all_ around the house of God because they _had_ the responsibility, and they _were_ in charge of opening _it_ every morning.
+And they lodged all around the house of God because they had the responsibility, and they were in charge of opening it every morning.
 
 ## Other Levite Responsibilities 
 
 ###### 28 
-Now _some_ of them were in charge of the serving vessels, for they brought them in and took them out by count. 
+Now some of them were in charge of the serving vessels, for they brought them in and took them out by count. 
 
 ###### 29 
-_Some_ of them _were_ appointed over the furnishings and over all the implements of the sanctuary, and over the fine flour and the wine and the oil and the incense and the spices. 
+Some of them were appointed over the furnishings and over all the implements of the sanctuary, and over the fine flour and the wine and the oil and the incense and the spices. 
 
 ###### 30 
-And _some_ of the sons of the priests made the ointment of the spices. 
+And some of the sons of the priests made the ointment of the spices. 
 
 ###### 31 
 Mattithiah of the Levites, the firstborn of Shallum the Korahite, had the trusted office over the things that were baked in the pans. 
 
 ###### 32 
-And some of their brethren of the sons of the Kohathites _were_ in charge of preparing the showbread for every Sabbath. 
+And some of their brethren of the sons of the Kohathites were in charge of preparing the showbread for every Sabbath. 
 
 ###### 33 
-These are the singers, heads of the fathers' _houses_ of the Levites, _who lodged_ in the chambers, _and were_ free _from other duties;_ for they were employed in _that_ work day and night. 
+These are the singers, heads of the fathers' houses of the Levites, who lodged in the chambers, and were free from other duties; for they were employed in that work day and night. 
 
 ###### 34 
-These heads of the fathers' _houses_ of the Levites _were_ heads throughout their generations. They dwelt at Jerusalem.
+These heads of the fathers' houses of the Levites were heads throughout their generations. They dwelt at Jerusalem.
 
 ## The Family of King Saul 
 
 ###### 35 
-Jeiel the father of Gibeon, whose wife's name _was_ Maacah, dwelt at Gibeon. 
+Jeiel the father of Gibeon, whose wife's name was Maacah, dwelt at Gibeon. 
 
 ###### 36 
-His firstborn son _was_ Abdon, then Zur, Kish, Baal, Ner, Nadab, 
+His firstborn son was Abdon, then Zur, Kish, Baal, Ner, Nadab, 
 
 ###### 37 
 Gedor, Ahio, Zechariah, and Mikloth. 
@@ -139,10 +139,10 @@ And Mikloth begot Shimeam. They also dwelt alongside their relatives in Jerusale
 Ner begot Kish, Kish begot Saul, and Saul begot Jonathan, Malchishua, Abinadab, and Esh-Baal. 
 
 ###### 40 
-The son of Jonathan _was_ Merib-Baal, and Merib-Baal begot Micah. 
+The son of Jonathan was Merib-Baal, and Merib-Baal begot Micah. 
 
 ###### 41 
-The sons of Micah _were_ Pithon, Melech, Tahrea, and Ahaz. 
+The sons of Micah were Pithon, Melech, Tahrea, and Ahaz. 
 
 ###### 42 
 And Ahaz begot Jarah; Jarah begot Alemeth, Azmaveth, and Zimri; and Zimri begot Moza; 
@@ -151,4 +151,4 @@ And Ahaz begot Jarah; Jarah begot Alemeth, Azmaveth, and Zimri; and Zimri begot 
 Moza begot Binea, Rephaiah his son, Eleasah his son, and Azel his son. 
 
 ###### 44 
-And Azel had six sons whose names _were_ these: Azrikam, Bocheru, Ishmael, Sheariah, Obadiah, and Hanan; these _were_ the sons of Azel.
+And Azel had six sons whose names were these: Azrikam, Bocheru, Ishmael, Sheariah, Obadiah, and Hanan; these were the sons of Azel.

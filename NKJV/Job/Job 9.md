@@ -13,13 +13,13 @@ next: ['Job 10']
 Then Job answered and said: 
 
 ###### 2 
-"Truly I know _it is_ so, But how can a man be righteous before God? 
+"Truly I know it is so, But how can a man be righteous before God? 
 
 ###### 3 
 If one wished to contend with Him, He could not answer Him one time out of a thousand. 
 
 ###### 4 
-_God is_ wise in heart and mighty in strength. Who has hardened _himself_ against Him and prospered? 
+God is wise in heart and mighty in strength. Who has hardened himself against Him and prospered? 
 
 ###### 5 
 He removes the mountains, and they do not know When He overturns them in His anger; 
@@ -40,7 +40,7 @@ He made the Bear, Orion, and the Pleiades, And the chambers of the south;
 He does great things past finding out, Yes, wonders without number. 
 
 ###### 11 
-If He goes by me, I do not see _Him;_ If He moves past, I do not perceive Him; 
+If He goes by me, I do not see Him; If He moves past, I do not perceive Him; 
 
 ###### 12 
 If He takes away, who can hinder Him? Who can say to Him, 'What are You doing?' 
@@ -49,7 +49,7 @@ If He takes away, who can hinder Him? Who can say to Him, 'What are You doing?'
 God will not withdraw His anger, The allies of the proud lie prostrate beneath Him. 
 
 ###### 14 
-"How then can I answer Him, _And_ choose my words _to reason_ with Him? 
+"How then can I answer Him, And choose my words to reason with Him? 
 
 ###### 15 
 For though I were righteous, I could not answer Him; I would beg mercy of my Judge. 
@@ -64,22 +64,22 @@ For He crushes me with a tempest, And multiplies my wounds without cause.
 He will not allow me to catch my breath, But fills me with bitterness. 
 
 ###### 19 
-If _it is a matter_ of strength, indeed _He is_ strong; And if of justice, who will appoint my day _in court?_ 
+If it is a matter of strength, indeed He is strong; And if of justice, who will appoint my day in court? 
 
 ###### 20 
-Though I were righteous, my own mouth would condemn me; Though I _were_ blameless, it would prove me perverse. 
+Though I were righteous, my own mouth would condemn me; Though I were blameless, it would prove me perverse. 
 
 ###### 21 
 "I am blameless, yet I do not know myself; I despise my life. 
 
 ###### 22 
-It _is_ all one _thing;_ Therefore I say, 'He destroys the blameless and the wicked.' 
+It is all one thing; Therefore I say, 'He destroys the blameless and the wicked.' 
 
 ###### 23 
 If the scourge slays suddenly, He laughs at the plight of the innocent. 
 
 ###### 24 
-The earth is given into the hand of the wicked. He covers the faces of its judges. If it is not _He,_ who else could it be? 
+The earth is given into the hand of the wicked. He covers the faces of its judges. If it is not He, who else could it be? 
 
 ###### 25 
 "Now my days are swifter than a runner; They flee away, they see no good. 
@@ -94,7 +94,7 @@ If I say, 'I will forget my complaint, I will put off my sad face and wear a smi
 I am afraid of all my sufferings; I know that You will not hold me innocent. 
 
 ###### 29 
-_If_ I am condemned, Why then do I labor in vain? 
+If I am condemned, Why then do I labor in vain? 
 
 ###### 30 
 If I wash myself with snow water, And cleanse my hands with soap, 
@@ -103,13 +103,13 @@ If I wash myself with snow water, And cleanse my hands with soap,
 Yet You will plunge me into the pit, And my own clothes will abhor me. 
 
 ###### 32 
-"For _He is_ not a man, as I _am,_ _That_ I may answer Him, _And that_ we should go to court together. 
+"For He is not a man, as I am, That I may answer Him, And that we should go to court together. 
 
 ###### 33 
-Nor is there any mediator between us, _Who_ may lay his hand on us both. 
+Nor is there any mediator between us, Who may lay his hand on us both. 
 
 ###### 34 
 Let Him take His rod away from me, And do not let dread of Him terrify me. 
 
 ###### 35 
-_Then_ I would speak and not fear Him, But it is not so with me.
+Then I would speak and not fear Him, But it is not so with me.

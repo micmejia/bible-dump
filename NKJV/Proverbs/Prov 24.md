@@ -22,52 +22,52 @@ Through wisdom a house is built, And by understanding it is established;
 By knowledge the rooms are filled With all precious and pleasant riches. 
 
 ###### 5 
-A wise man _is_ strong, Yes, a man of knowledge increases strength; 
+A wise man is strong, Yes, a man of knowledge increases strength; 
 
 ###### 6 
-For by wise counsel you will wage your own war, And in a multitude of counselors _there is_ safety. 
+For by wise counsel you will wage your own war, And in a multitude of counselors there is safety. 
 
 ###### 7 
-Wisdom _is_ too lofty for a fool; He does not open his mouth in the gate. 
+Wisdom is too lofty for a fool; He does not open his mouth in the gate. 
 
 ###### 8 
 He who plots to do evil Will be called a schemer. 
 
 ###### 9 
-The devising of foolishness _is_ sin, And the scoffer _is_ an abomination to men. 
+The devising of foolishness is sin, And the scoffer is an abomination to men. 
 
 ###### 10 
-_If_ you faint in the day of adversity, Your strength _is_ small. 
+If you faint in the day of adversity, Your strength is small. 
 
 ###### 11 
-Deliver _those who_ are drawn toward death, And hold back _those_ stumbling to the slaughter. 
+Deliver those who are drawn toward death, And hold back those stumbling to the slaughter. 
 
 ###### 12 
-If you say, "Surely we did not know this," Does not He who weighs the hearts consider _it?_ He who keeps your soul, does He _not_ know _it?_ And will He _not_ render to _each_ man according to his deeds? 
+If you say, "Surely we did not know this," Does not He who weighs the hearts consider it? He who keeps your soul, does He not know it? And will He not render to each man according to his deeds? 
 
 ###### 13 
-My son, eat honey because _it is_ good, And the honeycomb _which is_ sweet to your taste; 
+My son, eat honey because it is good, And the honeycomb which is sweet to your taste; 
 
 ###### 14 
-So _shall_ the knowledge of wisdom _be_ to your soul; If you have found _it,_ there is a prospect, And your hope will not be cut off. 
+So shall the knowledge of wisdom be to your soul; If you have found it, there is a prospect, And your hope will not be cut off. 
 
 ###### 15 
-Do not lie in wait, O wicked _man,_ against the dwelling of the righteous; Do not plunder his resting place; 
+Do not lie in wait, O wicked man, against the dwelling of the righteous; Do not plunder his resting place; 
 
 ###### 16 
-For a righteous _man_ may fall seven times And rise again, But the wicked shall fall by calamity. 
+For a righteous man may fall seven times And rise again, But the wicked shall fall by calamity. 
 
 ###### 17 
 Do not rejoice when your enemy falls, And do not let your heart be glad when he stumbles; 
 
 ###### 18 
-Lest the Lord see _it,_ and it displease Him, And He turn away His wrath from him. 
+Lest the Lord see it, and it displease Him, And He turn away His wrath from him. 
 
 ###### 19 
 Do not fret because of evildoers, Nor be envious of the wicked; 
 
 ###### 20 
-For there will be no prospect for the evil _man;_ The lamp of the wicked will be put out. 
+For there will be no prospect for the evil man; The lamp of the wicked will be put out. 
 
 ###### 21 
 My son, fear the Lord and the king; Do not associate with those given to change; 
@@ -78,13 +78,13 @@ For their calamity will rise suddenly, And who knows the ruin those two can brin
 ## Further Sayings of the Wise 
 
 ###### 23 
-These _things_ also _belong_ to the wise: _It is_ not good to show partiality in judgment. 
+These things also belong to the wise: It is not good to show partiality in judgment. 
 
 ###### 24 
-He who says to the wicked, "You _are_ righteous," Him the people will curse; Nations will abhor him. 
+He who says to the wicked, "You are righteous," Him the people will curse; Nations will abhor him. 
 
 ###### 25 
-But those who rebuke _the wicked_ will have delight, And a good blessing will come upon them. 
+But those who rebuke the wicked will have delight, And a good blessing will come upon them. 
 
 ###### 26 
 He who gives a right answer kisses the lips. 
@@ -99,16 +99,16 @@ Do not be a witness against your neighbor without cause, For would you deceive w
 Do not say, "I will do to him just as he has done to me; I will render to the man according to his work." 
 
 ###### 30 
-I went by the field of the lazy _man_, And by the vineyard of the man devoid of understanding; 
+I went by the field of the lazy man, And by the vineyard of the man devoid of understanding; 
 
 ###### 31 
 And there it was, all overgrown with thorns; Its surface was covered with nettles; Its stone wall was broken down. 
 
 ###### 32 
-When I saw _it,_ I considered _it_ well; I looked on _it and_ received instruction: 
+When I saw it, I considered it well; I looked on it and received instruction: 
 
 ###### 33 
 A little sleep, a little slumber, A little folding of the hands to rest; 
 
 ###### 34 
-So shall your poverty come _like_ a prowler, And your need like an armed man.
+So shall your poverty come like a prowler, And your need like an armed man.

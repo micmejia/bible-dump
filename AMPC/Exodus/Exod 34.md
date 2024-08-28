@@ -154,7 +154,7 @@ And the Lord passed by before him, and proclaimed, The Lord! the Lord! a God mer
 
 
 
-Keeping mercy _and_ loving-kindness for thousands, forgiving iniquity and transgression and sin, but Who will by no means clear the guilty, visiting the iniquity of the fathers upon the children and the children's children, to the third and fourth generation. 
+Keeping mercy and loving-kindness for thousands, forgiving iniquity and transgression and sin, but Who will by no means clear the guilty, visiting the iniquity of the fathers upon the children and the children's children, to the third and fourth generation. 
 
 
 
@@ -196,7 +196,7 @@ And Moses made haste to bow his head toward the earth and worshiped.
 
 
 
-And he said, If now I have found favor _and_ loving-kindness in Your sight, O Lord, let the Lord, I pray You, go in the midst of us, although it is a stiff-necked people, and pardon our iniquity and our sin, and take us for Your inheritance. 
+And he said, If now I have found favor and loving-kindness in Your sight, O Lord, let the Lord, I pray You, go in the midst of us, although it is a stiff-necked people, and pardon our iniquity and our sin, and take us for Your inheritance. 
 
 
 
@@ -217,7 +217,7 @@ And he said, If now I have found favor _and_ loving-kindness in Your sight, O Lo
 
 
 
-And the Lord said, Behold, I lay down [afresh the terms of the mutual agreement between Israel and Me] a covenant. Before all your people I will do marvels (wonders, miracles) such as have not been wrought _or_ created in all the earth or in any nation; and all the people among whom you are shall see the work of the Lord; for it is a terrible thing [fearful and full of awe] that I will do with you. 
+And the Lord said, Behold, I lay down [afresh the terms of the mutual agreement between Israel and Me] a covenant. Before all your people I will do marvels (wonders, miracles) such as have not been wrought or created in all the earth or in any nation; and all the people among whom you are shall see the work of the Lord; for it is a terrible thing [fearful and full of awe] that I will do with you. 
 
 
 
@@ -259,7 +259,7 @@ Observe what I command you this day. Behold, I drive out before you the Amorite,
 
 
 
-Take heed to yourself, lest you make a covenant _or_ mutual agreement with the inhabitants of the land to which you go, lest it become a snare in the midst of you. 
+Take heed to yourself, lest you make a covenant or mutual agreement with the inhabitants of the land to which you go, lest it become a snare in the midst of you. 
 
 
 
@@ -427,7 +427,7 @@ All the males that first open the womb among your livestock are Mine, whether ox
 
 
 
-But the firstling of a donkey [an unclean beast] you shall redeem with a lamb _or_ kid, and if you do not redeem it, then you shall break its neck. All the firstborn of your sons you shall redeem. And none of you shall appear before Me empty-handed. 
+But the firstling of a donkey [an unclean beast] you shall redeem with a lamb or kid, and if you do not redeem it, then you shall break its neck. All the firstborn of your sons you shall redeem. And none of you shall appear before Me empty-handed. 
 
 
 
@@ -574,7 +574,7 @@ The first of the firstfruits of your ground you shall bring to the house of the 
 
 
 
-And the Lord said to Moses, Write these words, for after the purpose _and_ character of these words I have made a covenant with you and with Israel. 
+And the Lord said to Moses, Write these words, for after the purpose and character of these words I have made a covenant with you and with Israel. 
 
 
 
@@ -616,7 +616,7 @@ Moses was there with the Lord forty days and forty nights; he ate no bread and d
 
 
 
-When Moses came down from Mount Sinai with the two tables of the Testimony in his hand, he did not know that the skin of his face shone _and_ sent forth beams by reason of his speaking with the Lord. 
+When Moses came down from Mount Sinai with the two tables of the Testimony in his hand, he did not know that the skin of his face shone and sent forth beams by reason of his speaking with the Lord. 
 
 
 

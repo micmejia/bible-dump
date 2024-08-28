@@ -28,7 +28,7 @@ next: ['Gen 44']
 
 
 
-But the hunger _and_ destitution _and_ starvation were very severe _and_ extremely distressing in the land [Canaan]. 
+But the hunger and destitution and starvation were very severe and extremely distressing in the land [Canaan]. 
 
 
 
@@ -70,7 +70,7 @@ And when [the families of Jacob's sons] had eaten up the grain which the men had
 
 
 
-But Judah said to him, The man solemnly _and_ sternly warned us, saying, You shall not see my face again unless your brother is with you. 
+But Judah said to him, The man solemnly and sternly warned us, saying, You shall not see my face again unless your brother is with you. 
 
 
 
@@ -133,7 +133,7 @@ But if you will not send him, we will not go down; for the man said to us, You s
 
 
 
-And Israel said, Why did you do me such a wrong _and_ suffer this evil to come upon me by telling the man that you had another brother? 
+And Israel said, Why did you do me such a wrong and suffer this evil to come upon me by telling the man that you had another brother? 
 
 
 
@@ -238,7 +238,7 @@ For if we had not lingered like this, surely by now we would have returned the s
 
 
 
-And their father Israel said to them, If it must be so, now do this; take of the choicest products in the land in your sacks and carry down a present to the man, a little balm (balsam) and a little honey, aromatic spices and gum (of rock rose) _or_ ladanum, pistachio nuts, and almonds. 
+And their father Israel said to them, If it must be so, now do this; take of the choicest products in the land in your sacks and carry down a present to the man, a little balm (balsam) and a little honey, aromatic spices and gum (of rock rose) or ladanum, pistachio nuts, and almonds. 
 
 
 
@@ -301,7 +301,7 @@ Take your brother and arise and return to the man;
 
 
 
-May God Almighty give you mercy _and_ favor before the man, that he may release to you your other brother and Benjamin. If I am bereaved [of my sons], I am bereaved. 
+May God Almighty give you mercy and favor before the man, that he may release to you your other brother and Benjamin. If I am bereaved [of my sons], I am bereaved. 
 
 
 

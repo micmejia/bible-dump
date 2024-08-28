@@ -24,7 +24,7 @@ He had a little book (scroll) open in his hand. He set his right foot on the sea
 ###### 3 
 
 
-And he shouted with a loud voice like the roaring of a lion; and when he had shouted, the seven thunders gave voice _and_ uttered their message in distinct words. 
+And he shouted with a loud voice like the roaring of a lion; and when he had shouted, the seven thunders gave voice and uttered their message in distinct words. 
 
 
 ###### 4 
@@ -42,7 +42,7 @@ Then the [mighty] angel whom I had seen stationed on sea and land raised his rig
 ###### 6 
 
 
-And swore in the name of (by) Him Who lives forever and ever, Who created the heavens (sky) and all they contain, and the earth and all that it contains, and the sea and all that it contains. [He swore] that no more time should intervene _and_ there should be no more waiting _or_ delay, 
+And swore in the name of (by) Him Who lives forever and ever, Who created the heavens (sky) and all they contain, and the earth and all that it contains, and the sea and all that it contains. [He swore] that no more time should intervene and there should be no more waiting or delay, 
 
 
 ###### 7 
@@ -66,10 +66,10 @@ So I went up to the angel and asked him to give me the little book. And he said 
 ###### 10 
 
 
-So I took the little book from the angel's hand and ate _and_ swallowed it; it was as sweet as honey in my mouth, but once I had swallowed it, my stomach was embittered. 
+So I took the little book from the angel's hand and ate and swallowed it; it was as sweet as honey in my mouth, but once I had swallowed it, my stomach was embittered. 
 
 
 ###### 11 
 
 
-Then they said to me, You are to make a fresh prophecy concerning many peoples _and_ races and nations and languages and kings.
+Then they said to me, You are to make a fresh prophecy concerning many peoples and races and nations and languages and kings.

@@ -28,7 +28,7 @@ next: ['Eccl 10']
 
 
 
-For all this I took to heart, exploring _and_ examining it all, how the righteous (the upright, in right standing with God) and the wise and their works are in the hands of God. Whether it is to be love or hatred no man knows; all that is before them. 
+For all this I took to heart, exploring and examining it all, how the righteous (the upright, in right standing with God) and the wise and their works are in the hands of God. Whether it is to be love or hatred no man knows; all that is before them. 
 
 
 
@@ -49,7 +49,7 @@ For all this I took to heart, exploring _and_ examining it all, how the righteou
 
 
 
-All things come alike to all. There is one event to the righteous and to the wicked, to the good and to the clean and to the unclean; to him who sacrifices and to him who does not sacrifice. As is the good man, so is the sinner; and he who swears is as he who fears _and_ shuns an oath. 
+All things come alike to all. There is one event to the righteous and to the wicked, to the good and to the clean and to the unclean; to him who sacrifices and to him who does not sacrifice. As is the good man, so is the sinner; and he who swears is as he who fears and shuns an oath. 
 
 
 
@@ -238,7 +238,7 @@ Whatever your hand finds to do, do it with all your might, for there is no work 
 
 
 
-I returned and saw under the sun that the race is not to the swift nor the battle to the strong, neither is bread to the wise nor riches to men of intelligence _and_ understanding nor favor to men of skill; but time and chance happen to them all. 
+I returned and saw under the sun that the race is not to the swift nor the battle to the strong, neither is bread to the wise nor riches to men of intelligence and understanding nor favor to men of skill; but time and chance happen to them all. 
 
 
 

@@ -36,10 +36,10 @@ as well as all the house of Joseph, his brothers, and his father's house. Only t
 And there went up with him both chariots and horsemen, and it was a very great gathering. 
 
 ###### 10 
-Then they came to the threshing floor of Atad, which _is_ beyond the Jordan, and they mourned there with a great and very solemn lamentation. He observed seven days of mourning for his father. 
+Then they came to the threshing floor of Atad, which is beyond the Jordan, and they mourned there with a great and very solemn lamentation. He observed seven days of mourning for his father. 
 
 ###### 11 
-And when the inhabitants of the land, the Canaanites, saw the mourning at the threshing floor of Atad, they said, "This _is_ a deep mourning of the Egyptians." Therefore its name was called Abel Mizraim, which _is_ beyond the Jordan. 
+And when the inhabitants of the land, the Canaanites, saw the mourning at the threshing floor of Atad, they said, "This is a deep mourning of the Egyptians." Therefore its name was called Abel Mizraim, which is beyond the Jordan. 
 
 ###### 12 
 So his sons did for him just as he had commanded them. 
@@ -56,19 +56,19 @@ And after he had buried his father, Joseph returned to Egypt, he and his brother
 When Joseph's brothers saw that their father was dead, they said, "Perhaps Joseph will hate us, and may actually repay us for all the evil which we did to him." 
 
 ###### 16 
-So they sent _messengers_ to Joseph, saying, "Before your father died he commanded, saying, 
+So they sent messengers to Joseph, saying, "Before your father died he commanded, saying, 
 
 ###### 17 
 'Thus you shall say to Joseph: "I beg you, please forgive the trespass of your brothers and their sin; for they did evil to you." ' Now, please, forgive the trespass of the servants of the God of your father." And Joseph wept when they spoke to him. 
 
 ###### 18 
-Then his brothers also went and fell down before his face, and they said, "Behold, we _are_ your servants." 
+Then his brothers also went and fell down before his face, and they said, "Behold, we are your servants." 
 
 ###### 19 
-Joseph said to them, "Do not be afraid, for _am_ I in the place of God? 
+Joseph said to them, "Do not be afraid, for am I in the place of God? 
 
 ###### 20 
-But as for you, you meant evil against me; _but_ God meant it for good, in order to bring it about as _it is_ this day, to save many people alive. 
+But as for you, you meant evil against me; but God meant it for good, in order to bring it about as it is this day, to save many people alive. 
 
 ###### 21 
 Now therefore, do not be afraid; I will provide for you and your little ones." And he comforted them and spoke kindly to them.
@@ -79,7 +79,7 @@ Now therefore, do not be afraid; I will provide for you and your little ones." A
 So Joseph dwelt in Egypt, he and his father's household. And Joseph lived one hundred and ten years. 
 
 ###### 23 
-Joseph saw Ephraim's children to the third _generation._ The children of Machir, the son of Manasseh, were also brought up on Joseph's knees. 
+Joseph saw Ephraim's children to the third generation. The children of Machir, the son of Manasseh, were also brought up on Joseph's knees. 
 
 ###### 24 
 And Joseph said to his brethren, "I am dying; but God will surely visit you, and bring you out of this land to the land of which He swore to Abraham, to Isaac, and to Jacob." 
@@ -88,4 +88,4 @@ And Joseph said to his brethren, "I am dying; but God will surely visit you, and
 Then Joseph took an oath from the children of Israel, saying, "God will surely visit you, and you shall carry up my bones from here." 
 
 ###### 26 
-So Joseph died, _being_ one hundred and ten years old; and they embalmed him, and he was put in a coffin in Egypt.
+So Joseph died, being one hundred and ten years old; and they embalmed him, and he was put in a coffin in Egypt.

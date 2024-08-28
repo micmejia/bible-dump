@@ -12,7 +12,7 @@ next: ['Rev 6']
 ###### 1 
 
 
-And I saw lying on the open hand of Him Who was seated on the throne a scroll (book) written within and on the back, closed _and_ sealed with seven seals; 
+And I saw lying on the open hand of Him Who was seated on the throne a scroll (book) written within and on the back, closed and sealed with seven seals; 
 
 
 ###### 2 
@@ -30,7 +30,7 @@ And no one in heaven or on earth or under the earth [in the realm of the dead, H
 ###### 4 
 
 
-And I wept audibly _and_ bitterly because no one was found fit to open the scroll or to inspect it. 
+And I wept audibly and bitterly because no one was found fit to open the scroll or to inspect it. 
 
 
 ###### 5 
@@ -90,4 +90,4 @@ And I heard every created thing in heaven and on earth and under the earth [in H
 ###### 14 
 
 
-Then the four living creatures (beings) said, Amen (so be it)! And the elders [of the heavenly Sanhedrin] prostrated themselves and worshiped _Him Who lives forever and ever_.
+Then the four living creatures (beings) said, Amen (so be it)! And the elders [of the heavenly Sanhedrin] prostrated themselves and worshiped Him Who lives forever and ever.

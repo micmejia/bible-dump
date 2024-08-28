@@ -25,7 +25,7 @@ Then Joshua called the twelve men whom he had appointed from the children of Isr
 and Joshua said to them: "Cross over before the ark of the Lord your God into the midst of the Jordan, and each one of you take up a stone on his shoulder, according to the number of the tribes of the children of Israel, 
 
 ###### 6 
-that this may be a sign among you when your children ask in time to come, saying, 'What do these stones _mean_ to you?' 
+that this may be a sign among you when your children ask in time to come, saying, 'What do these stones mean to you?' 
 
 ###### 7 
 Then you shall answer them that the waters of the Jordan were cut off before the ark of the covenant of the Lord; when it crossed over the Jordan, the waters of the Jordan were cut off. And these stones shall be for a memorial to the children of Israel forever." 
@@ -61,16 +61,16 @@ Then the Lord spoke to Joshua, saying,
 Joshua therefore commanded the priests, saying, "Come up from the Jordan." 
 
 ###### 18 
-And it came to pass, when the priests who bore the ark of the covenant of the Lord had come from the midst of the Jordan, _and_ the soles of the priests' feet touched the dry land, that the waters of the Jordan returned to their place and overflowed all its banks as before. 
+And it came to pass, when the priests who bore the ark of the covenant of the Lord had come from the midst of the Jordan, and the soles of the priests' feet touched the dry land, that the waters of the Jordan returned to their place and overflowed all its banks as before. 
 
 ###### 19 
-Now the people came up from the Jordan on the tenth _day_ of the first month, and they camped in Gilgal on the east border of Jericho. 
+Now the people came up from the Jordan on the tenth day of the first month, and they camped in Gilgal on the east border of Jericho. 
 
 ###### 20 
 And those twelve stones which they took out of the Jordan, Joshua set up in Gilgal. 
 
 ###### 21 
-Then he spoke to the children of Israel, saying: "When your children ask their fathers in time to come, saying, 'What _are_ these stones?' 
+Then he spoke to the children of Israel, saying: "When your children ask their fathers in time to come, saying, 'What are these stones?' 
 
 ###### 22 
 then you shall let your children know, saying, 'Israel crossed over this Jordan on dry land'; 
@@ -79,4 +79,4 @@ then you shall let your children know, saying, 'Israel crossed over this Jordan 
 for the Lord your God dried up the waters of the Jordan before you until you had crossed over, as the Lord your God did to the Red Sea, which He dried up before us until we had crossed over, 
 
 ###### 24 
-that all the peoples of the earth may know the hand of the Lord, that it _is_ mighty, that you may fear the Lord your God forever."
+that all the peoples of the earth may know the hand of the Lord, that it is mighty, that you may fear the Lord your God forever."

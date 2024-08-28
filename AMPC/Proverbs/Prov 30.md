@@ -49,7 +49,7 @@ The words of Agur son of Jakeh of Massa: The man says to Ithiel, to Ithiel and t
 
 
 
-Surely I am too brutish _and_ stupid to be called a man, and I have not the understanding of a man [for all my secular learning is as nothing]. 
+Surely I am too brutish and stupid to be called a man, and I have not the understanding of a man [for all my secular learning is as nothing]. 
 
 
 
@@ -70,7 +70,7 @@ Surely I am too brutish _and_ stupid to be called a man, and I have not the unde
 
 
 
-I have not learned skillful _and_ godly Wisdom, that I should have the knowledge _or_ burden of the Holy One. 
+I have not learned skillful and godly Wisdom, that I should have the knowledge or burden of the Holy One. 
 
 
 
@@ -112,7 +112,7 @@ Who has ascended into heaven and descended? Who has gathered the wind in His fis
 
 
 
-Every word of God is tried _and_ purified; He is a shield to those who trust _and_ take refuge in Him. 
+Every word of God is tried and purified; He is a shield to those who trust and take refuge in Him. 
 
 
 
@@ -217,7 +217,7 @@ Lest I be full and deny You and say, Who is the Lord? Or lest I be poor and stea
 
 
 
-Do not accuse _and_ hurt a servant before his master, lest he curse you, and you be held guilty [of adding to the burdens of the lowly]. 
+Do not accuse and hurt a servant before his master, lest he curse you, and you be held guilty [of adding to the burdens of the lowly]. 
 
 
 
@@ -490,7 +490,7 @@ Under a servant when he reigns, a [empty-headed] fool when he is filled with foo
 
 
 
-An unloved _and_ repugnant woman when she is married, and a maidservant when she supplants her mistress. 
+An unloved and repugnant woman when she is married, and a maidservant when she supplants her mistress. 
 
 
 

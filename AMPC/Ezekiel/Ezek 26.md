@@ -49,7 +49,7 @@ And in the eleventh year, on the first day of the month [after the carrying away
 
 
 
-Son of man, because Tyre has said against Jerusalem, Aha! She is broken that has been the gate of the people; she is open to me [Tyre]; I shall become full now that she is desolate _and_ a wasteland, 
+Son of man, because Tyre has said against Jerusalem, Aha! She is broken that has been the gate of the people; she is open to me [Tyre]; I shall become full now that she is desolate and a wasteland, 
 
 
 
@@ -112,7 +112,7 @@ And they shall destroy the walls of Tyre and break down her towers; I will also 
 
 
 
-Her island in the midst of the sea shall become a place for the spreading of nets, for I have spoken it, says the Lord God; and she shall become a prey _and_ a spoil to the nations. 
+Her island in the midst of the sea shall become a place for the spreading of nets, for I have spoken it, says the Lord God; and she shall become a prey and a spoil to the nations. 
 
 
 
@@ -175,7 +175,7 @@ For thus says the Lord God: Behold, I will bring from the north upon Tyre Nebuch
 
 
 
-He shall slay with the sword your daughters [the towns and villages] in the level area [on the mainland], and he shall make a fortified wall against you and cast up a siege mound against you and raise up a roof of bucklers _and_ shields as a defense against you. 
+He shall slay with the sword your daughters [the towns and villages] in the level area [on the mainland], and he shall make a fortified wall against you and cast up a siege mound against you and raise up a roof of bucklers and shields as a defense against you. 
 
 
 
@@ -238,7 +238,7 @@ Because of the great number of [Nebuchadrezzar's] horses, their dust will cover 
 
 
 
-With the hoofs of his horses [Nebuchadrezzar] will trample all your streets; he will slay your people with the sword and your strong pillars _or_ obelisks will fall to the ground. 
+With the hoofs of his horses [Nebuchadrezzar] will trample all your streets; he will slay your people with the sword and your strong pillars or obelisks will fall to the ground. 
 
 
 
@@ -322,7 +322,7 @@ And I will make you [Tyre] a bare rock; you shall be a place upon which to sprea
 
 
 
-Thus says the Lord God to Tyre: Shall not the isles _and_ coastlands shake at the sound of your fall when the wounded groan, when the slaughter is made in the midst of you? 
+Thus says the Lord God to Tyre: Shall not the isles and coastlands shake at the sound of your fall when the wounded groan, when the slaughter is made in the midst of you? 
 
 
 
@@ -343,7 +343,7 @@ Thus says the Lord God to Tyre: Shall not the isles _and_ coastlands shake at th
 
 
 
-Then all the princes of the sea shall come down from their thrones and lay aside their robes and strip off their embroidered garments; they shall clothe themselves with tremblings; they shall sit upon the ground and shall tremble every moment and be astonished at you _and_ appalled. 
+Then all the princes of the sea shall come down from their thrones and lay aside their robes and strip off their embroidered garments; they shall clothe themselves with tremblings; they shall sit upon the ground and shall tremble every moment and be astonished at you and appalled. 
 
 
 
@@ -364,7 +364,7 @@ Then all the princes of the sea shall come down from their thrones and lay aside
 
 
 
-They shall take up a lamentation over you and say to you, How you are destroyed _and_ vanished, O renowned city that was won from the seas _and_ inhabited by seafaring men, renowned city that was mighty on the sea, she and her inhabitants who caused their terror to fall upon all who dwell there! 
+They shall take up a lamentation over you and say to you, How you are destroyed and vanished, O renowned city that was won from the seas and inhabited by seafaring men, renowned city that was mighty on the sea, she and her inhabitants who caused their terror to fall upon all who dwell there! 
 
 
 
@@ -385,7 +385,7 @@ They shall take up a lamentation over you and say to you, How you are destroyed 
 
 
 
-Now the isles _and_ coastlands tremble in the day of your fall; yes, the isles that are in the sea are troubled _and_ dismayed at your departure. 
+Now the isles and coastlands tremble in the day of your fall; yes, the isles that are in the sea are troubled and dismayed at your departure. 
 
 
 
@@ -427,7 +427,7 @@ For thus says the Lord God: When I make you a desolate city like the cities that
 
 
 
-Then I will thrust you down with those who descend into the pit (the place of the dead) to the people of olden times, and I will make you [Tyre] to dwell in the lower world like the places that were desolate of old, with those who go down to the pit, that you be not inhabited or shed forth your glory _and_ renown in the land of the living. 
+Then I will thrust you down with those who descend into the pit (the place of the dead) to the people of olden times, and I will make you [Tyre] to dwell in the lower world like the places that were desolate of old, with those who go down to the pit, that you be not inhabited or shed forth your glory and renown in the land of the living. 
 
 
 

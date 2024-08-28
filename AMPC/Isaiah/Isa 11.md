@@ -28,7 +28,7 @@ next: ['Isa 12']
 
 
 
-And there shall come forth a Shoot out of the stock of Jesse [David's father], and a Branch out of his roots shall grow _and_ bear fruit. 
+And there shall come forth a Shoot out of the stock of Jesse [David's father], and a Branch out of his roots shall grow and bear fruit. 
 
 
 
@@ -49,7 +49,7 @@ And there shall come forth a Shoot out of the stock of Jesse [David's father], a
 
 
 
-And the Spirit of the Lord shall rest upon Him--the Spirit of wisdom and understanding, the Spirit of counsel and might, the Spirit of knowledge and of the reverential _and_ obedient fear of the Lord-- 
+And the Spirit of the Lord shall rest upon Him--the Spirit of wisdom and understanding, the Spirit of counsel and might, the Spirit of knowledge and of the reverential and obedient fear of the Lord-- 
 
 
 
@@ -70,7 +70,7 @@ And the Spirit of the Lord shall rest upon Him--the Spirit of wisdom and underst
 
 
 
-And shall make Him of quick understanding, _and_ His delight shall be in the reverential _and_ obedient fear of the Lord. And He shall not judge by the sight of His eyes, neither decide by the hearing of His ears; 
+And shall make Him of quick understanding, and His delight shall be in the reverential and obedient fear of the Lord. And He shall not judge by the sight of His eyes, neither decide by the hearing of His ears; 
 
 
 
@@ -91,7 +91,7 @@ And shall make Him of quick understanding, _and_ His delight shall be in the rev
 
 
 
-But with righteousness _and_ justice shall He judge the poor and decide with fairness for the meek, the poor, _and_ the downtrodden of the earth; and He shall smite the earth _and_ the oppressor with the rod of His mouth, and with the breath of His lips He shall slay the wicked. 
+But with righteousness and justice shall He judge the poor and decide with fairness for the meek, the poor, and the downtrodden of the earth; and He shall smite the earth and the oppressor with the rod of His mouth, and with the breath of His lips He shall slay the wicked. 
 
 
 
@@ -217,7 +217,7 @@ They shall not hurt or destroy in all My holy mountain, for the earth shall be f
 
 
 
-And it shall be in that day that the Root of Jesse shall stand as a signal for the peoples; of Him shall the nations inquire _and_ seek knowledge, and His dwelling shall be glory [His rest glorious]! 
+And it shall be in that day that the Root of Jesse shall stand as a signal for the peoples; of Him shall the nations inquire and seek knowledge, and His dwelling shall be glory [His rest glorious]! 
 
 
 
@@ -280,7 +280,7 @@ And He will raise up a signal for the nations and will assemble the outcasts of 
 
 
 
-The envy _and_ jealousy of Ephraim also shall depart, and they who vex _and_ harass Judah from outside _or_ inside shall be cut off; Ephraim shall not envy Judah, and Judah shall not vex _and_ harass Ephraim. 
+The envy and jealousy of Ephraim also shall depart, and they who vex and harass Judah from outside or inside shall be cut off; Ephraim shall not envy Judah, and Judah shall not vex and harass Ephraim. 
 
 
 

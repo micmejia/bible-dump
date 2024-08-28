@@ -49,7 +49,7 @@ Thus the Lord said to me: Go and buy yourself a linen girdle and put it on your 
 
 
 
-So I bought a girdle _or_ waistcloth, according to the word of the Lord, and put it on my loins. 
+So I bought a girdle or waistcloth, according to the word of the Lord, and put it on my loins. 
 
 
 
@@ -154,7 +154,7 @@ And after many days the Lord said to me, Arise, go to the Euphrates, and take fr
 
 
 
-Then I went to the Euphrates and dug and took the girdle _or_ waistcloth from the place where I had hidden it. And behold, the girdle was decayed _and_ spoiled; it was good for nothing. 
+Then I went to the Euphrates and dug and took the girdle or waistcloth from the place where I had hidden it. And behold, the girdle was decayed and spoiled; it was good for nothing. 
 
 
 
@@ -217,7 +217,7 @@ Thus says the Lord: After this manner will I mar the pride of Judah and the grea
 
 
 
-These evil people, who refuse to hear My words, who walk in the stubbornness of their hearts and have gone after other gods to serve them and to worship them, shall even be like this girdle _or_ waistcloth, which is profitable for nothing. 
+These evil people, who refuse to hear My words, who walk in the stubbornness of their hearts and have gone after other gods to serve them and to worship them, shall even be like this girdle or waistcloth, which is profitable for nothing. 
 
 
 
@@ -238,7 +238,7 @@ These evil people, who refuse to hear My words, who walk in the stubbornness of 
 
 
 
-For as the girdle clings to the loins of a man, so I caused the whole house of Israel and the whole house of Judah to cling to Me, says the Lord, that they might be for Me a people, a name, a praise, and a glory; but they would not listen _or_ obey. 
+For as the girdle clings to the loins of a man, so I caused the whole house of Israel and the whole house of Judah to cling to Me, says the Lord, that they might be for Me a people, a name, a praise, and a glory; but they would not listen or obey. 
 
 
 
@@ -259,7 +259,7 @@ For as the girdle clings to the loins of a man, so I caused the whole house of I
 
 
 
-Therefore you shall speak to them this word: Thus says the Lord, the God of Israel: Every bottle _and_ jar should be filled with wine. [The people] will say to you, Do we not certainly know that every bottle _and_ jar should be filled with wine? 
+Therefore you shall speak to them this word: Thus says the Lord, the God of Israel: Every bottle and jar should be filled with wine. [The people] will say to you, Do we not certainly know that every bottle and jar should be filled with wine? 
 
 
 
@@ -343,7 +343,7 @@ Hear and give ear, do not be proud, for the Lord has spoken [says Jeremiah].
 
 
 
-Give glory to the Lord your God before He brings darkness and before your feet stumble upon the dark _and_ twilit mountains, and [before], while you are looking for light, He turns it into the shadow of death and makes it thick darkness. 
+Give glory to the Lord your God before He brings darkness and before your feet stumble upon the dark and twilit mountains, and [before], while you are looking for light, He turns it into the shadow of death and makes it thick darkness. 
 
 
 
@@ -364,7 +364,7 @@ Give glory to the Lord your God before He brings darkness and before your feet s
 
 
 
-But if you will not hear _and_ obey, I will weep in secret for your pride; my eyes will weep bitterly and run down with tears, because the Lord's flock has been taken captive. 
+But if you will not hear and obey, I will weep in secret for your pride; my eyes will weep bitterly and run down with tears, because the Lord's flock has been taken captive. 
 
 
 
@@ -385,7 +385,7 @@ But if you will not hear _and_ obey, I will weep in secret for your pride; my ey
 
 
 
-Say to the king and the queen mother, Humble yourselves _and_ take a lowly seat, for down from your head has come your beautiful crown (the crown of your glory). 
+Say to the king and the queen mother, Humble yourselves and take a lowly seat, for down from your head has come your beautiful crown (the crown of your glory). 
 
 
 
@@ -406,7 +406,7 @@ Say to the king and the queen mother, Humble yourselves _and_ take a lowly seat,
 
 
 
-The cities of the South (the Negeb) have been shut up, and there is no one to open them; all Judah has been carried away captive, it has been wholly taken captive _and_ into exile. 
+The cities of the South (the Negeb) have been shut up, and there is no one to open them; all Judah has been carried away captive, it has been wholly taken captive and into exile. 
 
 
 
@@ -469,7 +469,7 @@ What will you say [O Jerusalem] when He [the Lord] sets over you as head those [
 
 
 
-And if you say in your heart, Why have these things come upon me?--[the answer is], Because of the greatness of your iniquity has your long robe been pulled aside [showing you in the garb of a menial] _and_ have you [barefooted and treated like a slave] suffered violence. 
+And if you say in your heart, Why have these things come upon me?--[the answer is], Because of the greatness of your iniquity has your long robe been pulled aside [showing you in the garb of a menial] and have you [barefooted and treated like a slave] suffered violence. 
 
 
 
@@ -490,7 +490,7 @@ And if you say in your heart, Why have these things come upon me?--[the answer i
 
 
 
-Can the Ethiopian change his skin or the leopard his spots? Then also can you do good who are accustomed _and_ taught [even trained] to do evil. 
+Can the Ethiopian change his skin or the leopard his spots? Then also can you do good who are accustomed and taught [even trained] to do evil. 
 
 
 

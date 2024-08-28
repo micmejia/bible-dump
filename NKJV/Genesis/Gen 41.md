@@ -16,7 +16,7 @@ Then it came to pass, at the end of two full years, that Pharaoh had a dream; an
 Suddenly there came up out of the river seven cows, fine looking and fat; and they fed in the meadow. 
 
 ###### 3 
-Then behold, seven other cows came up after them out of the river, ugly and gaunt, and stood by the _other_ cows on the bank of the river. 
+Then behold, seven other cows came up after them out of the river, ugly and gaunt, and stood by the other cows on the bank of the river. 
 
 ###### 4 
 And the ugly and gaunt cows ate up the seven fine looking and fat cows. So Pharaoh awoke. 
@@ -28,22 +28,22 @@ He slept and dreamed a second time; and suddenly seven heads of grain came up on
 Then behold, seven thin heads, blighted by the east wind, sprang up after them. 
 
 ###### 7 
-And the seven thin heads devoured the seven plump and full heads. So Pharaoh awoke, and indeed, _it was_ a dream. 
+And the seven thin heads devoured the seven plump and full heads. So Pharaoh awoke, and indeed, it was a dream. 
 
 ###### 8 
-Now it came to pass in the morning that his spirit was troubled, and he sent and called for all the magicians of Egypt and all its wise men. And Pharaoh told them his dreams, but _there was_ no one who could interpret them for Pharaoh. 
+Now it came to pass in the morning that his spirit was troubled, and he sent and called for all the magicians of Egypt and all its wise men. And Pharaoh told them his dreams, but there was no one who could interpret them for Pharaoh. 
 
 ###### 9 
 Then the chief butler spoke to Pharaoh, saying: "I remember my faults this day. 
 
 ###### 10 
-When Pharaoh was angry with his servants, and put me in custody in the house of the captain of the guard, _both_ me and the chief baker, 
+When Pharaoh was angry with his servants, and put me in custody in the house of the captain of the guard, both me and the chief baker, 
 
 ###### 11 
-we each had a dream in one night, he and I. Each of us dreamed according to the interpretation of his _own_ dream. 
+we each had a dream in one night, he and I. Each of us dreamed according to the interpretation of his own dream. 
 
 ###### 12 
-Now there _was_ a young Hebrew man with us there, a servant of the captain of the guard. And we told him, and he interpreted our dreams for us; to each man he interpreted according to his _own_ dream. 
+Now there was a young Hebrew man with us there, a servant of the captain of the guard. And we told him, and he interpreted our dreams for us; to each man he interpreted according to his own dream. 
 
 ###### 13 
 And it came to pass, just as he interpreted for us, so it happened. He restored me to my office, and he hanged him." 
@@ -52,10 +52,10 @@ And it came to pass, just as he interpreted for us, so it happened. He restored 
 Then Pharaoh sent and called Joseph, and they brought him quickly out of the dungeon; and he shaved, changed his clothing, and came to Pharaoh. 
 
 ###### 15 
-And Pharaoh said to Joseph, "I have had a dream, and _there is_ no one who can interpret it. But I have heard it said of you _that_ you can understand a dream, to interpret it." 
+And Pharaoh said to Joseph, "I have had a dream, and there is no one who can interpret it. But I have heard it said of you that you can understand a dream, to interpret it." 
 
 ###### 16 
-So Joseph answered Pharaoh, saying, "_It is_ not in me; God will give Pharaoh an answer of peace." 
+So Joseph answered Pharaoh, saying, "It is not in me; God will give Pharaoh an answer of peace." 
 
 ###### 17 
 Then Pharaoh said to Joseph: "Behold, in my dream I stood on the bank of the river. 
@@ -70,28 +70,28 @@ Then behold, seven other cows came up after them, poor and very ugly and gaunt, 
 And the gaunt and ugly cows ate up the first seven, the fat cows. 
 
 ###### 21 
-When they had eaten them up, no one would have known that they had eaten them, for they _were_ just as ugly as at the beginning. So I awoke. 
+When they had eaten them up, no one would have known that they had eaten them, for they were just as ugly as at the beginning. So I awoke. 
 
 ###### 22 
 Also I saw in my dream, and suddenly seven heads came up on one stalk, full and good. 
 
 ###### 23 
-Then behold, seven heads, withered, thin, _and_ blighted by the east wind, sprang up after them. 
+Then behold, seven heads, withered, thin, and blighted by the east wind, sprang up after them. 
 
 ###### 24 
-And the thin heads devoured the seven good heads. So I told _this_ to the magicians, but _there was_ no one who could explain _it_ to me." 
+And the thin heads devoured the seven good heads. So I told this to the magicians, but there was no one who could explain it to me." 
 
 ###### 25 
-Then Joseph said to Pharaoh, "The dreams of Pharaoh _are_ one; God has shown Pharaoh what He _is_ about to do: 
+Then Joseph said to Pharaoh, "The dreams of Pharaoh are one; God has shown Pharaoh what He is about to do: 
 
 ###### 26 
-The seven good cows _are_ seven years, and the seven good heads _are_ seven years; the dreams _are_ one. 
+The seven good cows are seven years, and the seven good heads are seven years; the dreams are one. 
 
 ###### 27 
-And the seven thin and ugly cows which came up after them _are_ seven years, and the seven empty heads blighted by the east wind are seven years of famine. 
+And the seven thin and ugly cows which came up after them are seven years, and the seven empty heads blighted by the east wind are seven years of famine. 
 
 ###### 28 
-This _is_ the thing which I have spoken to Pharaoh. God has shown Pharaoh what He _is_ about to do. 
+This is the thing which I have spoken to Pharaoh. God has shown Pharaoh what He is about to do. 
 
 ###### 29 
 Indeed seven years of great plenty will come throughout all the land of Egypt; 
@@ -100,16 +100,16 @@ Indeed seven years of great plenty will come throughout all the land of Egypt;
 but after them seven years of famine will arise, and all the plenty will be forgotten in the land of Egypt; and the famine will deplete the land. 
 
 ###### 31 
-So the plenty will not be known in the land because of the famine following, for it _will be_ very severe. 
+So the plenty will not be known in the land because of the famine following, for it will be very severe. 
 
 ###### 32 
-And the dream was repeated to Pharaoh twice because the thing _is_ established by God, and God will shortly bring it to pass. 
+And the dream was repeated to Pharaoh twice because the thing is established by God, and God will shortly bring it to pass. 
 
 ###### 33 
 "Now therefore, let Pharaoh select a discerning and wise man, and set him over the land of Egypt. 
 
 ###### 34 
-Let Pharaoh do _this,_ and let him appoint officers over the land, to collect one-fifth _of the produce_ of the land of Egypt in the seven plentiful years. 
+Let Pharaoh do this, and let him appoint officers over the land, to collect one-fifth of the produce of the land of Egypt in the seven plentiful years. 
 
 ###### 35 
 And let them gather all the food of those good years that are coming, and store up grain under the authority of Pharaoh, and let them keep food in the cities. 
@@ -123,10 +123,10 @@ Then that food shall be as a reserve for the land for the seven years of famine 
 So the advice was good in the eyes of Pharaoh and in the eyes of all his servants. 
 
 ###### 38 
-And Pharaoh said to his servants, "Can we find _such a one_ as this, a man in whom _is_ the Spirit of God?" 
+And Pharaoh said to his servants, "Can we find such a one as this, a man in whom is the Spirit of God?" 
 
 ###### 39 
-Then Pharaoh said to Joseph, "Inasmuch as God has shown you all this, _there is_ no one as discerning and wise as you. 
+Then Pharaoh said to Joseph, "Inasmuch as God has shown you all this, there is no one as discerning and wise as you. 
 
 ###### 40 
 You shall be over my house, and all my people shall be ruled according to your word; only in regard to the throne will I be greater than you." 
@@ -141,10 +141,10 @@ Then Pharaoh took his signet ring off his hand and put it on Joseph's hand; and 
 And he had him ride in the second chariot which he had; and they cried out before him, "Bow the knee!" So he set him over all the land of Egypt. 
 
 ###### 44 
-Pharaoh also said to Joseph, "I _am_ Pharaoh, and without your consent no man may lift his hand or foot in all the land of Egypt." 
+Pharaoh also said to Joseph, "I am Pharaoh, and without your consent no man may lift his hand or foot in all the land of Egypt." 
 
 ###### 45 
-And Pharaoh called Joseph's name Zaphnath-Paaneah. And he gave him as a wife Asenath, the daughter of Poti-Pherah priest of On. So Joseph went out over _all_ the land of Egypt. 
+And Pharaoh called Joseph's name Zaphnath-Paaneah. And he gave him as a wife Asenath, the daughter of Poti-Pherah priest of On. So Joseph went out over all the land of Egypt. 
 
 ###### 46 
 Joseph was thirty years old when he stood before Pharaoh king of Egypt. And Joseph went out from the presence of Pharaoh, and went throughout all the land of Egypt. 
@@ -156,7 +156,7 @@ Now in the seven plentiful years the ground brought forth abundantly.
 So he gathered up all the food of the seven years which were in the land of Egypt, and laid up the food in the cities; he laid up in every city the food of the fields which surrounded them. 
 
 ###### 49 
-Joseph gathered very much grain, as the sand of the sea, until he stopped counting, for _it was_ immeasurable. 
+Joseph gathered very much grain, as the sand of the sea, until he stopped counting, for it was immeasurable. 
 
 ###### 50 
 And to Joseph were born two sons before the years of famine came, whom Asenath, the daughter of Poti-Pherah priest of On, bore to him. 
@@ -180,4 +180,4 @@ So when all the land of Egypt was famished, the people cried to Pharaoh for brea
 The famine was over all the face of the earth, and Joseph opened all the storehouses and sold to the Egyptians. And the famine became severe in the land of Egypt. 
 
 ###### 57 
-So all countries came to Joseph in Egypt to buy _grain,_ because the famine was severe in all lands.
+So all countries came to Joseph in Egypt to buy grain, because the famine was severe in all lands.

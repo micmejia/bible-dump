@@ -91,7 +91,7 @@ Shall wood be taken from it to do any work? Or will men take a peg of it on whic
 
 
 
-Behold, it is cast into the fire for fuel; the fire consumes both ends of it and the middle of it is charred. Is it suitable _or_ profitable for any work? 
+Behold, it is cast into the fire for fuel; the fire consumes both ends of it and the middle of it is charred. Is it suitable or profitable for any work? 
 
 
 
@@ -112,7 +112,7 @@ Behold, it is cast into the fire for fuel; the fire consumes both ends of it and
 
 
 
-Notice, even when it was whole, it was good for no work; how much less shall it be useful _and_ profitable when the fire has devoured it and it is charred? 
+Notice, even when it was whole, it was good for no work; how much less shall it be useful and profitable when the fire has devoured it and it is charred? 
 
 
 

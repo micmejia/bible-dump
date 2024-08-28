@@ -174,7 +174,7 @@ That night God appeared to Solomon and said to him, Ask what I shall give you.
 
 
 
-And Solomon said to God, You have shown great mercy _and_ loving-kindness to David my father and have made me king in his place. 
+And Solomon said to God, You have shown great mercy and loving-kindness to David my father and have made me king in his place. 
 
 
 
@@ -237,7 +237,7 @@ Give me now wisdom and knowledge to go out and come in before this people, for w
 
 
 
-God replied to Solomon, Because this was in your heart and you have not asked for riches, possessions, honor, _and_ glory, or the life of your foes, or even for long life, but have asked wisdom and knowledge for yourself, that you may rule _and_ judge My people over whom I have made you king, 
+God replied to Solomon, Because this was in your heart and you have not asked for riches, possessions, honor, and glory, or the life of your foes, or even for long life, but have asked wisdom and knowledge for yourself, that you may rule and judge My people over whom I have made you king, 
 
 
 
@@ -258,7 +258,7 @@ God replied to Solomon, Because this was in your heart and you have not asked fo
 
 
 
-Wisdom and knowledge are granted you. And I will give you riches, possessions, honor, _and_ glory, such as none of the kings had before you, and none after you shall have their equal. 
+Wisdom and knowledge are granted you. And I will give you riches, possessions, honor, and glory, such as none of the kings had before you, and none after you shall have their equal. 
 
 
 

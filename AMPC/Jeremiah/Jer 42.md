@@ -217,7 +217,7 @@ And said to them, Thus says the Lord, the God of Israel, to Whom you sent me to 
 
 
 
-If you will remain in this land, then I will build you up and not pull you down, and I will plant you and not pull you up; for I will relent _and_ comfort _and_ ease Myself concerning the evil that [in chastisement] I have done to you [and I will substitute mercy and loving-kindness for judgment]. 
+If you will remain in this land, then I will build you up and not pull you down, and I will plant you and not pull you up; for I will relent and comfort and ease Myself concerning the evil that [in chastisement] I have done to you [and I will substitute mercy and loving-kindness for judgment]. 
 
 
 
@@ -343,7 +343,7 @@ Then hear the word of the Lord, O remnant of Judah. Thus says the Lord of hosts,
 
 
 
-Then the sword which you fear shall overtake you there in the land of Egypt, and the famine of which you are afraid shall follow close after you to Egypt _and_ in it, and there you shall die. 
+Then the sword which you fear shall overtake you there in the land of Egypt, and the famine of which you are afraid shall follow close after you to Egypt and in it, and there you shall die. 
 
 
 
@@ -385,7 +385,7 @@ So will it be with all the men who set their faces to go to Egypt to dwell there
 
 
 
-For thus says the Lord of hosts, the God of Israel: As My anger and My wrath have been poured forth upon the inhabitants of Jerusalem, so shall My wrath be poured forth upon you when you enter Egypt. You shall be a detested thing, an astonishment _and_ horror, a curse, a thing lightly esteemed _and_ a taunt _and_ a reproach; you shall see this place no more. 
+For thus says the Lord of hosts, the God of Israel: As My anger and My wrath have been poured forth upon the inhabitants of Jerusalem, so shall My wrath be poured forth upon you when you enter Egypt. You shall be a detested thing, an astonishment and horror, a curse, a thing lightly esteemed and a taunt and a reproach; you shall see this place no more. 
 
 
 
@@ -406,7 +406,7 @@ For thus says the Lord of hosts, the God of Israel: As My anger and My wrath hav
 
 
 
-The Lord has said to you, O remnant of Judah, Do not go to Egypt. Know for a certainty that I [Jeremiah] have warned _and_ testified to you this day 
+The Lord has said to you, O remnant of Judah, Do not go to Egypt. Know for a certainty that I [Jeremiah] have warned and testified to you this day 
 
 
 

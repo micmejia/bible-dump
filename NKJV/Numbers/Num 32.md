@@ -10,7 +10,7 @@ next: ['Num 33']
 
 
 ###### 1 
-Now the children of Reuben and the children of Gad had a very great multitude of livestock; and when they saw the land of Jazer and the land of Gilead, that indeed the region _was_ a place for livestock, 
+Now the children of Reuben and the children of Gad had a very great multitude of livestock; and when they saw the land of Jazer and the land of Gilead, that indeed the region was a place for livestock, 
 
 ###### 2 
 the children of Gad and the children of Reuben came and spoke to Moses, to Eleazar the priest, and to the leaders of the congregation, saying, 
@@ -19,7 +19,7 @@ the children of Gad and the children of Reuben came and spoke to Moses, to Eleaz
 "Ataroth, Dibon, Jazer, Nimrah, Heshbon, Elealeh, Shebam, Nebo, and Beon, 
 
 ###### 4 
-the country which the Lord defeated before the congregation of Israel, _is_ a land for livestock, and your servants have livestock." 
+the country which the Lord defeated before the congregation of Israel, is a land for livestock, and your servants have livestock." 
 
 ###### 5 
 Therefore they said, "If we have found favor in your sight, let this land be given to your servants as a possession. Do not take us over the Jordan." 
@@ -58,7 +58,7 @@ For if you turn away from following Him, He will once again leave them in the wi
 Then they came near to him and said: "We will build sheepfolds here for our livestock, and cities for our little ones, 
 
 ###### 17 
-but we ourselves will be armed, ready _to go_ before the children of Israel until we have brought them to their place; and our little ones will dwell in the fortified cities because of the inhabitants of the land. 
+but we ourselves will be armed, ready to go before the children of Israel until we have brought them to their place; and our little ones will dwell in the fortified cities because of the inhabitants of the land. 
 
 ###### 18 
 We will not return to our homes until every one of the children of Israel has received his inheritance. 
@@ -103,7 +103,7 @@ But if they do not cross over armed with you, they shall have possessions among 
 Then the children of Gad and the children of Reuben answered, saying: "As the Lord has said to your servants, so we will do. 
 
 ###### 32 
-We will cross over armed before the Lord into the land of Canaan, but the possession of our inheritance _shall remain_ with us on this side of the Jordan." 
+We will cross over armed before the Lord into the land of Canaan, but the possession of our inheritance shall remain with us on this side of the Jordan." 
 
 ###### 33 
 So Moses gave to the children of Gad, to the children of Reuben, and to half the tribe of Manasseh the son of Joseph, the kingdom of Sihon king of the Amorites and the kingdom of Og king of Bashan, the land with its cities within the borders, the cities of the surrounding country. 
@@ -121,10 +121,10 @@ Beth Nimrah and Beth Haran, fortified cities, and folds for sheep.
 And the children of Reuben built Heshbon and Elealeh and Kirjathaim, 
 
 ###### 38 
-Nebo and Baal Meon (_their_ names being changed) and Shibmah; and they gave _other_ names to the cities which they built. 
+Nebo and Baal Meon (their names being changed) and Shibmah; and they gave other names to the cities which they built. 
 
 ###### 39 
-And the children of Machir the son of Manasseh went to Gilead and took it, and dispossessed the Amorites who _were_ in it. 
+And the children of Machir the son of Manasseh went to Gilead and took it, and dispossessed the Amorites who were in it. 
 
 ###### 40 
 So Moses gave Gilead to Machir the son of Manasseh, and he dwelt in it. 

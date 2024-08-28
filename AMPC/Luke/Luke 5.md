@@ -238,7 +238,7 @@ And so also were James and John, the sons of Zebedee, who were partners with Sim
 
 
 
-And after they had run their boats on shore, they left everything and  joined Him as His disciples _and_ sided with His party _and_ accompanied Him. 
+And after they had run their boats on shore, they left everything and  joined Him as His disciples and sided with His party and accompanied Him. 
 
 
 
@@ -259,7 +259,7 @@ And after they had run their boats on shore, they left everything and  joined Hi
 
 
 
-While He was in one of the towns, there came a man full of (covered with) leprosy; and when he saw Jesus, he fell on his face and implored Him, saying, Lord, if You are willing, You are able to cure me _and_ make me clean. 
+While He was in one of the towns, there came a man full of (covered with) leprosy; and when he saw Jesus, he fell on his face and implored Him, saying, Lord, if You are willing, You are able to cure me and make me clean. 
 
 
 
@@ -301,7 +301,7 @@ And [Jesus] reached out His hand and touched him, saying, I am willing; be clean
 
 
 
-And [Jesus] charged him to tell no one [that he might chance to meet], until [He said] you go and show yourself to the priest, and make an offering for your purification, as Moses commanded, for a testimony _and_ proof to the people, that they may have evidence [of your healing]. 
+And [Jesus] charged him to tell no one [that he might chance to meet], until [He said] you go and show yourself to the priest, and make an offering for your purification, as Moses commanded, for a testimony and proof to the people, that they may have evidence [of your healing]. 
 
 
 
@@ -364,7 +364,7 @@ But He Himself withdrew [in retirement] to the wilderness (desert) and prayed.
 
 
 
-One of those days, as He was teaching, there were Pharisees and teachers of the Law sitting by, who had come from every village _and_ town of Galilee and Judea and from Jerusalem. And the power of the Lord was [present] with Him to heal _them_. 
+One of those days, as He was teaching, there were Pharisees and teachers of the Law sitting by, who had come from every village and town of Galilee and Judea and from Jerusalem. And the power of the Lord was [present] with Him to heal them. 
 
 
 
@@ -448,7 +448,7 @@ And when He saw [their confidence in Him, springing from] their faith, He said, 
 
 
 
-And the scribes and the Pharisees began to reason _and_ question _and_ argue, saying, Who is this [Man] Who speaks blasphemies? Who can forgive sins but God alone? 
+And the scribes and the Pharisees began to reason and question and argue, saying, Who is this [Man] Who speaks blasphemies? Who can forgive sins but God alone? 
 
 
 
@@ -469,7 +469,7 @@ And the scribes and the Pharisees began to reason _and_ question _and_ argue, sa
 
 
 
-But Jesus, knowing their thoughts _and_ questionings, answered them, Why do you question in your hearts? 
+But Jesus, knowing their thoughts and questionings, answered them, Why do you question in your hearts? 
 
 
 
@@ -511,7 +511,7 @@ Which is easier: to say, Your sins are forgiven you, or to say, Arise and walk [
 
 
 
-But that you may know that the Son of Man has the [power of] authority _and_ right on earth to forgive sins, He said to the paralyzed man, I say to you, arise, pick up your litter (stretcher), and go to your own house! 
+But that you may know that the Son of Man has the [power of] authority and right on earth to forgive sins, He said to the paralyzed man, I say to you, arise, pick up your litter (stretcher), and go to your own house! 
 
 
 
@@ -532,7 +532,7 @@ But that you may know that the Son of Man has the [power of] authority _and_ rig
 
 
 
-And instantly [the man] stood up before them and picked up what he had been lying on and went away to his house, recognizing _and_ praising _and_ thanking God. 
+And instantly [the man] stood up before them and picked up what he had been lying on and went away to his house, recognizing and praising and thanking God. 
 
 
 
@@ -553,7 +553,7 @@ And instantly [the man] stood up before them and picked up what he had been lyin
 
 
 
-And overwhelming astonishment _and_ ecstasy seized them all, and they recognized _and_ praised _and_ thanked God; and they were filled with _and_ controlled by reverential fear and kept saying, We have seen wonderful _and_ strange _and_ incredible _and_ unthinkable things today! 
+And overwhelming astonishment and ecstasy seized them all, and they recognized and praised and thanked God; and they were filled with and controlled by reverential fear and kept saying, We have seen wonderful and strange and incredible and unthinkable things today! 
 
 
 
@@ -574,7 +574,7 @@ And overwhelming astonishment _and_ ecstasy seized them all, and they recognized
 
 
 
-And after this, Jesus went out and looked [attentively] at a tax collector named Levi sitting at the tax office; and He said to him, Join Me as a disciple _and_ side with My party _and_ accompany Me. 
+And after this, Jesus went out and looked [attentively] at a tax collector named Levi sitting at the tax office; and He said to him, Join Me as a disciple and side with My party and accompany Me. 
 
 
 
@@ -679,7 +679,7 @@ And Jesus replied to them, It is not those who are healthy who need a physician,
 
 
 
-I have not come to arouse _and_ invite _and_ call the righteous, but the erring ones (those not free from sin) to repentance [to change their minds for the better and heartily to amend their ways, with abhorrence of their past sins]. 
+I have not come to arouse and invite and call the righteous, but the erring ones (those not free from sin) to repentance [to change their minds for the better and heartily to amend their ways, with abhorrence of their past sins]. 
 
 
 
@@ -826,4 +826,4 @@ But new wine must be put into fresh wineskins.
 
 
 
-And no one after drinking old wine immediately desires new wine, for he says, The old is good _or_ _better_.
+And no one after drinking old wine immediately desires new wine, for he says, The old is good or better.

@@ -25,16 +25,16 @@ So they said to one another, "Let us select a leader and return to Egypt."
 Then Moses and Aaron fell on their faces before all the assembly of the congregation of the children of Israel. 
 
 ###### 6 
-But Joshua the son of Nun and Caleb the son of Jephunneh, _who were_ among those who had spied out the land, tore their clothes; 
+But Joshua the son of Nun and Caleb the son of Jephunneh, who were among those who had spied out the land, tore their clothes; 
 
 ###### 7 
-and they spoke to all the congregation of the children of Israel, saying: "The land we passed through to spy out _is_ an exceedingly good land. 
+and they spoke to all the congregation of the children of Israel, saying: "The land we passed through to spy out is an exceedingly good land. 
 
 ###### 8 
 If the Lord delights in us, then He will bring us into this land and give it to us, 'a land which flows with milk and honey.' 
 
 ###### 9 
-Only do not rebel against the Lord, nor fear the people of the land, for they _are_ our bread; their protection has departed from them, and the Lord _is_ with us. Do not fear them." 
+Only do not rebel against the Lord, nor fear the people of the land, for they are our bread; their protection has departed from them, and the Lord is with us. Do not fear them." 
 
 ###### 10 
 And all the congregation said to stone them with stones. Now the glory of the Lord appeared in the tabernacle of meeting before all the children of Israel.
@@ -48,13 +48,13 @@ Then the Lord said to Moses: "How long will these people reject Me? And how long
 I will strike them with the pestilence and disinherit them, and I will make of you a nation greater and mightier than they." 
 
 ###### 13 
-And Moses said to the Lord: "Then the Egyptians will hear _it,_ for by Your might You brought these people up from among them, 
+And Moses said to the Lord: "Then the Egyptians will hear it, for by Your might You brought these people up from among them, 
 
 ###### 14 
-and they will tell _it_ to the inhabitants of this land. They have heard that You, Lord, _are_ among these people; that You, Lord, are seen face to face and Your cloud stands above them, and You go before them in a pillar of cloud by day and in a pillar of fire by night. 
+and they will tell it to the inhabitants of this land. They have heard that You, Lord, are among these people; that You, Lord, are seen face to face and Your cloud stands above them, and You go before them in a pillar of cloud by day and in a pillar of fire by night. 
 
 ###### 15 
-Now _if_ You kill these people as one man, then the nations which have heard of Your fame will speak, saying, 
+Now if You kill these people as one man, then the nations which have heard of Your fame will speak, saying, 
 
 ###### 16 
 'Because the Lord was not able to bring this people to the land which He swore to give them, therefore He killed them in the wilderness.' 
@@ -63,7 +63,7 @@ Now _if_ You kill these people as one man, then the nations which have heard of 
 And now, I pray, let the power of my Lord be great, just as You have spoken, saying, 
 
 ###### 18 
-'The Lord is longsuffering and abundant in mercy, forgiving iniquity and transgression; but He by no means clears _the guilty,_ visiting the iniquity of the fathers on the children to the third and fourth _generation._' 
+'The Lord is longsuffering and abundant in mercy, forgiving iniquity and transgression; but He by no means clears the guilty, visiting the iniquity of the fathers on the children to the third and fourth generation.' 
 
 ###### 19 
 Pardon the iniquity of this people, I pray, according to the greatness of Your mercy, just as You have forgiven this people, from Egypt even until now." 
@@ -92,7 +92,7 @@ Now the Amalekites and the Canaanites dwell in the valley; tomorrow turn and mov
 And the Lord spoke to Moses and Aaron, saying, 
 
 ###### 27 
-"How long _shall I bear with_ this evil congregation who complain against Me? I have heard the complaints which the children of Israel make against Me. 
+"How long shall I bear with this evil congregation who complain against Me? I have heard the complaints which the children of Israel make against Me. 
 
 ###### 28 
 Say to them, 'As I live,' says the Lord, 'just as you have spoken in My hearing, so I will do to you: 
@@ -107,13 +107,13 @@ Except for Caleb the son of Jephunneh and Joshua the son of Nun, you shall by no
 But your little ones, whom you said would be victims, I will bring in, and they shall know the land which you have despised. 
 
 ###### 32 
-But _as for_ you, your carcasses shall fall in this wilderness. 
+But as for you, your carcasses shall fall in this wilderness. 
 
 ###### 33 
 And your sons shall be shepherds in the wilderness forty years, and bear the brunt of your infidelity, until your carcasses are consumed in the wilderness. 
 
 ###### 34 
-According to the number of the days in which you spied out the land, forty days, for each day you shall bear your guilt one year, _namely_ forty years, and you shall know My rejection. 
+According to the number of the days in which you spied out the land, forty days, for each day you shall bear your guilt one year, namely forty years, and you shall know My rejection. 
 
 ###### 35 
 I the Lord have spoken this. I will surely do so to all this evil congregation who are gathered together against Me. In this wilderness they shall be consumed, and there they shall die.' " 
@@ -139,10 +139,10 @@ And they rose early in the morning and went up to the top of the mountain, sayin
 And Moses said, "Now why do you transgress the command of the Lord? For this will not succeed. 
 
 ###### 42 
-Do not go up, lest you be defeated by your enemies, for the Lord _is_ not among you. 
+Do not go up, lest you be defeated by your enemies, for the Lord is not among you. 
 
 ###### 43 
-For the Amalekites and the Canaanites _are_ there before you, and you shall fall by the sword; because you have turned away from the Lord, the Lord will not be with you." 
+For the Amalekites and the Canaanites are there before you, and you shall fall by the sword; because you have turned away from the Lord, the Lord will not be with you." 
 
 ###### 44 
 But they presumed to go up to the mountaintop. Nevertheless, neither the ark of the covenant of the Lord nor Moses departed from the camp. 

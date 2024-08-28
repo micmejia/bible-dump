@@ -28,7 +28,7 @@ next: ['Amos 3']
 
 
 
-Thus says the Lord: For three transgressions of Moab [descendants of Lot] and for four [for multiplied delinquencies], I will not reverse the punishment of it _or_ revoke My word concerning it, because he burned the bones of the king of Edom [Esau's descendant] into lime. 
+Thus says the Lord: For three transgressions of Moab [descendants of Lot] and for four [for multiplied delinquencies], I will not reverse the punishment of it or revoke My word concerning it, because he burned the bones of the king of Edom [Esau's descendant] into lime. 
 
 
 
@@ -91,7 +91,7 @@ And I will cut off the ruler from its midst and will slay all its princes with h
 
 
 
-Thus says the Lord: For three transgressions of Judah and for four [for multiplied delinquencies], I will not reverse the punishment of it _or_ revoke My word concerning it, because they have despised _and_ rejected the law of the Lord and have not kept His commandments, but their lies, after which their fathers have walked, caused them to err _and_ go astray. 
+Thus says the Lord: For three transgressions of Judah and for four [for multiplied delinquencies], I will not reverse the punishment of it or revoke My word concerning it, because they have despised and rejected the law of the Lord and have not kept His commandments, but their lies, after which their fathers have walked, caused them to err and go astray. 
 
 
 
@@ -133,7 +133,7 @@ So I will send a fire upon Judah and it shall devour the strongholds of Jerusale
 
 
 
-Thus says the Lord: For three transgressions of Israel and for four [for multiplied delinquencies], I will not reverse the punishment of it _or_ revoke My word concerning it, because they have sold the [strictly] just _and_ uncompromisingly righteous for silver and the needy for a pair of sandals; 
+Thus says the Lord: For three transgressions of Israel and for four [for multiplied delinquencies], I will not reverse the punishment of it or revoke My word concerning it, because they have sold the [strictly] just and uncompromisingly righteous for silver and the needy for a pair of sandals; 
 
 
 
@@ -154,7 +154,7 @@ Thus says the Lord: For three transgressions of Israel and for four [for multipl
 
 
 
-They pant after [the sight of] the poor [reduced to such misery that they will be throwing] dust of the earth on their heads [in token of their grief]; they defraud _and_ turn aside the humble [who are too meek to defend themselves]; and a man and his father will have sexual relations with the same maiden, so that My holy name is profaned. 
+They pant after [the sight of] the poor [reduced to such misery that they will be throwing] dust of the earth on their heads [in token of their grief]; they defraud and turn aside the humble [who are too meek to defend themselves]; and a man and his father will have sexual relations with the same maiden, so that My holy name is profaned. 
 
 
 
@@ -280,7 +280,7 @@ But you gave the dedicated ones [the Nazirites] wine to drink and commanded the 
 
 
 
-Behold, I am pressed under you _and_ I will press you down in your place as a cart presses that is full of sheaves. 
+Behold, I am pressed under you and I will press you down in your place as a cart presses that is full of sheaves. 
 
 
 
@@ -301,7 +301,7 @@ Behold, I am pressed under you _and_ I will press you down in your place as a ca
 
 
 
-And flight shall be lost to the swift _and_ refuge shall fail him; the strong shall not retain _and_ confirm his strength, neither shall the mighty deliver himself. 
+And flight shall be lost to the swift and refuge shall fail him; the strong shall not retain and confirm his strength, neither shall the mighty deliver himself. 
 
 
 

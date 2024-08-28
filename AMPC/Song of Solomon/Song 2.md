@@ -28,7 +28,7 @@ next: ['Song 3']
 
 
 
-[She said] I am only a little rose _or_ autumn crocus of the plain of Sharon, or a [humble] lily of the valleys [that grows in deep and difficult places]. 
+[She said] I am only a little rose or autumn crocus of the plain of Sharon, or a [humble] lily of the valleys [that grows in deep and difficult places]. 
 
 
 
@@ -280,7 +280,7 @@ The flowers appear on the earth; the time of the singing [of birds] has come, an
 
 
 
-The fig tree puts forth _and_ ripens her green figs, and the vines are in blossom and give forth their fragrance. Arise, my love, my fair one, and come away. 
+The fig tree puts forth and ripens her green figs, and the vines are in blossom and give forth their fragrance. Arise, my love, my fair one, and come away. 
 
 
 
@@ -301,7 +301,7 @@ The fig tree puts forth _and_ ripens her green figs, and the vines are in blosso
 
 
 
-[So I went with him, and when we were climbing the rocky steps up the hillside, my beloved shepherd said to me] O my dove, [while you are here] in the seclusion of the clefts in the solid rock, in the sheltered _and_ secret place of the cliff, let me see your face, let me hear your voice; for your voice is sweet, and your face is lovely. 
+[So I went with him, and when we were climbing the rocky steps up the hillside, my beloved shepherd said to me] O my dove, [while you are here] in the seclusion of the clefts in the solid rock, in the sheltered and secret place of the cliff, let me see your face, let me hear your voice; for your voice is sweet, and your face is lovely. 
 
 
 

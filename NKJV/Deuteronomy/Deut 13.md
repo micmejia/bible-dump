@@ -22,13 +22,13 @@ you shall not listen to the words of that prophet or that dreamer of dreams, for
 You shall walk after the Lord your God and fear Him, and keep His commandments and obey His voice; you shall serve Him and hold fast to Him. 
 
 ###### 5 
-But that prophet or that dreamer of dreams shall be put to death, because he has spoken in order to turn _you_ away from the Lord your God, who brought you out of the land of Egypt and redeemed you from the house of bondage, to entice you from the way in which the Lord your God commanded you to walk. So you shall put away the evil from your midst. 
+But that prophet or that dreamer of dreams shall be put to death, because he has spoken in order to turn you away from the Lord your God, who brought you out of the land of Egypt and redeemed you from the house of bondage, to entice you from the way in which the Lord your God commanded you to walk. So you shall put away the evil from your midst. 
 
 ###### 6 
 "If your brother, the son of your mother, your son or your daughter, the wife of your bosom, or your friend who is as your own soul, secretly entices you, saying, 'Let us go and serve other gods,' which you have not known, neither you nor your fathers, 
 
 ###### 7 
-of the gods of the people which _are_ all around you, near to you or far off from you, from _one_ end of the earth to the _other_ end of the earth, 
+of the gods of the people which are all around you, near to you or far off from you, from one end of the earth to the other end of the earth, 
 
 ###### 8 
 you shall not consent to him or listen to him, nor shall your eye pity him, nor shall you spare him or conceal him; 
@@ -49,7 +49,7 @@ So all Israel shall hear and fear, and not again do such wickedness as this amon
 'Corrupt men have gone out from among you and enticed the inhabitants of their city, saying, "Let us go and serve other gods" '--which you have not known-- 
 
 ###### 14 
-then you shall inquire, search out, and ask diligently. And _if it is_ indeed true _and_ certain _that_ such an abomination was committed among you, 
+then you shall inquire, search out, and ask diligently. And if it is indeed true and certain that such an abomination was committed among you, 
 
 ###### 15 
 you shall surely strike the inhabitants of that city with the edge of the sword, utterly destroying it, all that is in it and its livestock--with the edge of the sword. 
@@ -61,4 +61,4 @@ And you shall gather all its plunder into the middle of the street, and complete
 So none of the accursed things shall remain in your hand, that the Lord may turn from the fierceness of His anger and show you mercy, have compassion on you and multiply you, just as He swore to your fathers, 
 
 ###### 18 
-because you have listened to the voice of the Lord your God, to keep all His commandments which I command you today, to do _what is_ right in the eyes of the Lord your God.
+because you have listened to the voice of the Lord your God, to keep all His commandments which I command you today, to do what is right in the eyes of the Lord your God.

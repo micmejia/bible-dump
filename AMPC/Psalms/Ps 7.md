@@ -28,7 +28,7 @@ next: ['Ps 8']
 
 
 
-O Lord my God, in You I take refuge _and_ put my trust; save me from all those who pursue _and_ persecute me, and deliver me, 
+O Lord my God, in You I take refuge and put my trust; save me from all those who pursue and persecute me, and deliver me, 
 
 
 
@@ -49,7 +49,7 @@ O Lord my God, in You I take refuge _and_ put my trust; save me from all those w
 
 
 
-Lest my foe tear my life [from my body] like a lion, dragging _me_ away while there is none to deliver. 
+Lest my foe tear my life [from my body] like a lion, dragging me away while there is none to deliver. 
 
 
 
@@ -133,7 +133,7 @@ Let the enemy pursue my life and take it; yes, let him trample my life to the gr
 
 
 
-Arise, O Lord, in Your anger; lift up Yourself against the rage of my enemies; and awake [and stir up] for me the justice _and_ vindication [that] You have commanded. 
+Arise, O Lord, in Your anger; lift up Yourself against the rage of my enemies; and awake [and stir up] for me the justice and vindication [that] You have commanded. 
 
 
 
@@ -175,7 +175,7 @@ Let the assembly of the peoples be gathered about You, and return on high over t
 
 
 
-The Lord judges the people; judge me, O Lord, _and_ do me justice according to my righteousness [my rightness, justice, and right standing with You] and according to the integrity that is in me. 
+The Lord judges the people; judge me, O Lord, and do me justice according to my righteousness [my rightness, justice, and right standing with You] and according to the integrity that is in me. 
 
 
 
@@ -196,7 +196,7 @@ The Lord judges the people; judge me, O Lord, _and_ do me justice according to m
 
 
 
-Oh, let the wickedness of the wicked come to an end, but establish the [uncompromisingly] righteous [those upright and in harmony with You]; for You, Who try the hearts and emotions _and_ thinking powers, are a righteous God. 
+Oh, let the wickedness of the wicked come to an end, but establish the [uncompromisingly] righteous [those upright and in harmony with You]; for You, Who try the hearts and emotions and thinking powers, are a righteous God. 
 
 
 
@@ -217,7 +217,7 @@ Oh, let the wickedness of the wicked come to an end, but establish the [uncompro
 
 
 
-My defense _and_ shield depend on God, Who saves the upright in heart. 
+My defense and shield depend on God, Who saves the upright in heart. 
 
 
 
@@ -259,7 +259,7 @@ God is a righteous Judge, yes, a God Who is indignant every day.
 
 
 
-If a man does not turn _and_ repent, [God] will whet His sword; He has strung _and_ bent His [huge] bow and made it ready [by treading it with His foot]. 
+If a man does not turn and repent, [God] will whet His sword; He has strung and bent His [huge] bow and made it ready [by treading it with His foot]. 
 
 
 
@@ -364,4 +364,4 @@ His mischief shall fall back in return upon his own head, and his violence come 
 
 
 
-I will give to the Lord the thanks due to His rightness _and_ justice, and I will sing praise to the name of the Lord Most High.
+I will give to the Lord the thanks due to His rightness and justice, and I will sing praise to the name of the Lord Most High.

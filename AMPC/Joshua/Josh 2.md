@@ -238,7 +238,7 @@ For we have heard how the Lord dried up the water of the Red Sea for you when yo
 
 
 
-When we heard it, our hearts melted, neither did spirit _or_ courage remain any more in any man because of you, for the Lord your God, He is God in heaven above and on earth beneath. 
+When we heard it, our hearts melted, neither did spirit or courage remain any more in any man because of you, for the Lord your God, He is God in heaven above and on earth beneath. 
 
 
 

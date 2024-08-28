@@ -28,7 +28,7 @@ next: ['Luke 11']
 
 
 
-Now after this the Lord chose _and_ appointed seventy others and sent them out ahead of Him, two by two, into every town and place where He Himself was about to come (visit). 
+Now after this the Lord chose and appointed seventy others and sent them out ahead of Him, two by two, into every town and place where He Himself was about to come (visit). 
 
 
 
@@ -91,7 +91,7 @@ Go your way; behold, I send you out like lambs into the midst of wolves.
 
 
 
-Carry no purse, no provisions bag, no [change of] sandals; refrain from [retarding your journey by] saluting _and_ wishing anyone well along the way. 
+Carry no purse, no provisions bag, no [change of] sandals; refrain from [retarding your journey by] saluting and wishing anyone well along the way. 
 
 
 
@@ -133,7 +133,7 @@ Whatever house you enter, first say, Peace be to this household! [Freedom from a
 
 
 
-And if anyone [worthy] of peace _and_ blessedness is there, the peace _and_ blessedness you wish shall come upon him; but if not, it shall come back to you. 
+And if anyone [worthy] of peace and blessedness is there, the peace and blessedness you wish shall come upon him; but if not, it shall come back to you. 
 
 
 
@@ -175,7 +175,7 @@ And stay on in the same house, eating and drinking what they provide, for the la
 
 
 
-Whenever you go into a town and they receive _and_ accept _and_ welcome you, eat what is set before you; 
+Whenever you go into a town and they receive and accept and welcome you, eat what is set before you; 
 
 
 
@@ -217,7 +217,7 @@ And heal the sick in it and say to them, The kingdom of God has come close to yo
 
 
 
-But whenever you go into a town and they do not receive _and_ accept _and_ welcome you, go out into its streets and say, 
+But whenever you go into a town and they do not receive and accept and welcome you, go out into its streets and say, 
 
 
 
@@ -238,7 +238,7 @@ But whenever you go into a town and they do not receive _and_ accept _and_ welco
 
 
 
-Even the dust of your town that clings to our feet we are wiping off against you; yet know _and_ understand this: the kingdom of God has come near _you_. 
+Even the dust of your town that clings to our feet we are wiping off against you; yet know and understand this: the kingdom of God has come near you. 
 
 
 
@@ -343,7 +343,7 @@ And you, Capernaum, will you be exalted unto heaven? You shall be brought down t
 
 
 
-He who hears _and_ heeds you [disciples] hears _and_ heeds Me; and he who slights _and_ rejects you slights _and_ rejects Me; and he who slights _and_ rejects Me slights _and_ rejects Him who sent Me. 
+He who hears and heeds you [disciples] hears and heeds Me; and he who slights and rejects you slights and rejects Me; and he who slights and rejects Me slights and rejects Him who sent Me. 
 
 
 
@@ -406,7 +406,7 @@ And He said to them, I saw Satan falling like a lightning [flash] from heaven.
 
 
 
-Behold! I have given you authority _and_ power to trample upon serpents and scorpions, and [physical and mental strength and ability] over all the power that the enemy [possesses]; and nothing shall in any way harm you. 
+Behold! I have given you authority and power to trample upon serpents and scorpions, and [physical and mental strength and ability] over all the power that the enemy [possesses]; and nothing shall in any way harm you. 
 
 
 
@@ -448,7 +448,7 @@ Nevertheless, do not rejoice at this, that the spirits are subject to you, but r
 
 
 
-In that same hour He rejoiced _and_ gloried in the Holy Spirit and said, I thank You, Father, Lord of heaven and earth, that You have concealed these things [relating to salvation] from the wise and understanding _and_ learned, and revealed them to babes (the childish, unskilled, and untaught). Yes, Father, for such was Your gracious will _and_ choice _and_ good pleasure. 
+In that same hour He rejoiced and gloried in the Holy Spirit and said, I thank You, Father, Lord of heaven and earth, that You have concealed these things [relating to salvation] from the wise and understanding and learned, and revealed them to babes (the childish, unskilled, and untaught). Yes, Father, for such was Your gracious will and choice and good pleasure. 
 
 
 
@@ -469,7 +469,7 @@ In that same hour He rejoiced _and_ gloried in the Holy Spirit and said, I thank
 
 
 
-All things have been given over into My power by My Father; and no one knows Who the Son is except the Father, or Who the Father is except the Son and anyone to whom the Son may choose to reveal _and_ make Him known. 
+All things have been given over into My power by My Father; and no one knows Who the Son is except the Father, or Who the Father is except the Son and anyone to whom the Son may choose to reveal and make Him known. 
 
 
 
@@ -700,7 +700,7 @@ A Levite likewise came down to the place and saw him, and passed by on the other
 
 
 
-But a certain Samaritan, as he traveled along, came down to where he was; and when he saw him, he was moved with pity _and_ sympathy [for him], 
+But a certain Samaritan, as he traveled along, came down to where he was; and when he saw him, he was moved with pity and sympathy [for him], 
 
 
 
@@ -784,7 +784,7 @@ Which of these three do you think proved himself a neighbor to him who fell amon
 
 
 
-He answered, The one who showed pity _and_ mercy to him. And Jesus said to him, Go and do likewise. 
+He answered, The one who showed pity and mercy to him. And Jesus said to him, Go and do likewise. 
 
 
 
@@ -805,7 +805,7 @@ He answered, The one who showed pity _and_ mercy to him. And Jesus said to him, 
 
 
 
-Now while they were on their way, it occurred that Jesus entered a certain village, and a woman named Martha received _and_ welcomed Him into her house. 
+Now while they were on their way, it occurred that Jesus entered a certain village, and a woman named Martha received and welcomed Him into her house. 
 
 
 
@@ -889,4 +889,4 @@ But the Lord replied to her by saying, Martha, Martha, you are anxious and troub
 
 
 
-There is need of only one _or but_ _a few things_. Mary has chosen the good portion [that which is to her advantage], which shall not be taken away from her.
+There is need of only one or but a few things. Mary has chosen the good portion [that which is to her advantage], which shall not be taken away from her.

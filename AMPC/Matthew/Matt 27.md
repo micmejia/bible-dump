@@ -280,7 +280,7 @@ But when the charges were made against Him by the chief priests and elders, He m
 
 
 
-Then Pilate said to Him, Do You not hear how many _and_ how serious are the things they are testifying against You? 
+Then Pilate said to Him, Do You not hear how many and how serious are the things they are testifying against You? 
 
 
 
@@ -406,7 +406,7 @@ For he knew that it was because of envy that they had handed Him over to him.
 
 
 
-Also, while he was seated on the judgment bench, his wife sent him a message, saying, Have nothing to do with that just _and_ upright Man, for I have had a painful experience today in a dream because of Him. 
+Also, while he was seated on the judgment bench, his wife sent him a message, saying, Have nothing to do with that just and upright Man, for I have had a painful experience today in a dream because of Him. 
 
 
 
@@ -511,7 +511,7 @@ They all replied, Let Him be crucified! And he said, Why? What has He done that 
 
 
 
-So when Pilate saw that he was getting nowhere, but rather that a riot was about to break out, he took water and washed his hands in the presence of the crowd, saying, I am not guilty of _nor_ responsible for this _righteous_ Man's blood; see to it yourselves. 
+So when Pilate saw that he was getting nowhere, but rather that a riot was about to break out, he took water and washed his hands in the presence of the crowd, saying, I am not guilty of nor responsible for this righteous Man's blood; see to it yourselves. 
 
 
 
@@ -742,7 +742,7 @@ They offered Him wine mingled with gall to drink; but when He tasted it, He refu
 
 
 
-And when they had crucified Him, they divided _and_ distributed His garments [among them] by casting lots _so that the prophet's saying was fulfilled, They parted My garments among them and over My apparel they cast lots_. 
+And when they had crucified Him, they divided and distributed His garments [among them] by casting lots so that the prophet's saying was fulfilled, They parted My garments among them and over My apparel they cast lots. 
 
 
 
@@ -826,7 +826,7 @@ At the same time two robbers were crucified with Him, one on the right hand and 
 
 
 
-And those who passed by spoke reproachfully _and_ abusively _and_ jeered at Him, wagging their heads, 
+And those who passed by spoke reproachfully and abusively and jeered at Him, wagging their heads, 
 
 
 
@@ -889,7 +889,7 @@ In the same way the chief priests, with the scribes and elders, made sport of Hi
 
 
 
-He rescued others from death; Himself He cannot rescue from death. He is the King of Israel? Let Him come down from the cross now, and we will believe in _and_ acknowledge _and_ cleave to Him. 
+He rescued others from death; Himself He cannot rescue from death. He is the King of Israel? Let Him come down from the cross now, and we will believe in and acknowledge and cleave to Him. 
 
 
 
@@ -910,7 +910,7 @@ He rescued others from death; Himself He cannot rescue from death. He is the Kin
 
 
 
-He trusts in God; let God deliver Him now if He cares for Him _and_ will have Him, for He said, I am the Son of God. 
+He trusts in God; let God deliver Him now if He cares for Him and will have Him, for He said, I am the Son of God. 
 
 
 
@@ -931,7 +931,7 @@ He trusts in God; let God deliver Him now if He cares for Him _and_ will have Hi
 
 
 
-And the robbers who were crucified with Him also abused _and_ reproached _and_ made sport of Him in the same way. 
+And the robbers who were crucified with Him also abused and reproached and made sport of Him in the same way. 
 
 
 
@@ -1141,7 +1141,7 @@ And coming out of the tombs after His resurrection, they went into the holy city
 
 
 
-When the centurion and those who were with him keeping watch over Jesus observed the earthquake and all that was happening, they were terribly frightened _and_ filled with awe, and said, Truly this was God's Son! 
+When the centurion and those who were with him keeping watch over Jesus observed the earthquake and all that was happening, they were terribly frightened and filled with awe, and said, Truly this was God's Son! 
 
 
 
@@ -1351,7 +1351,7 @@ And said, Sir, we have just remembered how that vagabond Imposter said while He 
 
 
 
-Therefore give an order to have the tomb made secure _and_ safeguarded until the third day, for fear that His disciples will come and steal Him away and tell the people that He has risen from the dead, and the last deception _and_ fraud will be worse than the first. 
+Therefore give an order to have the tomb made secure and safeguarded until the third day, for fear that His disciples will come and steal Him away and tell the people that He has risen from the dead, and the last deception and fraud will be worse than the first. 
 
 
 
@@ -1393,4 +1393,4 @@ Pilate said to them, You have a guard [of soldiers; take them and] go, make it a
 
 
 
-So they went off and made the tomb secure by sealing the boulder, a guard of soldiers being with them _and_ remaining to watch.
+So they went off and made the tomb secure by sealing the boulder, a guard of soldiers being with them and remaining to watch.

@@ -13,29 +13,29 @@ next: ['Lev 24']
 And the Lord spoke to Moses, saying, 
 
 ###### 2 
-"Speak to the children of Israel, and say to them: 'The feasts of the Lord, which you shall proclaim _to be_ holy convocations, these _are_ My feasts.
+"Speak to the children of Israel, and say to them: 'The feasts of the Lord, which you shall proclaim to be holy convocations, these are My feasts.
 
 ## The Sabbath 
 
 ###### 3 
-'Six days shall work be done, but the seventh day _is_ a Sabbath of solemn rest, a holy convocation. You shall do no work _on it;_ it _is_ the Sabbath of the Lord in all your dwellings.
+'Six days shall work be done, but the seventh day is a Sabbath of solemn rest, a holy convocation. You shall do no work on it; it is the Sabbath of the Lord in all your dwellings.
 
 ## The Passover and Unleavened Bread 
 
 ###### 4 
-'These _are_ the feasts of the Lord, holy convocations which you shall proclaim at their appointed times. 
+'These are the feasts of the Lord, holy convocations which you shall proclaim at their appointed times. 
 
 ###### 5 
-On the fourteenth _day_ of the first month at twilight _is_ the Lord's Passover. 
+On the fourteenth day of the first month at twilight is the Lord's Passover. 
 
 ###### 6 
-And on the fifteenth day of the same month _is_ the Feast of Unleavened Bread to the Lord; seven days you must eat unleavened bread. 
+And on the fifteenth day of the same month is the Feast of Unleavened Bread to the Lord; seven days you must eat unleavened bread. 
 
 ###### 7 
 On the first day you shall have a holy convocation; you shall do no customary work on it. 
 
 ###### 8 
-But you shall offer an offering made by fire to the Lord for seven days. The seventh day _shall be_ a holy convocation; you shall do no customary work _on it_.' " 
+But you shall offer an offering made by fire to the Lord for seven days. The seventh day shall be a holy convocation; you shall do no customary work on it.' " 
 
 ## The Feast of Firstfruits 
 
@@ -52,10 +52,10 @@ He shall wave the sheaf before the Lord, to be accepted on your behalf; on the d
 And you shall offer on that day, when you wave the sheaf, a male lamb of the first year, without blemish, as a burnt offering to the Lord. 
 
 ###### 13 
-Its grain offering _shall be_ two-tenths _of an ephah_ of fine flour mixed with oil, an offering made by fire to the Lord, for a sweet aroma; and its drink offering _shall be_ of wine, one-fourth of a hin. 
+Its grain offering shall be two-tenths of an ephah of fine flour mixed with oil, an offering made by fire to the Lord, for a sweet aroma; and its drink offering shall be of wine, one-fourth of a hin. 
 
 ###### 14 
-You shall eat neither bread nor parched grain nor fresh grain until the same day that you have brought an offering to your God; _it shall be_ a statute forever throughout your generations in all your dwellings.
+You shall eat neither bread nor parched grain nor fresh grain until the same day that you have brought an offering to your God; it shall be a statute forever throughout your generations in all your dwellings.
 
 ## The Feast of Weeks 
 
@@ -66,22 +66,22 @@ You shall eat neither bread nor parched grain nor fresh grain until the same day
 Count fifty days to the day after the seventh Sabbath; then you shall offer a new grain offering to the Lord. 
 
 ###### 17 
-You shall bring from your dwellings two wave _loaves_ of two-tenths _of an ephah_. They shall be of fine flour; they shall be baked with leaven. _They are_ the firstfruits to the Lord. 
+You shall bring from your dwellings two wave loaves of two-tenths of an ephah. They shall be of fine flour; they shall be baked with leaven. They are the firstfruits to the Lord. 
 
 ###### 18 
-And you shall offer with the bread seven lambs of the first year, without blemish, one young bull, and two rams. They shall be _as_ a burnt offering to the Lord, with their grain offering and their drink offerings, an offering made by fire for a sweet aroma to the Lord. 
+And you shall offer with the bread seven lambs of the first year, without blemish, one young bull, and two rams. They shall be as a burnt offering to the Lord, with their grain offering and their drink offerings, an offering made by fire for a sweet aroma to the Lord. 
 
 ###### 19 
 Then you shall sacrifice one kid of the goats as a sin offering, and two male lambs of the first year as a sacrifice of a peace offering. 
 
 ###### 20 
-The priest shall wave them with the bread of the firstfruits _as_ a wave offering before the Lord, with the two lambs. They shall be holy to the Lord for the priest. 
+The priest shall wave them with the bread of the firstfruits as a wave offering before the Lord, with the two lambs. They shall be holy to the Lord for the priest. 
 
 ###### 21 
-And you shall proclaim on the same day _that_ it is a holy convocation to you. You shall do no customary work _on it_. _It shall be_ a statute forever in all your dwellings throughout your generations. 
+And you shall proclaim on the same day that it is a holy convocation to you. You shall do no customary work on it. It shall be a statute forever in all your dwellings throughout your generations. 
 
 ###### 22 
-'When you reap the harvest of your land, you shall not wholly reap the corners of your field when you reap, nor shall you gather any gleaning from your harvest. You shall leave them for the poor and for the stranger: I _am_ the Lord your God.' " 
+'When you reap the harvest of your land, you shall not wholly reap the corners of your field when you reap, nor shall you gather any gleaning from your harvest. You shall leave them for the poor and for the stranger: I am the Lord your God.' " 
 
 ## The Feast of Trumpets 
 
@@ -89,10 +89,10 @@ And you shall proclaim on the same day _that_ it is a holy convocation to you. Y
 Then the Lord spoke to Moses, saying, 
 
 ###### 24 
-"Speak to the children of Israel, saying: 'In the seventh month, on the first _day_ of the month, you shall have a sabbath-_rest_, a memorial of blowing of trumpets, a holy convocation. 
+"Speak to the children of Israel, saying: 'In the seventh month, on the first day of the month, you shall have a sabbath-rest, a memorial of blowing of trumpets, a holy convocation. 
 
 ###### 25 
-You shall do no customary work _on it;_ and you shall offer an offering made by fire to the Lord.' " 
+You shall do no customary work on it; and you shall offer an offering made by fire to the Lord.' " 
 
 ## The Day of Atonement 
 
@@ -100,22 +100,22 @@ You shall do no customary work _on it;_ and you shall offer an offering made by 
 And the Lord spoke to Moses, saying: 
 
 ###### 27 
-"Also the tenth _day_ of this seventh month _shall be_ the Day of Atonement. It shall be a holy convocation for you; you shall afflict your souls, and offer an offering made by fire to the Lord. 
+"Also the tenth day of this seventh month shall be the Day of Atonement. It shall be a holy convocation for you; you shall afflict your souls, and offer an offering made by fire to the Lord. 
 
 ###### 28 
-And you shall do no work on that same day, for it _is_ the Day of Atonement, to make atonement for you before the Lord your God. 
+And you shall do no work on that same day, for it is the Day of Atonement, to make atonement for you before the Lord your God. 
 
 ###### 29 
-For any person who is not afflicted _in soul_ on that same day shall be cut off from his people. 
+For any person who is not afflicted in soul on that same day shall be cut off from his people. 
 
 ###### 30 
 And any person who does any work on that same day, that person I will destroy from among his people. 
 
 ###### 31 
-You shall do no manner of work; _it shall be_ a statute forever throughout your generations in all your dwellings. 
+You shall do no manner of work; it shall be a statute forever throughout your generations in all your dwellings. 
 
 ###### 32 
-It _shall be_ to you a sabbath of _solemn_ rest, and you shall afflict your souls; on the ninth _day_ of the month at evening, from evening to evening, you shall celebrate your sabbath." 
+It shall be to you a sabbath of solemn rest, and you shall afflict your souls; on the ninth day of the month at evening, from evening to evening, you shall celebrate your sabbath." 
 
 ## The Feast of Tabernacles 
 
@@ -123,34 +123,34 @@ It _shall be_ to you a sabbath of _solemn_ rest, and you shall afflict your soul
 Then the Lord spoke to Moses, saying, 
 
 ###### 34 
-"Speak to the children of Israel, saying: 'The fifteenth day of this seventh month _shall be_ the Feast of Tabernacles _for_ seven days to the Lord. 
+"Speak to the children of Israel, saying: 'The fifteenth day of this seventh month shall be the Feast of Tabernacles for seven days to the Lord. 
 
 ###### 35 
-On the first day _there shall be_ a holy convocation. You shall do no customary work _on it_. 
+On the first day there shall be a holy convocation. You shall do no customary work on it. 
 
 ###### 36 
-_For_ seven days you shall offer an offering made by fire to the Lord. On the eighth day you shall have a holy convocation, and you shall offer an offering made by fire to the Lord. It _is_ a sacred assembly, _and_ you shall do no customary work _on it_. 
+For seven days you shall offer an offering made by fire to the Lord. On the eighth day you shall have a holy convocation, and you shall offer an offering made by fire to the Lord. It is a sacred assembly, and you shall do no customary work on it. 
 
 ###### 37 
-'These _are_ the feasts of the Lord which you shall proclaim _to be_ holy convocations, to offer an offering made by fire to the Lord, a burnt offering and a grain offering, a sacrifice and drink offerings, everything on its day-- 
+'These are the feasts of the Lord which you shall proclaim to be holy convocations, to offer an offering made by fire to the Lord, a burnt offering and a grain offering, a sacrifice and drink offerings, everything on its day-- 
 
 ###### 38 
 besides the Sabbaths of the Lord, besides your gifts, besides all your vows, and besides all your freewill offerings which you give to the Lord. 
 
 ###### 39 
-'Also on the fifteenth day of the seventh month, when you have gathered in the fruit of the land, you shall keep the feast of the Lord _for_ seven days; on the first day _there shall be_ a sabbath-_rest_, and on the eighth day a sabbath-_rest_. 
+'Also on the fifteenth day of the seventh month, when you have gathered in the fruit of the land, you shall keep the feast of the Lord for seven days; on the first day there shall be a sabbath-rest, and on the eighth day a sabbath-rest. 
 
 ###### 40 
 And you shall take for yourselves on the first day the fruit of beautiful trees, branches of palm trees, the boughs of leafy trees, and willows of the brook; and you shall rejoice before the Lord your God for seven days. 
 
 ###### 41 
-You shall keep it as a feast to the Lord for seven days in the year. _It shall be_ a statute forever in your generations. You shall celebrate it in the seventh month. 
+You shall keep it as a feast to the Lord for seven days in the year. It shall be a statute forever in your generations. You shall celebrate it in the seventh month. 
 
 ###### 42 
 You shall dwell in booths for seven days. All who are native Israelites shall dwell in booths, 
 
 ###### 43 
-that your generations may know that I made the children of Israel dwell in booths when I brought them out of the land of Egypt: I _am_ the Lord your God.' " 
+that your generations may know that I made the children of Israel dwell in booths when I brought them out of the land of Egypt: I am the Lord your God.' " 
 
 ###### 44 
 So Moses declared to the children of Israel the feasts of the Lord.

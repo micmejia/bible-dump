@@ -49,7 +49,7 @@ And the word of the Lord came to me, saying,
 
 
 
-Son of man, prophesy against the prophets of Israel who prophesy, and say to those who prophesy out of their own mind _and_ heart, Hear the word of the Lord! 
+Son of man, prophesy against the prophets of Israel who prophesy, and say to those who prophesy out of their own mind and heart, Hear the word of the Lord! 
 
 
 
@@ -91,7 +91,7 @@ Thus says the Lord God: Woe to the foolish prophets who follow their own spirit 
 
 
 
-O Israel, your prophets have been like foxes among ruins _and_ in waste places. 
+O Israel, your prophets have been like foxes among ruins and in waste places. 
 
 
 
@@ -112,7 +112,7 @@ O Israel, your prophets have been like foxes among ruins _and_ in waste places.
 
 
 
-You have not gone up into the gaps _or_ breeches, nor built up the wall for the house of Israel that it might stand in the battle in the day of the Lord. 
+You have not gone up into the gaps or breeches, nor built up the wall for the house of Israel that it might stand in the battle in the day of the Lord. 
 
 
 
@@ -133,7 +133,7 @@ You have not gone up into the gaps _or_ breeches, nor built up the wall for the 
 
 
 
-They have seen falsehood and lying divination, saying, The Lord says; but the Lord has not sent them. Yet they have hoped _and_ made men to hope for the confirmation of their word. 
+They have seen falsehood and lying divination, saying, The Lord says; but the Lord has not sent them. Yet they have hoped and made men to hope for the confirmation of their word. 
 
 
 
@@ -175,7 +175,7 @@ Have you not seen a false vision and have you not spoken a lying divination when
 
 
 
-Therefore thus says the Lord God: Because you have spoken empty, false, _and_ delusive words and have seen lies, therefore behold, I am against you, says the Lord God. 
+Therefore thus says the Lord God: Because you have spoken empty, false, and delusive words and have seen lies, therefore behold, I am against you, says the Lord God. 
 
 
 
@@ -196,7 +196,7 @@ Therefore thus says the Lord God: Because you have spoken empty, false, _and_ de
 
 
 
-And My hand shall be against the prophets who see empty, false, _and_ delusive visions and who give lying prophecies. They shall not be in the secret council of My people, nor shall they be recorded in the register of the house of Israel, nor shall they enter into the land of Israel; and you shall know (understand and realize) that I am the Lord God. 
+And My hand shall be against the prophets who see empty, false, and delusive visions and who give lying prophecies. They shall not be in the secret council of My people, nor shall they be recorded in the register of the house of Israel, nor shall they enter into the land of Israel; and you shall know (understand and realize) that I am the Lord God. 
 
 
 
@@ -301,7 +301,7 @@ Therefore thus says the Lord God: I will even rend it with a stormy wind in My w
 
 
 
-So will I break down the wall that you have daubed with whitewash and bring it down to the ground, so that its foundations will be exposed; when it falls, you will perish _and_ be consumed in the midst of it. And you will know (understand and realize) that I am the Lord. 
+So will I break down the wall that you have daubed with whitewash and bring it down to the ground, so that its foundations will be exposed; when it falls, you will perish and be consumed in the midst of it. And you will know (understand and realize) that I am the Lord. 
 
 
 
@@ -364,7 +364,7 @@ The [false] prophets of Israel who prophesied deceitfully about Jerusalem, seein
 
 
 
-And you, son of man, set your face against the daughters of your people who prophesy out of [the wishful thinking of] their own minds _and_ hearts; prophesy against them, 
+And you, son of man, set your face against the daughters of your people who prophesy out of [the wishful thinking of] their own minds and hearts; prophesy against them, 
 
 
 
@@ -385,7 +385,7 @@ And you, son of man, set your face against the daughters of your people who prop
 
 
 
-And say, Thus says the Lord God: Woe to the women who sew pillows to all armholes and fasten magic, protective charms to all wrists, and deceptive veils upon the heads of those of every stature to hunt _and_ capture human lives! Will you snare the lives of My people to keep your own selves alive? 
+And say, Thus says the Lord God: Woe to the women who sew pillows to all armholes and fasten magic, protective charms to all wrists, and deceptive veils upon the heads of those of every stature to hunt and capture human lives! Will you snare the lives of My people to keep your own selves alive? 
 
 
 
@@ -427,7 +427,7 @@ You have profaned Me among My people [in payment] for handfuls of barley and for
 
 
 
-Therefore thus says the Lord God: Behold, I am against your pillows _and_ charms _and_ veils with which you snare human lives like birds, and I will tear them from your arms and will let the lives you hunt go free, the lives you are snaring like birds. 
+Therefore thus says the Lord God: Behold, I am against your pillows and charms and veils with which you snare human lives like birds, and I will tear them from your arms and will let the lives you hunt go free, the lives you are snaring like birds. 
 
 
 
@@ -448,7 +448,7 @@ Therefore thus says the Lord God: Behold, I am against your pillows _and_ charms
 
 
 
-Your [deceptive] veils also will I tear and deliver My people out of your hand, and they shall be no more in your hand to be hunted _and_ snared. Then you shall know (understand and realize) that I am the Lord. 
+Your [deceptive] veils also will I tear and deliver My people out of your hand, and they shall be no more in your hand to be hunted and snared. Then you shall know (understand and realize) that I am the Lord. 
 
 
 
@@ -469,7 +469,7 @@ Your [deceptive] veils also will I tear and deliver My people out of your hand, 
 
 
 
-Because with lies you have made the righteous sad _and_ disheartened, whom I have not made sad _or_ disheartened, and because you have encouraged _and_ strengthened the hands of the wicked, that he should not return from his wicked way and be saved [in that you falsely promised him life], 
+Because with lies you have made the righteous sad and disheartened, whom I have not made sad or disheartened, and because you have encouraged and strengthened the hands of the wicked, that he should not return from his wicked way and be saved [in that you falsely promised him life], 
 
 
 

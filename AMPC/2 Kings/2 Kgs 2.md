@@ -406,7 +406,7 @@ When they returned to Elisha, who had waited at Jericho, he said to them, Did I 
 
 
 
-And the men of the city said to Elisha, Behold, inhabiting of this city is pleasant, as my lord sees, but the water is bad and the locality causes miscarriage _and_ barrenness [in all animals]. 
+And the men of the city said to Elisha, Behold, inhabiting of this city is pleasant, as my lord sees, but the water is bad and the locality causes miscarriage and barrenness [in all animals]. 
 
 
 
@@ -448,7 +448,7 @@ He said, Bring me a new bowl and put salt [the symbol of God's purifying power] 
 
 
 
-Then Elisha went to the spring of the waters and cast the salt in it and said, Thus says the Lord: I [not the salt] have healed these waters; there shall not be any more death, miscarriage _or_ barrenness [and bereavement] because of it. 
+Then Elisha went to the spring of the waters and cast the salt in it and said, Thus says the Lord: I [not the salt] have healed these waters; there shall not be any more death, miscarriage or barrenness [and bereavement] because of it. 
 
 
 

@@ -112,7 +112,7 @@ Twelve years they had served Chedorlaomer, but in the thirteenth year they rebel
 
 
 
-And in the fourteenth year, Chedorlaomer and the kings who were with him attacked _and_ subdued the Rephaim in Ashteroth-karnaim, the Zuzim in Ham, and the Emim in Shaveh-kiriathaim, 
+And in the fourteenth year, Chedorlaomer and the kings who were with him attacked and subdued the Rephaim in Ashteroth-karnaim, the Zuzim in Ham, and the Emim in Shaveh-kiriathaim, 
 
 
 
@@ -217,7 +217,7 @@ With the kings Chedorlaomer of Elam, Tidal of Goiim, Amraphel of Shinar, and Ari
 
 
 
-Now the Valley of Siddim was full of slime _or_ bitumen pits, and as the kings of Sodom and Gomorrah fled, they fell (were overthrown) there and the remainder [of the kings] fled to the mountain. 
+Now the Valley of Siddim was full of slime or bitumen pits, and as the kings of Sodom and Gomorrah fled, they fell (were overthrown) there and the remainder [of the kings] fled to the mountain. 
 
 
 
@@ -280,7 +280,7 @@ And they also took Lot, Abram's brother's son, who dwelt in Sodom, and his goods
 
 
 
-Then one who had escaped came and told Abram the Hebrew [one from the other side], who was living by the oaks _or_ terebinths of Mamre the Amorite, a brother of Eshcol and of Aner--these were allies of Abram. 
+Then one who had escaped came and told Abram the Hebrew [one from the other side], who was living by the oaks or terebinths of Mamre the Amorite, a brother of Eshcol and of Aner--these were allies of Abram. 
 
 
 
@@ -322,7 +322,7 @@ When Abram heard that [his nephew] had been captured, he armed (led forth) the 3
 
 
 
-He divided his forces against them by night, he and his servants, and attacked _and_ routed them, and pursued them as far as Hobah, which is north of Damascus. 
+He divided his forces against them by night, he and his servants, and attacked and routed them, and pursued them as far as Hobah, which is north of Damascus. 
 
 
 
@@ -364,7 +364,7 @@ And he brought back all the goods and also brought back his kinsman Lot and his 
 
 
 
-After his [Abram's] return from the defeat _and_ slaying of Chedorlaomer and the kings who were with him, the king of Sodom went out to meet him at the Valley of Shaveh, that is, the King's Valley. 
+After his [Abram's] return from the defeat and slaying of Chedorlaomer and the kings who were with him, the king of Sodom went out to meet him at the Valley of Shaveh, that is, the King's Valley. 
 
 
 
@@ -406,7 +406,7 @@ Melchizedek king of Salem [later called Jerusalem] brought out bread and wine [f
 
 
 
-And he blessed him and said, Blessed (favored with blessings, made blissful, joyful) be Abram by God Most High, Possessor _and_ Maker of heaven and earth, 
+And he blessed him and said, Blessed (favored with blessings, made blissful, joyful) be Abram by God Most High, Possessor and Maker of heaven and earth, 
 
 
 
@@ -427,7 +427,7 @@ And he blessed him and said, Blessed (favored with blessings, made blissful, joy
 
 
 
-And blessed, praised, _and_ glorified be God Most High, Who has given your foes into your hand! And [Abram] gave him a tenth of all [he had taken]. 
+And blessed, praised, and glorified be God Most High, Who has given your foes into your hand! And [Abram] gave him a tenth of all [he had taken]. 
 
 
 
@@ -469,7 +469,7 @@ And the king of Sodom said to Abram, Give me the persons and keep the goods for 
 
 
 
-But Abram said to the king of Sodom, I have lifted up my hand _and_ sworn to the Lord, God Most High, the Possessor _and_ Maker of heaven and earth, 
+But Abram said to the king of Sodom, I have lifted up my hand and sworn to the Lord, God Most High, the Possessor and Maker of heaven and earth, 
 
 
 

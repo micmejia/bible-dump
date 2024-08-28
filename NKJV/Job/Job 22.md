@@ -16,13 +16,13 @@ Then Eliphaz the Temanite answered and said:
 "Can a man be profitable to God, Though he who is wise may be profitable to himself? 
 
 ###### 3 
-_Is it_ any pleasure to the Almighty that you are righteous? Or _is it_ gain _to Him_ that you make your ways blameless? 
+Is it any pleasure to the Almighty that you are righteous? Or is it gain to Him that you make your ways blameless? 
 
 ###### 4 
 "Is it because of your fear of Him that He corrects you, And enters into judgment with you? 
 
 ###### 5 
-_Is_ not your wickedness great, And your iniquity without end? 
+Is not your wickedness great, And your iniquity without end? 
 
 ###### 6 
 For you have taken pledges from your brother for no reason, And stripped the naked of their clothing. 
@@ -37,10 +37,10 @@ But the mighty man possessed the land, And the honorable man dwelt in it.
 You have sent widows away empty, And the strength of the fatherless was crushed. 
 
 ###### 10 
-Therefore snares _are_ all around you, And sudden fear troubles you, 
+Therefore snares are all around you, And sudden fear troubles you, 
 
 ###### 11 
-Or darkness _so that_ you cannot see; And an abundance of water covers you. 
+Or darkness so that you cannot see; And an abundance of water covers you. 
 
 ###### 12 
 "Is not God in the height of heaven? And see the highest stars, how lofty they are! 
@@ -61,10 +61,10 @@ Who were cut down before their time, Whose foundations were swept away by a floo
 They said to God, 'Depart from us! What can the Almighty do to them?' 
 
 ###### 18 
-Yet He filled their houses with good _things;_ But the counsel of the wicked is far from me. 
+Yet He filled their houses with good things; But the counsel of the wicked is far from me. 
 
 ###### 19 
-"The righteous see _it_ and are glad, And the innocent laugh at them: 
+"The righteous see it and are glad, And the innocent laugh at them: 
 
 ###### 20 
 'Surely our adversaries are cut down, And the fire consumes their remnant.' 
@@ -79,7 +79,7 @@ Receive, please, instruction from His mouth, And lay up His words in your heart.
 If you return to the Almighty, you will be built up; You will remove iniquity far from your tents. 
 
 ###### 24 
-Then you will lay your gold in the dust, And the _gold_ of Ophir among the stones of the brooks. 
+Then you will lay your gold in the dust, And the gold of Ophir among the stones of the brooks. 
 
 ###### 25 
 Yes, the Almighty will be your gold And your precious silver; 
@@ -94,7 +94,7 @@ You will make your prayer to Him, He will hear you, And you will pay your vows.
 You will also declare a thing, And it will be established for you; So light will shine on your ways. 
 
 ###### 29 
-When they cast _you_ down, and you say, 'Exaltation _will come!_' Then He will save the humble _person._ 
+When they cast you down, and you say, 'Exaltation will come!' Then He will save the humble person. 
 
 ###### 30 
-He will _even_ deliver one who is not innocent; Yes, he will be delivered by the purity of your hands."
+He will even deliver one who is not innocent; Yes, he will be delivered by the purity of your hands."

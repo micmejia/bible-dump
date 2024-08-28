@@ -49,7 +49,7 @@ Again the word of the Lord came to me, saying,
 
 
 
-Son of man, cause Jerusalem to know, understand, _and_ realize her [idolatrous] abominations [that they] are disgusting, detestable, and shamefully vile. 
+Son of man, cause Jerusalem to know, understand, and realize her [idolatrous] abominations [that they] are disgusting, detestable, and shamefully vile. 
 
 
 
@@ -112,7 +112,7 @@ And as for your birth, on the day you were born your navel cord was not cut, nor
 
 
 
-No eye pitied you to do any of these things for you, to have compassion on you; but you were cast out in the open field, for your person was abhorrent _and_ loathsome on the day that you were born. 
+No eye pitied you to do any of these things for you, to have compassion on you; but you were cast out in the open field, for your person was abhorrent and loathsome on the day that you were born. 
 
 
 
@@ -154,7 +154,7 @@ And when I passed by you and saw you rolling about in your blood, I said to you 
 
 
 
-I caused you [Israel] to multiply as the bud which grows in the field, and you increased and became tall and you came to full maidenhood _and_ beauty; your breasts were formed and your hair had grown, yet you were naked and bare. 
+I caused you [Israel] to multiply as the bud which grows in the field, and you increased and became tall and you came to full maidenhood and beauty; your breasts were formed and your hair had grown, yet you were naked and bare. 
 
 
 
@@ -175,7 +175,7 @@ I caused you [Israel] to multiply as the bud which grows in the field, and you i
 
 
 
-Now I passed by you again and looked upon you; behold, you were maturing _and_ at the time for love, and I spread My skirt over you and covered your nakedness. Yes, I plighted My troth to you and entered into a covenant with you, says the Lord, and you became Mine. 
+Now I passed by you again and looked upon you; behold, you were maturing and at the time for love, and I spread My skirt over you and covered your nakedness. Yes, I plighted My troth to you and entered into a covenant with you, says the Lord, and you became Mine. 
 
 
 
@@ -301,7 +301,7 @@ Thus you were decked with gold and silver, and your raiment was of fine linen an
 
 
 
-And your renown went forth among the nations for your beauty, for it was perfect through My majesty _and_ splendor which I had put upon you, says the Lord God. 
+And your renown went forth among the nations for your beauty, for it was perfect through My majesty and splendor which I had put upon you, says the Lord God. 
 
 
 
@@ -322,7 +322,7 @@ And your renown went forth among the nations for your beauty, for it was perfect
 
 
 
-But you trusted in _and_ relied on your own beauty and were unfaithful to God _and_ played the harlot [in idolatry] because of your renown, and you poured out your fornications upon anyone who passed by [as you worshiped the idols of every nation which prevailed over you] and your beauty was his. 
+But you trusted in and relied on your own beauty and were unfaithful to God and played the harlot [in idolatry] because of your renown, and you poured out your fornications upon anyone who passed by [as you worshiped the idols of every nation which prevailed over you] and your beauty was his. 
 
 
 
@@ -343,7 +343,7 @@ But you trusted in _and_ relied on your own beauty and were unfaithful to God _a
 
 
 
-And you took some of your garments and made for yourself gaily decorated high places _or_ shrines and played the harlot on them--things which should not come and that which should not take place. 
+And you took some of your garments and made for yourself gaily decorated high places or shrines and played the harlot on them--things which should not come and that which should not take place. 
 
 
 
@@ -364,7 +364,7 @@ And you took some of your garments and made for yourself gaily decorated high pl
 
 
 
-You did also take your fair jewels _and_ beautiful vessels of My gold and My silver which I had given you and made for yourself images of men, and you played the harlot with them; 
+You did also take your fair jewels and beautiful vessels of My gold and My silver which I had given you and made for yourself images of men, and you played the harlot with them; 
 
 
 
@@ -448,7 +448,7 @@ Moreover, you have taken your sons and your daughters whom you have borne to Me,
 
 
 
-That you have slain My children and delivered them up, in setting them apart _and_ causing them to pass through the fire for [your idols]? 
+That you have slain My children and delivered them up, in setting them apart and causing them to pass through the fire for [your idols]? 
 
 
 
@@ -574,7 +574,7 @@ You have also played the harlot with the Egyptians, your neighbors, [by adopting
 
 
 
-Behold therefore, I have stretched out My hand against you, diminished your ordinary allowance of food, and delivered you over to the will of those who hate _and_ despise you, the daughters of the Philistines, who turned away in shame from your despicable policy _and_ lewd behavior [for they are faithful to their gods]! 
+Behold therefore, I have stretched out My hand against you, diminished your ordinary allowance of food, and delivered you over to the will of those who hate and despise you, the daughters of the Philistines, who turned away in shame from your despicable policy and lewd behavior [for they are faithful to their gods]! 
 
 
 
@@ -637,7 +637,7 @@ Moreover, you multiplied your harlotry with the land of trade, with Chaldea, and
 
 
 
-How weak _and_ spent with longing _and_ lust is your heart _and_ mind, says the Lord God, seeing you do all these things, the work of a bold, domineering harlot, 
+How weak and spent with longing and lust is your heart and mind, says the Lord God, seeing you do all these things, the work of a bold, domineering harlot, 
 
 
 
@@ -763,7 +763,7 @@ Therefore, O harlot [Israel], hear the word of the Lord!
 
 
 
-Thus says the Lord God: Because your brass [coins and gifts] _and_ your filthiness were emptied out and your nakedness uncovered through your harlotries with your lovers, and because of all the [filthy] idols of your abominations, and the blood of your children that you gave to them, 
+Thus says the Lord God: Because your brass [coins and gifts] and your filthiness were emptied out and your nakedness uncovered through your harlotries with your lovers, and because of all the [filthy] idols of your abominations, and the blood of your children that you gave to them, 
 
 
 
@@ -847,7 +847,7 @@ And I will also give you into the hand of those [your enemies], and they shall t
 
 
 
-They shall also bring up a company against you, and they shall stone you with stones and hew down _and_ thrust you through with their swords. 
+They shall also bring up a company against you, and they shall stone you with stones and hew down and thrust you through with their swords. 
 
 
 
@@ -910,7 +910,7 @@ So will I make My wrath toward you to rest and My jealousy shall depart from you
 
 
 
-Because you have not [earnestly] remembered the days of your youth but have enraged Me with all these things, therefore behold, I also will bring your deeds down on your own head, says the Lord God. Did you not commit this lewdness above _and_ in addition to all your other abominations? 
+Because you have not [earnestly] remembered the days of your youth but have enraged Me with all these things, therefore behold, I also will bring your deeds down on your own head, says the Lord God. Did you not commit this lewdness above and in addition to all your other abominations? 
 
 
 
@@ -973,7 +973,7 @@ You are your [spiritual] mother's daughter who loathed her husband and her child
 
 
 
-And your elder sister is Samaria, she and her daughters who dwelt in the north _and_ at your left hand; and your younger sister who dwelt in the south _and_ at your right hand is Sodom and her daughters. 
+And your elder sister is Samaria, she and her daughters who dwelt in the north and at your left hand; and your younger sister who dwelt in the south and at your right hand is Sodom and her daughters. 
 
 
 
@@ -1036,7 +1036,7 @@ As I live, says the Lord God, Sodom your sister has not done, she nor her daught
 
 
 
-Behold, this was the iniquity of your sister Sodom: pride, overabundance of food, prosperous ease, _and_ idleness were hers and her daughters'; neither did she strengthen the hand of the poor and needy. 
+Behold, this was the iniquity of your sister Sodom: pride, overabundance of food, prosperous ease, and idleness were hers and her daughters'; neither did she strengthen the hand of the poor and needy. 
 
 
 
@@ -1057,7 +1057,7 @@ Behold, this was the iniquity of your sister Sodom: pride, overabundance of food
 
 
 
-And they were haughty and committed abominable offenses before Me; therefore I removed them when I saw it _and_ I saw fit. 
+And they were haughty and committed abominable offenses before Me; therefore I removed them when I saw it and I saw fit. 
 
 
 
@@ -1099,7 +1099,7 @@ Neither has Samaria committed half of your sins, but you have multiplied your [i
 
 
 
-Take upon you _and_ bear your own shame _and_ disgrace [in your punishment], you also who called in question _and_ judged your sisters, for you have virtually absolved them by your sins in which you behaved more abominably than they; they are more right than you. Yes, be ashamed _and_ confounded and bear your shame _and_ disgrace, you also, for you have seemed to justify your sisters _and_ make them appear righteous. 
+Take upon you and bear your own shame and disgrace [in your punishment], you also who called in question and judged your sisters, for you have virtually absolved them by your sins in which you behaved more abominably than they; they are more right than you. Yes, be ashamed and confounded and bear your shame and disgrace, you also, for you have seemed to justify your sisters and make them appear righteous. 
 
 
 
@@ -1141,7 +1141,7 @@ I will restore them again from their captivity, restore the fortunes of Sodom an
 
 
 
-That you [Judah], amid your shame _and_ disgrace, may be compelled to recognize your wickedness _and_ be thoroughly ashamed _and_ confounded at all you have done, becoming [converted and bringing] consolation _and_ comfort to [your sisters.] 
+That you [Judah], amid your shame and disgrace, may be compelled to recognize your wickedness and be thoroughly ashamed and confounded at all you have done, becoming [converted and bringing] consolation and comfort to [your sisters.] 
 
 
 
@@ -1204,7 +1204,7 @@ For was your sister Sodom not mentioned by you [except] as a byword in the day o
 
 
 
-Before your own wickedness was uncovered? Now you have become like her, an object of reproach _and_ a byword for the daughters of Syria _and_ of Edom and for all who are round about them and for the daughters of the Philistines--those round about who despise you. 
+Before your own wickedness was uncovered? Now you have become like her, an object of reproach and a byword for the daughters of Syria and of Edom and for all who are round about them and for the daughters of the Philistines--those round about who despise you. 
 
 
 
@@ -1288,7 +1288,7 @@ Nevertheless, I will [earnestly] remember My covenant with you in the days of yo
 
 
 
-Then you will [earnestly] remember your ways and be ashamed _and_ confounded when you shall receive your sisters, both your elder and your younger; I will give them to you as daughters, but not on account of your covenant [with Me]. 
+Then you will [earnestly] remember your ways and be ashamed and confounded when you shall receive your sisters, both your elder and your younger; I will give them to you as daughters, but not on account of your covenant [with Me]. 
 
 
 
@@ -1330,4 +1330,4 @@ And I will establish My covenant with you, and you shall know (understand and re
 
 
 
-That you may [earnestly] remember and be ashamed _and_ confounded and never open your mouth again because of your shame, when I have forgiven you all that you have done, says the Lord God.
+That you may [earnestly] remember and be ashamed and confounded and never open your mouth again because of your shame, when I have forgiven you all that you have done, says the Lord God.

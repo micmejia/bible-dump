@@ -49,7 +49,7 @@ Then Bildad the Shuhite answered,
 
 
 
-How long will you lay snares for words _and_ have to hunt for your argument? Do some clear thinking, and then we will reply. 
+How long will you lay snares for words and have to hunt for your argument? Do some clear thinking, and then we will reply. 
 
 
 
@@ -154,7 +154,7 @@ The light shall be dark in his dwelling, and his lamp beside him shall be put ou
 
 
 
-The steps of his strength shall be shortened, and his own counsel _and_ the plans in which he trusted shall bring about his downfall. 
+The steps of his strength shall be shortened, and his own counsel and the plans in which he trusted shall bring about his downfall. 
 
 
 
@@ -280,7 +280,7 @@ The strength [of the wicked] shall be hunger-bitten, and calamity is ready at hi
 
 
 
-By disease his strength _and_ his skin shall be devoured; the firstborn of death [the worst of diseases] shall consume his limbs. 
+By disease his strength and his skin shall be devoured; the firstborn of death [the worst of diseases] shall consume his limbs. 
 
 
 
@@ -343,7 +343,7 @@ There shall dwell in his tent that which is none of his [family]; sulphur shall 
 
 
 
-The roots [of the wicked] shall be dried up beneath, and above shall his branch be cut off _and_ wither. 
+The roots [of the wicked] shall be dried up beneath, and above shall his branch be cut off and wither. 
 
 
 
@@ -427,7 +427,7 @@ He shall neither have son nor grandson among his people, nor any remaining where
 
 
 
-They [of the west] that come after [the wicked man] shall be astonished _and_ appalled at his day, as they [of the east] that went before were seized with horror. 
+They [of the west] that come after [the wicked man] shall be astonished and appalled at his day, as they [of the east] that went before were seized with horror. 
 
 
 

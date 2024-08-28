@@ -28,7 +28,7 @@ next: ['Hos 11']
 
 
 
-Israel is a luxuriant vine that puts forth its [material] fruit. According to the abundance of his fruit he has multiplied his altars [to idols]; according to the goodness _and_ prosperity of their land they have made goodly pillars _or_ obelisks [to false gods]. 
+Israel is a luxuriant vine that puts forth its [material] fruit. According to the abundance of his fruit he has multiplied his altars [to idols]; according to the goodness and prosperity of their land they have made goodly pillars or obelisks [to false gods]. 
 
 
 
@@ -49,7 +49,7 @@ Israel is a luxuriant vine that puts forth its [material] fruit. According to th
 
 
 
-Their heart is divided _and_ deceitful; now shall they be found guilty _and_ suffer punishment. The Lord will smite _and_ break down [the horns of] their altars; He will destroy their [idolatrous] pillars. 
+Their heart is divided and deceitful; now shall they be found guilty and suffer punishment. The Lord will smite and break down [the horns of] their altars; He will destroy their [idolatrous] pillars. 
 
 
 
@@ -154,7 +154,7 @@ The inhabitants of Samaria shall be in terror for the calf [idol] of Beth-aven [
 
 
 
-As for Samaria, her king _and_ her whole monarchy are cut off like twigs _or_ foam upon the water. 
+As for Samaria, her king and her whole monarchy are cut off like twigs or foam upon the water. 
 
 
 
@@ -196,7 +196,7 @@ The high places also of Aven [once Beth(el), house of God, now (Beth-)aven, hous
 
 
 
-O Israel, you have [willfully] sinned from the days of Gibeah [when you all but wiped out the tribe of Benjamin]! There [Israel] stood [then, only] that the battle against the sons of unrighteousness might not overtake _and_ turn against them at Gibeah [but now the kingdom of the ten tribes and the name of Ephraim shall be utterly blotted out]. 
+O Israel, you have [willfully] sinned from the days of Gibeah [when you all but wiped out the tribe of Benjamin]! There [Israel] stood [then, only] that the battle against the sons of unrighteousness might not overtake and turn against them at Gibeah [but now the kingdom of the ten tribes and the name of Ephraim shall be utterly blotted out]. 
 
 
 
@@ -217,7 +217,7 @@ O Israel, you have [willfully] sinned from the days of Gibeah [when you all but 
 
 
 
-When I please I will chastise them, and hostile peoples shall be gathered against them when I shall bind _and_ yoke them for their two transgressions [revolt from the Lord their God and the worship of idols]. 
+When I please I will chastise them, and hostile peoples shall be gathered against them when I shall bind and yoke them for their two transgressions [revolt from the Lord their God and the worship of idols]. 
 
 
 
@@ -238,7 +238,7 @@ When I please I will chastise them, and hostile peoples shall be gathered agains
 
 
 
-Ephraim indeed is a heifer broken in _and_ loving to tread out the grain, but I have [heretofore] spared the beauty of her fair neck. I will now set a rider upon Ephraim _and_ make him to draw; Judah shall plow and Jacob shall break his clods. 
+Ephraim indeed is a heifer broken in and loving to tread out the grain, but I have [heretofore] spared the beauty of her fair neck. I will now set a rider upon Ephraim and make him to draw; Judah shall plow and Jacob shall break his clods. 
 
 
 
@@ -259,7 +259,7 @@ Ephraim indeed is a heifer broken in _and_ loving to tread out the grain, but I 
 
 
 
-Sow for yourselves according to righteousness (uprightness and right standing with God); reap according to mercy _and_ loving-kindness. Break up your uncultivated ground, for it is time to seek the Lord, to inquire for _and_ of Him, _and_ to require His favor, till He comes and teaches you righteousness _and_ rains His righteous gift of salvation upon you. 
+Sow for yourselves according to righteousness (uprightness and right standing with God); reap according to mercy and loving-kindness. Break up your uncultivated ground, for it is time to seek the Lord, to inquire for and of Him, and to require His favor, till He comes and teaches you righteousness and rains His righteous gift of salvation upon you. 
 
 
 
@@ -280,7 +280,7 @@ Sow for yourselves according to righteousness (uprightness and right standing wi
 
 
 
-You have plowed _and_ plotted wickedness, you have reaped the [willful] injustice [of oppressors], you have eaten the fruit of lies. Because you have trusted in your [own] way _and_ your chariots, in the multitude of your mighty men, 
+You have plowed and plotted wickedness, you have reaped the [willful] injustice [of oppressors], you have eaten the fruit of lies. Because you have trusted in your [own] way and your chariots, in the multitude of your mighty men, 
 
 
 
@@ -301,7 +301,7 @@ You have plowed _and_ plotted wickedness, you have reaped the [willful] injustic
 
 
 
-Therefore shall a tumult arise against your people and all your fortresses shall be wasted _and_ destroyed, as Shalmaneser wasted _and_ destroyed Beth-arbel on the day of battle; the mother was dashed in pieces with her children. 
+Therefore shall a tumult arise against your people and all your fortresses shall be wasted and destroyed, as Shalmaneser wasted and destroyed Beth-arbel on the day of battle; the mother was dashed in pieces with her children. 
 
 
 

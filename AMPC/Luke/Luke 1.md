@@ -27,7 +27,7 @@ next: ['Luke 2']
 
 
 
-Since [as is well known] many have undertaken to put in order _and_ draw up a [thorough] narrative of the surely established deeds which have been accomplished _and_ fulfilled  in _and_ among us, 
+Since [as is well known] many have undertaken to put in order and draw up a [thorough] narrative of the surely established deeds which have been accomplished and fulfilled  in and among us, 
 
 
 
@@ -69,7 +69,7 @@ Exactly as they were handed down to us by those who from the [official] beginnin
 
 
 
-It seemed good _and_ desirable to me, [and so I have determined] also after having searched out diligently _and_ followed all things closely _and_ traced accurately the course from the highest to the minutest detail from the very first, to write an orderly account for you, most excellent Theophilus, 
+It seemed good and desirable to me, [and so I have determined] also after having searched out diligently and followed all things closely and traced accurately the course from the highest to the minutest detail from the very first, to write an orderly account for you, most excellent Theophilus, 
 
 
 
@@ -90,7 +90,7 @@ It seemed good _and_ desirable to me, [and so I have determined] also after havi
 
 
 
-[My purpose is] that you may know the full truth _and_ understand with certainty _and_ security against error the accounts (histories) _and_ doctrines of the faith of which you have been informed _and_ in which you have been orally instructed. 
+[My purpose is] that you may know the full truth and understand with certainty and security against error the accounts (histories) and doctrines of the faith of which you have been informed and in which you have been orally instructed. 
 
 
 
@@ -321,7 +321,7 @@ And you shall have joy and exultant delight, and many will rejoice over his birt
 
 
 
-For he will be great _and_ distinguished in the sight of the Lord. And he must drink no wine nor strong drink, and he will be filled with _and_ controlled by the Holy Spirit even in _and_ from his mother's womb. 
+For he will be great and distinguished in the sight of the Lord. And he must drink no wine nor strong drink, and he will be filled with and controlled by the Holy Spirit even in and from his mother's womb. 
 
 
 
@@ -342,7 +342,7 @@ For he will be great _and_ distinguished in the sight of the Lord. And he must d
 
 
 
-And he will turn back _and_ cause to return many of the sons of Israel to the Lord their God, 
+And he will turn back and cause to return many of the sons of Israel to the Lord their God, 
 
 
 
@@ -363,7 +363,7 @@ And he will turn back _and_ cause to return many of the sons of Israel to the Lo
 
 
 
-And he will [himself] go before Him in the spirit and power of Elijah, to turn back the hearts of the fathers to the children, and the disobedient _and_ incredulous _and_ unpersuadable to the wisdom of the upright [which is the knowledge and holy love of the will of God]--in order to make ready for the Lord a people [perfectly] prepared [in spirit, adjusted and disposed and placed in the right moral state]. 
+And he will [himself] go before Him in the spirit and power of Elijah, to turn back the hearts of the fathers to the children, and the disobedient and incredulous and unpersuadable to the wisdom of the upright [which is the knowledge and holy love of the will of God]--in order to make ready for the Lord a people [perfectly] prepared [in spirit, adjusted and disposed and placed in the right moral state]. 
 
 
 
@@ -384,7 +384,7 @@ And he will [himself] go before Him in the spirit and power of Elijah, to turn b
 
 
 
-And Zachariah said to the angel, By what shall I know _and_ be sure of this? For I am an old man, and my wife is well advanced in years. 
+And Zachariah said to the angel, By what shall I know and be sure of this? For I am an old man, and my wife is well advanced in years. 
 
 
 
@@ -426,7 +426,7 @@ And the angel replied to him, I am Gabriel. I stand in the [very] presence of Go
 
 
 
-Now behold, you will be _and_ will continue to be silent and not able to speak till the day when these things take place, because you have not believed what I told you; but my words are of a kind which will be fulfilled in the appointed _and_ proper time. 
+Now behold, you will be and will continue to be silent and not able to speak till the day when these things take place, because you have not believed what I told you; but my words are of a kind which will be fulfilled in the appointed and proper time. 
 
 
 
@@ -573,7 +573,7 @@ Now in the sixth month [after that], the angel Gabriel was sent from God to a to
 
 
 
-To a girl never having been married _and_ a virgin engaged to be married to a man whose name was Joseph, a descendant of the house of David; and the virgin's name was Mary. 
+To a girl never having been married and a virgin engaged to be married to a man whose name was Joseph, a descendant of the house of David; and the virgin's name was Mary. 
 
 
 
@@ -594,7 +594,7 @@ To a girl never having been married _and_ a virgin engaged to be married to a ma
 
 
 
-And he came to her and said, Hail, O favored one [endued with grace]! The Lord is with you! _Blessed (favored of God) are you before all other women!_ 
+And he came to her and said, Hail, O favored one [endued with grace]! The Lord is with you! Blessed (favored of God) are you before all other women! 
 
 
 
@@ -615,7 +615,7 @@ And he came to her and said, Hail, O favored one [endued with grace]! The Lord i
 
 
 
-But _when she saw him_, she was greatly troubled _and_ disturbed _and_ confused at what he said and kept revolving in her mind what such a greeting might mean. 
+But when she saw him, she was greatly troubled and disturbed and confused at what he said and kept revolving in her mind what such a greeting might mean. 
 
 
 
@@ -741,7 +741,7 @@ And Mary said to the angel, How can this be, since I have no [intimacy with any 
 
 
 
-Then the angel said to her, The Holy Spirit will come upon you, and the power of the Most High will overshadow you [like a shining cloud]; and so the holy (pure, sinless) Thing (Offspring) which shall be born _of you_ will be called the Son of God. 
+Then the angel said to her, The Holy Spirit will come upon you, and the power of the Most High will overshadow you [like a shining cloud]; and so the holy (pure, sinless) Thing (Offspring) which shall be born of you will be called the Son of God. 
 
 
 
@@ -783,7 +783,7 @@ And listen! Your relative Elizabeth in her old age has also conceived a son, and
 
 
 
-For with God nothing is ever impossible _and_ no word from God shall be without power _or_ impossible of fulfillment. 
+For with God nothing is ever impossible and no word from God shall be without power or impossible of fulfillment. 
 
 
 
@@ -867,7 +867,7 @@ And she went to the house of Zachariah and, entering it, saluted Elizabeth.
 
 
 
-And it occurred that when Elizabeth heard Mary's greeting, the baby leaped in her womb, and Elizabeth was filled with _and_ controlled by the Holy Spirit. 
+And it occurred that when Elizabeth heard Mary's greeting, the baby leaped in her womb, and Elizabeth was filled with and controlled by the Holy Spirit. 
 
 
 
@@ -972,7 +972,7 @@ And blessed (happy, to be envied) is she who believed that there would be a fulf
 
 
 
-And Mary said, My soul magnifies _and_ extols the Lord, 
+And Mary said, My soul magnifies and extols the Lord, 
 
 
 
@@ -1014,7 +1014,7 @@ And my spirit rejoices in God my Savior,
 
 
 
-For He has looked upon the low station _and_ humiliation of His handmaiden. For behold, from now on all generations [of all ages] will call me blessed _and_ declare me happy _and_ [^aa]to be envied! 
+For He has looked upon the low station and humiliation of His handmaiden. For behold, from now on all generations [of all ages] will call me blessed and declare me happy and [^aa]to be envied! 
 
 
 
@@ -1056,7 +1056,7 @@ For He Who is almighty has done great things for me--and holy is His name [to be
 
 
 
-And His mercy (His compassion and kindness toward the miserable and afflicted) is on those who fear Him with godly reverence, from generation to generation _and_ age to age. 
+And His mercy (His compassion and kindness toward the miserable and afflicted) is on those who fear Him with godly reverence, from generation to generation and age to age. 
 
 
 
@@ -1077,7 +1077,7 @@ And His mercy (His compassion and kindness toward the miserable and afflicted) i
 
 
 
-He has shown strength _and_ [^ab]made might with His arm; He has scattered the proud _and_ haughty in _and_ by the imagination _and_ purpose _and_ designs of their hearts. 
+He has shown strength and [^ab]made might with His arm; He has scattered the proud and haughty in and by the imagination and purpose and designs of their hearts. 
 
 
 
@@ -1119,7 +1119,7 @@ He has put down the mighty from their thrones and exalted those of low degree.
 
 
 
-He has filled _and_ satisfied the hungry with good things, and the rich He has sent away empty-handed [without a gift]. 
+He has filled and satisfied the hungry with good things, and the rich He has sent away empty-handed [without a gift]. 
 
 
 
@@ -1350,7 +1350,7 @@ Then Zachariah asked for a writing tablet and wrote, His name is John. And they 
 
 
 
-And at once his mouth was opened and his tongue loosed, and he began to speak, blessing _and_ praising _and_ thanking God. 
+And at once his mouth was opened and his tongue loosed, and he began to speak, blessing and praising and thanking God. 
 
 
 
@@ -1371,7 +1371,7 @@ And at once his mouth was opened and his tongue loosed, and he began to speak, b
 
 
 
-And awe _and_ reverential fear came on all their neighbors; and all these things were discussed throughout the hill country of Judea. 
+And awe and reverential fear came on all their neighbors; and all these things were discussed throughout the hill country of Judea. 
 
 
 
@@ -1413,7 +1413,7 @@ And all who heard them laid them up in their hearts, saying, Whatever will this 
 
 
 
-Now Zachariah his father was filled with _and_ controlled by the Holy Spirit and prophesied, saying, 
+Now Zachariah his father was filled with and controlled by the Holy Spirit and prophesied, saying, 
 
 
 
@@ -1434,7 +1434,7 @@ Now Zachariah his father was filled with _and_ controlled by the Holy Spirit and
 
 
 
-Blessed (praised and extolled and thanked) be the Lord, the God of Israel, because He has come and brought deliverance _and_ redemption to His people! 
+Blessed (praised and extolled and thanked) be the Lord, the God of Israel, because He has come and brought deliverance and redemption to His people! 
 
 
 
@@ -1497,7 +1497,7 @@ This is as He promised by the mouth of His holy prophets from the most ancient t
 
 
 
-That we should have deliverance _and_ be saved from our enemies and from the hand of all who detest _and_ pursue us with hatred; 
+That we should have deliverance and be saved from our enemies and from the hand of all who detest and pursue us with hatred; 
 
 
 
@@ -1518,7 +1518,7 @@ That we should have deliverance _and_ be saved from our enemies and from the han
 
 
 
-To make true _and_ show the mercy _and_ compassion _and_ kindness [promised] to our forefathers and to remember _and_ carry out His holy covenant [to bless, which is [^ad]all the more sacred because it is made by God Himself], 
+To make true and show the mercy and compassion and kindness [promised] to our forefathers and to remember and carry out His holy covenant [to bless, which is [^ad]all the more sacred because it is made by God Himself], 
 
 
 
@@ -1623,7 +1623,7 @@ And you, little one, shall be called a prophet of the Most High; for you shall g
 
 
 
-To bring _and_ give the knowledge of salvation to His people in the forgiveness _and_ remission of their sins. 
+To bring and give the knowledge of salvation to His people in the forgiveness and remission of their sins. 
 
 
 
@@ -1644,7 +1644,7 @@ To bring _and_ give the knowledge of salvation to His people in the forgiveness 
 
 
 
-Because of _and_ through the heart of tender mercy _and_ loving-kindness of our God, a Light from on high will dawn upon us _and_ visit [us] 
+Because of and through the heart of tender mercy and loving-kindness of our God, a Light from on high will dawn upon us and visit [us] 
 
 
 
@@ -1665,7 +1665,7 @@ Because of _and_ through the heart of tender mercy _and_ loving-kindness of our 
 
 
 
-To shine upon _and_ give light to those who sit in darkness and in the shadow of death, to direct _and_ guide our feet in a straight line into the way of peace. 
+To shine upon and give light to those who sit in darkness and in the shadow of death, to direct and guide our feet in a straight line into the way of peace. 
 
 
 

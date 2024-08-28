@@ -364,7 +364,7 @@ Now Laban had two daughters; the name of the elder was Leah and the name of the 
 
 
 
-Leah's eyes were weak _and_ dull looking, but Rachel was beautiful and attractive. 
+Leah's eyes were weak and dull looking, but Rachel was beautiful and attractive. 
 
 
 
@@ -406,7 +406,7 @@ And Jacob loved Rachel; so he said, I will work for you for seven years for Rach
 
 
 
-And Laban said, It is better that I give her to you than to another man. Stay _and_ live with me. 
+And Laban said, It is better that I give her to you than to another man. Stay and live with me. 
 
 
 
@@ -532,7 +532,7 @@ And Laban gave Zilpah his maid to his daughter Leah to be her maid.
 
 
 
-But in the morning [Jacob saw his wife, and] behold, it was Leah! And he said to Laban, What is this you have done to me? Did I not work for you [all those seven years] for Rachel? Why then have you deceived _and_ cheated _and_ thrown me down [like this]? 
+But in the morning [Jacob saw his wife, and] behold, it was Leah! And he said to Laban, What is this you have done to me? Did I not work for you [all those seven years] for Rachel? Why then have you deceived and cheated and thrown me down [like this]? 
 
 
 
@@ -679,7 +679,7 @@ And when the Lord saw that Leah was despised, He made her able to bear children,
 
 
 
-And Leah became pregnant and bore a son and named him Reuben [See, a son!]; for she said, Because the Lord has seen my humiliation _and_ affliction; now my husband will love me. 
+And Leah became pregnant and bore a son and named him Reuben [See, a son!]; for she said, Because the Lord has seen my humiliation and affliction; now my husband will love me. 
 
 
 

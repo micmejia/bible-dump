@@ -25,10 +25,10 @@ So Moses told the children of Israel that they should keep the Passover.
 And they kept the Passover on the fourteenth day of the first month, at twilight, in the Wilderness of Sinai; according to all that the Lord commanded Moses, so the children of Israel did. 
 
 ###### 6 
-Now there were _certain_ men who were defiled by a human corpse, so that they could not keep the Passover on that day; and they came before Moses and Aaron that day. 
+Now there were certain men who were defiled by a human corpse, so that they could not keep the Passover on that day; and they came before Moses and Aaron that day. 
 
 ###### 7 
-And those men said to him, "We _became_ defiled by a human corpse. Why are we kept from presenting the offering of the Lord at its appointed time among the children of Israel?" 
+And those men said to him, "We became defiled by a human corpse. Why are we kept from presenting the offering of the Lord at its appointed time among the children of Israel?" 
 
 ###### 8 
 And Moses said to them, "Stand still, that I may hear what the Lord will command concerning you." 
@@ -37,7 +37,7 @@ And Moses said to them, "Stand still, that I may hear what the Lord will command
 Then the Lord spoke to Moses, saying, 
 
 ###### 10 
-"Speak to the children of Israel, saying: 'If anyone of you or your posterity is unclean because of a corpse, or _is_ far away on a journey, he may still keep the Lord's Passover. 
+"Speak to the children of Israel, saying: 'If anyone of you or your posterity is unclean because of a corpse, or is far away on a journey, he may still keep the Lord's Passover. 
 
 ###### 11 
 On the fourteenth day of the second month, at twilight, they may keep it. They shall eat it with unleavened bread and bitter herbs. 
@@ -46,7 +46,7 @@ On the fourteenth day of the second month, at twilight, they may keep it. They s
 They shall leave none of it until morning, nor break one of its bones. According to all the ordinances of the Passover they shall keep it. 
 
 ###### 13 
-But the man who _is_ clean and is not on a journey, and ceases to keep the Passover, that same person shall be cut off from among his people, because he did not bring the offering of the Lord at its appointed time; that man shall bear his sin. 
+But the man who is clean and is not on a journey, and ceases to keep the Passover, that same person shall be cut off from among his people, because he did not bring the offering of the Lord at its appointed time; that man shall bear his sin. 
 
 ###### 14 
 'And if a stranger dwells among you, and would keep the Lord's Passover, he must do so according to the rite of the Passover and according to its ceremony; you shall have one ordinance, both for the stranger and the native of the land.' " 
@@ -57,7 +57,7 @@ But the man who _is_ clean and is not on a journey, and ceases to keep the Passo
 Now on the day that the tabernacle was raised up, the cloud covered the tabernacle, the tent of the Testimony; from evening until morning it was above the tabernacle like the appearance of fire. 
 
 ###### 16 
-So it was always: the cloud covered it _by day,_ and the appearance of fire by night. 
+So it was always: the cloud covered it by day, and the appearance of fire by night. 
 
 ###### 17 
 Whenever the cloud was taken up from above the tabernacle, after that the children of Israel would journey; and in the place where the cloud settled, there the children of Israel would pitch their tents. 
@@ -75,7 +75,7 @@ So it was, when the cloud was above the tabernacle a few days: according to the 
 So it was, when the cloud remained only from evening until morning: when the cloud was taken up in the morning, then they would journey; whether by day or by night, whenever the cloud was taken up, they would journey. 
 
 ###### 22 
-_Whether it was_ two days, a month, or a year that the cloud remained above the tabernacle, the children of Israel would remain encamped and not journey; but when it was taken up, they would journey. 
+Whether it was two days, a month, or a year that the cloud remained above the tabernacle, the children of Israel would remain encamped and not journey; but when it was taken up, they would journey. 
 
 ###### 23 
 At the command of the Lord they remained encamped, and at the command of the Lord they journeyed; they kept the charge of the Lord, at the command of the Lord by the hand of Moses.

@@ -48,7 +48,7 @@ Thus says the Lord: Heaven is My throne, and the earth is My footstool. What kin
 
 
 
-For all these things My hand has made, and so all these things have come into being [by and for Me], says the Lord. But this is the man to whom I will look _and_ have regard: he who is humble and of a broken _or_ wounded spirit, and who trembles at My word _and_ reveres My commands. 
+For all these things My hand has made, and so all these things have come into being [by and for Me], says the Lord. But this is the man to whom I will look and have regard: he who is humble and of a broken or wounded spirit, and who trembles at My word and reveres My commands. 
 
 
 
@@ -69,7 +69,7 @@ For all these things My hand has made, and so all these things have come into be
 
 
 
-[The acts of the hypocrite's worship are as abominable to God as if they were offered to idols.] He who kills an ox [then] will be as guilty as if he slew _and_ sacrificed a man; he who sacrifices a lamb _or_ a kid, as if he broke a dog's neck _and_ sacrificed him; he who offers a cereal offering, as if he offered swine's blood; he who burns incense [to God], as if he blessed an idol. [Such people] have chosen their own ways, and they delight in their abominations; 
+[The acts of the hypocrite's worship are as abominable to God as if they were offered to idols.] He who kills an ox [then] will be as guilty as if he slew and sacrificed a man; he who sacrifices a lamb or a kid, as if he broke a dog's neck and sacrificed him; he who offers a cereal offering, as if he offered swine's blood; he who burns incense [to God], as if he blessed an idol. [Such people] have chosen their own ways, and they delight in their abominations; 
 
 
 
@@ -90,7 +90,7 @@ For all these things My hand has made, and so all these things have come into be
 
 
 
-So I also will choose their delusions _and_ mockings, their calamities _and_ afflictions, and I will bring their fears upon them--because when I called, no one answered; when I spoke, they did not listen _or_ obey. But they did what was evil in My sight and chose that in which I did not delight. 
+So I also will choose their delusions and mockings, their calamities and afflictions, and I will bring their fears upon them--because when I called, no one answered; when I spoke, they did not listen or obey. But they did what was evil in My sight and chose that in which I did not delight. 
 
 
 
@@ -237,7 +237,7 @@ Rejoice with Jerusalem and be glad for her, all you who love her; rejoice for jo
 
 
 
-That you may nurse and be satisfied from her consoling breasts, that you may drink deeply and be delighted with the abundance _and_ brightness of her glory. 
+That you may nurse and be satisfied from her consoling breasts, that you may drink deeply and be delighted with the abundance and brightness of her glory. 
 
 
 
@@ -300,7 +300,7 @@ As one whom his mother comforts, so will I comfort you; you shall be comforted i
 
 
 
-When you see this, your heart shall rejoice; your bones shall flourish like green _and_ tender grass. And the [powerful] hand of the Lord shall be revealed _and_ known to be with His servants, but His indignation [shown] to be against His enemies. 
+When you see this, your heart shall rejoice; your bones shall flourish like green and tender grass. And the [powerful] hand of the Lord shall be revealed and known to be with His servants, but His indignation [shown] to be against His enemies. 
 
 
 
@@ -405,7 +405,7 @@ For I know their works and their thoughts. And the time is coming when I will ga
 
 
 
-And I will set up a [miraculous] sign among them, and from them I will send survivors to the nations--to Tarshish, Pul (Put), and Lud, who draw the bow, to Tubal and Javan, to the isles _and_ coastlands afar off that have not heard of My fame nor seen My glory. And they will declare _and_ proclaim My glory among the nations. 
+And I will set up a [miraculous] sign among them, and from them I will send survivors to the nations--to Tarshish, Pul (Put), and Lud, who draw the bow, to Tubal and Javan, to the isles and coastlands afar off that have not heard of My fame nor seen My glory. And they will declare and proclaim My glory among the nations. 
 
 
 

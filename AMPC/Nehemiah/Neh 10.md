@@ -784,7 +784,7 @@ As well as the firstborn of our sons and of our cattle, as is written in the Law
 
 
 
-And we shall bring the first _and_ best of our coarse meal, our contributions, the fruit of all kinds of trees, of new wine, and of oil to the priests, to the chambers of the house of our God. And we shall bring the tithes from our ground to the Levites, for they, the Levites, collect the tithes in all our rural towns. 
+And we shall bring the first and best of our coarse meal, our contributions, the fruit of all kinds of trees, of new wine, and of oil to the priests, to the chambers of the house of our God. And we shall bring the tithes from our ground to the Levites, for they, the Levites, collect the tithes in all our rural towns. 
 
 
 
@@ -826,4 +826,4 @@ And the priest, the son of Aaron, shall be with the Levites when [they] receive 
 
 
 
-For the Israelites and the sons of Levi shall bring the offering of grain, new wine, and oil to the chambers where the vessels of the sanctuary are, along with the priests who minister and the gatekeepers and singers. We will not forsake _or_ neglect the house of our God.
+For the Israelites and the sons of Levi shall bring the offering of grain, new wine, and oil to the chambers where the vessels of the sanctuary are, along with the priests who minister and the gatekeepers and singers. We will not forsake or neglect the house of our God.

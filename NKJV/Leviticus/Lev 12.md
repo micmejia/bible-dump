@@ -19,16 +19,16 @@ Then the Lord spoke to Moses, saying,
 And on the eighth day the flesh of his foreskin shall be circumcised. 
 
 ###### 4 
-She shall then continue in the blood of _her_ purification thirty-three days. She shall not touch any hallowed thing, nor come into the sanctuary until the days of her purification are fulfilled. 
+She shall then continue in the blood of her purification thirty-three days. She shall not touch any hallowed thing, nor come into the sanctuary until the days of her purification are fulfilled. 
 
 ###### 5 
-'But if she bears a female child, then she shall be unclean two weeks, as in her customary impurity, and she shall continue in the blood of _her_ purification sixty-six days. 
+'But if she bears a female child, then she shall be unclean two weeks, as in her customary impurity, and she shall continue in the blood of her purification sixty-six days. 
 
 ###### 6 
 'When the days of her purification are fulfilled, whether for a son or a daughter, she shall bring to the priest a lamb of the first year as a burnt offering, and a young pigeon or a turtledove as a sin offering, to the door of the tabernacle of meeting. 
 
 ###### 7 
-Then he shall offer it before the Lord, and make atonement for her. And she shall be clean from the flow of her blood. This _is_ the law for her who has borne a male or a female. 
+Then he shall offer it before the Lord, and make atonement for her. And she shall be clean from the flow of her blood. This is the law for her who has borne a male or a female. 
 
 ###### 8 
 'And if she is not able to bring a lamb, then she may bring two turtledoves or two young pigeons--one as a burnt offering and the other as a sin offering. So the priest shall make atonement for her, and she will be clean.' "

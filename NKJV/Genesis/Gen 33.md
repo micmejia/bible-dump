@@ -22,7 +22,7 @@ Then he crossed over before them and bowed himself to the ground seven times, un
 But Esau ran to meet him, and embraced him, and fell on his neck and kissed him, and they wept. 
 
 ###### 5 
-And he lifted his eyes and saw the women and children, and said, "Who _are_ these with you?" So he said, "The children whom God has graciously given your servant." 
+And he lifted his eyes and saw the women and children, and said, "Who are these with you?" So he said, "The children whom God has graciously given your servant." 
 
 ###### 6 
 Then the maidservants came near, they and their children, and bowed down. 
@@ -31,7 +31,7 @@ Then the maidservants came near, they and their children, and bowed down.
 And Leah also came near with her children, and they bowed down. Afterward Joseph and Rachel came near, and they bowed down. 
 
 ###### 8 
-Then Esau said, "What _do_ you _mean by_ all this company which I met?" And he said, "_These are_ to find favor in the sight of my lord." 
+Then Esau said, "What do you mean by all this company which I met?" And he said, "These are to find favor in the sight of my lord." 
 
 ###### 9 
 But Esau said, "I have enough, my brother; keep what you have for yourself." 
@@ -40,19 +40,19 @@ But Esau said, "I have enough, my brother; keep what you have for yourself."
 And Jacob said, "No, please, if I have now found favor in your sight, then receive my present from my hand, inasmuch as I have seen your face as though I had seen the face of God, and you were pleased with me. 
 
 ###### 11 
-Please, take my blessing that is brought to you, because God has dealt graciously with me, and because I have enough." So he urged him, and he took _it._ 
+Please, take my blessing that is brought to you, because God has dealt graciously with me, and because I have enough." So he urged him, and he took it. 
 
 ###### 12 
 Then Esau said, "Let us take our journey; let us go, and I will go before you." 
 
 ###### 13 
-But Jacob said to him, "My lord knows that the children _are_ weak, and the flocks and herds which are nursing _are_ with me. And if the men should drive them hard one day, all the flock will die. 
+But Jacob said to him, "My lord knows that the children are weak, and the flocks and herds which are nursing are with me. And if the men should drive them hard one day, all the flock will die. 
 
 ###### 14 
 Please let my lord go on ahead before his servant. I will lead on slowly at a pace which the livestock that go before me, and the children, are able to endure, until I come to my lord in Seir." 
 
 ###### 15 
-And Esau said, "Now let me leave with you _some_ of the people who _are_ with me." But he said, "What need is there? Let me find favor in the sight of my lord." 
+And Esau said, "Now let me leave with you some of the people who are with me." But he said, "What need is there? Let me find favor in the sight of my lord." 
 
 ###### 16 
 So Esau returned that day on his way to Seir. 
@@ -63,7 +63,7 @@ And Jacob journeyed to Succoth, built himself a house, and made booths for his l
 ## Jacob Comes to Canaan 
 
 ###### 18 
-Then Jacob came safely to the city of Shechem, which _is_ in the land of Canaan, when he came from Padan Aram; and he pitched his tent before the city. 
+Then Jacob came safely to the city of Shechem, which is in the land of Canaan, when he came from Padan Aram; and he pitched his tent before the city. 
 
 ###### 19 
 And he bought the parcel of land, where he had pitched his tent, from the children of Hamor, Shechem's father, for one hundred pieces of money. 

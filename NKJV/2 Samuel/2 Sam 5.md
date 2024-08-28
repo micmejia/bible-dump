@@ -10,7 +10,7 @@ next: ['2 Sam 6']
 
 
 ###### 1 
-Then all the tribes of Israel came to David at Hebron and spoke, saying, "Indeed we _are_ your bone and your flesh. 
+Then all the tribes of Israel came to David at Hebron and spoke, saying, "Indeed we are your bone and your flesh. 
 
 ###### 2 
 Also, in time past, when Saul was king over us, you were the one who led Israel out and brought them in; and the Lord said to you, 'You shall shepherd My people Israel, and be ruler over Israel.' " 
@@ -19,7 +19,7 @@ Also, in time past, when Saul was king over us, you were the one who led Israel 
 Therefore all the elders of Israel came to the king at Hebron, and King David made a covenant with them at Hebron before the Lord. And they anointed David king over Israel. 
 
 ###### 4 
-David _was_ thirty years old when he began to reign, _and_ he reigned forty years. 
+David was thirty years old when he began to reign, and he reigned forty years. 
 
 ###### 5 
 In Hebron he reigned over Judah seven years and six months, and in Jerusalem he reigned thirty-three years over all Israel and Judah.
@@ -30,16 +30,16 @@ In Hebron he reigned over Judah seven years and six months, and in Jerusalem he 
 And the king and his men went to Jerusalem against the Jebusites, the inhabitants of the land, who spoke to David, saying, "You shall not come in here; but the blind and the lame will repel you," thinking, "David cannot come in here." 
 
 ###### 7 
-Nevertheless David took the stronghold of Zion (that _is,_ the City of David). 
+Nevertheless David took the stronghold of Zion (that is, the City of David). 
 
 ###### 8 
-Now David said on that day, "Whoever climbs up by way of the water shaft and defeats the Jebusites (the lame and the blind, _who are_ hated by David's soul), _he shall be chief and captain._" Therefore they say, "The blind and the lame shall not come into the house." 
+Now David said on that day, "Whoever climbs up by way of the water shaft and defeats the Jebusites (the lame and the blind, who are hated by David's soul), he shall be chief and captain." Therefore they say, "The blind and the lame shall not come into the house." 
 
 ###### 9 
 Then David dwelt in the stronghold, and called it the City of David. And David built all around from the Millo and inward. 
 
 ###### 10 
-So David went on and became great, and the Lord God of hosts _was_ with him. 
+So David went on and became great, and the Lord God of hosts was with him. 
 
 ###### 11 
 Then Hiram king of Tyre sent messengers to David, and cedar trees, and carpenters and masons. And they built David a house. 
@@ -51,7 +51,7 @@ So David knew that the Lord had established him as king over Israel, and that He
 And David took more concubines and wives from Jerusalem, after he had come from Hebron. Also more sons and daughters were born to David. 
 
 ###### 14 
-Now these _are_ the names of those who were born to him in Jerusalem: Shammua, Shobab, Nathan, Solomon, 
+Now these are the names of those who were born to him in Jerusalem: Shammua, Shobab, Nathan, Solomon, 
 
 ###### 15 
 Ibhar, Elishua, Nepheg, Japhia, 
@@ -62,7 +62,7 @@ Elishama, Eliada, and Eliphelet.
 ## The Philistines Defeated 
 
 ###### 17 
-Now when the Philistines heard that they had anointed David king over Israel, all the Philistines went up to search for David. And David heard _of it_ and went down to the stronghold. 
+Now when the Philistines heard that they had anointed David king over Israel, all the Philistines went up to search for David. And David heard of it and went down to the stronghold. 
 
 ###### 18 
 The Philistines also went and deployed themselves in the Valley of Rephaim. 

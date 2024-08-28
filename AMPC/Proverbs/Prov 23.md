@@ -28,7 +28,7 @@ next: ['Prov 24']
 
 
 
-When you sit down to eat with a ruler, consider who _and_ what are before you; 
+When you sit down to eat with a ruler, consider who and what are before you; 
 
 
 
@@ -133,7 +133,7 @@ Will you set your eyes upon wealth, when [suddenly] it is gone? For riches certa
 
 
 
-Eat not the bread of him who has a hard, grudging, _and_ envious eye, neither desire his dainty foods; 
+Eat not the bread of him who has a hard, grudging, and envious eye, neither desire his dainty foods; 
 
 
 
@@ -259,7 +259,7 @@ For their Redeemer is mighty; He will plead their cause against you.
 
 
 
-Apply your mind to instruction _and_ correction and your ears to words of knowledge. 
+Apply your mind to instruction and correction and your ears to words of knowledge. 
 
 
 
@@ -280,7 +280,7 @@ Apply your mind to instruction _and_ correction and your ears to words of knowle
 
 
 
-Withhold not discipline from the child; for if you strike _and_ punish him with the [reedlike] rod, he will not die. 
+Withhold not discipline from the child; for if you strike and punish him with the [reedlike] rod, he will not die. 
 
 
 
@@ -364,7 +364,7 @@ Yes, my heart will rejoice when your lips speak right things.
 
 
 
-Let not your heart envy sinners, but continue in the reverent _and_ worshipful fear of the Lord all the day long. 
+Let not your heart envy sinners, but continue in the reverent and worshipful fear of the Lord all the day long. 
 
 
 
@@ -385,7 +385,7 @@ Let not your heart envy sinners, but continue in the reverent _and_ worshipful f
 
 
 
-For surely there is a latter end [a future and a reward], and your hope _and_ expectation shall not be cut off. 
+For surely there is a latter end [a future and a reward], and your hope and expectation shall not be cut off. 
 
 
 
@@ -427,7 +427,7 @@ Hear, my son, and be wise, and direct your mind in the way [of the Lord].
 
 
 
-Do not associate with winebibbers; be not among them _nor_ among gluttonous eaters of meat, 
+Do not associate with winebibbers; be not among them nor among gluttonous eaters of meat, 
 
 
 
@@ -490,7 +490,7 @@ Hearken to your father, who begot you, and despise not your mother when she is o
 
 
 
-Buy the truth and sell it not; not only that, but also get discernment _and_ judgment, instruction and understanding. 
+Buy the truth and sell it not; not only that, but also get discernment and judgment, instruction and understanding. 
 
 
 
@@ -553,7 +553,7 @@ Let your father and your mother be glad, and let her who bore you rejoice.
 
 
 
-My son, give me your heart and let your eyes observe _and_ delight in my ways, 
+My son, give me your heart and let your eyes observe and delight in my ways, 
 
 
 
@@ -595,7 +595,7 @@ For a harlot is a deep ditch, and a loose woman is a narrow pit.
 
 
 
-She also lies in wait as a robber _or_ as one waits for prey, and she increases the treacherous among men. 
+She also lies in wait as a robber or as one waits for prey, and she increases the treacherous among men. 
 
 
 
@@ -616,7 +616,7 @@ She also lies in wait as a robber _or_ as one waits for prey, and she increases 
 
 
 
-Who has woe? Who has sorrow? Who has strife? Who has complaining? Who has wounds without cause? Who has redness _and_ dimness of eyes? 
+Who has woe? Who has sorrow? Who has strife? Who has complaining? Who has wounds without cause? Who has redness and dimness of eyes? 
 
 
 
@@ -637,7 +637,7 @@ Who has woe? Who has sorrow? Who has strife? Who has complaining? Who has wounds
 
 
 
-Those who tarry long at the wine, those who go to seek _and_ try mixed wine. 
+Those who tarry long at the wine, those who go to seek and try mixed wine. 
 
 
 
@@ -742,4 +742,4 @@ Yes, you will be [as unsteady] as he who lies down in the midst of the sea, and 
 
 
 
-You will say, They struck me, but I was not hurt! They beat me [as with a hammer], but I did not feel it! When shall I awake? I will crave _and_ seek more wine again [and escape reality].
+You will say, They struck me, but I was not hurt! They beat me [as with a hammer], but I did not feel it! When shall I awake? I will crave and seek more wine again [and escape reality].

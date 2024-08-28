@@ -133,7 +133,7 @@ And you shall love the Lord your God with all your [mind and] heart and with you
 
 
 
-And these words which I am commanding you this day shall be [first] in your [own] minds _and_ hearts; [then] 
+And these words which I am commanding you this day shall be [first] in your [own] minds and hearts; [then] 
 
 
 
@@ -154,7 +154,7 @@ And these words which I am commanding you this day shall be [first] in your [own
 
 
 
-You shall whet _and_ sharpen them so as to make them penetrate, _and_ teach _and_ impress them diligently upon the [minds and] hearts of your children, and shall talk of them when you sit in your house and when you walk by the way, and when you lie down and when you rise up. 
+You shall whet and sharpen them so as to make them penetrate, and teach and impress them diligently upon the [minds and] hearts of your children, and shall talk of them when you sit in your house and when you walk by the way, and when you lie down and when you rise up. 
 
 
 
@@ -343,7 +343,7 @@ For the Lord your God in the midst of you is a jealous God; lest the anger of th
 
 
 
-You shall not tempt _and_ try the Lord your God as you tempted _and_ tried Him in Massah. 
+You shall not tempt and try the Lord your God as you tempted and tried Him in Massah. 
 
 
 

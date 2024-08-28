@@ -16,7 +16,7 @@ Now it came to pass, a long time after the Lord had given rest to Israel from al
 And Joshua called for all Israel, for their elders, for their heads, for their judges, and for their officers, and said to them: "I am old, advanced in age. 
 
 ###### 3 
-You have seen all that the Lord your God has done to all these nations because of you, for the Lord your God _is_ He who has fought for you. 
+You have seen all that the Lord your God has done to all these nations because of you, for the Lord your God is He who has fought for you. 
 
 ###### 4 
 See, I have divided to you by lot these nations that remain, to be an inheritance for your tribes, from the Jordan, with all the nations that I have cut off, as far as the Great Sea westward. 
@@ -28,16 +28,16 @@ And the Lord your God will expel them from before you and drive them out of your
 Therefore be very courageous to keep and to do all that is written in the Book of the Law of Moses, lest you turn aside from it to the right hand or to the left, 
 
 ###### 7 
-_and_ lest you go among these nations, these who remain among you. You shall not make mention of the name of their gods, nor cause _anyone_ to swear _by them;_ you shall not serve them nor bow down to them, 
+and lest you go among these nations, these who remain among you. You shall not make mention of the name of their gods, nor cause anyone to swear by them; you shall not serve them nor bow down to them, 
 
 ###### 8 
 but you shall hold fast to the Lord your God, as you have done to this day. 
 
 ###### 9 
-For the Lord has driven out from before you great and strong nations; but _as for_ you, no one has been able to stand against you to this day. 
+For the Lord has driven out from before you great and strong nations; but as for you, no one has been able to stand against you to this day. 
 
 ###### 10 
-One man of you shall chase a thousand, for the Lord your God _is_ He who fights for you, as He promised you. 
+One man of you shall chase a thousand, for the Lord your God is He who fights for you, as He promised you. 
 
 ###### 11 
 Therefore take careful heed to yourselves, that you love the Lord your God. 
@@ -49,7 +49,7 @@ Or else, if indeed you do go back, and cling to the remnant of these nations--th
 know for certain that the Lord your God will no longer drive out these nations from before you. But they shall be snares and traps to you, and scourges on your sides and thorns in your eyes, until you perish from this good land which the Lord your God has given you. 
 
 ###### 14 
-"Behold, this day I _am_ going the way of all the earth. And you know in all your hearts and in all your souls that not one thing has failed of all the good things which the Lord your God spoke concerning you. All have come to pass for you; not one word of them has failed. 
+"Behold, this day I am going the way of all the earth. And you know in all your hearts and in all your souls that not one thing has failed of all the good things which the Lord your God spoke concerning you. All have come to pass for you; not one word of them has failed. 
 
 ###### 15 
 Therefore it shall come to pass, that as all the good things have come upon you which the Lord your God promised you, so the Lord will bring upon you all harmful things, until He has destroyed you from this good land which the Lord your God has given you. 

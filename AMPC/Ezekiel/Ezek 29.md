@@ -154,7 +154,7 @@ And all the inhabitants of Egypt shall know (understand and realize) that I am t
 
 
 
-When they grasped you with the hand _and_ leaned upon you, you broke and tore their whole shoulder, and [by injuring their muscles made them so stiff and rigid that] they could do no more than stand. 
+When they grasped you with the hand and leaned upon you, you broke and tore their whole shoulder, and [by injuring their muscles made them so stiff and rigid that] they could do no more than stand. 
 
 
 
@@ -343,7 +343,7 @@ It shall be the lowliest of the kingdoms, neither shall it exalt itself any more
 
 
 
-And never again shall Egypt have the confidence _and_ be the reliance of the house of Israel; their iniquity will be brought to remembrance whenever [Israel] looks toward them [for help]. They shall know (understand and realize) that I am the Lord God [Who demands loyalty and obedient service]. 
+And never again shall Egypt have the confidence and be the reliance of the house of Israel; their iniquity will be brought to remembrance whenever [Israel] looks toward them [for help]. They shall know (understand and realize) that I am the Lord God [Who demands loyalty and obedient service]. 
 
 
 
@@ -385,7 +385,7 @@ In the twenty-seventh year [after King Jehoiachin was taken to Babylon], in the 
 
 
 
-Son of man, Nebuchadrezzar king of Babylon caused his army to render heavy service [at My bidding] against Tyre; every [soldier's] head became bald and every shoulder was worn _and_ peeled [with carrying loads of earth and stones for siege works]. Yet he had no remuneration from Tyre [in proportion to the time and labor expended in the thirteen years' siege], either for himself or his army, for the work that he had done against it [for Me]. 
+Son of man, Nebuchadrezzar king of Babylon caused his army to render heavy service [at My bidding] against Tyre; every [soldier's] head became bald and every shoulder was worn and peeled [with carrying loads of earth and stones for siege works]. Yet he had no remuneration from Tyre [in proportion to the time and labor expended in the thirteen years' siege], either for himself or his army, for the work that he had done against it [for Me]. 
 
 
 
@@ -406,7 +406,7 @@ Son of man, Nebuchadrezzar king of Babylon caused his army to render heavy servi
 
 
 
-Therefore thus says the Lord God: Behold, I will give the land of Egypt to Nebuchadrezzar king of Babylon, and he shall carry off her great mass of people _and_ of things (her riches) and take her spoil and take her prey, and it shall be the wages for his army. 
+Therefore thus says the Lord God: Behold, I will give the land of Egypt to Nebuchadrezzar king of Babylon, and he shall carry off her great mass of people and of things (her riches) and take her spoil and take her prey, and it shall be the wages for his army. 
 
 
 

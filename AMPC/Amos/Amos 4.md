@@ -175,7 +175,7 @@ And also I withheld the rain from you when there were yet three months to the ha
 
 
 
-So [the people of] two or three cities wandered _and_ staggered into one city to drink water, but they were not satisfied; yet you did not return to Me, says the Lord. 
+So [the people of] two or three cities wandered and staggered into one city to drink water, but they were not satisfied; yet you did not return to Me, says the Lord. 
 
 
 

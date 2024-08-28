@@ -112,7 +112,7 @@ And Pilate again asked Him, Have You no answer to make? See how many charges the
 
 
 
-But Jesus made no further answer at all, so that Pilate wondered _and_ marveled. 
+But Jesus made no further answer at all, so that Pilate wondered and marveled. 
 
 
 
@@ -511,7 +511,7 @@ And they [attempted to] give Him wine mingled with myrrh, but He would not take 
 
 
 
-And they crucified Him; and they divided His garments _and_ distributed them among themselves, throwing lots for them to decide who should take what. 
+And they crucified Him; and they divided His garments and distributed them among themselves, throwing lots for them to decide who should take what. 
 
 
 
@@ -595,7 +595,7 @@ And with Him they crucified two robbers, one on [His] right hand and one on His 
 
 
 
-_And the Scripture was fulfilled which says, He was counted among the transgressors_. 
+And the Scripture was fulfilled which says, He was counted among the transgressors. 
 
 
 
@@ -616,7 +616,7 @@ _And the Scripture was fulfilled which says, He was counted among the transgress
 
 
 
-And those who passed by kept reviling Him _and_ reproaching Him abusively in harsh _and_ insolent language, wagging their heads and saying, Aha! You Who would destroy the temple and build it in three days, 
+And those who passed by kept reviling Him and reproaching Him abusively in harsh and insolent language, wagging their heads and saying, Aha! You Who would destroy the temple and build it in three days, 
 
 
 
@@ -679,7 +679,7 @@ So also the chief priests, with the scribes, made sport of Him to one another, s
 
 
 
-Let the Christ (the Messiah), the King of Israel, come down now from the cross, that we may see [it] and trust in _and_ rely on Him _and_ adhere to Him! Those who were crucified with Him also reviled _and_ reproached Him [speaking abusively, harshly, and insolently]. 
+Let the Christ (the Messiah), the King of Israel, come down now from the cross, that we may see [it] and trust in and rely on Him and adhere to Him! Those who were crucified with Him also reviled and reproached Him [speaking abusively, harshly, and insolently]. 
 
 
 
@@ -910,7 +910,7 @@ As evening had already come, since it was the day of Preparation, that is, [the 
 
 
 
-Joseph, he of Arimathea, noble _and_ honorable in rank _and_ a respected member of the council (Sanhedrin), who was himself waiting for the kingdom of God, daring the consequences, took courage _and_ ventured to go to Pilate and asked for the body of Jesus. 
+Joseph, he of Arimathea, noble and honorable in rank and a respected member of the council (Sanhedrin), who was himself waiting for the kingdom of God, daring the consequences, took courage and ventured to go to Pilate and asked for the body of Jesus. 
 
 
 

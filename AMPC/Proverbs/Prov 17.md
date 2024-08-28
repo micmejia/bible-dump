@@ -112,7 +112,7 @@ An evildoer gives heed to wicked lips; and a liar listens to a mischievous tongu
 
 
 
-Whoever mocks the poor reproaches his Maker, and he who is glad at calamity shall not be held innocent _or_ go unpunished. 
+Whoever mocks the poor reproaches his Maker, and he who is glad at calamity shall not be held innocent or go unpunished. 
 
 
 
@@ -154,7 +154,7 @@ Children's children are the crown of old men, and the glory of children is their
 
 
 
-Fine _or_ arrogant speech does not befit [an empty-headed] fool--much less do lying lips befit a prince. 
+Fine or arrogant speech does not befit [an empty-headed] fool--much less do lying lips befit a prince. 
 
 
 
@@ -175,7 +175,7 @@ Fine _or_ arrogant speech does not befit [an empty-headed] fool--much less do ly
 
 
 
-A bribe is like a bright, precious stone that dazzles the eyes _and_ affects the mind of him who gives it; [as if by magic] he prospers, whichever way he turns. 
+A bribe is like a bright, precious stone that dazzles the eyes and affects the mind of him who gives it; [as if by magic] he prospers, whichever way he turns. 
 
 
 
@@ -196,7 +196,7 @@ A bribe is like a bright, precious stone that dazzles the eyes _and_ affects the
 
 
 
-He who covers _and_ forgives an offense seeks love, but he who repeats _or_ harps on a matter separates even close friends. 
+He who covers and forgives an offense seeks love, but he who repeats or harps on a matter separates even close friends. 
 
 
 
@@ -238,7 +238,7 @@ A reproof enters deeper into a man of understanding than a hundred lashes into a
 
 
 
-An evil man seeks only rebellion; therefore a stern _and_ pitiless messenger shall be sent against him. 
+An evil man seeks only rebellion; therefore a stern and pitiless messenger shall be sent against him. 
 
 
 
@@ -301,7 +301,7 @@ Whoever rewards evil for good, evil shall not depart from his house.
 
 
 
-The beginning of strife is as when water first trickles [from a crack in a dam]; therefore stop contention before it becomes worse _and_ quarreling breaks out. 
+The beginning of strife is as when water first trickles [from a crack in a dam]; therefore stop contention before it becomes worse and quarreling breaks out. 
 
 
 
@@ -343,7 +343,7 @@ He who justifies the wicked and he who condemns the righteous are both an abomin
 
 
 
-Of what use is money in the hand of a [self-confident] fool to buy skillful _and_ godly Wisdom--when he has no understanding _or_ heart for it? 
+Of what use is money in the hand of a [self-confident] fool to buy skillful and godly Wisdom--when he has no understanding or heart for it? 
 
 
 
@@ -406,7 +406,7 @@ A man void of good sense gives a pledge and becomes security for another in the 
 
 
 
-He who loves strife _and_ is quarrelsome loves transgression _and_ involves himself in guilt; he who raises high his gateway _and_ is boastful _and_ arrogant invites destruction. 
+He who loves strife and is quarrelsome loves transgression and involves himself in guilt; he who raises high his gateway and is boastful and arrogant invites destruction. 
 
 
 
@@ -427,7 +427,7 @@ He who loves strife _and_ is quarrelsome loves transgression _and_ involves hims
 
 
 
-He who has a wayward _and_ crooked mind finds no good, and he who has a willful _and_ contrary tongue will fall into calamity. 
+He who has a wayward and crooked mind finds no good, and he who has a willful and contrary tongue will fall into calamity. 
 
 
 
@@ -469,7 +469,7 @@ He who becomes the parent of a [self-confident] fool does it to his sorrow, and 
 
 
 
-A happy heart is good medicine _and_ a cheerful mind works healing, but a broken spirit dries up the bones. 
+A happy heart is good medicine and a cheerful mind works healing, but a broken spirit dries up the bones. 
 
 
 
@@ -511,7 +511,7 @@ A wicked man receives a bribe out of the bosom (pocket) to pervert the ways of j
 
 
 
-A man of understanding sets skillful _and_ godly Wisdom before his face, but the eyes of a [self-confident] fool are on the ends of the earth. 
+A man of understanding sets skillful and godly Wisdom before his face, but the eyes of a [self-confident] fool are on the ends of the earth. 
 
 
 
@@ -532,7 +532,7 @@ A man of understanding sets skillful _and_ godly Wisdom before his face, but the
 
 
 
-A self-confident _and_ foolish son is a grief to his father and bitterness to her who bore him. 
+A self-confident and foolish son is a grief to his father and bitterness to her who bore him. 
 
 
 
@@ -553,7 +553,7 @@ A self-confident _and_ foolish son is a grief to his father and bitterness to he
 
 
 
-Also, to punish _or_ fine the righteous is not good, nor to smite the noble for their uprightness. 
+Also, to punish or fine the righteous is not good, nor to smite the noble for their uprightness. 
 
 
 

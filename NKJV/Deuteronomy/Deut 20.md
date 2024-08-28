@@ -10,7 +10,7 @@ next: ['Deut 21']
 
 
 ###### 1 
-"When you go out to battle against your enemies, and see horses and chariots _and_ people more numerous than you, do not be afraid of them; for the Lord your God _is_ with you, who brought you up from the land of Egypt. 
+"When you go out to battle against your enemies, and see horses and chariots and people more numerous than you, do not be afraid of them; for the Lord your God is with you, who brought you up from the land of Egypt. 
 
 ###### 2 
 So it shall be, when you are on the verge of battle, that the priest shall approach and speak to the people. 
@@ -19,19 +19,19 @@ So it shall be, when you are on the verge of battle, that the priest shall appro
 And he shall say to them, 'Hear, O Israel: Today you are on the verge of battle with your enemies. Do not let your heart faint, do not be afraid, and do not tremble or be terrified because of them; 
 
 ###### 4 
-for the Lord your God _is_ He who goes with you, to fight for you against your enemies, to save you.' 
+for the Lord your God is He who goes with you, to fight for you against your enemies, to save you.' 
 
 ###### 5 
-"Then the officers shall speak to the people, saying: 'What man _is there_ who has built a new house and has not dedicated it? Let him go and return to his house, lest he die in the battle and another man dedicate it. 
+"Then the officers shall speak to the people, saying: 'What man is there who has built a new house and has not dedicated it? Let him go and return to his house, lest he die in the battle and another man dedicate it. 
 
 ###### 6 
-Also what man _is there_ who has planted a vineyard and has not eaten of it? Let him go and return to his house, lest he die in the battle and another man eat of it. 
+Also what man is there who has planted a vineyard and has not eaten of it? Let him go and return to his house, lest he die in the battle and another man eat of it. 
 
 ###### 7 
-And what man _is there_ who is betrothed to a woman and has not married her? Let him go and return to his house, lest he die in the battle and another man marry her.' 
+And what man is there who is betrothed to a woman and has not married her? Let him go and return to his house, lest he die in the battle and another man marry her.' 
 
 ###### 8 
-"The officers shall speak further to the people, and say, 'What man _is there who is_ fearful and fainthearted? Let him go and return to his house, lest the heart of his brethren faint like his heart.' 
+"The officers shall speak further to the people, and say, 'What man is there who is fearful and fainthearted? Let him go and return to his house, lest the heart of his brethren faint like his heart.' 
 
 ###### 9 
 And so it shall be, when the officers have finished speaking to the people, that they shall make captains of the armies to lead the people. 
@@ -40,10 +40,10 @@ And so it shall be, when the officers have finished speaking to the people, that
 "When you go near a city to fight against it, then proclaim an offer of peace to it. 
 
 ###### 11 
-And it shall be that if they accept your offer of peace, and open to you, then all the people _who are_ found in it shall be placed under tribute to you, and serve you. 
+And it shall be that if they accept your offer of peace, and open to you, then all the people who are found in it shall be placed under tribute to you, and serve you. 
 
 ###### 12 
-Now if _the city_ will not make peace with you, but war against you, then you shall besiege it. 
+Now if the city will not make peace with you, but war against you, then you shall besiege it. 
 
 ###### 13 
 And when the Lord your God delivers it into your hands, you shall strike every male in it with the edge of the sword. 
@@ -52,10 +52,10 @@ And when the Lord your God delivers it into your hands, you shall strike every m
 But the women, the little ones, the livestock, and all that is in the city, all its spoil, you shall plunder for yourself; and you shall eat the enemies' plunder which the Lord your God gives you. 
 
 ###### 15 
-Thus you shall do to all the cities _which are_ very far from you, which _are_ not of the cities of these nations. 
+Thus you shall do to all the cities which are very far from you, which are not of the cities of these nations. 
 
 ###### 16 
-"But of the cities of these peoples which the Lord your God gives you _as_ an inheritance, you shall let nothing that breathes remain alive, 
+"But of the cities of these peoples which the Lord your God gives you as an inheritance, you shall let nothing that breathes remain alive, 
 
 ###### 17 
 but you shall utterly destroy them: the Hittite and the Amorite and the Canaanite and the Perizzite and the Hivite and the Jebusite, just as the Lord your God has commanded you, 
@@ -64,7 +64,7 @@ but you shall utterly destroy them: the Hittite and the Amorite and the Canaanit
 lest they teach you to do according to all their abominations which they have done for their gods, and you sin against the Lord your God. 
 
 ###### 19 
-"When you besiege a city for a long time, while making war against it to take it, you shall not destroy its trees by wielding an ax against them; if you can eat of them, do not cut them down to use in the siege, for the tree of the field _is_ man's _food._ 
+"When you besiege a city for a long time, while making war against it to take it, you shall not destroy its trees by wielding an ax against them; if you can eat of them, do not cut them down to use in the siege, for the tree of the field is man's food. 
 
 ###### 20 
-Only the trees which you know _are_ not trees for food you may destroy and cut down, to build siegeworks against the city that makes war with you, until it is subdued.
+Only the trees which you know are not trees for food you may destroy and cut down, to build siegeworks against the city that makes war with you, until it is subdued.

@@ -28,7 +28,7 @@ next: ['Rom 11']
 
 
 
-Brethren, [with all] my heart's desire _and_ goodwill for [Israel], I long and pray to God that they may be saved. 
+Brethren, [with all] my heart's desire and goodwill for [Israel], I long and pray to God that they may be saved. 
 
 
 
@@ -49,7 +49,7 @@ Brethren, [with all] my heart's desire _and_ goodwill for [Israel], I long and p
 
 
 
-I bear them witness that they have a [certain] zeal _and_ enthusiasm for God, but it is not enlightened _and_ according to [correct and vital] knowledge. 
+I bear them witness that they have a [certain] zeal and enthusiasm for God, but it is not enlightened and according to [correct and vital] knowledge. 
 
 
 
@@ -70,7 +70,7 @@ I bear them witness that they have a [certain] zeal _and_ enthusiasm for God, bu
 
 
 
-For being ignorant of the righteousness that God ascribes [which makes one acceptable to Him in word, thought, and deed] and seeking to establish a _righteousness (a means of salvation)_ of their own, they did not obey _or_ submit themselves to God's righteousness. 
+For being ignorant of the righteousness that God ascribes [which makes one acceptable to Him in word, thought, and deed] and seeking to establish a righteousness (a means of salvation) of their own, they did not obey or submit themselves to God's righteousness. 
 
 
 
@@ -91,7 +91,7 @@ For being ignorant of the righteousness that God ascribes [which makes one accep
 
 
 
-For Christ is the end of the Law [the limit at which it ceases to be, for the Law leads up to Him Who is the fulfillment of its types, and in Him the purpose which it was designed to accomplish is fulfilled. That is, the purpose of the Law is fulfilled in Him] as the means of righteousness (right relationship to God) for everyone who trusts in _and_ adheres to _and_ relies on Him. 
+For Christ is the end of the Law [the limit at which it ceases to be, for the Law leads up to Him Who is the fulfillment of its types, and in Him the purpose which it was designed to accomplish is fulfilled. That is, the purpose of the Law is fulfilled in Him] as the means of righteousness (right relationship to God) for everyone who trusts in and adheres to and relies on Him. 
 
 
 
@@ -196,7 +196,7 @@ But what does it say? The Word (God's message in Christ) is near you, on your li
 
 
 
-Because if you acknowledge _and_ confess with your lips that Jesus is Lord and in your heart believe (adhere to, trust in, and rely on the truth) that God raised Him from the dead, you will be saved. 
+Because if you acknowledge and confess with your lips that Jesus is Lord and in your heart believe (adhere to, trust in, and rely on the truth) that God raised Him from the dead, you will be saved. 
 
 
 
@@ -217,7 +217,7 @@ Because if you acknowledge _and_ confess with your lips that Jesus is Lord and i
 
 
 
-For with the heart a person believes (adheres to, trusts in, and relies on Christ) and so is justified (declared righteous, acceptable to God), and with the mouth he confesses (declares openly and speaks out freely his faith) _and_ confirms [his] salvation. 
+For with the heart a person believes (adheres to, trusts in, and relies on Christ) and so is justified (declared righteous, acceptable to God), and with the mouth he confesses (declares openly and speaks out freely his faith) and confirms [his] salvation. 
 
 
 
@@ -238,7 +238,7 @@ For with the heart a person believes (adheres to, trusts in, and relies on Chris
 
 
 
-The Scripture says, No man who believes in Him [who adheres to, relies on, and trusts in Him] will [ever] be put to shame _or_ be disappointed. 
+The Scripture says, No man who believes in Him [who adheres to, relies on, and trusts in Him] will [ever] be put to shame or be disappointed. 
 
 
 
@@ -448,4 +448,4 @@ Then Isaiah is so bold as to say, I have been found by those who did not seek Me
 
 
 
-But of Israel he says, All day long I have stretched out My hands to a people unyielding _and_ disobedient and self-willed [to a faultfinding, contrary, and contradicting people].
+But of Israel he says, All day long I have stretched out My hands to a people unyielding and disobedient and self-willed [to a faultfinding, contrary, and contradicting people].

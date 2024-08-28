@@ -112,7 +112,7 @@ You have seen what I did to the Egyptians, and how I bore you on eagles' wings a
 
 
 
-Now therefore, if you will obey My voice in truth and keep My covenant, then you shall be My own peculiar possession _and_ treasure from among _and_ above all peoples; for all the earth is Mine. 
+Now therefore, if you will obey My voice in truth and keep My covenant, then you shall be My own peculiar possession and treasure from among and above all peoples; for all the earth is Mine. 
 
 
 
@@ -196,7 +196,7 @@ And all the people answered together, and said, All that the Lord has spoken we 
 
 
 
-And the Lord said to Moses, Behold, I come to you in a thick cloud, that the people may hear when I speak with you and believe you _and_ remain steadfast forever. Then Moses told the words of the people to the Lord. 
+And the Lord said to Moses, Behold, I come to you in a thick cloud, that the people may hear when I speak with you and believe you and remain steadfast forever. Then Moses told the words of the people to the Lord. 
 
 
 

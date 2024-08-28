@@ -10,16 +10,16 @@ next: ['Isa 38']
 
 
 ###### 1 
-And so it was, when King Hezekiah heard _it,_ that he tore his clothes, covered himself with sackcloth, and went into the house of the Lord. 
+And so it was, when King Hezekiah heard it, that he tore his clothes, covered himself with sackcloth, and went into the house of the Lord. 
 
 ###### 2 
-Then he sent Eliakim, who _was_ over the household, Shebna the scribe, and the elders of the priests, covered with sackcloth, to Isaiah the prophet, the son of Amoz. 
+Then he sent Eliakim, who was over the household, Shebna the scribe, and the elders of the priests, covered with sackcloth, to Isaiah the prophet, the son of Amoz. 
 
 ###### 3 
-And they said to him, "Thus says Hezekiah: 'This day _is_ a day of trouble and rebuke and blasphemy; for the children have come to birth, but _there is_ no strength to bring them forth. 
+And they said to him, "Thus says Hezekiah: 'This day is a day of trouble and rebuke and blasphemy; for the children have come to birth, but there is no strength to bring them forth. 
 
 ###### 4 
-It may be that the Lord your God will hear the words of _the_ Rabshakeh, whom his master the king of Assyria has sent to reproach the living God, and will rebuke the words which the Lord your God has heard. Therefore lift up _your_ prayer for the remnant that is left.' " 
+It may be that the Lord your God will hear the words of the Rabshakeh, whom his master the king of Assyria has sent to reproach the living God, and will rebuke the words which the Lord your God has heard. Therefore lift up your prayer for the remnant that is left.' " 
 
 ###### 5 
 So the servants of King Hezekiah came to Isaiah. 
@@ -33,10 +33,10 @@ Surely I will send a spirit upon him, and he shall hear a rumor and return to hi
 ## Sennacherib's Threat and Hezekiah's Prayer 
 
 ###### 8 
-Then _the_ Rabshakeh returned, and found the king of Assyria warring against Libnah, for he heard that he had departed from Lachish. 
+Then the Rabshakeh returned, and found the king of Assyria warring against Libnah, for he heard that he had departed from Lachish. 
 
 ###### 9 
-And the king heard concerning Tirhakah king of Ethiopia, "He has come out to make war with you." So when he heard _it,_ he sent messengers to Hezekiah, saying, 
+And the king heard concerning Tirhakah king of Ethiopia, "He has come out to make war with you." So when he heard it, he sent messengers to Hezekiah, saying, 
 
 ###### 10 
 "Thus you shall speak to Hezekiah king of Judah, saying: 'Do not let your God in whom you trust deceive you, saying, "Jerusalem shall not be given into the hand of the king of Assyria." 
@@ -45,10 +45,10 @@ And the king heard concerning Tirhakah king of Ethiopia, "He has come out to mak
 Look! You have heard what the kings of Assyria have done to all lands by utterly destroying them; and shall you be delivered? 
 
 ###### 12 
-Have the gods of the nations delivered those whom my fathers have destroyed, Gozan and Haran and Rezeph, and the people of Eden who _were_ in Telassar? 
+Have the gods of the nations delivered those whom my fathers have destroyed, Gozan and Haran and Rezeph, and the people of Eden who were in Telassar? 
 
 ###### 13 
-Where _is_ the king of Hamath, the king of Arpad, and the king of the city of Sepharvaim, Hena, and Ivah?' " 
+Where is the king of Hamath, the king of Arpad, and the king of the city of Sepharvaim, Hena, and Ivah?' " 
 
 ###### 14 
 And Hezekiah received the letter from the hand of the messengers, and read it; and Hezekiah went up to the house of the Lord, and spread it before the Lord. 
@@ -57,7 +57,7 @@ And Hezekiah received the letter from the hand of the messengers, and read it; a
 Then Hezekiah prayed to the Lord, saying: 
 
 ###### 16 
-"O Lord of hosts, God of Israel, _the One_ who dwells _between_ the cherubim, You _are_ God, You alone, of all the kingdoms of the earth. You have made heaven and earth. 
+"O Lord of hosts, God of Israel, the One who dwells between the cherubim, You are God, You alone, of all the kingdoms of the earth. You have made heaven and earth. 
 
 ###### 17 
 Incline Your ear, O Lord, and hear; open Your eyes, O Lord, and see; and hear all the words of Sennacherib, which he has sent to reproach the living God. 
@@ -66,10 +66,10 @@ Incline Your ear, O Lord, and hear; open Your eyes, O Lord, and see; and hear al
 Truly, Lord, the kings of Assyria have laid waste all the nations and their lands, 
 
 ###### 19 
-and have cast their gods into the fire; for they _were_ not gods, but the work of men's hands--wood and stone. Therefore they destroyed them. 
+and have cast their gods into the fire; for they were not gods, but the work of men's hands--wood and stone. Therefore they destroyed them. 
 
 ###### 20 
-Now therefore, O Lord our God, save us from his hand, that all the kingdoms of the earth may know that You _are_ the Lord, You alone." 
+Now therefore, O Lord our God, save us from his hand, that all the kingdoms of the earth may know that You are the Lord, You alone." 
 
 ## The Word of the Lord Concerning Sennacherib 
 
@@ -77,22 +77,22 @@ Now therefore, O Lord our God, save us from his hand, that all the kingdoms of t
 Then Isaiah the son of Amoz sent to Hezekiah, saying, "Thus says the Lord God of Israel, 'Because you have prayed to Me against Sennacherib king of Assyria, 
 
 ###### 22 
-this _is_ the word which the Lord has spoken concerning him: "The virgin, the daughter of Zion, Has despised you, laughed you to scorn; The daughter of Jerusalem Has shaken _her_ head behind your back! 
+this is the word which the Lord has spoken concerning him: "The virgin, the daughter of Zion, Has despised you, laughed you to scorn; The daughter of Jerusalem Has shaken her head behind your back! 
 
 ###### 23 
-"Whom have you reproached and blasphemed? Against whom have you raised _your_ voice, And lifted up your eyes on high? Against the Holy One of Israel. 
+"Whom have you reproached and blasphemed? Against whom have you raised your voice, And lifted up your eyes on high? Against the Holy One of Israel. 
 
 ###### 24 
-By your servants you have reproached the Lord, And said, 'By the multitude of my chariots I have come up to the height of the mountains, To the limits of Lebanon; I will cut down its tall cedars _And_ its choice cypress trees; I will enter its farthest height, To its fruitful forest. 
+By your servants you have reproached the Lord, And said, 'By the multitude of my chariots I have come up to the height of the mountains, To the limits of Lebanon; I will cut down its tall cedars And its choice cypress trees; I will enter its farthest height, To its fruitful forest. 
 
 ###### 25 
 I have dug and drunk water, And with the soles of my feet I have dried up All the brooks of defense.' 
 
 ###### 26 
-"Did you not hear long ago _How_ I made it, From ancient times that I formed it? Now I have brought it to pass, That you should be For crushing fortified cities _into_ heaps of ruins. 
+"Did you not hear long ago How I made it, From ancient times that I formed it? Now I have brought it to pass, That you should be For crushing fortified cities into heaps of ruins. 
 
 ###### 27 
-Therefore their inhabitants _had_ little power; They were dismayed and confounded; They were _as_ the grass of the field And the green herb, _As_ the grass on the housetops And _grain_ blighted before it is grown. 
+Therefore their inhabitants had little power; They were dismayed and confounded; They were as the grass of the field And the green herb, As the grass on the housetops And grain blighted before it is grown. 
 
 ###### 28 
 "But I know your dwelling place, Your going out and your coming in, And your rage against Me. 
@@ -101,7 +101,7 @@ Therefore their inhabitants _had_ little power; They were dismayed and confounde
 Because your rage against Me and your tumult Have come up to My ears, Therefore I will put My hook in your nose And My bridle in your lips, And I will turn you back By the way which you came." ' 
 
 ###### 30 
-"This _shall be_ a sign to you: You shall eat this year such as grows of itself, And the second year what springs from the same; Also in the third year sow and reap, Plant vineyards and eat the fruit of them. 
+"This shall be a sign to you: You shall eat this year such as grows of itself, And the second year what springs from the same; Also in the third year sow and reap, Plant vineyards and eat the fruit of them. 
 
 ###### 31 
 And the remnant who have escaped of the house of Judah Shall again take root downward, And bear fruit upward. 
@@ -121,10 +121,10 @@ By the way that he came, By the same shall he return; And he shall not come into
 ## Sennacherib's Defeat and Death 
 
 ###### 36 
-Then the angel of the Lord went out, and killed in the camp of the Assyrians one hundred and eighty-five thousand; and when _people_ arose early in the morning, there were the corpses--all dead. 
+Then the angel of the Lord went out, and killed in the camp of the Assyrians one hundred and eighty-five thousand; and when people arose early in the morning, there were the corpses--all dead. 
 
 ###### 37 
-So Sennacherib king of Assyria departed and went away, returned _home,_ and remained at Nineveh. 
+So Sennacherib king of Assyria departed and went away, returned home, and remained at Nineveh. 
 
 ###### 38 
 Now it came to pass, as he was worshiping in the house of Nisroch his god, that his sons Adrammelech and Sharezer struck him down with the sword; and they escaped into the land of Ararat. Then Esarhaddon his son reigned in his place.

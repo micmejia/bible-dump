@@ -90,7 +90,7 @@ And the [Babylonian] king told Ashpenaz, the master of his eunuchs, to bring in 
 
 
 
-Youths without blemish, well-favored in appearance and skillful in all wisdom, discernment, _and_ understanding, apt in learning knowledge, competent to stand _and_ serve in the king's palace--and to teach them the literature and language of the Chaldeans. 
+Youths without blemish, well-favored in appearance and skillful in all wisdom, discernment, and understanding, apt in learning knowledge, competent to stand and serve in the king's palace--and to teach them the literature and language of the Chaldeans. 
 
 
 
@@ -111,7 +111,7 @@ Youths without blemish, well-favored in appearance and skillful in all wisdom, d
 
 
 
-And the king assigned for them a daily portion of his own rich _and_ dainty food and of the wine which he drank. They were to be so educated _and_ so nourished for three years that at the end of that time they might stand before the king. 
+And the king assigned for them a daily portion of his own rich and dainty food and of the wine which he drank. They were to be so educated and so nourished for three years that at the end of that time they might stand before the king. 
 
 
 
@@ -174,7 +174,7 @@ The chief of the eunuchs gave them names: Daniel he called Belteshazzar [the kin
 
 
 
-But Daniel determined in his heart that he would not defile himself by [eating his portion of] the king's rich _and_ dainty food or by [drinking] the wine which he drank; therefore he requested of the chief of the eunuchs that he might [be allowed] not to defile himself. 
+But Daniel determined in his heart that he would not defile himself by [eating his portion of] the king's rich and dainty food or by [drinking] the wine which he drank; therefore he requested of the chief of the eunuchs that he might [be allowed] not to defile himself. 
 
 
 
@@ -195,7 +195,7 @@ But Daniel determined in his heart that he would not defile himself by [eating h
 
 
 
-Now God made Daniel to find favor, compassion, _and_ loving-kindness with the chief of the eunuchs. 
+Now God made Daniel to find favor, compassion, and loving-kindness with the chief of the eunuchs. 
 
 
 
@@ -216,7 +216,7 @@ Now God made Daniel to find favor, compassion, _and_ loving-kindness with the ch
 
 
 
-And the chief of the eunuchs said to Daniel, I fear, lest my lord the king, who has appointed your food and your drink, should see your faces worse looking _or_ more sad than the other youths of your age. Then you would endanger my head with the king. 
+And the chief of the eunuchs said to Daniel, I fear, lest my lord the king, who has appointed your food and your drink, should see your faces worse looking or more sad than the other youths of your age. Then you would endanger my head with the king. 
 
 
 
@@ -279,7 +279,7 @@ Prove your servants, I beseech you, for ten days and let us be given a vegetable
 
 
 
-Then let our appearance and the appearance of the youths who eat of the king's [rich] dainties be observed _and_ compared by you, and deal with us your servants according to what you see. 
+Then let our appearance and the appearance of the youths who eat of the king's [rich] dainties be observed and compared by you, and deal with us your servants according to what you see. 
 
 
 

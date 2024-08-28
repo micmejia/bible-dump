@@ -49,7 +49,7 @@ When men began to multiply on the face of the land and daughters were born to th
 
 
 
-The sons of God saw that the daughters of men were fair, and they took wives of all they desired _and_ chose. 
+The sons of God saw that the daughters of men were fair, and they took wives of all they desired and chose. 
 
 
 
@@ -70,7 +70,7 @@ The sons of God saw that the daughters of men were fair, and they took wives of 
 
 
 
-Then the Lord said, My Spirit shall not forever dwell _and_ strive with man, for he also is flesh; but his days shall yet be 120 years. 
+Then the Lord said, My Spirit shall not forever dwell and strive with man, for he also is flesh; but his days shall yet be 120 years. 
 
 
 
@@ -112,7 +112,7 @@ There were giants on the earth in those days--and also afterward--when the sons 
 
 
 
-The Lord saw that the wickedness of man was great in the earth, and that every imagination _and_ intention of all human thinking was only evil continually. 
+The Lord saw that the wickedness of man was great in the earth, and that every imagination and intention of all human thinking was only evil continually. 
 
 
 
@@ -154,7 +154,7 @@ And the Lord regretted that He had made man on the earth, and He was grieved at 
 
 
 
-So the Lord said, I will destroy, blot out, _and_ wipe away mankind, whom I have created from the face of the ground--not only man, [but] the beasts and the creeping things and the birds of the air--for it grieves Me _and_ makes Me regretful that I have made them. 
+So the Lord said, I will destroy, blot out, and wipe away mankind, whom I have created from the face of the ground--not only man, [but] the beasts and the creeping things and the birds of the air--for it grieves Me and makes Me regretful that I have made them. 
 
 
 
@@ -196,7 +196,7 @@ But Noah found grace (favor) in the eyes of the Lord.
 
 
 
-This is the history of the generations of Noah. Noah was a just _and_ righteous man, blameless _in_ his [evil] generation; Noah walked [in habitual fellowship] with God. 
+This is the history of the generations of Noah. Noah was a just and righteous man, blameless in his [evil] generation; Noah walked [in habitual fellowship] with God. 
 
 
 
@@ -238,7 +238,7 @@ And Noah became the father of three sons: Shem, Ham, and Japheth.
 
 
 
-The earth was depraved _and_ putrid in God's sight, and the land was filled with violence (desecration, infringement, outrage, assault, and lust for power). 
+The earth was depraved and putrid in God's sight, and the land was filled with violence (desecration, infringement, outrage, assault, and lust for power). 
 
 
 
@@ -259,7 +259,7 @@ The earth was depraved _and_ putrid in God's sight, and the land was filled with
 
 
 
-And God looked upon the world and saw how degenerate, debased, _and_ vicious it was, for all humanity had corrupted their way upon the earth _and_ lost their true direction. 
+And God looked upon the world and saw how degenerate, debased, and vicious it was, for all humanity had corrupted their way upon the earth and lost their true direction. 
 
 
 
@@ -301,7 +301,7 @@ God said to Noah, I intend to make an end of all flesh, for through men the land
 
 
 
-Make yourself an ark of gopher _or_ cypress wood; make in _it_ rooms (stalls, pens, coops, nests, cages, and compartments) and cover it inside and out with pitch (bitumen). 
+Make yourself an ark of gopher or cypress wood; make in it rooms (stalls, pens, coops, nests, cages, and compartments) and cover it inside and out with pitch (bitumen). 
 
 
 
@@ -364,7 +364,7 @@ You shall make a roof or window [a place for light] for the ark and finish it to
 
 
 
-For behold, I, even I, will bring a flood of waters upon the earth to destroy _and_ make putrid all flesh under the heavens in which are the breath _and_ spirit of life; everything that is on the land shall die. 
+For behold, I, even I, will bring a flood of waters upon the earth to destroy and make putrid all flesh under the heavens in which are the breath and spirit of life; everything that is on the land shall die. 
 
 
 
@@ -427,7 +427,7 @@ And of every living thing of all flesh [found on land], you shall bring two of e
 
 
 
-Of fowls _and_ birds according to their kinds, of beasts according to their kinds, of every creeping thing of the ground according to its kind--two of every sort shall come in with you, that they may be kept alive. 
+Of fowls and birds according to their kinds, of beasts according to their kinds, of every creeping thing of the ground according to its kind--two of every sort shall come in with you, that they may be kept alive. 
 
 
 
@@ -448,7 +448,7 @@ Of fowls _and_ birds according to their kinds, of beasts according to their kind
 
 
 
-Also take with you every sort of food that is eaten, and you shall collect _and_ store it up, and it shall serve as food for you and for them. 
+Also take with you every sort of food that is eaten, and you shall collect and store it up, and it shall serve as food for you and for them. 
 
 
 

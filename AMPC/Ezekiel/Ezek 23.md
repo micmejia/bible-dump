@@ -112,7 +112,7 @@ And the names of them were Aholah the elder and Aholibah her sister, and they be
 
 
 
-And Aholah played the harlot when she was Mine, and she was foolishly fond of her lovers _and_ doted on the Assyrians her neighbors, 
+And Aholah played the harlot when she was Mine, and she was foolishly fond of her lovers and doted on the Assyrians her neighbors, 
 
 
 
@@ -217,7 +217,7 @@ Wherefore I delivered her into the hand of her lovers, into the hand of the Assy
 
 
 
-These uncovered her nakedness _and_ shame; they took her sons and her daughters and they slew her with the sword, and her name became notorious _and_ a byword among women when judgments were executed upon her. 
+These uncovered her nakedness and shame; they took her sons and her daughters and they slew her with the sword, and her name became notorious and a byword among women when judgments were executed upon her. 
 
 
 
@@ -364,7 +364,7 @@ Then as soon as she saw [the sketches of] them, she doted on them and sent messe
 
 
 
-And the Babylonians came to her into the bed of love, and they defiled her with their evil desire; and when she was polluted by them, she [Jerusalem] broke the relationship _and_ pushed them away from her in disgust. 
+And the Babylonians came to her into the bed of love, and they defiled her with their evil desire; and when she was polluted by them, she [Jerusalem] broke the relationship and pushed them away from her in disgust. 
 
 
 
@@ -427,7 +427,7 @@ Yet she multiplied her harlotries, remembering the days of her youth in which sh
 
 
 
-For she doted upon her paramours there, whose lust was sensuous _and_ vulgar like that of asses _or_ stallions. 
+For she doted upon her paramours there, whose lust was sensuous and vulgar like that of asses or stallions. 
 
 
 
@@ -490,7 +490,7 @@ Therefore, O Aholibah, thus says the Lord God: Behold, I will rouse up your love
 
 
 
-The Babylonians and all the Chaldeans, Pekod and Shoa and Koa, and all the Assyrians with them, desirable young men, governors and officers all of them, princes, men of renown _and_ counselors, all of them riding on horses. 
+The Babylonians and all the Chaldeans, Pekod and Shoa and Koa, and all the Assyrians with them, desirable young men, governors and officers all of them, princes, men of renown and counselors, all of them riding on horses. 
 
 
 
@@ -511,7 +511,7 @@ The Babylonians and all the Chaldeans, Pekod and Shoa and Koa, and all the Assyr
 
 
 
-And they shall come against you with weapons, chariots, wagons _and_ wheels, and with a host of infantry which shall array themselves against you with buckler and shield and helmet round about; and I will commit the judgment _and_ punishment to them, and they shall judge _and_ punish you according to their [heathen] customs in such matters. 
+And they shall come against you with weapons, chariots, wagons and wheels, and with a host of infantry which shall array themselves against you with buckler and shield and helmet round about; and I will commit the judgment and punishment to them, and they shall judge and punish you according to their [heathen] customs in such matters. 
 
 
 
@@ -679,7 +679,7 @@ You have walked in the way of your sister [Samaria, Israel's capital]; therefore
 
 
 
-Thus says the Lord God: You shall drink of your sister's cup which is deep and wide _and_ brimful; you shall be laughed to scorn and held in derision, for it contains much [too much to endure]. 
+Thus says the Lord God: You shall drink of your sister's cup which is deep and wide and brimful; you shall be laughed to scorn and held in derision, for it contains much [too much to endure]. 
 
 
 
@@ -700,7 +700,7 @@ Thus says the Lord God: You shall drink of your sister's cup which is deep and w
 
 
 
-You shall be filled with drunkenness and sorrow, with the cup of wasting astonishment _and_ horror and desolation, with the cup of your sister Samaria. 
+You shall be filled with drunkenness and sorrow, with the cup of wasting astonishment and horror and desolation, with the cup of your sister Samaria. 
 
 
 
@@ -763,7 +763,7 @@ Therefore thus says the Lord God: Because you have forgotten Me [your divine Hus
 
 
 
-The Lord said, moreover, to me: Son of man, will you judge Aholah and Aholibah? Then declare _and_ show to them their abominations (the detestable, loathsome, and shamefully vile things they do), 
+The Lord said, moreover, to me: Son of man, will you judge Aholah and Aholibah? Then declare and show to them their abominations (the detestable, loathsome, and shamefully vile things they do), 
 
 
 
@@ -952,7 +952,7 @@ Yet they went in to her as they go in to a woman who plays the harlot; so they w
 
 
 
-And the righteous men, they shall judge _and_ condemn them to the punishment due to adulteresses, to women who shed blood, for they are adulteresses and blood is upon their hands. 
+And the righteous men, they shall judge and condemn them to the punishment due to adulteresses, to women who shed blood, for they are adulteresses and blood is upon their hands. 
 
 
 

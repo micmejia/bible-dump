@@ -49,7 +49,7 @@ Then He was praying in a certain place; and when He stopped, one of His disciple
 
 
 
-And He said to them, When you pray, say: _Our_ Father _Who is in heaven_, hallowed be Your name, Your kingdom come. _Your will be done [held holy and revered] on earth as it is in heaven._ 
+And He said to them, When you pray, say: Our Father Who is in heaven, hallowed be Your name, Your kingdom come. Your will be done [held holy and revered] on earth as it is in heaven. 
 
 
 
@@ -91,7 +91,7 @@ Give us daily our bread [food for the morrow].
 
 
 
-And forgive us our sins, for we ourselves also forgive everyone who is indebted to us [who has offended us or done us wrong]. And bring us not into temptation _but rescue us from evil_. 
+And forgive us our sins, for we ourselves also forgive everyone who is indebted to us [who has offended us or done us wrong]. And bring us not into temptation but rescue us from evil. 
 
 
 
@@ -175,7 +175,7 @@ And he from within will answer, Do not disturb me; the door is now closed, and m
 
 
 
-I tell you, although he will not get up and supply him anything because he is his friend, yet because of his shameless persistence _and_ insistence he will get up and give him as much as he needs. 
+I tell you, although he will not get up and supply him anything because he is his friend, yet because of his shameless persistence and insistence he will get up and give him as much as he needs. 
 
 
 
@@ -196,7 +196,7 @@ I tell you, although he will not get up and supply him anything because he is hi
 
 
 
-So I say to you, Ask _and_ keep on asking and it shall be given you; seek _and_ keep on seeking and you shall find; knock _and_ keep on knocking and the door shall be opened to you. 
+So I say to you, Ask and keep on asking and it shall be given you; seek and keep on seeking and you shall find; knock and keep on knocking and the door shall be opened to you. 
 
 
 
@@ -217,7 +217,7 @@ So I say to you, Ask _and_ keep on asking and it shall be given you; seek _and_ 
 
 
 
-For everyone who asks _and_ keeps on asking receives; and he who seeks _and_ keeps on seeking finds; and to him who knocks _and_ keeps on knocking, the door shall be opened. 
+For everyone who asks and keeps on asking receives; and he who seeks and keeps on seeking finds; and to him who knocks and keeps on knocking, the door shall be opened. 
 
 
 
@@ -238,7 +238,7 @@ For everyone who asks _and_ keeps on asking receives; and he who seeks _and_ kee
 
 
 
-What father among you, if his son asks for _a loaf of bread, will give him a stone; or if he asks for_ a fish, will instead of a fish give him a serpent? 
+What father among you, if his son asks for a loaf of bread, will give him a stone; or if he asks for a fish, will instead of a fish give him a serpent? 
 
 
 
@@ -280,7 +280,7 @@ Or if he asks for an egg, will give him a scorpion?
 
 
 
-If you then, evil as you are, know how to give good gifts [gifts that are to their advantage] to your children, how much more will your heavenly Father give the Holy Spirit to those who ask _and_ continue to ask Him! 
+If you then, evil as you are, know how to give good gifts [gifts that are to their advantage] to your children, how much more will your heavenly Father give the Holy Spirit to those who ask and continue to ask Him! 
 
 
 
@@ -343,7 +343,7 @@ But some of them said, He drives out demons [because He is in league with and] b
 
 
 
-While others, to try _and_ test _and_ tempt Him, demanded a sign of Him from heaven. 
+While others, to try and test and tempt Him, demanded a sign of Him from heaven. 
 
 
 
@@ -364,7 +364,7 @@ While others, to try _and_ test _and_ tempt Him, demanded a sign of Him from hea
 
 
 
-But He, [well] aware of their intent _and_ purpose, said to them, Every kingdom split up against itself is doomed _and_ brought to desolation, and so house falls upon house. [The disunited household will collapse.] 
+But He, [well] aware of their intent and purpose, said to them, Every kingdom split up against itself is doomed and brought to desolation, and so house falls upon house. [The disunited household will collapse.] 
 
 
 
@@ -385,7 +385,7 @@ But He, [well] aware of their intent _and_ purpose, said to them, Every kingdom 
 
 
 
-And if Satan also is divided against himself, how will his kingdom last? For you say that I expel demons with the help of _and_ by Beelzebub. 
+And if Satan also is divided against himself, how will his kingdom last? For you say that I expel demons with the help of and by Beelzebub. 
 
 
 
@@ -406,7 +406,7 @@ And if Satan also is divided against himself, how will his kingdom last? For you
 
 
 
-Now if I expel demons with the help of _and_ by Beelzebub, with whose help _and_ by whom do your sons drive them out? Therefore they shall be your judges. 
+Now if I expel demons with the help of and by Beelzebub, with whose help and by whom do your sons drive them out? Therefore they shall be your judges. 
 
 
 
@@ -469,7 +469,7 @@ When the strong man, fully armed, [from his courtyard] guards his own dwelling, 
 
 
 
-But when one stronger than he attacks him and conquers him, he robs him of his whole armor on which he had relied and divides up _and_ distributes all his goods as plunder (spoil). 
+But when one stronger than he attacks him and conquers him, he robs him of his whole armor on which he had relied and divides up and distributes all his goods as plunder (spoil). 
 
 
 
@@ -532,7 +532,7 @@ When the unclean spirit has gone out of a person, it roams through waterless pla
 
 
 
-And when it arrives, it finds [the place] swept _and_ put in order and furnished _and_ decorated. 
+And when it arrives, it finds [the place] swept and put in order and furnished and decorated. 
 
 
 
@@ -553,7 +553,7 @@ And when it arrives, it finds [the place] swept _and_ put in order and furnished
 
 
 
-And it goes and brings other spirits, seven [of them], more evil than itself, and they enter in, settle down, _and_ dwell there; and the last state of that person is worse than the first. 
+And it goes and brings other spirits, seven [of them], more evil than itself, and they enter in, settle down, and dwell there; and the last state of that person is worse than the first. 
 
 
 
@@ -595,7 +595,7 @@ Now it occurred that as He was saying these things, a certain woman in the crowd
 
 
 
-But He said, Blessed (happy and to be envied) rather are those who hear the Word of God and obey _and_ practice it! 
+But He said, Blessed (happy and to be envied) rather are those who hear the Word of God and obey and practice it! 
 
 
 
@@ -616,7 +616,7 @@ But He said, Blessed (happy and to be envied) rather are those who hear the Word
 
 
 
-Now as the crowds were [increasingly] thronging Him, He began to say, This present generation is a wicked one; it seeks _and_ demands a sign (miracle), but no sign shall be given to it except the sign of Jonah [the prophet]. 
+Now as the crowds were [increasingly] thronging Him, He began to say, This present generation is a wicked one; it seeks and demands a sign (miracle), but no sign shall be given to it except the sign of Jonah [the prophet]. 
 
 
 
@@ -637,7 +637,7 @@ Now as the crowds were [increasingly] thronging Him, He began to say, This prese
 
 
 
-For [just] as Jonah became a sign to the people of Nineveh, so will also the Son of Man be [a sign] to this age _and_ generation. 
+For [just] as Jonah became a sign to the people of Nineveh, so will also the Son of Man be [a sign] to this age and generation. 
 
 
 
@@ -658,7 +658,7 @@ For [just] as Jonah became a sign to the people of Nineveh, so will also the Son
 
 
 
-The queen of the South will arise in the judgment with the people of this age _and_ generation and condemn them; for she came from the ends of the [inhabited] earth to listen to the wisdom of Solomon, and notice, here is more than Solomon. 
+The queen of the South will arise in the judgment with the people of this age and generation and condemn them; for she came from the ends of the [inhabited] earth to listen to the wisdom of Solomon, and notice, here is more than Solomon. 
 
 
 
@@ -700,7 +700,7 @@ The men of Nineveh will appear as witnesses at the judgment with this generation
 
 
 
-No one after lighting a lamp puts it in a cellar _or_ crypt or under a bushel measure, but on a lampstand, that those who are coming in may see the light. 
+No one after lighting a lamp puts it in a cellar or crypt or under a bushel measure, but on a lampstand, that those who are coming in may see the light. 
 
 
 
@@ -721,7 +721,7 @@ No one after lighting a lamp puts it in a cellar _or_ crypt or under a bushel me
 
 
 
-Your eye is the lamp of your body; when your eye (your conscience) is sound _and_ fulfilling its office, your whole body is full of light; but when it is not sound _and_ is not fulfilling its office, your body is full of darkness. 
+Your eye is the lamp of your body; when your eye (your conscience) is sound and fulfilling its office, your whole body is full of light; but when it is not sound and is not fulfilling its office, your body is full of darkness. 
 
 
 
@@ -826,7 +826,7 @@ The Pharisee noticed and was astonished [to see] that Jesus did not first wash b
 
 
 
-But the Lord said to him, Now you Pharisees cleanse the outside of the cup and of the plate, but inside you yourselves are full of greed _and_ robbery _and_ extortion and malice _and_ wickedness. 
+But the Lord said to him, Now you Pharisees cleanse the outside of the cup and of the plate, but inside you yourselves are full of greed and robbery and extortion and malice and wickedness. 
 
 
 
@@ -868,7 +868,7 @@ You senseless (foolish, stupid) ones [acting without reflection or intelligence]
 
 
 
-But [dedicate your inner self and] give as donations to the poor of those things which are within [of inward righteousness] and behold, everything is purified _and_ clean for you. 
+But [dedicate your inner self and] give as donations to the poor of those things which are within [of inward righteousness] and behold, everything is purified and clean for you. 
 
 
 
@@ -889,7 +889,7 @@ But [dedicate your inner self and] give as donations to the poor of those things
 
 
 
-But woe to you, Pharisees! For you tithe mint and rue and every [little] herb, but disregard _and_ neglect justice and the love of God. These you ought to have done without leaving the others undone. 
+But woe to you, Pharisees! For you tithe mint and rue and every [little] herb, but disregard and neglect justice and the love of God. These you ought to have done without leaving the others undone. 
 
 
 
@@ -910,7 +910,7 @@ But woe to you, Pharisees! For you tithe mint and rue and every [little] herb, b
 
 
 
-Woe to you, Pharisees! For you love the best seats in the synagogues and [you love] to be greeted _and_ bowed down to in the [public] marketplaces. 
+Woe to you, Pharisees! For you love the best seats in the synagogues and [you love] to be greeted and bowed down to in the [public] marketplaces. 
 
 
 
@@ -931,7 +931,7 @@ Woe to you, Pharisees! For you love the best seats in the synagogues and [you lo
 
 
 
-Woe to you! For you are like graves which are not marked _or_ seen, and men walk over them without being aware of it [and are ceremonially defiled]. 
+Woe to you! For you are like graves which are not marked or seen, and men walk over them without being aware of it [and are ceremonially defiled]. 
 
 
 
@@ -952,7 +952,7 @@ Woe to you! For you are like graves which are not marked _or_ seen, and men walk
 
 
 
-One of the experts in the [Mosaic] Law answered Him, Teacher, in saying this, You reproach _and_ outrage _and_ affront even us! 
+One of the experts in the [Mosaic] Law answered Him, Teacher, in saying this, You reproach and outrage and affront even us! 
 
 
 
@@ -994,7 +994,7 @@ But He said, Woe to you, the lawyers, also! For you load men with oppressive bur
 
 
 
-Woe to you! For you are rebuilding _and_ repairing the tombs of the prophets, whom your fathers killed (destroyed). 
+Woe to you! For you are rebuilding and repairing the tombs of the prophets, whom your fathers killed (destroyed). 
 
 
 
@@ -1015,7 +1015,7 @@ Woe to you! For you are rebuilding _and_ repairing the tombs of the prophets, wh
 
 
 
-So you bear witness and give your full approval _and_ consent to the deeds of your fathers; for they actually killed them, and you rebuild _and_ repair monuments to them. 
+So you bear witness and give your full approval and consent to the deeds of your fathers; for they actually killed them, and you rebuild and repair monuments to them. 
 
 
 
@@ -1057,7 +1057,7 @@ For this reason also the wisdom of God said, I will send them prophets and apost
 
 
 
-So that the blood of all the prophets shed from the foundation of the world may be charged against _and_ required of this age _and_ generation, 
+So that the blood of all the prophets shed from the foundation of the world may be charged against and required of this age and generation, 
 
 
 
@@ -1078,7 +1078,7 @@ So that the blood of all the prophets shed from the foundation of the world may 
 
 
 
-From the blood of Abel to the blood of Zechariah, who was slain between the altar and the sanctuary. Yes, I tell you, it shall be charged against _and_ required of this age _and_ generation. 
+From the blood of Abel to the blood of Zechariah, who was slain between the altar and the sanctuary. Yes, I tell you, it shall be charged against and required of this age and generation. 
 
 
 
@@ -1099,7 +1099,7 @@ From the blood of Abel to the blood of Zechariah, who was slain between the alta
 
 
 
-Woe to you, lawyers (experts in the Mosaic Law)! For you have taken away the key to knowledge; you did not go in yourselves, and you hindered _and_ prevented those who were entering. 
+Woe to you, lawyers (experts in the Mosaic Law)! For you have taken away the key to knowledge; you did not go in yourselves, and you hindered and prevented those who were entering. 
 
 
 
@@ -1120,7 +1120,7 @@ Woe to you, lawyers (experts in the Mosaic Law)! For you have taken away the key
 
 
 
-As He left there, the scribes and the Pharisees [followed Him closely, and they] began to be enraged with _and_ set themselves violently against Him and to draw Him out _and_ provoke Him to speak of many things, 
+As He left there, the scribes and the Pharisees [followed Him closely, and they] began to be enraged with and set themselves violently against Him and to draw Him out and provoke Him to speak of many things, 
 
 
 
@@ -1141,4 +1141,4 @@ As He left there, the scribes and the Pharisees [followed Him closely, and they]
 
 
 
-Secretly watching _and_ plotting _and_ lying in wait for Him, to seize upon something He might say [that they might accuse Him].
+Secretly watching and plotting and lying in wait for Him, to seize upon something He might say [that they might accuse Him].

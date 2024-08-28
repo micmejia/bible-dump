@@ -511,4 +511,4 @@ For the Lord your God dried up the waters of the Jordan for you until you passed
 
 
 
-That all the peoples of the earth may know that the hand of the Lord is mighty and that you may reverence _and_ fear the Lord your God forever.
+That all the peoples of the earth may know that the hand of the Lord is mighty and that you may reverence and fear the Lord your God forever.

@@ -70,7 +70,7 @@ And so many people gathered together there that there was no longer room [for th
 
 
 
-Then they came, bringing a paralytic to Him, who had been picked up _and_ was being carried by four men. 
+Then they came, bringing a paralytic to Him, who had been picked up and was being carried by four men. 
 
 
 
@@ -91,7 +91,7 @@ Then they came, bringing a paralytic to Him, who had been picked up _and_ was be
 
 
 
-And when they could not get him to a place in front of Jesus because of the throng, they dug through the roof above Him; and when they had scooped out an opening, they let down the [thickly padded] quilt _or_ mat upon which the paralyzed man lay. 
+And when they could not get him to a place in front of Jesus because of the throng, they dug through the roof above Him; and when they had scooped out an opening, they let down the [thickly padded] quilt or mat upon which the paralyzed man lay. 
 
 
 
@@ -112,7 +112,7 @@ And when they could not get him to a place in front of Jesus because of the thro
 
 
 
-And when Jesus saw their faith [their confidence in God through Him], He said to the paralyzed man, Son, your sins are forgiven [you] _and_ put away [that is, the penalty is remitted, the sense of guilt removed, and you are made upright and in right standing with God]. 
+And when Jesus saw their faith [their confidence in God through Him], He said to the paralyzed man, Son, your sins are forgiven [you] and put away [that is, the penalty is remitted, the sense of guilt removed, and you are made upright and in right standing with God]. 
 
 
 
@@ -196,7 +196,7 @@ And at once Jesus, becoming fully aware in His spirit that they thus debated wit
 
 
 
-Which is easier: to say to the paralyzed man, Your sins are forgiven _and_ put away, or to say, Rise, take up your sleeping pad _or_ mat, and start walking about [and keep on walking]? 
+Which is easier: to say to the paralyzed man, Your sins are forgiven and put away, or to say, Rise, take up your sleeping pad or mat, and start walking about [and keep on walking]? 
 
 
 
@@ -217,7 +217,7 @@ Which is easier: to say to the paralyzed man, Your sins are forgiven _and_ put a
 
 
 
-But that you may know positively _and_ beyond a doubt that the Son of Man has right _and_ authority _and_ power on earth to forgive sins--He said to the paralyzed man, 
+But that you may know positively and beyond a doubt that the Son of Man has right and authority and power on earth to forgive sins--He said to the paralyzed man, 
 
 
 
@@ -238,7 +238,7 @@ But that you may know positively _and_ beyond a doubt that the Son of Man has ri
 
 
 
-I say to you, arise, pick up _and_ carry your sleeping pad _or_ mat, and be going on home. 
+I say to you, arise, pick up and carry your sleeping pad or mat, and be going on home. 
 
 
 
@@ -259,7 +259,7 @@ I say to you, arise, pick up _and_ carry your sleeping pad _or_ mat, and be goin
 
 
 
-And he arose at once and picked up the sleeping pad _or_ mat and went out before them all, so that they were all amazed and  recognized _and_ praised _and_ thanked God, saying, We have never seen anything like this before! 
+And he arose at once and picked up the sleeping pad or mat and went out before them all, so that they were all amazed and  recognized and praised and thanked God, saying, We have never seen anything like this before! 
 
 
 
@@ -301,7 +301,7 @@ And he arose at once and picked up the sleeping pad _or_ mat and went out before
 
 
 
-And as He was passing by, He saw Levi (Matthew) son of Alphaeus sitting at the tax office, and He said to him, Follow Me! [Be joined to Me as a disciple, side with My party!] And he arose and joined Him as His disciple _and_ sided with His party _and_ accompanied Him. 
+And as He was passing by, He saw Levi (Matthew) son of Alphaeus sitting at the tax office, and He said to him, Follow Me! [Be joined to Me as a disciple, side with My party!] And he arose and joined Him as His disciple and sided with His party and accompanied Him. 
 
 
 
@@ -343,7 +343,7 @@ And as Jesus, together with His disciples, sat at table in his [Levi's] house, m
 
 
 
-And the scribes [belonging to the party] of the Pharisees, when they saw that He was eating with [those definitely known to be especially wicked] sinners and tax collectors, said to His disciples, Why does He eat _and drink_ with tax collectors and [notorious] sinners? 
+And the scribes [belonging to the party] of the Pharisees, when they saw that He was eating with [those definitely known to be especially wicked] sinners and tax collectors, said to His disciples, Why does He eat and drink with tax collectors and [notorious] sinners? 
 
 
 
@@ -364,7 +364,7 @@ And the scribes [belonging to the party] of the Pharisees, when they saw that He
 
 
 
-And when Jesus heard it, He said to them, Those who are strong _and_ well have no need of a physician, but those who are weak _and_ sick; I came not to call the righteous ones _to repentance_, but sinners (the erring ones and all those not free from sin). 
+And when Jesus heard it, He said to them, Those who are strong and well have no need of a physician, but those who are weak and sick; I came not to call the righteous ones to repentance, but sinners (the erring ones and all those not free from sin). 
 
 
 
@@ -448,7 +448,7 @@ But the days will come when the bridegroom will be taken away from them, and the
 
 
 
-No one sews a patch of unshrunken (new) goods on an old garment; if he does, the patch tears away from it, the new from the old, and the rent (tear) becomes bigger _and_ worse [than it was before]. 
+No one sews a patch of unshrunken (new) goods on an old garment; if he does, the patch tears away from it, the new from the old, and the rent (tear) becomes bigger and worse [than it was before]. 
 
 
 
@@ -511,7 +511,7 @@ One Sabbath He was going along beside the fields of standing grain, and as they 
 
 
 
-And the Pharisees said to Him, Look! Why are they doing what is not permitted _or_ lawful on the Sabbath? 
+And the Pharisees said to Him, Look! Why are they doing what is not permitted or lawful on the Sabbath? 
 
 
 
@@ -553,7 +553,7 @@ And He said to them, Have you never [even] read what David did when he was in ne
 
 
 
-How he went into the house of God when Abiathar was the high priest, and ate the sacred loaves set forth [before God], which it is not permitted _or_ lawful for any but the priests to eat, and [how he] also gave [them] to those who were with him? 
+How he went into the house of God when Abiathar was the high priest, and ate the sacred loaves set forth [before God], which it is not permitted or lawful for any but the priests to eat, and [how he] also gave [them] to those who were with him? 
 
 
 
@@ -574,7 +574,7 @@ How he went into the house of God when Abiathar was the high priest, and ate the
 
 
 
-And Jesus said to them, The Sabbath was made on account _and_ for the sake of man, not man for the Sabbath; 
+And Jesus said to them, The Sabbath was made on account and for the sake of man, not man for the Sabbath; 
 
 
 

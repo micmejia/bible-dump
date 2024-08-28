@@ -28,7 +28,7 @@ next: ['Num 25']
 
 
 
-When Balaam saw that it pleased the Lord to bless Israel, he did not go as he had done each time before [superstitiously] to meet with omens _and_ signs in the natural world, but he set his face toward the wilderness _or_ desert. 
+When Balaam saw that it pleased the Lord to bless Israel, he did not go as he had done each time before [superstitiously] to meet with omens and signs in the natural world, but he set his face toward the wilderness or desert. 
 
 
 
@@ -91,7 +91,7 @@ And he took up his [figurative] discourse and said: Balaam son of Beor, the man 
 
 
 
-He [Balaam] who hears the words of God, who sees the vision of the Almighty, falling down, but having his eyes open _and_ uncovered, he says: 
+He [Balaam] who hears the words of God, who sees the vision of the Almighty, falling down, but having his eyes open and uncovered, he says: 
 
 
 
@@ -112,7 +112,7 @@ He [Balaam] who hears the words of God, who sees the vision of the Almighty, fal
 
 
 
-How attractive _and_ considerable are your tents, O Jacob, _and_ your tabernacles, O Israel! 
+How attractive and considerable are your tents, O Jacob, and your tabernacles, O Israel! 
 
 
 
@@ -238,7 +238,7 @@ Then Balak's anger was kindled against Balaam, and he smote his hands together; 
 
 
 
-Therefore now go back where you belong _and_ do it in a hurry! I had intended to promote you to great honor, but behold, the Lord has held you back from honor. 
+Therefore now go back where you belong and do it in a hurry! I had intended to promote you to great honor, but behold, the Lord has held you back from honor. 
 
 
 
@@ -343,7 +343,7 @@ And he took up his [figurative] discourse, and said: Balaam son of Beor speaks, 
 
 
 
-He speaks, who heard the words of God and knew the knowledge of the Most High, who saw the vision of the Almighty, falling down, but having his eyes open _and_ uncovered: 
+He speaks, who heard the words of God and knew the knowledge of the Most High, who saw the vision of the Almighty, falling down, but having his eyes open and uncovered: 
 
 
 
@@ -490,7 +490,7 @@ Nevertheless the Kenites shall be wasted. How long shall Asshur (Assyria) take y
 
 
 
-And he took up his [prophetic] speech, and said: Alas, who shall live when God does this _and_ establishes [Assyria]? 
+And he took up his [prophetic] speech, and said: Alas, who shall live when God does this and establishes [Assyria]? 
 
 
 

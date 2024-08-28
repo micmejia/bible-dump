@@ -175,7 +175,7 @@ But the burial napkin (kerchief) which had been around Jesus' head, was not lyin
 
 
 
-Then the other disciple, who had reached the tomb first, went in too; and he saw and was convinced _and_ believed. 
+Then the other disciple, who had reached the tomb first, went in too; and he saw and was convinced and believed. 
 
 
 
@@ -343,7 +343,7 @@ Jesus said to her, Woman, why are you crying [so]? For Whom are you looking? Sup
 
 
 
-Jesus said to her, Mary! Turning around she said to Him in Hebrew, Rabboni!--which means Teacher _or_ Master. 
+Jesus said to her, Mary! Turning around she said to Him in Hebrew, Rabboni!--which means Teacher or Master. 
 
 
 
@@ -574,7 +574,7 @@ Eight days later His disciples were again in the house, and Thomas was with them
 
 
 
-Then He said to Thomas, Reach out your finger here, and see My hands; and put out your hand and place [it] in My side. Do not be faithless _and_ incredulous, but [stop your unbelief and] believe! 
+Then He said to Thomas, Reach out your finger here, and see My hands; and put out your hand and place [it] in My side. Do not be faithless and incredulous, but [stop your unbelief and] believe! 
 
 
 
@@ -616,7 +616,7 @@ Thomas answered Him, My Lord and my God!
 
 
 
-Jesus said to him, Because you have seen Me, _Thomas_, do you now believe (trust, have faith)? Blessed _and_ happy _and_ to be envied are those who have never seen Me and yet have believed _and_ adhered to _and_ trusted _and_ relied on Me. 
+Jesus said to him, Because you have seen Me, Thomas, do you now believe (trust, have faith)? Blessed and happy and to be envied are those who have never seen Me and yet have believed and adhered to and trusted and relied on Me. 
 
 
 
@@ -637,7 +637,7 @@ Jesus said to him, Because you have seen Me, _Thomas_, do you now believe (trust
 
 
 
-There are also many other signs _and_ miracles which Jesus performed in the presence of the disciples which are not written in this book. 
+There are also many other signs and miracles which Jesus performed in the presence of the disciples which are not written in this book. 
 
 
 
@@ -658,4 +658,4 @@ There are also many other signs _and_ miracles which Jesus performed in the pres
 
 
 
-But these are written (recorded) in order that you may believe that Jesus is the Christ (the Anointed One), the Son of God, and that through believing _and_ cleaving to _and_ trusting _and_ relying upon Him you may have life through (in) His name [through Who He is].
+But these are written (recorded) in order that you may believe that Jesus is the Christ (the Anointed One), the Son of God, and that through believing and cleaving to and trusting and relying upon Him you may have life through (in) His name [through Who He is].

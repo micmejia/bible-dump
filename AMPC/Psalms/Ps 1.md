@@ -27,7 +27,7 @@ next: ['Ps 2']
 
 
 
-Blessed (happy, fortunate, prosperous, and enviable) is the man who walks _and_ lives not in the counsel of the ungodly [following their advice, their plans and purposes], nor stands [submissive and inactive] in the path where sinners walk, nor sits down [to relax and rest] where the scornful [and the mockers] gather. 
+Blessed (happy, fortunate, prosperous, and enviable) is the man who walks and lives not in the counsel of the ungodly [following their advice, their plans and purposes], nor stands [submissive and inactive] in the path where sinners walk, nor sits down [to relax and rest] where the scornful [and the mockers] gather. 
 
 
 
@@ -48,7 +48,7 @@ Blessed (happy, fortunate, prosperous, and enviable) is the man who walks _and_ 
 
 
 
-But his delight _and_ desire are in the law of the Lord, and on His law (the precepts, the instructions, the teachings of God) he habitually meditates (ponders and studies) by day and by night. 
+But his delight and desire are in the law of the Lord, and on His law (the precepts, the instructions, the teachings of God) he habitually meditates (ponders and studies) by day and by night. 
 
 
 
@@ -69,7 +69,7 @@ But his delight _and_ desire are in the law of the Lord, and on His law (the pre
 
 
 
-And he shall be like a tree firmly planted [and tended] by the streams of water, ready to bring forth its fruit in its season; its leaf also shall not fade _or_ wither; and everything he does shall prosper [and come to maturity]. 
+And he shall be like a tree firmly planted [and tended] by the streams of water, ready to bring forth its fruit in its season; its leaf also shall not fade or wither; and everything he does shall prosper [and come to maturity]. 
 
 
 
@@ -132,4 +132,4 @@ Therefore the wicked [those disobedient and living without God] shall not stand 
 
 
 
-For the Lord knows _and_ is fully acquainted with the way of the righteous, but the way of the ungodly [those living outside God's will] shall perish (end in ruin and come to nought).
+For the Lord knows and is fully acquainted with the way of the righteous, but the way of the ungodly [those living outside God's will] shall perish (end in ruin and come to nought).

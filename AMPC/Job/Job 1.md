@@ -27,7 +27,7 @@ next: ['Job 2']
 
 
 
-There was a man in the land of Uz whose name was Job; and that man was blameless and upright, and one who [reverently] feared God and abstained from _and_ shunned evil [because it was wrong]. 
+There was a man in the land of Uz whose name was Job; and that man was blameless and upright, and one who [reverently] feared God and abstained from and shunned evil [because it was wrong]. 
 
 
 
@@ -111,7 +111,7 @@ His sons used to go and feast in the house of each on his day (birthday) in turn
 
 
 
-And when the days of their feasting were over, Job sent for them to purify _and_ hallow them, and rose up early in the morning and offered burnt offerings according to the number of them all. For Job said, It may be that my sons have sinned and cursed _or_ disowned God in their hearts. Thus did Job at all [such] times. 
+And when the days of their feasting were over, Job sent for them to purify and hallow them, and rose up early in the morning and offered burnt offerings according to the number of them all. For Job said, It may be that my sons have sinned and cursed or disowned God in their hearts. Thus did Job at all [such] times. 
 
 
 
@@ -174,7 +174,7 @@ And the Lord said to Satan, From where did you come? Then Satan answered the Lor
 
 
 
-And the Lord said to Satan, Have you considered My servant Job, that there is none like him on the earth, a blameless and upright man, one who [reverently] fears God and abstains from _and_ shuns evil [because it is wrong]? 
+And the Lord said to Satan, Have you considered My servant Job, that there is none like him on the earth, a blameless and upright man, one who [reverently] fears God and abstains from and shuns evil [because it is wrong]? 
 
 
 
@@ -216,7 +216,7 @@ Then Satan answered the Lord, Does Job [reverently] fear God for nothing?
 
 
 
-Have You not put a hedge about him and his house and all that he has, on every side? You have conferred prosperity _and_ happiness upon him in the work of his hands, and his possessions have increased in the land. 
+Have You not put a hedge about him and his house and all that he has, on every side? You have conferred prosperity and happiness upon him in the work of his hands, and his possessions have increased in the land. 
 
 
 

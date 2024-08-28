@@ -10,7 +10,7 @@ next: ['Prov 5']
 
 
 ###### 1 
-Hear, _my_ children, the instruction of a father, And give attention to know understanding; 
+Hear, my children, the instruction of a father, And give attention to know understanding; 
 
 ###### 2 
 For I give you good doctrine: Do not forsake my law. 
@@ -28,7 +28,7 @@ Get wisdom! Get understanding! Do not forget, nor turn away from the words of my
 Do not forsake her, and she will preserve you; Love her, and she will keep you. 
 
 ###### 7 
-Wisdom _is_ the principal thing; _Therefore_ get wisdom. And in all your getting, get understanding. 
+Wisdom is the principal thing; Therefore get wisdom. And in all your getting, get understanding. 
 
 ###### 8 
 Exalt her, and she will promote you; She will bring you honor, when you embrace her. 
@@ -46,7 +46,7 @@ I have taught you in the way of wisdom; I have led you in right paths.
 When you walk, your steps will not be hindered, And when you run, you will not stumble. 
 
 ###### 13 
-Take firm hold of instruction, do not let go; Keep her, for she _is_ your life. 
+Take firm hold of instruction, do not let go; Keep her, for she is your life. 
 
 ###### 14 
 Do not enter the path of the wicked, And do not walk in the way of evil. 
@@ -55,16 +55,16 @@ Do not enter the path of the wicked, And do not walk in the way of evil.
 Avoid it, do not travel on it; Turn away from it and pass on. 
 
 ###### 16 
-For they do not sleep unless they have done evil; And their sleep is taken away unless they make _someone_ fall. 
+For they do not sleep unless they have done evil; And their sleep is taken away unless they make someone fall. 
 
 ###### 17 
 For they eat the bread of wickedness, And drink the wine of violence. 
 
 ###### 18 
-But the path of the just _is_ like the shining sun, That shines ever brighter unto the perfect day. 
+But the path of the just is like the shining sun, That shines ever brighter unto the perfect day. 
 
 ###### 19 
-The way of the wicked _is_ like darkness; They do not know what makes them stumble. 
+The way of the wicked is like darkness; They do not know what makes them stumble. 
 
 ###### 20 
 My son, give attention to my words; Incline your ear to my sayings. 
@@ -73,10 +73,10 @@ My son, give attention to my words; Incline your ear to my sayings.
 Do not let them depart from your eyes; Keep them in the midst of your heart; 
 
 ###### 22 
-For they _are_ life to those who find them, And health to all their flesh. 
+For they are life to those who find them, And health to all their flesh. 
 
 ###### 23 
-Keep your heart with all diligence, For out of it _spring_ the issues of life. 
+Keep your heart with all diligence, For out of it spring the issues of life. 
 
 ###### 24 
 Put away from you a deceitful mouth, And put perverse lips far from you. 

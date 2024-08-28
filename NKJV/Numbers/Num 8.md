@@ -19,7 +19,7 @@ And the Lord spoke to Moses, saying:
 And Aaron did so; he arranged the lamps to face toward the front of the lampstand, as the Lord commanded Moses. 
 
 ###### 4 
-Now this workmanship of the lampstand _was_ hammered gold; from its shaft to its flowers it _was_ hammered work. According to the pattern which the Lord had shown Moses, so he made the lampstand.
+Now this workmanship of the lampstand was hammered gold; from its shaft to its flowers it was hammered work. According to the pattern which the Lord had shown Moses, so he made the lampstand.
 
 ## Cleansing and Dedication of the Levites 
 
@@ -27,10 +27,10 @@ Now this workmanship of the lampstand _was_ hammered gold; from its shaft to its
 Then the Lord spoke to Moses, saying: 
 
 ###### 6 
-"Take the Levites from among the children of Israel and cleanse them _ceremonially._ 
+"Take the Levites from among the children of Israel and cleanse them ceremonially. 
 
 ###### 7 
-Thus you shall do to them to cleanse them: Sprinkle water of purification on them, and let them shave all their body, and let them wash their clothes, and _so_ make themselves clean. 
+Thus you shall do to them to cleanse them: Sprinkle water of purification on them, and let them shave all their body, and let them wash their clothes, and so make themselves clean. 
 
 ###### 8 
 Then let them take a young bull with its grain offering of fine flour mixed with oil, and you shall take another young bull as a sin offering. 
@@ -42,25 +42,25 @@ And you shall bring the Levites before the tabernacle of meeting, and you shall 
 So you shall bring the Levites before the Lord, and the children of Israel shall lay their hands on the Levites; 
 
 ###### 11 
-and Aaron shall offer the Levites before the Lord _like_ a wave offering from the children of Israel, that they may perform the work of the Lord. 
+and Aaron shall offer the Levites before the Lord like a wave offering from the children of Israel, that they may perform the work of the Lord. 
 
 ###### 12 
 Then the Levites shall lay their hands on the heads of the young bulls, and you shall offer one as a sin offering and the other as a burnt offering to the Lord, to make atonement for the Levites. 
 
 ###### 13 
-"And you shall stand the Levites before Aaron and his sons, and then offer them _like_ a wave offering to the Lord. 
+"And you shall stand the Levites before Aaron and his sons, and then offer them like a wave offering to the Lord. 
 
 ###### 14 
 Thus you shall separate the Levites from among the children of Israel, and the Levites shall be Mine. 
 
 ###### 15 
-After that the Levites shall go in to service the tabernacle of meeting. So you shall cleanse them and offer them _like_ a wave offering. 
+After that the Levites shall go in to service the tabernacle of meeting. So you shall cleanse them and offer them like a wave offering. 
 
 ###### 16 
-For they _are_ wholly given to Me from among the children of Israel; I have taken them for Myself instead of all who open the womb, the firstborn of all the children of Israel. 
+For they are wholly given to Me from among the children of Israel; I have taken them for Myself instead of all who open the womb, the firstborn of all the children of Israel. 
 
 ###### 17 
-For all the firstborn among the children of Israel _are_ Mine, _both_ man and beast; on the day that I struck all the firstborn in the land of Egypt I sanctified them to Myself. 
+For all the firstborn among the children of Israel are Mine, both man and beast; on the day that I struck all the firstborn in the land of Egypt I sanctified them to Myself. 
 
 ###### 18 
 I have taken the Levites instead of all the firstborn of the children of Israel. 
@@ -72,7 +72,7 @@ And I have given the Levites as a gift to Aaron and his sons from among the chil
 Thus Moses and Aaron and all the congregation of the children of Israel did to the Levites; according to all that the Lord commanded Moses concerning the Levites, so the children of Israel did to them. 
 
 ###### 21 
-And the Levites purified themselves and washed their clothes; then Aaron presented them _like_ a wave offering before the Lord, and Aaron made atonement for them to cleanse them. 
+And the Levites purified themselves and washed their clothes; then Aaron presented them like a wave offering before the Lord, and Aaron made atonement for them to cleanse them. 
 
 ###### 22 
 After that the Levites went in to do their work in the tabernacle of meeting before Aaron and his sons; as the Lord commanded Moses concerning the Levites, so they did to them. 
@@ -81,10 +81,10 @@ After that the Levites went in to do their work in the tabernacle of meeting bef
 Then the Lord spoke to Moses, saying, 
 
 ###### 24 
-"This _is_ what _pertains_ to the Levites: From twenty-five years old and above one may enter to perform service in the work of the tabernacle of meeting; 
+"This is what pertains to the Levites: From twenty-five years old and above one may enter to perform service in the work of the tabernacle of meeting; 
 
 ###### 25 
 and at the age of fifty years they must cease performing this work, and shall work no more. 
 
 ###### 26 
-They may minister with their brethren in the tabernacle of meeting, to attend to needs, but they _themselves_ shall do no work. Thus you shall do to the Levites regarding their duties."
+They may minister with their brethren in the tabernacle of meeting, to attend to needs, but they themselves shall do no work. Thus you shall do to the Levites regarding their duties."

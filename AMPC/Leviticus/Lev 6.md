@@ -49,7 +49,7 @@ And the Lord said to Moses,
 
 
 
-If anyone sins and commits a trespass against the Lord and deals falsely with his neighbor in a matter of deposit given him to keep, or of bargain _or_ pledge, or of robbery, or has oppressed his neighbor, 
+If anyone sins and commits a trespass against the Lord and deals falsely with his neighbor in a matter of deposit given him to keep, or of bargain or pledge, or of robbery, or has oppressed his neighbor, 
 
 
 
@@ -91,7 +91,7 @@ Or has found what was lost and lied about it, or swears falsely, in any of all t
 
 
 
-Then if he has sinned and is guilty, he shall restore what he took by robbery, or what he secured by oppression _or_ extortion, or what was delivered him to keep in trust, or the lost thing which he found, 
+Then if he has sinned and is guilty, he shall restore what he took by robbery, or what he secured by oppression or extortion, or what was delivered him to keep in trust, or the lost thing which he found, 
 
 
 
@@ -112,7 +112,7 @@ Then if he has sinned and is guilty, he shall restore what he took by robbery, o
 
 
 
-Or anything about which he has sworn falsely; he shall not only restore it in full, but shall add to it one fifth more and give it to him to whom it belongs on the day of his trespass _or_ guilt offering. 
+Or anything about which he has sworn falsely; he shall not only restore it in full, but shall add to it one fifth more and give it to him to whom it belongs on the day of his trespass or guilt offering. 
 
 
 
@@ -133,7 +133,7 @@ Or anything about which he has sworn falsely; he shall not only restore it in fu
 
 
 
-And he shall bring to the priest his trespass _or_ guilt offering to the Lord, a ram without blemish out of the flock, valued by you to the amount of his trespass; 
+And he shall bring to the priest his trespass or guilt offering to the Lord, a ram without blemish out of the flock, valued by you to the amount of his trespass; 
 
 
 
@@ -322,7 +322,7 @@ And this is the law of the cereal offering: The sons of Aaron shall offer it bef
 
 
 
-One of them shall take his handful of the fine flour of the cereal offering, the oil of it, and all the frankincense which is upon the cereal offering, and burn it on the altar as the memorial of it, a sweet _and_ satisfying fragrance to the Lord. 
+One of them shall take his handful of the fine flour of the cereal offering, the oil of it, and all the frankincense which is upon the cereal offering, and burn it on the altar as the memorial of it, a sweet and satisfying fragrance to the Lord. 
 
 
 
@@ -448,7 +448,7 @@ This is the offering which Aaron and his sons shall offer to the Lord on the day
 
 
 
-On a griddle _or_ baking pan it shall be made with oil; and when it is fried you shall bring it in; in broken _and_ fried pieces shall you offer the cereal offering as a sweet _and_ satisfying odor to the Lord. 
+On a griddle or baking pan it shall be made with oil; and when it is fried you shall bring it in; in broken and fried pieces shall you offer the cereal offering as a sweet and satisfying odor to the Lord. 
 
 
 
@@ -469,7 +469,7 @@ On a griddle _or_ baking pan it shall be made with oil; and when it is fried you
 
 
 
-And the priest among Aaron's sons who is consecrated _and_ anointed in his stead shall offer it; by a statute forever it shall be entirely burned to the Lord. 
+And the priest among Aaron's sons who is consecrated and anointed in his stead shall offer it; by a statute forever it shall be entirely burned to the Lord. 
 
 
 
@@ -574,7 +574,7 @@ The priest who offers it for sin shall eat it; in a sacred place shall it be eat
 
 
 
-Whoever _or_ whatever touches its flesh shall [first] be dedicated and made clean, and when any of its blood is sprinkled on a garment, you shall wash that garment in a place set apart to God's worship. 
+Whoever or whatever touches its flesh shall [first] be dedicated and made clean, and when any of its blood is sprinkled on a garment, you shall wash that garment in a place set apart to God's worship. 
 
 
 

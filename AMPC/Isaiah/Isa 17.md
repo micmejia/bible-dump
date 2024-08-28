@@ -70,7 +70,7 @@ The cities of Aroer [east of the Jordan] are forsaken; they shall be for flocks,
 
 
 
-His bulwark [Syria] _and_ the fortress shall disappear from Ephraim, and the kingdom from Damascus; and the remnant of Syria will be like the [departed] glory of the children of Israel [her ally], says the Lord of hosts. 
+His bulwark [Syria] and the fortress shall disappear from Ephraim, and the kingdom from Damascus; and the remnant of Syria will be like the [departed] glory of the children of Israel [her ally], says the Lord of hosts. 
 
 
 
@@ -217,7 +217,7 @@ In that day will their [Syria's and Israel's] strong cities be like the forsaken
 
 
 
-Because you have forgotten the God of your salvation [O Judah] and have not been mindful of the Rock of your strength, your Stronghold--therefore, you have planted pleasant nursery grounds _and_ plantings [to Adonis, pots of quickly withered flowers used to set by their doors or in the courts of temples], and have set [the grounds] with vine slips of a strange [God], 
+Because you have forgotten the God of your salvation [O Judah] and have not been mindful of the Rock of your strength, your Stronghold--therefore, you have planted pleasant nursery grounds and plantings [to Adonis, pots of quickly withered flowers used to set by their doors or in the courts of temples], and have set [the grounds] with vine slips of a strange [God], 
 
 
 
@@ -238,7 +238,7 @@ Because you have forgotten the God of your salvation [O Judah] and have not been
 
 
 
-And in the day of your planting you hedge it in, and in the morning you make your seed to blossom, yet [promising as it is] the harvest shall be a heap of ruins _and_ flee away in the day of expected possession and of desperate sorrow _and_ sickening, incurable pain. 
+And in the day of your planting you hedge it in, and in the morning you make your seed to blossom, yet [promising as it is] the harvest shall be a heap of ruins and flee away in the day of expected possession and of desperate sorrow and sickening, incurable pain. 
 
 
 
@@ -259,7 +259,7 @@ And in the day of your planting you hedge it in, and in the morning you make you
 
 
 
-Hark, the uproar of a multitude of peoples! They roar _and_ thunder like the noise of the seas! Ah, the roar of nations! They roar like the roaring of rushing _and_ mighty waters! 
+Hark, the uproar of a multitude of peoples! They roar and thunder like the noise of the seas! Ah, the roar of nations! They roar like the roaring of rushing and mighty waters! 
 
 
 
@@ -280,7 +280,7 @@ Hark, the uproar of a multitude of peoples! They roar _and_ thunder like the noi
 
 
 
-The nations will rush _and_ roar like the rushing _and_ roaring of many waters--but [God] will rebuke them, and they will flee far off and will be chased like chaff on the mountains before the wind, and like rolling thistledown _or_ whirling dust of the stubble before the storm. 
+The nations will rush and roar like the rushing and roaring of many waters--but [God] will rebuke them, and they will flee far off and will be chased like chaff on the mountains before the wind, and like rolling thistledown or whirling dust of the stubble before the storm. 
 
 
 

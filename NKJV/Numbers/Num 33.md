@@ -10,31 +10,31 @@ next: ['Num 34']
 
 
 ###### 1 
-These _are_ the journeys of the children of Israel, who went out of the land of Egypt by their armies under the hand of Moses and Aaron. 
+These are the journeys of the children of Israel, who went out of the land of Egypt by their armies under the hand of Moses and Aaron. 
 
 ###### 2 
-Now Moses wrote down the starting points of their journeys at the command of the Lord. And these _are_ their journeys according to their starting points: 
+Now Moses wrote down the starting points of their journeys at the command of the Lord. And these are their journeys according to their starting points: 
 
 ###### 3 
 They departed from Rameses in the first month, on the fifteenth day of the first month; on the day after the Passover the children of Israel went out with boldness in the sight of all the Egyptians. 
 
 ###### 4 
-For the Egyptians were burying all _their_ firstborn, whom the Lord had killed among them. Also on their gods the Lord had executed judgments. 
+For the Egyptians were burying all their firstborn, whom the Lord had killed among them. Also on their gods the Lord had executed judgments. 
 
 ###### 5 
 Then the children of Israel moved from Rameses and camped at Succoth. 
 
 ###### 6 
-They departed from Succoth and camped at Etham, which _is_ on the edge of the wilderness. 
+They departed from Succoth and camped at Etham, which is on the edge of the wilderness. 
 
 ###### 7 
-They moved from Etham and turned back to Pi Hahiroth, which _is_ east of Baal Zephon; and they camped near Migdol. 
+They moved from Etham and turned back to Pi Hahiroth, which is east of Baal Zephon; and they camped near Migdol. 
 
 ###### 8 
 They departed from before Hahiroth and passed through the midst of the sea into the wilderness, went three days' journey in the Wilderness of Etham, and camped at Marah. 
 
 ###### 9 
-They moved from Marah and came to Elim. At Elim _were_ twelve springs of water and seventy palm trees; so they camped there. 
+They moved from Marah and came to Elim. At Elim were twelve springs of water and seventy palm trees; so they camped there. 
 
 ###### 10 
 They moved from Elim and camped by the Red Sea. 
@@ -115,16 +115,16 @@ They moved from Jotbathah and camped at Abronah.
 They departed from Abronah and camped at Ezion Geber. 
 
 ###### 36 
-They moved from Ezion Geber and camped in the Wilderness of Zin, which _is_ Kadesh. 
+They moved from Ezion Geber and camped in the Wilderness of Zin, which is Kadesh. 
 
 ###### 37 
 They moved from Kadesh and camped at Mount Hor, on the boundary of the land of Edom. 
 
 ###### 38 
-Then Aaron the priest went up to Mount Hor at the command of the Lord, and died there in the fortieth year after the children of Israel had come out of the land of Egypt, on the first _day_ of the fifth month. 
+Then Aaron the priest went up to Mount Hor at the command of the Lord, and died there in the fortieth year after the children of Israel had come out of the land of Egypt, on the first day of the fifth month. 
 
 ###### 39 
-Aaron _was_ one hundred and twenty-three years old when he died on Mount Hor. 
+Aaron was one hundred and twenty-three years old when he died on Mount Hor. 
 
 ###### 40 
 Now the king of Arad, the Canaanite, who dwelt in the South in the land of Canaan, heard of the coming of the children of Israel. 
@@ -151,7 +151,7 @@ They moved from Dibon Gad and camped at Almon Diblathaim.
 They moved from Almon Diblathaim and camped in the mountains of Abarim, before Nebo. 
 
 ###### 48 
-They departed from the mountains of Abarim and camped in the plains of Moab by the Jordan, _across from_ Jericho. 
+They departed from the mountains of Abarim and camped in the plains of Moab by the Jordan, across from Jericho. 
 
 ###### 49 
 They camped by the Jordan, from Beth Jesimoth as far as the Abel Acacia Grove in the plains of Moab.
@@ -159,7 +159,7 @@ They camped by the Jordan, from Beth Jesimoth as far as the Abel Acacia Grove in
 ## Instructions for the Conquest of Canaan 
 
 ###### 50 
-Now the Lord spoke to Moses in the plains of Moab by the Jordan, _across from_ Jericho, saying, 
+Now the Lord spoke to Moses in the plains of Moab by the Jordan, across from Jericho, saying, 
 
 ###### 51 
 "Speak to the children of Israel, and say to them: 'When you have crossed the Jordan into the land of Canaan, 
@@ -168,13 +168,13 @@ Now the Lord spoke to Moses in the plains of Moab by the Jordan, _across from_ J
 then you shall drive out all the inhabitants of the land from before you, destroy all their engraved stones, destroy all their molded images, and demolish all their high places; 
 
 ###### 53 
-you shall dispossess _the inhabitants of_ the land and dwell in it, for I have given you the land to possess. 
+you shall dispossess the inhabitants of the land and dwell in it, for I have given you the land to possess. 
 
 ###### 54 
-And you shall divide the land by lot as an inheritance among your families; to the larger you shall give a larger inheritance, and to the smaller you shall give a smaller inheritance; there everyone's _inheritance_ shall be whatever falls to him by lot. You shall inherit according to the tribes of your fathers. 
+And you shall divide the land by lot as an inheritance among your families; to the larger you shall give a larger inheritance, and to the smaller you shall give a smaller inheritance; there everyone's inheritance shall be whatever falls to him by lot. You shall inherit according to the tribes of your fathers. 
 
 ###### 55 
-But if you do not drive out the inhabitants of the land from before you, then it shall be that those whom you let remain _shall be_ irritants in your eyes and thorns in your sides, and they shall harass you in the land where you dwell. 
+But if you do not drive out the inhabitants of the land from before you, then it shall be that those whom you let remain shall be irritants in your eyes and thorns in your sides, and they shall harass you in the land where you dwell. 
 
 ###### 56 
-Moreover it shall be _that_ I will do to you as I thought to do to them.' "
+Moreover it shall be that I will do to you as I thought to do to them.' "

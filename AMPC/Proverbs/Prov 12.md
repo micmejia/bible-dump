@@ -28,7 +28,7 @@ next: ['Prov 13']
 
 
 
-Whoever loves instruction _and_ correction loves knowledge, but he who hates reproof is like a brute beast, stupid _and_ indiscriminating. 
+Whoever loves instruction and correction loves knowledge, but he who hates reproof is like a brute beast, stupid and indiscriminating. 
 
 
 
@@ -91,7 +91,7 @@ A man shall not be established by wickedness, but the root of the [uncompromisin
 
 
 
-A virtuous _and_ worthy wife [earnest and strong in character] is a crowning joy to her husband, but she who makes him ashamed is as rottenness in his bones. 
+A virtuous and worthy wife [earnest and strong in character] is a crowning joy to her husband, but she who makes him ashamed is as rottenness in his bones. 
 
 
 
@@ -112,7 +112,7 @@ A virtuous _and_ worthy wife [earnest and strong in character] is a crowning joy
 
 
 
-The thoughts _and_ purposes of the [consistently] righteous are honest _and_ reliable, but the counsels _and_ designs of the wicked are treacherous. 
+The thoughts and purposes of the [consistently] righteous are honest and reliable, but the counsels and designs of the wicked are treacherous. 
 
 
 
@@ -133,7 +133,7 @@ The thoughts _and_ purposes of the [consistently] righteous are honest _and_ rel
 
 
 
-The words of the wicked lie in wait for blood, but the mouth of the upright shall deliver them _and_ the innocent ones [thus endangered]. 
+The words of the wicked lie in wait for blood, but the mouth of the upright shall deliver them and the innocent ones [thus endangered]. 
 
 
 
@@ -238,7 +238,7 @@ A [consistently] righteous man regards the life of his beast, but even the tende
 
 
 
-He who tills his land shall be satisfied with bread, but he who follows worthless pursuits is lacking in sense _and_ is without understanding. 
+He who tills his land shall be satisfied with bread, but he who follows worthless pursuits is lacking in sense and is without understanding. 
 
 
 
@@ -343,7 +343,7 @@ The way of a fool is right in his own eyes, but he who listens to counsel is wis
 
 
 
-A fool's wrath is quickly _and_ openly known, but a prudent man ignores an insult. 
+A fool's wrath is quickly and openly known, but a prudent man ignores an insult. 
 
 
 
@@ -448,7 +448,7 @@ Deceit is in the hearts of those who devise evil, but for the counselors of peac
 
 
 
-No [actual] evil, misfortune, _or_ calamity shall come upon the righteous, but the wicked shall be filled with evil, misfortune, _and_ calamity. 
+No [actual] evil, misfortune, or calamity shall come upon the righteous, but the wicked shall be filled with evil, misfortune, and calamity. 
 
 
 
@@ -469,7 +469,7 @@ No [actual] evil, misfortune, _or_ calamity shall come upon the righteous, but t
 
 
 
-Lying lips are extremely disgusting _and_ hateful to the Lord, but they who deal faithfully are His delight. 
+Lying lips are extremely disgusting and hateful to the Lord, but they who deal faithfully are His delight. 
 
 
 
@@ -574,7 +574,7 @@ The [consistently] righteous man is a guide to his neighbor, but the way of the 
 
 
 
-The slothful man does not catch his game _or_ roast it once he kills it, but the diligent man gets precious possessions. 
+The slothful man does not catch his game or roast it once he kills it, but the diligent man gets precious possessions. 
 
 
 
@@ -595,4 +595,4 @@ The slothful man does not catch his game _or_ roast it once he kills it, but the
 
 
 
-Life is in the way of righteousness (moral and spiritual rectitude in every area and relation), and in its pathway there is no death _but_ immortality (perpetual, eternal life).
+Life is in the way of righteousness (moral and spiritual rectitude in every area and relation), and in its pathway there is no death but immortality (perpetual, eternal life).

@@ -91,7 +91,7 @@ And for his sister, a virgin, who is near to him because she has had no husband;
 
 
 
-He shall not even defile himself, being a [bereaved] husband [his wife not being his blood kin] _or_ being a chief man among his people, and so profane himself. 
+He shall not even defile himself, being a [bereaved] husband [his wife not being his blood kin] or being a chief man among his people, and so profane himself. 
 
 
 
@@ -154,7 +154,7 @@ They shall be holy to their God and not profane the name of their God; for they 
 
 
 
-They shall not take a wife who is a harlot or polluted _or_ profane or divorced, for [the priest] is holy to his God. 
+They shall not take a wife who is a harlot or polluted or profane or divorced, for [the priest] is holy to his God. 
 
 
 
@@ -259,7 +259,7 @@ Neither shall he go in where any dead body lies nor defile himself [by doing so,
 
 
 
-Neither shall he go out of the sanctuary nor desecrate _or_ make ceremonially unclean the sanctuary of his God, for the crown _or_ consecration of the anointing oil of his God is upon him. I am the Lord. 
+Neither shall he go out of the sanctuary nor desecrate or make ceremonially unclean the sanctuary of his God, for the crown or consecration of the anointing oil of his God is upon him. I am the Lord. 
 
 
 
@@ -301,7 +301,7 @@ He shall take a wife in her virginity.
 
 
 
-A widow or a divorced woman or a woman who is polluted _or_ profane or a harlot, these he shall not marry, but he shall take as his wife a virgin of his own people, 
+A widow or a divorced woman or a woman who is polluted or profane or a harlot, these he shall not marry, but he shall take as his wife a virgin of his own people, 
 
 
 
@@ -322,7 +322,7 @@ A widow or a divorced woman or a woman who is polluted _or_ profane or a harlot,
 
 
 
-That he may not profane _or_ dishonor his children among his people; for I the Lord do sanctify the high priest. 
+That he may not profane or dishonor his children among his people; for I the Lord do sanctify the high priest. 
 
 
 
@@ -427,7 +427,7 @@ Or who has a fractured foot or hand,
 
 
 
-Or is a hunchback, or a dwarf, or has a defect in his eye, or has scurvy _or_ itch, or scabs _or_ skin trouble, or has damaged testicles. 
+Or is a hunchback, or a dwarf, or has a defect in his eye, or has scurvy or itch, or scabs or skin trouble, or has damaged testicles. 
 
 
 
@@ -448,7 +448,7 @@ Or is a hunchback, or a dwarf, or has a defect in his eye, or has scurvy _or_ it
 
 
 
-No man of the offspring of Aaron the priest who has a blemish _and_ is disfigured _or_ deformed shall come near [the altar] to offer the offerings of the Lord made by fire. He has a blemish; he shall not come near to offer the bread of his God. 
+No man of the offspring of Aaron the priest who has a blemish and is disfigured or deformed shall come near [the altar] to offer the offerings of the Lord made by fire. He has a blemish; he shall not come near to offer the bread of his God. 
 
 
 
@@ -490,7 +490,7 @@ He may eat the bread of his God, both of the most holy and of the holy things,
 
 
 
-But he shall not come within the veil or come near the altar [of incense], because he has a blemish, that he may not desecrate _and_ make unclean My sanctuaries _and_ hallowed things; for I the Lord do sanctify them. 
+But he shall not come within the veil or come near the altar [of incense], because he has a blemish, that he may not desecrate and make unclean My sanctuaries and hallowed things; for I the Lord do sanctify them. 
 
 
 

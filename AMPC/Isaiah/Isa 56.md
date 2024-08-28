@@ -28,7 +28,7 @@ next: ['Isa 57']
 
 
 
-Thus says the Lord: Keep justice, do _and_ use righteousness (conformity to the will of God which brings salvation), for My salvation is soon to come and My righteousness (My rightness and justice) to be revealed. 
+Thus says the Lord: Keep justice, do and use righteousness (conformity to the will of God which brings salvation), for My salvation is soon to come and My righteousness (My rightness and justice) to be revealed. 
 
 
 
@@ -49,7 +49,7 @@ Thus says the Lord: Keep justice, do _and_ use righteousness (conformity to the 
 
 
 
-Blessed, happy, _and_ fortunate is the man who does this, and the son of man who lays hold of it _and_ binds himself fast to it, who keeps sacred the Sabbath so as not to profane it, and keeps his hand from doing any evil. 
+Blessed, happy, and fortunate is the man who does this, and the son of man who lays hold of it and binds himself fast to it, who keeps sacred the Sabbath so as not to profane it, and keeps his hand from doing any evil. 
 
 
 

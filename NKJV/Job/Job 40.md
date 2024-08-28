@@ -13,7 +13,7 @@ next: ['Job 41']
 Moreover the Lord answered Job, and said: 
 
 ###### 2 
-"Shall the one who contends with the Almighty correct _Him?_ He who rebukes God, let him answer it." 
+"Shall the one who contends with the Almighty correct Him? He who rebukes God, let him answer it." 
 
 ## Job's Response to God 
 
@@ -41,34 +41,34 @@ Then the Lord answered Job out of the whirlwind, and said:
 Have you an arm like God? Or can you thunder with a voice like His? 
 
 ###### 10 
-Then adorn yourself _with_ majesty and splendor, And array yourself with glory and beauty. 
+Then adorn yourself with majesty and splendor, And array yourself with glory and beauty. 
 
 ###### 11 
-Disperse the rage of your wrath; Look on everyone _who is_ proud, and humble him. 
+Disperse the rage of your wrath; Look on everyone who is proud, and humble him. 
 
 ###### 12 
-Look on everyone _who is_ proud, _and_ bring him low; Tread down the wicked in their place. 
+Look on everyone who is proud, and bring him low; Tread down the wicked in their place. 
 
 ###### 13 
-Hide them in the dust together, Bind their faces in hidden _darkness._ 
+Hide them in the dust together, Bind their faces in hidden darkness. 
 
 ###### 14 
 Then I will also confess to you That your own right hand can save you. 
 
 ###### 15 
-"Look now at the behemoth, which I made _along_ with you; He eats grass like an ox. 
+"Look now at the behemoth, which I made along with you; He eats grass like an ox. 
 
 ###### 16 
-See now, his strength _is_ in his hips, And his power _is_ in his stomach muscles. 
+See now, his strength is in his hips, And his power is in his stomach muscles. 
 
 ###### 17 
 He moves his tail like a cedar; The sinews of his thighs are tightly knit. 
 
 ###### 18 
-His bones _are like_ beams of bronze, His ribs like bars of iron. 
+His bones are like beams of bronze, His ribs like bars of iron. 
 
 ###### 19 
-He _is_ the first of the ways of God; Only He who made him can bring near His sword. 
+He is the first of the ways of God; Only He who made him can bring near His sword. 
 
 ###### 20 
 Surely the mountains yield food for him, And all the beasts of the field play there. 
@@ -77,10 +77,10 @@ Surely the mountains yield food for him, And all the beasts of the field play th
 He lies under the lotus trees, In a covert of reeds and marsh. 
 
 ###### 22 
-The lotus trees cover him _with_ their shade; The willows by the brook surround him. 
+The lotus trees cover him with their shade; The willows by the brook surround him. 
 
 ###### 23 
-Indeed the river may rage, _Yet_ he is not disturbed; He is confident, though the Jordan gushes into his mouth, 
+Indeed the river may rage, Yet he is not disturbed; He is confident, though the Jordan gushes into his mouth, 
 
 ###### 24 
-_Though_ he takes it in his eyes, _Or_ one pierces _his_ nose with a snare.
+Though he takes it in his eyes, Or one pierces his nose with a snare.

@@ -175,7 +175,7 @@ And this he [Moses] said of Judah: Hear, O Lord, the voice of Judah, and bring h
 
 
 
-And of Levi he said: Your Thummim and Your Urim [by which the priest sought God's will for the nation] are for Your pious one [Aaron on behalf of the tribe], whom You tried _and_ proved at Massah, with whom You contended at the waters of Meribah; 
+And of Levi he said: Your Thummim and Your Urim [by which the priest sought God's will for the nation] are for Your pious one [Aaron on behalf of the tribe], whom You tried and proved at Massah, with whom You contended at the waters of Meribah; 
 
 
 
@@ -343,7 +343,7 @@ With the chief products of the ancient mountains and with the precious things of
 
 
 
-With the precious things of the earth and its fullness and the favor _and_ goodwill of Him Who dwelt in the bush. Let these blessings come upon the head of Joseph, upon the crown of the head of him who was separate _and_ prince among his brothers. 
+With the precious things of the earth and its fullness and the favor and goodwill of Him Who dwelt in the bush. Let these blessings come upon the head of Joseph, upon the crown of the head of him who was separate and prince among his brothers. 
 
 
 
@@ -532,7 +532,7 @@ Of Asher he said: Blessed above sons is Asher; let him be acceptable to his brot
 
 
 
-Your castles and strongholds shall have bars of iron and bronze, and as your day, so shall your strength, your rest _and_ security, be. 
+Your castles and strongholds shall have bars of iron and bronze, and as your day, so shall your strength, your rest and security, be. 
 
 
 
@@ -574,7 +574,7 @@ There is none like God, O Jeshurun [Israel], Who rides through the heavens to yo
 
 
 
-The eternal God is your refuge _and_ dwelling place, and underneath are the everlasting arms; He drove the enemy before you _and_ thrust them out, saying, Destroy! 
+The eternal God is your refuge and dwelling place, and underneath are the everlasting arms; He drove the enemy before you and thrust them out, saying, Destroy! 
 
 
 
@@ -616,4 +616,4 @@ And Israel dwells in safety, the fountain of Jacob alone in a land of grain and 
 
 
 
-Happy are you, O Israel, _and_ blessing is yours! Who is like you, a people saved by the Lord, the Shield of your help, the Sword that exalts you! Your enemies shall come fawning _and_ cringing, _and_ submit feigned obedience to you, and you shall march on their high places.
+Happy are you, O Israel, and blessing is yours! Who is like you, a people saved by the Lord, the Shield of your help, the Sword that exalts you! Your enemies shall come fawning and cringing, and submit feigned obedience to you, and you shall march on their high places.

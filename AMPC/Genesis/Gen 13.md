@@ -133,7 +133,7 @@ But Lot, who went with Abram, also had flocks and herds and tents.
 
 
 
-Now the land was not able to nourish _and_ support them so they could dwell together, for their possessions were too great for them to live together. 
+Now the land was not able to nourish and support them so they could dwell together, for their possessions were too great for them to live together. 
 
 
 
@@ -259,7 +259,7 @@ Then Lot chose for himself all the Jordan Valley and [he] traveled east. So they
 
 
 
-Abram dwelt in the land of Canaan, and Lot dwelt in the cities of the [Jordan] Valley and moved his tent as far as Sodom _and_ dwelt there. 
+Abram dwelt in the land of Canaan, and Lot dwelt in the cities of the [Jordan] Valley and moved his tent as far as Sodom and dwelt there. 
 
 
 
@@ -385,4 +385,4 @@ Arise, walk through the land, the length of it and the breadth of it, for I will
 
 
 
-Then Abram moved his tent and came and dwelt among the oaks _or_ terebinths of Mamre, which are at Hebron, and built there an altar to the Lord.
+Then Abram moved his tent and came and dwelt among the oaks or terebinths of Mamre, which are at Hebron, and built there an altar to the Lord.

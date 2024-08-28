@@ -49,7 +49,7 @@ Now [living] at Caesarea there was a man whose name was Cornelius, a centurion (
 
 
 
-A devout man who venerated God _and_ treated Him with reverential obedience, as did all his household; and he gave much alms to the people and prayed continually to God. 
+A devout man who venerated God and treated Him with reverential obedience, as did all his household; and he gave much alms to the people and prayed continually to God. 
 
 
 
@@ -91,7 +91,7 @@ About the ninth hour (about 3:00 p.m.) of the day he saw clearly in a vision an 
 
 
 
-And he, gazing intently at him, became frightened and said, What is it, Lord? And the angel said to him, Your prayers and your [generous] gifts to the poor have come up [as a sacrifice] to God _and_ have been remembered by Him. 
+And he, gazing intently at him, became frightened and said, What is it, Lord? And the angel said to him, Your prayers and your [generous] gifts to the poor have come up [as a sacrifice] to God and have been remembered by Him. 
 
 
 
@@ -112,7 +112,7 @@ And he, gazing intently at him, became frightened and said, What is it, Lord? An
 
 
 
-And now send men to Joppa and have them call for _and_ invite here a certain Simon whose surname is Peter; 
+And now send men to Joppa and have them call for and invite here a certain Simon whose surname is Peter; 
 
 
 
@@ -259,7 +259,7 @@ And he saw the sky opened and something like a great sheet lowered by the four c
 
 
 
-It contained all kinds of quadrupeds _and wild beasts_ and creeping things of the earth and birds of the air. 
+It contained all kinds of quadrupeds and wild beasts and creeping things of the earth and birds of the air. 
 
 
 
@@ -301,7 +301,7 @@ And there came a voice to him, saying, Rise up, Peter, kill and eat.
 
 
 
-But Peter said, No, by no means, Lord; for I have never eaten anything that is common _and_ unhallowed or [ceremonially] unclean. 
+But Peter said, No, by no means, Lord; for I have never eaten anything that is common and unhallowed or [ceremonially] unclean. 
 
 
 
@@ -322,7 +322,7 @@ But Peter said, No, by no means, Lord; for I have never eaten anything that is c
 
 
 
-And the voice came to him again a second time, What God has cleansed _and_ pronounced clean, do not you defile _and_ profane by regarding _and_ calling common _and_ unhallowed or unclean. 
+And the voice came to him again a second time, What God has cleansed and pronounced clean, do not you defile and profane by regarding and calling common and unhallowed or unclean. 
 
 
 
@@ -364,7 +364,7 @@ This occurred three times; then immediately the sheet was taken up to heaven.
 
 
 
-Now Peter was still inwardly perplexed _and_ doubted as to what the vision which he had seen could mean, when [just then] behold the messengers that were sent by Cornelius, who had made inquiry for Simon's house, stopped _and_ stood before the gate. 
+Now Peter was still inwardly perplexed and doubted as to what the vision which he had seen could mean, when [just then] behold the messengers that were sent by Cornelius, who had made inquiry for Simon's house, stopped and stood before the gate. 
 
 
 
@@ -406,7 +406,7 @@ And they called out to inquire whether Simon who was surnamed Peter was staying 
 
 
 
-And while Peter was earnestly revolving the vision in his mind _and_ meditating on it, the [Holy] Spirit said to him, Behold, three men are looking for you! 
+And while Peter was earnestly revolving the vision in his mind and meditating on it, the [Holy] Spirit said to him, Behold, three men are looking for you! 
 
 
 
@@ -427,7 +427,7 @@ And while Peter was earnestly revolving the vision in his mind _and_ meditating 
 
 
 
-Get up and go below and accompany them without any doubt [about its legality] _or_ any discrimination _or_ hesitation, for I have sent them. 
+Get up and go below and accompany them without any doubt [about its legality] or any discrimination or hesitation, for I have sent them. 
 
 
 
@@ -469,7 +469,7 @@ Then Peter went down to the men and said, I am the man you seek; what is the pur
 
 
 
-And they said, Cornelius, a centurion (captain) who is just _and_ upright _and_ in right standing with God, being God-fearing _and_ obedient and well spoken of by the whole Jewish nation, has been instructed by a holy angel to send for you to come to his house; and he has received in answer [to prayer] a warning to listen to _and_ act upon what you have to say. 
+And they said, Cornelius, a centurion (captain) who is just and upright and in right standing with God, being God-fearing and obedient and well spoken of by the whole Jewish nation, has been instructed by a holy angel to send for you to come to his house; and he has received in answer [to prayer] a warning to listen to and act upon what you have to say. 
 
 
 
@@ -511,7 +511,7 @@ So Peter invited them in to be his guests [for the night]. The next day he arose
 
 
 
-And on the following day they entered Caesarea. Cornelius was waiting for _and_ expecting them, and he had invited together his relatives and his intimate friends. 
+And on the following day they entered Caesarea. Cornelius was waiting for and expecting them, and he had invited together his relatives and his intimate friends. 
 
 
 
@@ -532,7 +532,7 @@ And on the following day they entered Caesarea. Cornelius was waiting for _and_ 
 
 
 
-As Peter arrived, Cornelius met him, and falling down at his feet he made obeisance _and_ paid worshipful reverence to him. 
+As Peter arrived, Cornelius met him, and falling down at his feet he made obeisance and paid worshipful reverence to him. 
 
 
 
@@ -595,7 +595,7 @@ And as [Peter] spoke with him, he entered the house and found a large group of p
 
 
 
-And he said to them, You yourselves are aware how it is not lawful _or_ permissible for a Jew to keep company with or to visit _or_ [even] to come near _or_ to speak first to anyone of another nationality, but God has shown _and_ taught me by words that I should not call any human being common _or_ unhallowed or [ceremonially] unclean. 
+And he said to them, You yourselves are aware how it is not lawful or permissible for a Jew to keep company with or to visit or [even] to come near or to speak first to anyone of another nationality, but God has shown and taught me by words that I should not call any human being common or unhallowed or [ceremonially] unclean. 
 
 
 
@@ -616,7 +616,7 @@ And he said to them, You yourselves are aware how it is not lawful _or_ permissi
 
 
 
-Therefore when I was sent for, I came without hesitation _or_ objection _or_ misgivings. So now I ask for what reason you sent for me. 
+Therefore when I was sent for, I came without hesitation or objection or misgivings. So now I ask for what reason you sent for me. 
 
 
 
@@ -658,7 +658,7 @@ And Cornelius said, This is now the fourth day since about this time I was obser
 
 
 
-And he said, Cornelius, your prayer has been heard _and_ harkened to, and your donations to the poor have been known _and_ preserved before God [so that He heeds and is about to help you]. 
+And he said, Cornelius, your prayer has been heard and harkened to, and your donations to the poor have been known and preserved before God [so that He heeds and is about to help you]. 
 
 
 
@@ -700,7 +700,7 @@ Send therefore to Joppa and ask for Simon who is surnamed Peter; he is staying i
 
 
 
-So at once I sent for you, and you [being a Jew] have done a kind _and_ courteous _and_ handsome thing in coming. Now then, we are all present in the sight of God to listen to all that you have been instructed by the Lord to say. 
+So at once I sent for you, and you [being a Jew] have done a kind and courteous and handsome thing in coming. Now then, we are all present in the sight of God to listen to all that you have been instructed by the Lord to say. 
 
 
 
@@ -721,7 +721,7 @@ So at once I sent for you, and you [being a Jew] have done a kind _and_ courteou
 
 
 
-And Peter opened his mouth and said: Most certainly _and_ thoroughly I now perceive _and_ understand that God shows no partiality _and_ is no respecter of persons, 
+And Peter opened his mouth and said: Most certainly and thoroughly I now perceive and understand that God shows no partiality and is no respecter of persons, 
 
 
 
@@ -742,7 +742,7 @@ And Peter opened his mouth and said: Most certainly _and_ thoroughly I now perce
 
 
 
-But in every nation he who venerates _and_ has a reverential fear for God, treating Him with worshipful obedience and living uprightly, is acceptable to Him _and_ sure of being received and welcomed [by Him]. 
+But in every nation he who venerates and has a reverential fear for God, treating Him with worshipful obedience and living uprightly, is acceptable to Him and sure of being received and welcomed [by Him]. 
 
 
 
@@ -805,7 +805,7 @@ The [same] message which was proclaimed throughout all Judea, starting from Gali
 
 
 
-How God anointed _and_ consecrated Jesus of Nazareth with the [Holy] Spirit and with strength _and_ ability _and_ power; how He went about doing good and, in particular, curing all who were harassed _and_ oppressed by [the power of] the devil, for God was with Him. 
+How God anointed and consecrated Jesus of Nazareth with the [Holy] Spirit and with strength and ability and power; how He went about doing good and, in particular, curing all who were harassed and oppressed by [the power of] the devil, for God was with Him. 
 
 
 
@@ -889,7 +889,7 @@ Not by all the people but to us who were chosen (designated) beforehand by God a
 
 
 
-And He charged us to preach to the people and to bear solemn testimony that He is the God-appointed _and_ God-ordained Judge of the living and the dead. 
+And He charged us to preach to the people and to bear solemn testimony that He is the God-appointed and God-ordained Judge of the living and the dead. 
 
 
 
@@ -952,7 +952,7 @@ While Peter was still speaking these words, the Holy Spirit fell on all who were
 
 
 
-And the believers from among the circumcised [the Jews] who came with Peter were surprised _and_ amazed, because the free gift of the Holy Spirit had been bestowed _and_ poured out largely even on the Gentiles. 
+And the believers from among the circumcised [the Jews] who came with Peter were surprised and amazed, because the free gift of the Holy Spirit had been bestowed and poured out largely even on the Gentiles. 
 
 
 
@@ -973,7 +973,7 @@ And the believers from among the circumcised [the Jews] who came with Peter were
 
 
 
-For they heard them talking in [unknown] tongues (languages) and extolling _and_ magnifying God. Then Peter asked, 
+For they heard them talking in [unknown] tongues (languages) and extolling and magnifying God. Then Peter asked, 
 
 
 
@@ -994,7 +994,7 @@ For they heard them talking in [unknown] tongues (languages) and extolling _and_
 
 
 
-Can anyone forbid _or_ refuse water for baptizing these people, seeing that they have received the Holy Spirit just as we have? 
+Can anyone forbid or refuse water for baptizing these people, seeing that they have received the Holy Spirit just as we have? 
 
 
 

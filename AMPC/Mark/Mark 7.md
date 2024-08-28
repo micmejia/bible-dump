@@ -112,7 +112,7 @@ And [when they come] from the marketplace, they do not eat unless they purify th
 
 
 
-And the Pharisees and scribes kept asking [Jesus], Why do Your disciples not order their way of living according to the tradition handed down by the forefathers [to be observed], but eat with hands unwashed _and_ ceremonially not purified? 
+And the Pharisees and scribes kept asking [Jesus], Why do Your disciples not order their way of living according to the tradition handed down by the forefathers [to be observed], but eat with hands unwashed and ceremonially not purified? 
 
 
 
@@ -133,7 +133,7 @@ And the Pharisees and scribes kept asking [Jesus], Why do Your disciples not ord
 
 
 
-But He said to them, Excellently _and_ truly [so that there will be no room for blame] did Isaiah prophesy of you, the pretenders _and_ hypocrites, as it stands written: These people [constantly] honor Me with their lips, but their hearts hold off _and_ are far distant from Me. 
+But He said to them, Excellently and truly [so that there will be no room for blame] did Isaiah prophesy of you, the pretenders and hypocrites, as it stands written: These people [constantly] honor Me with their lips, but their hearts hold off and are far distant from Me. 
 
 
 
@@ -154,7 +154,7 @@ But He said to them, Excellently _and_ truly [so that there will be no room for 
 
 
 
-In vain (fruitlessly and without profit) do they worship Me, ordering _and_ teaching [to be obeyed] as doctrines the commandments _and_ precepts of men. 
+In vain (fruitlessly and without profit) do they worship Me, ordering and teaching [to be obeyed] as doctrines the commandments and precepts of men. 
 
 
 
@@ -175,7 +175,7 @@ In vain (fruitlessly and without profit) do they worship Me, ordering _and_ teac
 
 
 
-You disregard _and_ give up _and_ ask to depart from you the commandment of God and cling to the tradition of men [keeping it carefully and faithfully]. 
+You disregard and give up and ask to depart from you the commandment of God and cling to the tradition of men [keeping it carefully and faithfully]. 
 
 
 
@@ -217,7 +217,7 @@ And He said to them, You have a fine way of rejecting [thus thwarting and nullif
 
 
 
-For Moses said, Honor (revere with tenderness of feeling and deference) your father and your mother, and, He who curses _or_ reviles _or_ speaks evil of _or_ abuses _or_ treats improperly his father or mother, let him surely die. 
+For Moses said, Honor (revere with tenderness of feeling and deference) your father and your mother, and, He who curses or reviles or speaks evil of or abuses or treats improperly his father or mother, let him surely die. 
 
 
 
@@ -280,7 +280,7 @@ Then you no longer are permitting him to do anything for [his] father or mother 
 
 
 
-Thus you are nullifying _and_ making void _and_ of no effect [the authority of] the Word of God through your tradition, which you [in turn] hand on. And many things of this kind you are doing. 
+Thus you are nullifying and making void and of no effect [the authority of] the Word of God through your tradition, which you [in turn] hand on. And many things of this kind you are doing. 
 
 
 
@@ -322,7 +322,7 @@ And He called the people to [Him] again and said to them, Listen to Me, all of y
 
 
 
-There is not [even] one thing outside a man which by going into him can pollute _and_ defile him; but the things which come out of a man are what defile him _and_ make him unhallowed _and_ unclean. 
+There is not [even] one thing outside a man which by going into him can pollute and defile him; but the things which come out of a man are what defile him and make him unhallowed and unclean. 
 
 
 
@@ -343,7 +343,7 @@ There is not [even] one thing outside a man which by going into him can pollute 
 
 
 
-_If any man has ears to hear, let him be listening [and let him_ _perceive and comprehend by hearing]._ 
+If any man has ears to hear, let him be listening [and let him perceive and comprehend by hearing]. 
 
 
 
@@ -385,7 +385,7 @@ And when He had left the crowd and had gone into the house, His disciples began 
 
 
 
-And He said to them, Then are you also unintelligent _and_ dull _and_ without understanding? Do you not discern _and_ see that whatever goes into a man from the outside cannot make him unhallowed _or_ unclean, 
+And He said to them, Then are you also unintelligent and dull and without understanding? Do you not discern and see that whatever goes into a man from the outside cannot make him unhallowed or unclean, 
 
 
 
@@ -406,7 +406,7 @@ And He said to them, Then are you also unintelligent _and_ dull _and_ without un
 
 
 
-Since it does not reach _and_ enter his heart but [only his] digestive tract, and so passes on [into the place designed to receive waste]? Thus He was making _and_ declaring all foods [ceremonially] clean [that is, abolishing the ceremonial distinctions of the Levitical Law]. 
+Since it does not reach and enter his heart but [only his] digestive tract, and so passes on [into the place designed to receive waste]? Thus He was making and declaring all foods [ceremonially] clean [that is, abolishing the ceremonial distinctions of the Levitical Law]. 
 
 
 
@@ -427,7 +427,7 @@ Since it does not reach _and_ enter his heart but [only his] digestive tract, an
 
 
 
-And He said, What comes out of a man is what makes a man unclean _and_ renders [him] unhallowed. 
+And He said, What comes out of a man is what makes a man unclean and renders [him] unhallowed. 
 
 
 
@@ -448,7 +448,7 @@ And He said, What comes out of a man is what makes a man unclean _and_ renders [
 
 
 
-For from within, [that is] out of the hearts of men, come base _and_ wicked thoughts, sexual immorality, stealing, murder, adultery, 
+For from within, [that is] out of the hearts of men, come base and wicked thoughts, sexual immorality, stealing, murder, adultery, 
 
 
 
@@ -469,7 +469,7 @@ For from within, [that is] out of the hearts of men, come base _and_ wicked thou
 
 
 
-Coveting (a greedy desire to have more wealth), dangerous _and_ destructive wickedness, deceit; unrestrained (indecent) conduct; an evil eye (envy), slander (evil speaking, malicious misrepresentation, abusiveness), pride (the sin of an uplifted heart against God and man), foolishness (folly, lack of sense, recklessness, thoughtlessness). 
+Coveting (a greedy desire to have more wealth), dangerous and destructive wickedness, deceit; unrestrained (indecent) conduct; an evil eye (envy), slander (evil speaking, malicious misrepresentation, abusiveness), pride (the sin of an uplifted heart against God and man), foolishness (folly, lack of sense, recklessness, thoughtlessness). 
 
 
 
@@ -490,7 +490,7 @@ Coveting (a greedy desire to have more wealth), dangerous _and_ destructive wick
 
 
 
-All these evil [purposes and desires] come from within, and they make the man unclean _and_ render him unhallowed. 
+All these evil [purposes and desires] come from within, and they make the man unclean and render him unhallowed. 
 
 
 
@@ -511,7 +511,7 @@ All these evil [purposes and desires] come from within, and they make the man un
 
 
 
-And Jesus arose and went away from there to the region of Tyre _and Sidon_. And He went into a house and did not want anyone to know [that He was there]; but it was not possible for Him to be hidden [from public notice]. 
+And Jesus arose and went away from there to the region of Tyre and Sidon. And He went into a house and did not want anyone to know [that He was there]; but it was not possible for Him to be hidden [from public notice]. 
 
 
 
@@ -574,7 +574,7 @@ Now the woman was a Greek (Gentile), a Syrophoenician by nationality. And she ke
 
 
 
-And He said to her, First let the children be fed, for it is not becoming _or_ proper _or_ right to take the children's bread and throw it to the [little house] dogs. 
+And He said to her, First let the children be fed, for it is not becoming or proper or right to take the children's bread and throw it to the [little house] dogs. 
 
 
 
@@ -742,7 +742,7 @@ And looking up to heaven, He sighed as He said, Ephphatha, which means, Be opene
 
 
 
-And his ears were opened, his tongue was loosed, and he began to speak distinctly _and_ as he should. 
+And his ears were opened, his tongue was loosed, and he began to speak distinctly and as he should. 
 
 
 
@@ -763,7 +763,7 @@ And his ears were opened, his tongue was loosed, and he began to speak distinctl
 
 
 
-And Jesus [in His own interest] admonished _and_ ordered them sternly _and_ expressly to tell no one; but the more He commanded them, the more zealously they proclaimed it. 
+And Jesus [in His own interest] admonished and ordered them sternly and expressly to tell no one; but the more He commanded them, the more zealously they proclaimed it. 
 
 
 

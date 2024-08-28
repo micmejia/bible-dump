@@ -238,7 +238,7 @@ Shall not [the forefathers] teach you and tell you and utter words out of their 
 
 
 
-Can the rush _or_ papyrus grow up without marsh? Can the flag _or_ reed grass grow without water? 
+Can the rush or papyrus grow up without marsh? Can the flag or reed grass grow without water? 
 
 
 
@@ -385,7 +385,7 @@ He is green before the sun, and his shoots go forth over his garden.
 
 
 
-But if [God] snatches him from his property, [then having passed into the hands of others] it [his property] will forget _and_ deny him, [saying,] I have never seen you [before, as if ashamed of him--like his former friends]. 
+But if [God] snatches him from his property, [then having passed into the hands of others] it [his property] will forget and deny him, [saying,] I have never seen you [before, as if ashamed of him--like his former friends]. 
 
 
 

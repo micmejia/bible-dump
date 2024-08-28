@@ -238,7 +238,7 @@ That they may offer pleasing sacrifices to the God of heaven and pray for the li
 
 
 
-Also I make a decree that whoever shall change _or_ infringe on this order, let a beam be pulled from his house and erected; then let him be fastened to it, and let his house be made a dunghill for this. 
+Also I make a decree that whoever shall change or infringe on this order, let a beam be pulled from his house and erected; then let him be fastened to it, and let his house be made a dunghill for this. 
 
 
 
@@ -259,7 +259,7 @@ Also I make a decree that whoever shall change _or_ infringe on this order, let 
 
 
 
-May the God Who has caused His Name to dwell there overthrow all kings and peoples who put forth their hands to alter this or to destroy this house of God in Jerusalem. I Darius make a decree; let it be executed speedily _and_ exactly. 
+May the God Who has caused His Name to dwell there overthrow all kings and peoples who put forth their hands to alter this or to destroy this house of God in Jerusalem. I Darius make a decree; let it be executed speedily and exactly. 
 
 
 

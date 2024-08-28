@@ -133,7 +133,7 @@ To whom will you liken Me and make Me equal and compare Me, that we may be alike
 
 
 
-They lavish gold out of the cup _or_ bag, weigh out silver on the scales, and hire a goldsmith, and he fashions it into a god; [then] they fall down, yes, they worship it! 
+They lavish gold out of the cup or bag, weigh out silver on the scales, and hire a goldsmith, and he fashions it into a god; [then] they fall down, yes, they worship it! 
 
 
 
@@ -175,7 +175,7 @@ They bear it upon their shoulders [in religious processions or into battle]; the
 
 
 
-[Earnestly] remember this, be ashamed _and_ own yourselves guilty; bring it again to mind _and_ lay it to heart, O you rebels! 
+[Earnestly] remember this, be ashamed and own yourselves guilty; bring it again to mind and lay it to heart, O you rebels! 
 
 
 
@@ -217,7 +217,7 @@ They bear it upon their shoulders [in religious processions or into battle]; the
 
 
 
-Declaring the end _and_ the result from the beginning, and from ancient times the things that are not yet done, saying, My counsel shall stand, and I will do all My pleasure _and_ purpose, 
+Declaring the end and the result from the beginning, and from ancient times the things that are not yet done, saying, My counsel shall stand, and I will do all My pleasure and purpose, 
 
 
 
@@ -259,7 +259,7 @@ Calling a ravenous bird from the east--the man [Cyrus] who executes My counsel f
 
 
 
-Listen to Me, you stiff-hearted _and_ you who have lost heart, you who are far from righteousness (from uprightness and right standing with God, and from His righteous deliverance). 
+Listen to Me, you stiff-hearted and you who have lost heart, you who are far from righteousness (from uprightness and right standing with God, and from His righteous deliverance). 
 
 
 

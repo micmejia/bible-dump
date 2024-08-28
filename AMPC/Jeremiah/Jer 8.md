@@ -49,7 +49,7 @@ At that time, says the Lord, [the Babylonian army will break open the sepulchers
 
 
 
-And they will [carelessly] scatter [the corpses] before the sun and the moon and all the host of heaven, which [the dead] have loved and which they have served and after which they have walked and which they have sought, inquired of, _and_ required and which they have worshiped. They shall not be gathered, or be buried; they shall be like dung upon the face of the earth. 
+And they will [carelessly] scatter [the corpses] before the sun and the moon and all the host of heaven, which [the dead] have loved and which they have served and after which they have walked and which they have sought, inquired of, and required and which they have worshiped. They shall not be gathered, or be buried; they shall be like dung upon the face of the earth. 
 
 
 
@@ -91,7 +91,7 @@ And death shall be chosen rather than life by all the residue of those who remai
 
 
 
-Moreover, you [Jeremiah] shall say to them, Thus says the Lord: Shall men fall and not rise up again? Shall one turn away [from God] and not repent _and_ return [to Him]? 
+Moreover, you [Jeremiah] shall say to them, Thus says the Lord: Shall men fall and not rise up again? Shall one turn away [from God] and not repent and return [to Him]? 
 
 
 
@@ -112,7 +112,7 @@ Moreover, you [Jeremiah] shall say to them, Thus says the Lord: Shall men fall a
 
 
 
-Why then is this people of Jerusalem turned away with a perpetual turning away [from Me]? They hold fast to deceit (idolatry); they refuse to repent _and_ return [to God]. 
+Why then is this people of Jerusalem turned away with a perpetual turning away [from Me]? They hold fast to deceit (idolatry); they refuse to repent and return [to God]. 
 
 
 
@@ -196,7 +196,7 @@ How can you say, We are wise, and we have the written law of the Lord [and are l
 
 
 
-The wise men shall be put to shame; they shall be dismayed and taken [captive]. Behold, they have rejected the word of the Lord, and what wisdom _and_ broad, full intelligence is in them? 
+The wise men shall be put to shame; they shall be dismayed and taken [captive]. Behold, they have rejected the word of the Lord, and what wisdom and broad, full intelligence is in them? 
 
 
 
@@ -238,7 +238,7 @@ Therefore will I give their wives to others and their fields to those who gain p
 
 
 
-For they have healed the wound of the daughter of My people only lightly _and_ slightingly, saying, Peace, peace, when there is no peace. 
+For they have healed the wound of the daughter of My people only lightly and slightingly, saying, Peace, peace, when there is no peace. 
 
 
 
@@ -280,7 +280,7 @@ They are brought to shame because they have committed abominations (extremely di
 
 
 
-I will gather _and_ sweep them away, utterly consuming them, says the Lord. [I will find] no grapes on the vine, nor figs on the fig tree, and even the leaf is withered; and the things that I have given them shall pass away from them [for I have appointed to them those who shall pass over them]. 
+I will gather and sweep them away, utterly consuming them, says the Lord. [I will find] no grapes on the vine, nor figs on the fig tree, and even the leaf is withered; and the things that I have given them shall pass away from them [for I have appointed to them those who shall pass over them]. 
 
 
 
@@ -301,7 +301,7 @@ I will gather _and_ sweep them away, utterly consuming them, says the Lord. [I w
 
 
 
-[Then say the people to each other] Why do we sit still? Assemble yourselves, and let us enter into the fortified cities and be silent _or_ perish there! For the Lord our God has decreed our ruin and given us bitter _and_ poisonous water to drink, because we have sinned against the Lord. 
+[Then say the people to each other] Why do we sit still? Assemble yourselves, and let us enter into the fortified cities and be silent or perish there! For the Lord our God has decreed our ruin and given us bitter and poisonous water to drink, because we have sinned against the Lord. 
 
 
 
@@ -322,7 +322,7 @@ I will gather _and_ sweep them away, utterly consuming them, says the Lord. [I w
 
 
 
-We looked for peace _and_ completeness, but no good came, and for a time of healing, but behold, dismay, trouble, _and_ terror! 
+We looked for peace and completeness, but no good came, and for a time of healing, but behold, dismay, trouble, and terror! 
 
 
 
@@ -385,7 +385,7 @@ For behold, I am sending among you serpents, adders which cannot be charmed, and
 
 
 
-Oh, that I [Jeremiah] could comfort myself against sorrow, [for my grief is beyond healing], my heart is sick _and_ faint within me! 
+Oh, that I [Jeremiah] could comfort myself against sorrow, [for my grief is beyond healing], my heart is sick and faint within me! 
 
 
 
@@ -427,7 +427,7 @@ Behold [says the prophet, listen to the voice of] the cry of the daughter of my 
 
 
 
-The harvest is past, the summer has ended _and_ the gathering of fruit is over, yet we are not saved! [comes again the voice of the people.] 
+The harvest is past, the summer has ended and the gathering of fruit is over, yet we are not saved! [comes again the voice of the people.] 
 
 
 

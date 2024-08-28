@@ -112,7 +112,7 @@ And the priest shall take the basket from your hand and set it down before the a
 
 
 
-And you shall say before the Lord your God, A wandering _and_ lost Aramean ready to perish was my father [Jacob], and he went down into Egypt and sojourned there, few in number, and he became there a nation, great, mighty, and numerous. 
+And you shall say before the Lord your God, A wandering and lost Aramean ready to perish was my father [Jacob], and he went down into Egypt and sojourned there, few in number, and he became there a nation, great, mighty, and numerous. 
 
 
 
@@ -238,7 +238,7 @@ And now, behold, I bring the firstfruits of the ground which You, O Lord, have g
 
 
 
-And you and the Levite and the stranger _and_ the sojourner among you shall rejoice in all the good which the Lord your God has given you and your household. 
+And you and the Levite and the stranger and the sojourner among you shall rejoice in all the good which the Lord your God has given you and your household. 
 
 
 
@@ -259,7 +259,7 @@ And you and the Levite and the stranger _and_ the sojourner among you shall rejo
 
 
 
-When you have finished paying all the tithe of your produce the third year, which is the year of tithing, and have given it to the Levite, the stranger _and_ the sojourner, the fatherless, and to the widow, that they may eat within your towns and be filled, 
+When you have finished paying all the tithe of your produce the third year, which is the year of tithing, and have given it to the Levite, the stranger and the sojourner, the fatherless, and to the widow, that they may eat within your towns and be filled, 
 
 
 
@@ -280,7 +280,7 @@ When you have finished paying all the tithe of your produce the third year, whic
 
 
 
-Then you shall say before the Lord your God, I have brought the hallowed things (the tithe) out of my house and moreover have given them to the Levite, to the stranger _and_ the sojourner, to the fatherless, and to the widow, according to all Your commandments which You have commanded me; I have not transgressed any of Your commandments, neither have I forgotten them. 
+Then you shall say before the Lord your God, I have brought the hallowed things (the tithe) out of my house and moreover have given them to the Levite, to the stranger and the sojourner, to the fatherless, and to the widow, according to all Your commandments which You have commanded me; I have not transgressed any of Your commandments, neither have I forgotten them. 
 
 
 

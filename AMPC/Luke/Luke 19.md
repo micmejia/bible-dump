@@ -133,7 +133,7 @@ And when Jesus reached the place, He looked up and said to him, Zacchaeus, hurry
 
 
 
-So he hurried and came down, and he received _and_ welcomed Him joyfully. 
+So he hurried and came down, and he received and welcomed Him joyfully. 
 
 
 
@@ -154,7 +154,7 @@ So he hurried and came down, and he received _and_ welcomed Him joyfully.
 
 
 
-And when the people saw it, they all muttered among themselves _and_ indignantly complained, He has gone in to be the guest of _and_ lodge with a man who is devoted to sin _and_ preeminently a sinner. 
+And when the people saw it, they all muttered among themselves and indignantly complained, He has gone in to be the guest of and lodge with a man who is devoted to sin and preeminently a sinner. 
 
 
 
@@ -238,7 +238,7 @@ For the Son of Man came to seek and to save that which was lost.
 
 
 
-Now as they were listening to these things, He proceeded to tell a parable, because He was approaching Jerusalem and because they thought that the kingdom of God was going to be brought to light _and_ shown forth immediately. 
+Now as they were listening to these things, He proceeded to tell a parable, because He was approaching Jerusalem and because they thought that the kingdom of God was going to be brought to light and shown forth immediately. 
 
 
 
@@ -280,7 +280,7 @@ He therefore said, A certain nobleman went into a distant country to obtain for 
 
 
 
-Calling ten of his [own] bond servants, he gave them ten minas [each equal to about one hundred days' wages or nearly twenty dollars] and said to them, Buy _and_ sell with these while I go _and_ then return. 
+Calling ten of his [own] bond servants, he gave them ten minas [each equal to about one hundred days' wages or nearly twenty dollars] and said to them, Buy and sell with these while I go and then return. 
 
 
 
@@ -322,7 +322,7 @@ But his citizens detested him and sent an embassy after him to say, We do not wa
 
 
 
-When he returned after having received the kingdom, he ordered these bond servants to whom he had given the money to be called to him, that he might know how much each one had made by buying _and_ selling. 
+When he returned after having received the kingdom, he ordered these bond servants to whom he had given the money to be called to him, that he might know how much each one had made by buying and selling. 
 
 
 
@@ -364,7 +364,7 @@ The first one came before him, and he said, Lord, your mina has made ten [additi
 
 
 
-And he said to him, Well done, excellent bond servant! Because you have been faithful _and_ trustworthy in a very little [thing], you shall have authority over ten cities. 
+And he said to him, Well done, excellent bond servant! Because you have been faithful and trustworthy in a very little [thing], you shall have authority over ten cities. 
 
 
 
@@ -469,7 +469,7 @@ For I was [constantly] afraid of you, because you are a stern (hard, severe) man
 
 
 
-He said to the servant, I will judge _and_ condemn you out of your own mouth, you wicked slave! You knew [did you] that I was a stern (hard, severe) man, picking up what I did not lay down, and reaping what I did not sow? 
+He said to the servant, I will judge and condemn you out of your own mouth, you wicked slave! You knew [did you] that I was a stern (hard, severe) man, picking up what I did not lay down, and reaping what I did not sow? 
 
 
 
@@ -553,7 +553,7 @@ And they said to him, Lord, he has ten minas [already]!
 
 
 
-And [said Jesus,] I tell you that to everyone who gets _and_ has will more be given, but from the man who does not get _and_ does not have, even what he has will be taken away. 
+And [said Jesus,] I tell you that to everyone who gets and has will more be given, but from the man who does not get and does not have, even what he has will be taken away. 
 
 
 
@@ -784,7 +784,7 @@ And as He rode along, the people kept spreading their garments on the road.
 
 
 
-As He was approaching [the city], at the descent of the Mount of Olives, the whole crowd of the disciples began to rejoice and to praise God [extolling Him exultantly and] loudly for all the mighty miracles _and_ works of power that they had witnessed, 
+As He was approaching [the city], at the descent of the Mount of Olives, the whole crowd of the disciples began to rejoice and to praise God [extolling Him exultantly and] loudly for all the mighty miracles and works of power that they had witnessed, 
 
 
 
@@ -931,7 +931,7 @@ For a time is coming upon you when your enemies will throw up a bank [with point
 
 
 
-And they will dash you down to the ground, you [Jerusalem] and your children within you; and they will not leave in you one stone upon another, [all] because you did not come progressively to recognize _and_ know _and_ understand [from observation and experience] the time of your visitation [that is, when God was visiting you, the time in which God showed Himself gracious toward you and offered you salvation through Christ]. 
+And they will dash you down to the ground, you [Jerusalem] and your children within you; and they will not leave in you one stone upon another, [all] because you did not come progressively to recognize and know and understand [from observation and experience] the time of your visitation [that is, when God was visiting you, the time in which God showed Himself gracious toward you and offered you salvation through Christ]. 
 
 
 
@@ -1015,4 +1015,4 @@ And He continued to teach day after day in the temple [porches and courts]. The 
 
 
 
-But they did not discover anything they could do, for all the people hung upon His words _and_ stuck by Him.
+But they did not discover anything they could do, for all the people hung upon His words and stuck by Him.

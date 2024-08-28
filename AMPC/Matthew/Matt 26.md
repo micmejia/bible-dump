@@ -322,7 +322,7 @@ Then one of the Twelve [apostles], who was called Judas Iscariot, went to the ch
 
 
 
-And said, What are you willing to give me if I hand Him over to you? And they weighed out for _and_ paid to him thirty pieces of silver [about twenty-one dollars and sixty cents]. 
+And said, What are you willing to give me if I hand Him over to you? And they weighed out for and paid to him thirty pieces of silver [about twenty-one dollars and sixty cents]. 
 
 
 
@@ -364,7 +364,7 @@ And from that moment he sought a fitting opportunity to betray Him.
 
 
 
-Now on the first day of Unleavened Bread [Passover week], the disciples came to Jesus and said _to Him_, Where do You wish us to prepare for You to eat the Passover supper? 
+Now on the first day of Unleavened Bread [Passover week], the disciples came to Jesus and said to Him, Where do You wish us to prepare for You to eat the Passover supper? 
 
 
 
@@ -469,7 +469,7 @@ And as they were eating, He said, Solemnly I say to you, one of you will betray 
 
 
 
-They were exceedingly pained _and_ distressed _and_ deeply hurt _and_ sorrowful and began to say to Him one after another, Surely it cannot be I, Lord, can it? 
+They were exceedingly pained and distressed and deeply hurt and sorrowful and began to say to Him one after another, Surely it cannot be I, Lord, can it? 
 
 
 
@@ -553,7 +553,7 @@ Judas, the betrayer, said, Surely it is not I, is it, Master? He said to him, Yo
 
 
 
-Now as they were eating, Jesus took bread and, praising God, gave thanks _and_ asked Him to bless it to their use, and when He had broken it, He gave it to the disciples and said, Take, eat; this is My body. 
+Now as they were eating, Jesus took bread and, praising God, gave thanks and asked Him to bless it to their use, and when He had broken it, He gave it to the disciples and said, Take, eat; this is My body. 
 
 
 
@@ -595,7 +595,7 @@ And He took a cup, and when He had given thanks, He gave it to them, saying, Dri
 
 
 
-For this is My blood of the _new_ covenant, which [ratifies the agreement and] is being poured out for many for the forgiveness of sins. 
+For this is My blood of the new covenant, which [ratifies the agreement and] is being poured out for many for the forgiveness of sins. 
 
 
 
@@ -616,7 +616,7 @@ For this is My blood of the _new_ covenant, which [ratifies the agreement and] i
 
 
 
-I say to you, I shall not drink again of this fruit of the vine until that day when I drink it with you new _and_ of superior quality in My Father's kingdom. 
+I say to you, I shall not drink again of this fruit of the vine until that day when I drink it with you new and of superior quality in My Father's kingdom. 
 
 
 
@@ -658,7 +658,7 @@ And when they had sung a hymn, they went out to the Mount of Olives.
 
 
 
-Then Jesus said to them, You will all be offended _and_ stumble _and_ fall away because of Me this night [distrusting and deserting Me], for it is written, I will strike the Shepherd, and the sheep of the flock will be scattered. 
+Then Jesus said to them, You will all be offended and stumble and fall away because of Me this night [distrusting and deserting Me], for it is written, I will strike the Shepherd, and the sheep of the flock will be scattered. 
 
 
 
@@ -700,7 +700,7 @@ But after I am raised up [to life again], I will go ahead of you to Galilee.
 
 
 
-Peter declared to Him, Though they all are offended _and_ stumble _and_ fall away because of You [and distrust and desert You], I will never do so. 
+Peter declared to Him, Though they all are offended and stumble and fall away because of You [and distrust and desert You], I will never do so. 
 
 
 
@@ -721,7 +721,7 @@ Peter declared to Him, Though they all are offended _and_ stumble _and_ fall awa
 
 
 
-Jesus said to him, Solemnly I declare to you, this very night, before a single rooster crows, you will deny _and_ disown Me three times. 
+Jesus said to him, Solemnly I declare to you, this very night, before a single rooster crows, you will deny and disown Me three times. 
 
 
 
@@ -742,7 +742,7 @@ Jesus said to him, Solemnly I declare to you, this very night, before a single r
 
 
 
-Peter said to Him, Even if I must die with You, I will not deny _or_ disown You! And all the disciples said the same thing. 
+Peter said to Him, Even if I must die with You, I will not deny or disown You! And all the disciples said the same thing. 
 
 
 
@@ -784,7 +784,7 @@ Then Jesus went with them to a place called Gethsemane, and He told His disciple
 
 
 
-And taking with Him Peter and the two sons of Zebedee, He began to show grief _and_ distress of mind and was deeply depressed. 
+And taking with Him Peter and the two sons of Zebedee, He began to show grief and distress of mind and was deeply depressed. 
 
 
 
@@ -805,7 +805,7 @@ And taking with Him Peter and the two sons of Zebedee, He began to show grief _a
 
 
 
-Then He said to them, My soul is very sad _and_ deeply grieved, so that I am almost dying of sorrow. Stay here and keep awake _and_ keep watch with Me. 
+Then He said to them, My soul is very sad and deeply grieved, so that I am almost dying of sorrow. Stay here and keep awake and keep watch with Me. 
 
 
 
@@ -826,7 +826,7 @@ Then He said to them, My soul is very sad _and_ deeply grieved, so that I am alm
 
 
 
-And going a little farther, He threw Himself upon the ground on His face and prayed saying, My Father, if it is possible, let this cup pass away from Me; nevertheless, not what I will [not what I desire], but as You will _and_ desire. 
+And going a little farther, He threw Himself upon the ground on His face and prayed saying, My Father, if it is possible, let this cup pass away from Me; nevertheless, not what I will [not what I desire], but as You will and desire. 
 
 
 
@@ -847,7 +847,7 @@ And going a little farther, He threw Himself upon the ground on His face and pra
 
 
 
-And He came to the disciples and found them sleeping, and He said to Peter, What! Are you so utterly unable to stay awake _and_ keep watch with Me for one hour? 
+And He came to the disciples and found them sleeping, and He said to Peter, What! Are you so utterly unable to stay awake and keep watch with Me for one hour? 
 
 
 
@@ -868,7 +868,7 @@ And He came to the disciples and found them sleeping, and He said to Peter, What
 
 
 
-All of you must keep awake (give strict attention, be cautious and active) _and_ watch and pray, that you may not come into temptation. The spirit indeed is willing, but the flesh is weak. 
+All of you must keep awake (give strict attention, be cautious and active) and watch and pray, that you may not come into temptation. The spirit indeed is willing, but the flesh is weak. 
 
 
 
@@ -1162,7 +1162,7 @@ But how then would the Scriptures be fulfilled, that it must come about this way
 
 
 
-At that moment Jesus said to the crowds, Have you come out with swords and clubs as [you would] against a robber to capture Me? Day after day I was accustomed to sit in the porches _and_ courts of the temple teaching, and you did not arrest Me. 
+At that moment Jesus said to the crowds, Have you come out with swords and clubs as [you would] against a robber to capture Me? Day after day I was accustomed to sit in the porches and courts of the temple teaching, and you did not arrest Me. 
 
 
 
@@ -1582,4 +1582,4 @@ Then Peter began to invoke a curse on himself and to swear, I do not even know t
 
 
 
-And Peter remembered Jesus' words, when He had said, Before a [^ac]single rooster crows, you will deny _and_ disown Me three times. And he went outside and wept bitterly.
+And Peter remembered Jesus' words, when He had said, Before a [^ac]single rooster crows, you will deny and disown Me three times. And he went outside and wept bitterly.

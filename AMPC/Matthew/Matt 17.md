@@ -91,7 +91,7 @@ And behold, there appeared to them Moses and Elijah, who kept talking with Him.
 
 
 
-Then Peter began to speak and said to Jesus, Lord, it is good _and_ delightful that we are here; if You approve, I will put up three booths here--one for You and one for Moses and one for Elijah. 
+Then Peter began to speak and said to Jesus, Lord, it is good and delightful that we are here; if You approve, I will put up three booths here--one for You and one for Moses and one for Elijah. 
 
 
 
@@ -133,7 +133,7 @@ While he was still speaking, behold, a shining cloud [composed of light] oversha
 
 
 
-When the disciples heard it, they fell on their faces and were seized with alarm _and_ struck with fear. 
+When the disciples heard it, they fell on their faces and were seized with alarm and struck with fear. 
 
 
 
@@ -196,7 +196,7 @@ And when they raised their eyes, they saw no one but Jesus only.
 
 
 
-And as they were going down the mountain, Jesus cautioned _and_ commanded them, Do not mention to anyone what you have seen, until the Son of Man has been raised from the dead. 
+And as they were going down the mountain, Jesus cautioned and commanded them, Do not mention to anyone what you have seen, until the Son of Man has been raised from the dead. 
 
 
 
@@ -238,7 +238,7 @@ The disciples asked Him, Then why do the scribes say that Elijah must come first
 
 
 
-He replied, Elijah does come and will get everything restored _and_ ready. 
+He replied, Elijah does come and will get everything restored and ready. 
 
 
 
@@ -259,7 +259,7 @@ He replied, Elijah does come and will get everything restored _and_ ready.
 
 
 
-But I tell you that Elijah has come already, and they did not know _or_ recognize him, but did to him as they liked. So also the Son of Man is going to be treated _and_ suffer at their hands. 
+But I tell you that Elijah has come already, and they did not know or recognize him, but did to him as they liked. So also the Son of Man is going to be treated and suffer at their hands. 
 
 
 
@@ -322,7 +322,7 @@ And when they approached the multitude, a man came up to Him, kneeling before Hi
 
 
 
-Lord, do pity _and_ have mercy on my son, for he has epilepsy (is moonstruck) and he suffers terribly; for frequently he falls into the fire and many times into the water. 
+Lord, do pity and have mercy on my son, for he has epilepsy (is moonstruck) and he suffers terribly; for frequently he falls into the fire and many times into the water. 
 
 
 
@@ -448,7 +448,7 @@ He said to them, Because of the littleness of your faith [that is, your lack of 
 
 
 
-_But this kind does not go out except by prayer and fasting_. 
+But this kind does not go out except by prayer and fasting. 
 
 
 
@@ -490,7 +490,7 @@ When they were going about here and there in Galilee, Jesus said to them, The So
 
 
 
-And they will kill Him, and He will be raised [to life] again on the third day. And they were deeply _and_ exceedingly grieved _and_ distressed. 
+And they will kill Him, and He will be raised [to life] again on the third day. And they were deeply and exceedingly grieved and distressed. 
 
 
 
@@ -532,7 +532,7 @@ When they arrived in Capernaum, the collectors of the half shekel [the temple ta
 
 
 
-He answered, Yes. And when he came home, Jesus spoke to him [about it] first, saying, What do you think, Simon? From whom do earthly rulers collect duties _or_ tribute--from their own sons or from others not of their own family? 
+He answered, Yes. And when he came home, Jesus spoke to him [about it] first, saying, What do you think, Simon? From whom do earthly rulers collect duties or tribute--from their own sons or from others not of their own family? 
 
 
 
@@ -574,4 +574,4 @@ And when Peter said, From other people not of their own family, Jesus said to hi
 
 
 
-However, in order not to give offense _and_ cause them to stumble [that is, to cause them to judge unfavorably and unjustly] go down to the sea and throw in a hook. Take the first fish that comes up, and when you open its mouth you will find there a shekel. Take it and give it to them to pay the temple tax for Me and for yourself.
+However, in order not to give offense and cause them to stumble [that is, to cause them to judge unfavorably and unjustly] go down to the sea and throw in a hook. Take the first fish that comes up, and when you open its mouth you will find there a shekel. Take it and give it to them to pay the temple tax for Me and for yourself.

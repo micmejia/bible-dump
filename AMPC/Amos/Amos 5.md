@@ -49,7 +49,7 @@ Hear this word which I take up concerning you in lamentation, O house of Israel:
 
 
 
-The Virgin of Israel has fallen; she shall no more rise; she lies cast down _and_ forsaken on her land; there is no one to raise her up. 
+The Virgin of Israel has fallen; she shall no more rise; she lies cast down and forsaken on her land; there is no one to raise her up. 
 
 
 
@@ -112,7 +112,7 @@ For thus says the Lord to the house of Israel: Seek Me [inquire for and of Me an
 
 
 
-But seek not [the golden calf at] Bethel nor enter into [idolatrous] Gilgal, and pass not over to [the idols of] Beersheba; for Gilgal shall surely go into captivity _and_ exile, and Bethel [house of God] shall become Beth-aven [house of vanity, emptiness, falsity, and futility] and come to nothing. 
+But seek not [the golden calf at] Bethel nor enter into [idolatrous] Gilgal, and pass not over to [the idols of] Beersheba; for Gilgal shall surely go into captivity and exile, and Bethel [house of God] shall become Beth-aven [house of vanity, emptiness, falsity, and futility] and come to nothing. 
 
 
 
@@ -175,7 +175,7 @@ You who turn justice into [the bitterness of] wormwood and cast righteousness (u
 
 
 
-Seek Him Who made the [cluster of stars called] Pleiades and [the constellation] Orion, Who turns the shadow of death _or_ deep darkness into the morning and darkens the day into night, Who calls for the waters of the sea and pours them out upon the face of the earth--the Lord is His name-- 
+Seek Him Who made the [cluster of stars called] Pleiades and [the constellation] Orion, Who turns the shadow of death or deep darkness into the morning and darkens the day into night, Who calls for the waters of the sea and pours them out upon the face of the earth--the Lord is His name-- 
 
 
 
@@ -448,7 +448,7 @@ Shall not the day of the Lord be darkness, not light? Even very dark with no bri
 
 
 
-I hate, I despise your feasts, and I will not smell a savor _or_ take delight in your solemn assemblies. 
+I hate, I despise your feasts, and I will not smell a savor or take delight in your solemn assemblies. 
 
 
 
@@ -469,7 +469,7 @@ I hate, I despise your feasts, and I will not smell a savor _or_ take delight in
 
 
 
-Though you offer Me your burnt offerings and your cereal offerings, I will not accept them, neither will I look upon the peace _or_ thank offerings of your fatted beasts. 
+Though you offer Me your burnt offerings and your cereal offerings, I will not accept them, neither will I look upon the peace or thank offerings of your fatted beasts. 
 
 
 
@@ -511,7 +511,7 @@ Take away from Me the noise of your songs, for I will not listen to the melody o
 
 
 
-But let justice run down like waters and righteousness as a mighty _and_ ever-flowing stream. 
+But let justice run down like waters and righteousness as a mighty and ever-flowing stream. 
 
 
 

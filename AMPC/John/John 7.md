@@ -91,7 +91,7 @@ So His brothers said to Him, Leave here and go into Judea, so that Your disciple
 
 
 
-For no one does anything in secret when he wishes to be conspicuous _and_ secure publicity. If You [must] do these things [if You must act like this], show Yourself openly _and_ make Yourself known to the world! 
+For no one does anything in secret when he wishes to be conspicuous and secure publicity. If You [must] do these things [if You must act like this], show Yourself openly and make Yourself known to the world! 
 
 
 
@@ -112,7 +112,7 @@ For no one does anything in secret when he wishes to be conspicuous _and_ secure
 
 
 
-For [even] His brothers did not believe in _or_ adhere to _or_ trust in _or_ rely on Him either. 
+For [even] His brothers did not believe in or adhere to or trust in or rely on Him either. 
 
 
 
@@ -133,7 +133,7 @@ For [even] His brothers did not believe in _or_ adhere to _or_ trust in _or_ rel
 
 
 
-Whereupon Jesus said to them, My time (opportunity) has not come yet; but any time is suitable for you _and_ your opportunity is ready any time [is always here]. 
+Whereupon Jesus said to them, My time (opportunity) has not come yet; but any time is suitable for you and your opportunity is ready any time [is always here]. 
 
 
 
@@ -154,7 +154,7 @@ Whereupon Jesus said to them, My time (opportunity) has not come yet; but any ti
 
 
 
-The world cannot [be expected to] hate you, but it does hate Me because I denounce it for its wicked works _and_ reveal that its doings are evil. 
+The world cannot [be expected to] hate you, but it does hate Me because I denounce it for its wicked works and reveal that its doings are evil. 
 
 
 
@@ -217,7 +217,7 @@ Having said these things to them, He stayed behind in Galilee.
 
 
 
-But afterward, when His brothers had gone up to the Feast, He went up also, not publicly [not with a caravan], but by Himself quietly _and_ as if He did not wish to be observed. 
+But afterward, when His brothers had gone up to the Feast, He went up also, not publicly [not with a caravan], but by Himself quietly and as if He did not wish to be observed. 
 
 
 
@@ -259,7 +259,7 @@ Therefore the Jews kept looking for Him at the Feast and asking, Where can He be
 
 
 
-And there was among the mass of the people much whispered discussion _and_ hot disputing about Him. Some were saying, He is good! [He is a good Man!] Others said, No, He misleads _and_ deceives the people [gives them false ideas]! 
+And there was among the mass of the people much whispered discussion and hot disputing about Him. Some were saying, He is good! [He is a good Man!] Others said, No, He misleads and deceives the people [gives them false ideas]! 
 
 
 
@@ -364,7 +364,7 @@ Jesus answered them by saying, My teaching is not My own, but His Who sent Me.
 
 
 
-If any man desires to do His will (God's pleasure), he will know (have the needed illumination to recognize, and can tell for himself) whether the teaching is from God or whether I am speaking from Myself _and_ of My own accord _and_ on My own authority. 
+If any man desires to do His will (God's pleasure), he will know (have the needed illumination to recognize, and can tell for himself) whether the teaching is from God or whether I am speaking from Myself and of My own accord and on My own authority. 
 
 
 
@@ -385,7 +385,7 @@ If any man desires to do His will (God's pleasure), he will know (have the neede
 
 
 
-He who speaks on his own authority seeks to win honor for himself. [He whose teaching originates with himself seeks his own glory.] But He Who seeks the glory _and_ is eager for the honor of Him Who sent Him, He is true; and there is no unrighteousness _or_ falsehood _or_ deception in Him. 
+He who speaks on his own authority seeks to win honor for himself. [He whose teaching originates with himself seeks his own glory.] But He Who seeks the glory and is eager for the honor of Him Who sent Him, He is true; and there is no unrighteousness or falsehood or deception in Him. 
 
 
 
@@ -511,7 +511,7 @@ If, to avoid breaking the Law of Moses, a person undergoes circumcision on the S
 
 
 
-Be honest in your judgment _and_ do not decide at a glance (superficially and by appearances); but judge fairly _and_ righteously. 
+Be honest in your judgment and do not decide at a glance (superficially and by appearances); but judge fairly and righteously. 
 
 
 
@@ -553,7 +553,7 @@ Then some of the Jerusalem people said, Is not this the Man they seek to kill?
 
 
 
-And here He is speaking openly, and they say nothing to Him! Can it be possible that the rulers have discovered _and_ know that this is truly the Christ? 
+And here He is speaking openly, and they say nothing to Him! Can it be possible that the rulers have discovered and know that this is truly the Christ? 
 
 
 
@@ -595,7 +595,7 @@ No, we know where this Man comes from; when the Christ arrives, no one is to kno
 
 
 
-Whereupon Jesus called out as He taught in the temple [porches], Do you know Me, and do you know where I am from? I have not come on My own authority _and_ of My own accord _and_ as self-appointed, but the One Who sent Me is true (real, genuine, steadfast); and Him you do not know! 
+Whereupon Jesus called out as He taught in the temple [porches], Do you know Me, and do you know where I am from? I have not come on My own authority and of My own accord and as self-appointed, but the One Who sent Me is true (real, genuine, steadfast); and Him you do not know! 
 
 
 
@@ -658,7 +658,7 @@ Therefore they were eager to arrest Him, but no one laid a hand on Him, for His 
 
 
 
-And besides, many of the multitude believed in Him [adhered to Him, trusted in Him, relied on Him]. And they kept saying, When the Christ comes, will He do [can He be expected to do] more miracles _and_ produce more proofs _and_ signs than what this Man has done? 
+And besides, many of the multitude believed in Him [adhered to Him, trusted in Him, relied on Him]. And they kept saying, When the Christ comes, will He do [can He be expected to do] more miracles and produce more proofs and signs than what this Man has done? 
 
 
 
@@ -805,7 +805,7 @@ Now on the final and most important day of the Feast, Jesus stood, and He cried 
 
 
 
-He who believes in Me [who cleaves to _and_ trusts in _and_ relies on Me] as the Scripture has said, From his innermost being shall flow [continuously] springs _and_ rivers of living water. 
+He who believes in Me [who cleaves to and trusts in and relies on Me] as the Scripture has said, From his innermost being shall flow [continuously] springs and rivers of living water. 
 
 
 
@@ -847,7 +847,7 @@ But He was speaking here of the Spirit, Whom those who believed (trusted, had fa
 
 
 
-Listening to those words, some of the multitude said, This is certainly _and_ beyond doubt the Prophet! 
+Listening to those words, some of the multitude said, This is certainly and beyond doubt the Prophet! 
 
 
 
@@ -910,7 +910,7 @@ Does not the Scripture tell us that the Christ will come from the offspring of D
 
 
 
-So there arose a division _and_ dissension among the people concerning Him. 
+So there arose a division and dissension among the people concerning Him. 
 
 
 
@@ -994,7 +994,7 @@ The attendants replied, Never has a man talked as this Man talks! [No mere man h
 
 
 
-The Pharisees said to them, Are you also deluded _and_ led astray? [Are you also swept off your feet?] 
+The Pharisees said to them, Are you also deluded and led astray? [Are you also swept off your feet?] 
 
 
 
@@ -1036,7 +1036,7 @@ Has any of the authorities or of the Pharisees believed in Him?
 
 
 
-As for this multitude (rabble) that does not know the Law, they are contemptible _and_ doomed _and_ accursed! 
+As for this multitude (rabble) that does not know the Law, they are contemptible and doomed and accursed! 
 
 
 

@@ -10,7 +10,7 @@ next: ['Josh 6']
 
 
 ###### 1 
-So it was, when all the kings of the Amorites who _were_ on the west side of the Jordan, and all the kings of the Canaanites who _were_ by the sea, heard that the Lord had dried up the waters of the Jordan from before the children of Israel until we had crossed over, that their heart melted; and there was no spirit in them any longer because of the children of Israel. 
+So it was, when all the kings of the Amorites who were on the west side of the Jordan, and all the kings of the Canaanites who were by the sea, heard that the Lord had dried up the waters of the Jordan from before the children of Israel until we had crossed over, that their heart melted; and there was no spirit in them any longer because of the children of Israel. 
 
 ###### 2 
 At that time the Lord said to Joshua, "Make flint knives for yourself, and circumcise the sons of Israel again the second time." 
@@ -19,16 +19,16 @@ At that time the Lord said to Joshua, "Make flint knives for yourself, and circu
 So Joshua made flint knives for himself, and circumcised the sons of Israel at the hill of the foreskins. 
 
 ###### 4 
-And this _is_ the reason why Joshua circumcised them: All the people who came out of Egypt _who were_ males, all the men of war, had died in the wilderness on the way, after they had come out of Egypt. 
+And this is the reason why Joshua circumcised them: All the people who came out of Egypt who were males, all the men of war, had died in the wilderness on the way, after they had come out of Egypt. 
 
 ###### 5 
 For all the people who came out had been circumcised, but all the people born in the wilderness, on the way as they came out of Egypt, had not been circumcised. 
 
 ###### 6 
-For the children of Israel walked forty years in the wilderness, till all the people _who were_ men of war, who came out of Egypt, were consumed, because they did not obey the voice of the Lord--to whom the Lord swore that He would not show them the land which the Lord had sworn to their fathers that He would give us, "a land flowing with milk and honey." 
+For the children of Israel walked forty years in the wilderness, till all the people who were men of war, who came out of Egypt, were consumed, because they did not obey the voice of the Lord--to whom the Lord swore that He would not show them the land which the Lord had sworn to their fathers that He would give us, "a land flowing with milk and honey." 
 
 ###### 7 
-Then Joshua circumcised their sons _whom_ He raised up in their place; for they were uncircumcised, because they had not been circumcised on the way. 
+Then Joshua circumcised their sons whom He raised up in their place; for they were uncircumcised, because they had not been circumcised on the way. 
 
 ###### 8 
 So it was, when they had finished circumcising all the people, that they stayed in their places in the camp till they were healed. 
@@ -48,10 +48,10 @@ Then the manna ceased on the day after they had eaten the produce of the land; a
 ## The Commander of the Army of the Lord 
 
 ###### 13 
-And it came to pass, when Joshua was by Jericho, that he lifted his eyes and looked, and behold, a Man stood opposite him with His sword drawn in His hand. And Joshua went to Him and said to Him, "_Are_ You for us or for our adversaries?" 
+And it came to pass, when Joshua was by Jericho, that he lifted his eyes and looked, and behold, a Man stood opposite him with His sword drawn in His hand. And Joshua went to Him and said to Him, "Are You for us or for our adversaries?" 
 
 ###### 14 
-So He said, "No, but _as_ Commander of the army of the Lord I have now come." And Joshua fell on his face to the earth and worshiped, and said to Him, "What does my Lord say to His servant?" 
+So He said, "No, but as Commander of the army of the Lord I have now come." And Joshua fell on his face to the earth and worshiped, and said to Him, "What does my Lord say to His servant?" 
 
 ###### 15 
-Then the Commander of the Lord's army said to Joshua, "Take your sandal off your foot, for the place where you stand _is_ holy." And Joshua did so.
+Then the Commander of the Lord's army said to Joshua, "Take your sandal off your foot, for the place where you stand is holy." And Joshua did so.

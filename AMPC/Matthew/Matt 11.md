@@ -133,7 +133,7 @@ The blind receive their sight and the lame walk, lepers are cleansed (by healing
 
 
 
-And blessed (happy, fortunate, and to be envied) is he who takes no offense at Me _and_ finds no cause for stumbling in _or_ through Me _and_ is not hindered from seeing the Truth. 
+And blessed (happy, fortunate, and to be envied) is he who takes no offense at Me and finds no cause for stumbling in or through Me and is not hindered from seeing the Truth. 
 
 
 
@@ -301,7 +301,7 @@ For all the Prophets and the Law prophesied up until John.
 
 
 
-And if you are willing to receive _and_ accept it, John himself is Elijah who was to come [before the kingdom]. 
+And if you are willing to receive and accept it, John himself is Elijah who was to come [before the kingdom]. 
 
 
 
@@ -322,7 +322,7 @@ And if you are willing to receive _and_ accept it, John himself is Elijah who wa
 
 
 
-He who has ears to hear, let him be listening _and_ let him consider _and_ perceive _and_ comprehend by hearing. 
+He who has ears to hear, let him be listening and let him consider and perceive and comprehend by hearing. 
 
 
 
@@ -364,7 +364,7 @@ But to what shall I liken this generation? It is like little children sitting in
 
 
 
-We piped to you [playing wedding], and you did not dance; we wailed dirges [playing funeral], and you did not mourn _and_ beat your breasts _and_ weep aloud. 
+We piped to you [playing wedding], and you did not dance; we wailed dirges [playing funeral], and you did not mourn and beat your breasts and weep aloud. 
 
 
 
@@ -406,7 +406,7 @@ For John came neither eating nor drinking [with others], and they say, He has a 
 
 
 
-The Son of Man came eating and drinking [with others], and they say, Behold, a glutton and a wine drinker, a friend of tax collectors _and_ [especially wicked] sinners! Yet wisdom is justified _and_ vindicated by what she does (her deeds) _and by_ _her children_. 
+The Son of Man came eating and drinking [with others], and they say, Behold, a glutton and a wine drinker, a friend of tax collectors and [especially wicked] sinners! Yet wisdom is justified and vindicated by what she does (her deeds) and by her children. 
 
 
 
@@ -427,7 +427,7 @@ The Son of Man came eating and drinking [with others], and they say, Behold, a g
 
 
 
-Then He began to censure _and_ reproach the cities in which most of His mighty works had been performed, because they did not repent [and their hearts were not changed]. 
+Then He began to censure and reproach the cities in which most of His mighty works had been performed, because they did not repent [and their hearts were not changed]. 
 
 
 
@@ -532,7 +532,7 @@ But I tell you, it shall be more endurable for the land of Sodom on the day of j
 
 
 
-At that time Jesus began to say, I thank You, Father, Lord of heaven and earth [and I acknowledge openly _and_ joyfully to Your honor], that You have hidden these things from the wise _and_ clever and learned, and revealed them to babies [to the childish, untaught, and unskilled]. 
+At that time Jesus began to say, I thank You, Father, Lord of heaven and earth [and I acknowledge openly and joyfully to Your honor], that You have hidden these things from the wise and clever and learned, and revealed them to babies [to the childish, untaught, and unskilled]. 
 
 
 
@@ -553,7 +553,7 @@ At that time Jesus began to say, I thank You, Father, Lord of heaven and earth [
 
 
 
-Yes, Father, [I praise You that] such was Your gracious will _and_ good pleasure. 
+Yes, Father, [I praise You that] such was Your gracious will and good pleasure. 
 
 
 
@@ -574,7 +574,7 @@ Yes, Father, [I praise You that] such was Your gracious will _and_ good pleasure
 
 
 
-All things have been entrusted _and_ delivered to Me by My Father; and no one fully knows _and_ accurately understands the Son except the Father, and no one fully knows _and_ accurately understands the Father except the Son and anyone to whom the Son deliberately wills to make Him known. 
+All things have been entrusted and delivered to Me by My Father; and no one fully knows and accurately understands the Son except the Father, and no one fully knows and accurately understands the Father except the Son and anyone to whom the Son deliberately wills to make Him known. 
 
 
 
@@ -595,7 +595,7 @@ All things have been entrusted _and_ delivered to Me by My Father; and no one fu
 
 
 
-Come to Me, all you who labor and are heavy-laden _and_ overburdened, and I will cause you to rest. [I will ease and relieve and refresh your souls.] 
+Come to Me, all you who labor and are heavy-laden and overburdened, and I will cause you to rest. [I will ease and relieve and refresh your souls.] 
 
 
 
@@ -637,4 +637,4 @@ Take My yoke upon you and learn of Me, for I am gentle (meek) and humble (lowly)
 
 
 
-For My yoke is wholesome (useful, good--not harsh, hard, sharp, or pressing, but comfortable, gracious, and pleasant), and My burden is light _and_ easy to be borne.
+For My yoke is wholesome (useful, good--not harsh, hard, sharp, or pressing, but comfortable, gracious, and pleasant), and My burden is light and easy to be borne.

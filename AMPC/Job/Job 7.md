@@ -28,7 +28,7 @@ next: ['Job 8']
 
 
 
-Is there not an [appointed] warfare _and_ hard labor to man upon earth? And are not his days like the days of a hireling? 
+Is there not an [appointed] warfare and hard labor to man upon earth? And are not his days like the days of a hireling? 
 
 
 
@@ -49,7 +49,7 @@ Is there not an [appointed] warfare _and_ hard labor to man upon earth? And are 
 
 
 
-As a servant earnestly longs for the shade _and_ the evening shadows, and as a hireling who looks for the reward of his work, 
+As a servant earnestly longs for the shade and the evening shadows, and as a hireling who looks for the reward of his work, 
 
 
 
@@ -112,7 +112,7 @@ When I lie down I say, When shall I arise and the night be gone? And I am full o
 
 
 
-My flesh is clothed with worms and clods of dust; my skin is broken and has become loathsome, _and_ it closes up and breaks out afresh. 
+My flesh is clothed with worms and clods of dust; my skin is broken and has become loathsome, and it closes up and breaks out afresh. 
 
 
 
@@ -322,7 +322,7 @@ Then You scare me with dreams and terrify me through visions,
 
 
 
-So that I would choose strangling _and_ death rather than these my bones. 
+So that I would choose strangling and death rather than these my bones. 
 
 
 
@@ -364,7 +364,7 @@ I loathe my life; I would not live forever. Let me alone, for my days are a brea
 
 
 
-What is man that You should magnify him _and_ think him important? And that You should set Your mind upon him? 
+What is man that You should magnify him and think him important? And that You should set Your mind upon him? 
 
 
 
@@ -427,7 +427,7 @@ How long will Your [plaguing] glance not look away from me, nor You let me alone
 
 
 
-If I have sinned, what [harm] have I done You, O You Watcher _and_ Keeper of men? Why have You set me as a mark for You, so that I am a burden to myself [and You]? 
+If I have sinned, what [harm] have I done You, O You Watcher and Keeper of men? Why have You set me as a mark for You, so that I am a burden to myself [and You]? 
 
 
 

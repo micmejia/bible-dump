@@ -49,7 +49,7 @@ Now Sarai, Abram's wife, had borne him no children. She had an Egyptian maid who
 
 
 
-And Sarai said to Abram, See here, the Lord has restrained me from bearing [children]. I am asking you to have intercourse with my maid; it may be that I can obtain children by her. And Abram listened to _and_ heeded what Sarai said. 
+And Sarai said to Abram, See here, the Lord has restrained me from bearing [children]. I am asking you to have intercourse with my maid; it may be that I can obtain children by her. And Abram listened to and heeded what Sarai said. 
 
 
 
@@ -91,7 +91,7 @@ So Sarai, Abram's wife, took Hagar her Egyptian maid, after Abram had dwelt ten 
 
 
 
-And he had intercourse with Hagar, and she became pregnant; and when she saw that she was with child, she looked with contempt upon her mistress _and_ despised her. 
+And he had intercourse with Hagar, and she became pregnant; and when she saw that she was with child, she looked with contempt upon her mistress and despised her. 
 
 
 
@@ -112,7 +112,7 @@ And he had intercourse with Hagar, and she became pregnant; and when she saw tha
 
 
 
-Then Sarai said to Abram, May [the responsibility for] my wrong _and_ deprivation of rights be upon you! I gave my maid into your bosom, and when she saw that she was with child, I was contemptible _and_ despised in her eyes. May the Lord be the judge between you and me. 
+Then Sarai said to Abram, May [the responsibility for] my wrong and deprivation of rights be upon you! I gave my maid into your bosom, and when she saw that she was with child, I was contemptible and despised in her eyes. May the Lord be the judge between you and me. 
 
 
 
@@ -133,7 +133,7 @@ Then Sarai said to Abram, May [the responsibility for] my wrong _and_ deprivatio
 
 
 
-But Abram said to Sarai, See here, your maid is in your hands _and_ power; do as you please with her. And when Sarai dealt severely with her, humbling _and_ afflicting her, she [Hagar] fled from her. 
+But Abram said to Sarai, See here, your maid is in your hands and power; do as you please with her. And when Sarai dealt severely with her, humbling and afflicting her, she [Hagar] fled from her. 
 
 
 
@@ -238,7 +238,7 @@ Also the Angel of the Lord said to her, I will multiply your descendants exceedi
 
 
 
-And the Angel of the Lord continued, See now, you are with child and shall bear a son, and shall call his name Ishmael [God hears], because the Lord has heard _and_ paid attention to your affliction. 
+And the Angel of the Lord continued, See now, you are with child and shall bear a son, and shall call his name Ishmael [God hears], because the Lord has heard and paid attention to your affliction. 
 
 
 
@@ -259,7 +259,7 @@ And the Angel of the Lord continued, See now, you are with child and shall bear 
 
 
 
-And he [Ishmael] will be as a wild ass among men; his hand will be against every man and every man's hand against him, and he will live to the east _and_ on the borders of all his kinsmen. 
+And he [Ishmael] will be as a wild ass among men; his hand will be against every man and every man's hand against him, and he will live to the east and on the borders of all his kinsmen. 
 
 
 
@@ -280,7 +280,7 @@ And he [Ishmael] will be as a wild ass among men; his hand will be against every
 
 
 
-So she called the name of the Lord Who spoke to her, You are a God of seeing, for she said, Have I [not] even here [in the wilderness] looked upon Him Who sees me [and lived]? _Or_ have I here also seen [the future purposes or designs of] Him Who sees me? 
+So she called the name of the Lord Who spoke to her, You are a God of seeing, for she said, Have I [not] even here [in the wilderness] looked upon Him Who sees me [and lived]? Or have I here also seen [the future purposes or designs of] Him Who sees me? 
 
 
 

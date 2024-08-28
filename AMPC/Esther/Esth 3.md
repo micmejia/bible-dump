@@ -301,7 +301,7 @@ And letters were sent by special messengers to all the king's provinces--to dest
 
 
 
-A copy of the writing was to be published _and_ given out as a decree in every province to all the peoples to be ready for that day. 
+A copy of the writing was to be published and given out as a decree in every province to all the peoples to be ready for that day. 
 
 
 

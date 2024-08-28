@@ -13,7 +13,7 @@ next: ['Deut 8']
 "When the Lord your God brings you into the land which you go to possess, and has cast out many nations before you, the Hittites and the Girgashites and the Amorites and the Canaanites and the Perizzites and the Hivites and the Jebusites, seven nations greater and mightier than you, 
 
 ###### 2 
-and when the Lord your God delivers them over to you, you shall conquer them _and_ utterly destroy them. You shall make no covenant with them nor show mercy to them. 
+and when the Lord your God delivers them over to you, you shall conquer them and utterly destroy them. You shall make no covenant with them nor show mercy to them. 
 
 ###### 3 
 Nor shall you make marriages with them. You shall not give your daughter to their son, nor take their daughter for your son. 
@@ -22,10 +22,10 @@ Nor shall you make marriages with them. You shall not give your daughter to thei
 For they will turn your sons away from following Me, to serve other gods; so the anger of the Lord will be aroused against you and destroy you suddenly. 
 
 ###### 5 
-But thus you shall deal with them: you shall destroy their altars, and break down their _sacred_ pillars, and cut down their wooden images, and burn their carved images with fire. 
+But thus you shall deal with them: you shall destroy their altars, and break down their sacred pillars, and cut down their wooden images, and burn their carved images with fire. 
 
 ###### 6 
-"For you _are_ a holy people to the Lord your God; the Lord your God has chosen you to be a people for Himself, a special treasure above all the peoples on the face of the earth. 
+"For you are a holy people to the Lord your God; the Lord your God has chosen you to be a people for Himself, a special treasure above all the peoples on the face of the earth. 
 
 ###### 7 
 The Lord did not set His love on you nor choose you because you were more in number than any other people, for you were the least of all peoples; 
@@ -34,7 +34,7 @@ The Lord did not set His love on you nor choose you because you were more in num
 but because the Lord loves you, and because He would keep the oath which He swore to your fathers, the Lord has brought you out with a mighty hand, and redeemed you from the house of bondage, from the hand of Pharaoh king of Egypt. 
 
 ###### 9 
-"Therefore know that the Lord your God, He _is_ God, the faithful God who keeps covenant and mercy for a thousand generations with those who love Him and keep His commandments; 
+"Therefore know that the Lord your God, He is God, the faithful God who keeps covenant and mercy for a thousand generations with those who love Him and keep His commandments; 
 
 ###### 10 
 and He repays those who hate Him to their face, to destroy them. He will not be slack with him who hates Him; He will repay him to his face. 
@@ -54,16 +54,16 @@ And He will love you and bless you and multiply you; He will also bless the frui
 You shall be blessed above all peoples; there shall not be a male or female barren among you or among your livestock. 
 
 ###### 15 
-And the Lord will take away from you all sickness, and will afflict you with none of the terrible diseases of Egypt which you have known, but will lay _them_ on all those who hate you. 
+And the Lord will take away from you all sickness, and will afflict you with none of the terrible diseases of Egypt which you have known, but will lay them on all those who hate you. 
 
 ###### 16 
-Also you shall destroy all the peoples whom the Lord your God delivers over to you; your eye shall have no pity on them; nor shall you serve their gods, for that _will_ _be_ a snare to you. 
+Also you shall destroy all the peoples whom the Lord your God delivers over to you; your eye shall have no pity on them; nor shall you serve their gods, for that will be a snare to you. 
 
 ###### 17 
 "If you should say in your heart, 'These nations are greater than I; how can I dispossess them?'-- 
 
 ###### 18 
-you shall not be afraid of them, _but_ you shall remember well what the Lord your God did to Pharaoh and to all Egypt: 
+you shall not be afraid of them, but you shall remember well what the Lord your God did to Pharaoh and to all Egypt: 
 
 ###### 19 
 the great trials which your eyes saw, the signs and the wonders, the mighty hand and the outstretched arm, by which the Lord your God brought you out. So shall the Lord your God do to all the peoples of whom you are afraid. 
@@ -72,10 +72,10 @@ the great trials which your eyes saw, the signs and the wonders, the mighty hand
 Moreover the Lord your God will send the hornet among them until those who are left, who hide themselves from you, are destroyed. 
 
 ###### 21 
-You shall not be terrified of them; for the Lord your God, the great and awesome God, _is_ among you. 
+You shall not be terrified of them; for the Lord your God, the great and awesome God, is among you. 
 
 ###### 22 
-And the Lord your God will drive out those nations before you little by little; you will be unable to destroy them at once, lest the beasts of the field become _too_ numerous for you. 
+And the Lord your God will drive out those nations before you little by little; you will be unable to destroy them at once, lest the beasts of the field become too numerous for you. 
 
 ###### 23 
 But the Lord your God will deliver them over to you, and will inflict defeat upon them until they are destroyed. 
@@ -84,7 +84,7 @@ But the Lord your God will deliver them over to you, and will inflict defeat upo
 And He will deliver their kings into your hand, and you will destroy their name from under heaven; no one shall be able to stand against you until you have destroyed them. 
 
 ###### 25 
-You shall burn the carved images of their gods with fire; you shall not covet the silver or gold _that is_ on them, nor take _it_ for yourselves, lest you be snared by it; for it _is_ an abomination to the Lord your God. 
+You shall burn the carved images of their gods with fire; you shall not covet the silver or gold that is on them, nor take it for yourselves, lest you be snared by it; for it is an abomination to the Lord your God. 
 
 ###### 26 
-Nor shall you bring an abomination into your house, lest you be doomed to destruction like it. You shall utterly detest it and utterly abhor it, for it _is_ an accursed thing.
+Nor shall you bring an abomination into your house, lest you be doomed to destruction like it. You shall utterly detest it and utterly abhor it, for it is an accursed thing.

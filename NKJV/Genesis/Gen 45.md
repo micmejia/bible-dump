@@ -13,25 +13,25 @@ next: ['Gen 46']
 Then Joseph could not restrain himself before all those who stood by him, and he cried out, "Make everyone go out from me!" So no one stood with him while Joseph made himself known to his brothers. 
 
 ###### 2 
-And he wept aloud, and the Egyptians and the house of Pharaoh heard _it._ 
+And he wept aloud, and the Egyptians and the house of Pharaoh heard it. 
 
 ###### 3 
-Then Joseph said to his brothers, "I _am_ Joseph; does my father still live?" But his brothers could not answer him, for they were dismayed in his presence. 
+Then Joseph said to his brothers, "I am Joseph; does my father still live?" But his brothers could not answer him, for they were dismayed in his presence. 
 
 ###### 4 
-And Joseph said to his brothers, "Please come near to me." So they came near. Then he said: "I _am_ Joseph your brother, whom you sold into Egypt. 
+And Joseph said to his brothers, "Please come near to me." So they came near. Then he said: "I am Joseph your brother, whom you sold into Egypt. 
 
 ###### 5 
 But now, do not therefore be grieved or angry with yourselves because you sold me here; for God sent me before you to preserve life. 
 
 ###### 6 
-For these two years the famine _has been_ in the land, and _there are_ still five years in which _there will be_ neither plowing nor harvesting. 
+For these two years the famine has been in the land, and there are still five years in which there will be neither plowing nor harvesting. 
 
 ###### 7 
 And God sent me before you to preserve a posterity for you in the earth, and to save your lives by a great deliverance. 
 
 ###### 8 
-So now _it was_ not you _who_ sent me here, but God; and He has made me a father to Pharaoh, and lord of all his house, and a ruler throughout all the land of Egypt. 
+So now it was not you who sent me here, but God; and He has made me a father to Pharaoh, and lord of all his house, and a ruler throughout all the land of Egypt. 
 
 ###### 9 
 "Hurry and go up to my father, and say to him, 'Thus says your son Joseph: "God has made me lord of all Egypt; come down to me, do not tarry. 
@@ -40,10 +40,10 @@ So now _it was_ not you _who_ sent me here, but God; and He has made me a father
 You shall dwell in the land of Goshen, and you shall be near to me, you and your children, your children's children, your flocks and your herds, and all that you have. 
 
 ###### 11 
-There I will provide for you, lest you and your household, and all that you have, come to poverty; for _there are_ still five years of famine." ' 
+There I will provide for you, lest you and your household, and all that you have, come to poverty; for there are still five years of famine." ' 
 
 ###### 12 
-"And behold, your eyes and the eyes of my brother Benjamin see that _it is_ my mouth that speaks to you. 
+"And behold, your eyes and the eyes of my brother Benjamin see that it is my mouth that speaks to you. 
 
 ###### 13 
 So you shall tell my father of all my glory in Egypt, and of all that you have seen; and you shall hurry and bring my father down here." 
@@ -67,16 +67,16 @@ Bring your father and your households and come to me; I will give you the best o
 Now you are commanded--do this: Take carts out of the land of Egypt for your little ones and your wives; bring your father and come. 
 
 ###### 20 
-Also do not be concerned about your goods, for the best of all the land of Egypt _is_ yours.' " 
+Also do not be concerned about your goods, for the best of all the land of Egypt is yours.' " 
 
 ###### 21 
 Then the sons of Israel did so; and Joseph gave them carts, according to the command of Pharaoh, and he gave them provisions for the journey. 
 
 ###### 22 
-He gave to all of them, to each man, changes of garments; but to Benjamin he gave three hundred _pieces_ of silver and five changes of garments. 
+He gave to all of them, to each man, changes of garments; but to Benjamin he gave three hundred pieces of silver and five changes of garments. 
 
 ###### 23 
-And he sent to his father these _things:_ ten donkeys loaded with the good things of Egypt, and ten female donkeys loaded with grain, bread, and food for his father for the journey. 
+And he sent to his father these things: ten donkeys loaded with the good things of Egypt, and ten female donkeys loaded with grain, bread, and food for his father for the journey. 
 
 ###### 24 
 So he sent his brothers away, and they departed; and he said to them, "See that you do not become troubled along the way." 
@@ -85,10 +85,10 @@ So he sent his brothers away, and they departed; and he said to them, "See that 
 Then they went up out of Egypt, and came to the land of Canaan to Jacob their father. 
 
 ###### 26 
-And they told him, saying, "Joseph _is_ still alive, and he _is_ governor over all the land of Egypt." And Jacob's heart stood still, because he did not believe them. 
+And they told him, saying, "Joseph is still alive, and he is governor over all the land of Egypt." And Jacob's heart stood still, because he did not believe them. 
 
 ###### 27 
 But when they told him all the words which Joseph had said to them, and when he saw the carts which Joseph had sent to carry him, the spirit of Jacob their father revived. 
 
 ###### 28 
-Then Israel said, "_It is_ enough. Joseph my son _is_ still alive. I will go and see him before I die."
+Then Israel said, "It is enough. Joseph my son is still alive. I will go and see him before I die."

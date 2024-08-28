@@ -195,7 +195,7 @@ Then they said to him, Tell us, we pray you, on whose account has this evil come
 
 
 
-And he said to them, I am a Hebrew, and I [reverently] fear _and_ worship the Lord, the God of heaven, Who made the sea and the dry land. 
+And he said to them, I am a Hebrew, and I [reverently] fear and worship the Lord, the God of heaven, Who made the sea and the dry land. 
 
 
 
@@ -237,7 +237,7 @@ Then the men were exceedingly afraid and said to him, What is this that you have
 
 
 
-Then they said to him, What shall we do to you, that the sea may subside _and_ be calm for us? For the sea became more and more [violently] tempestuous. 
+Then they said to him, What shall we do to you, that the sea may subside and be calm for us? For the sea became more and more [violently] tempestuous. 
 
 
 
@@ -363,4 +363,4 @@ Then the men [reverently and worshipfully] feared the Lord exceedingly, and they
 
 
 
-Now the Lord had prepared _and_ appointed a great fish to swallow up Jonah. And Jonah was in the belly of the fish three days and three nights.
+Now the Lord had prepared and appointed a great fish to swallow up Jonah. And Jonah was in the belly of the fish three days and three nights.

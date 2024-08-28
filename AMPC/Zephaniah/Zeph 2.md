@@ -70,7 +70,7 @@ Collect your thoughts, yes, unbend yourselves [in submission and see if there is
 
 
 
-Seek the Lord [inquire for Him, inquire of Him, and require Him as the foremost necessity of your life], all you humble of the land who have acted in compliance with His revealed will _and_ have kept His commandments; seek righteousness, seek humility [inquire for them, require them as vital]. It may be you will be hidden in the day of the Lord's anger. 
+Seek the Lord [inquire for Him, inquire of Him, and require Him as the foremost necessity of your life], all you humble of the land who have acted in compliance with His revealed will and have kept His commandments; seek righteousness, seek humility [inquire for them, require them as vital]. It may be you will be hidden in the day of the Lord's anger. 
 
 
 
@@ -133,7 +133,7 @@ Woe to the inhabitants of the seacoast, the nation of the Cherethites [in Philis
 
 
 
-And the seacoast shall be pastures, with [deserted] dwelling places _and_ caves for shepherds and folds for flocks. 
+And the seacoast shall be pastures, with [deserted] dwelling places and caves for shepherds and folds for flocks. 
 
 
 
@@ -175,7 +175,7 @@ The seacoast shall belong to the remnant of the house of Judah; they shall pastu
 
 
 
-I have heard the taunts of Moab and the revilings of the Ammonites by which they have reproached My people, and magnified themselves _and_ made boasts against their territory. 
+I have heard the taunts of Moab and the revilings of the Ammonites by which they have reproached My people, and magnified themselves and made boasts against their territory. 
 
 
 
@@ -196,7 +196,7 @@ I have heard the taunts of Moab and the revilings of the Ammonites by which they
 
 
 
-Therefore, as I live, says the Lord of hosts, the God of Israel, Moab shall become like Sodom and the Ammonites like Gomorrah, a land possessed by nettles _and_ wild vetches and salt pits, and a perpetual desolation. The remnant of My people shall make a prey of them and what is left of My nation shall possess them. 
+Therefore, as I live, says the Lord of hosts, the God of Israel, Moab shall become like Sodom and the Ammonites like Gomorrah, a land possessed by nettles and wild vetches and salt pits, and a perpetual desolation. The remnant of My people shall make a prey of them and what is left of My nation shall possess them. 
 
 
 
@@ -238,7 +238,7 @@ This shall they have for their pride, because they have taunted and boasted agai
 
 
 
-The Lord will be terrible to them, for He will make lean _and_ famish all the gods of the earth; and men shall worship Him, every one from his place, even all the isles _and_ coastlands of the nations. 
+The Lord will be terrible to them, for He will make lean and famish all the gods of the earth; and men shall worship Him, every one from his place, even all the isles and coastlands of the nations. 
 
 
 
@@ -301,7 +301,7 @@ And [the Lord] will stretch out His hand against the north and destroy Assyria a
 
 
 
-Herds shall lie down in the midst of [Nineveh], all the [wild] beasts of the nations _and_ of every kind; both the pelican and the hedgehog shall lodge on the upper part of her [fallen] pillars; the voice [of the nesting bird] shall sing in the windows; desolation _and_ drought shall be on the thresholds, for her cedar paneling will He lay bare. 
+Herds shall lie down in the midst of [Nineveh], all the [wild] beasts of the nations and of every kind; both the pelican and the hedgehog shall lodge on the upper part of her [fallen] pillars; the voice [of the nesting bird] shall sing in the windows; desolation and drought shall be on the thresholds, for her cedar paneling will He lay bare. 
 
 
 
@@ -322,4 +322,4 @@ Herds shall lie down in the midst of [Nineveh], all the [wild] beasts of the nat
 
 
 
-This is the joyous _and_ exultant city that dwelt carelessly [feeling so secure], that said in her heart, I am and there is none beside me. What a desolation she has become, a lair for [wild] beasts! Everyone who passes by her shall hiss and wave his hand [indicating his gratification].
+This is the joyous and exultant city that dwelt carelessly [feeling so secure], that said in her heart, I am and there is none beside me. What a desolation she has become, a lair for [wild] beasts! Everyone who passes by her shall hiss and wave his hand [indicating his gratification].

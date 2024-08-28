@@ -49,7 +49,7 @@ Can you draw out the leviathan (the crocodile) with a fishhook? Or press down hi
 
 
 
-Can you put a rope into his nose? Or pierce his jaw through with a hook _or_ a spike? 
+Can you put a rope into his nose? Or pierce his jaw through with a hook or a spike? 
 
 
 
@@ -532,7 +532,7 @@ His heart is as firm as a stone, indeed, as solid as a nether millstone.
 
 
 
-When [the crocodile] raises himself up, the mighty are afraid; because of terror _and_ the crashing they are beside themselves. 
+When [the crocodile] raises himself up, the mighty are afraid; because of terror and the crashing they are beside themselves. 
 
 
 
@@ -616,7 +616,7 @@ The arrow cannot make [the crocodile] flee; slingstones are treated by him as st
 
 
 
-Clubs [also] are counted as stubble; he laughs at the rushing _and_ the rattling of the javelin. 
+Clubs [also] are counted as stubble; he laughs at the rushing and the rattling of the javelin. 
 
 
 
@@ -700,7 +700,7 @@ He makes the deep boil like a pot; he makes the sea like a [foaming] pot of oint
 
 
 
-Upon earth there is not [the crocodile's] equal, a creature made without fear _and_ he behaves fearlessly. 
+Upon earth there is not [the crocodile's] equal, a creature made without fear and he behaves fearlessly. 
 
 
 

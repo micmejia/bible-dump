@@ -195,7 +195,7 @@ And Aaron's sons the priests shall lay the pieces, the head and the fat, in orde
 
 
 
-But its entrails and its legs he shall wash with water. And the priest shall burn all of it on the altar for a burnt offering, an offering by fire, a sweet _and_ satisfying odor to the Lord. 
+But its entrails and its legs he shall wash with water. And the priest shall burn all of it on the altar for a burnt offering, an offering by fire, a sweet and satisfying odor to the Lord. 
 
 
 
@@ -279,7 +279,7 @@ And [the man] shall cut it into pieces, with its head and its fat, and the pries
 
 
 
-But he shall wash the entrails and legs with water. The priest shall offer all of it and burn it on the altar; it is a burnt offering, an offering made by fire, a sweet _and_ satisfying fragrance to the Lord. 
+But he shall wash the entrails and legs with water. The priest shall offer all of it and burn it on the altar; it is a burnt offering, an offering made by fire, a sweet and satisfying fragrance to the Lord. 
 
 
 
@@ -363,4 +363,4 @@ And he shall take away its crop with its feathers and cast it beside the altar o
 
 
 
-And he shall split it open [holding it] by its wings, but shall not cut it in two. And the priest shall burn it on the altar, on the wood that is on the fire; it is a burnt offering, an offering made by fire, a sweet _and_ satisfying odor to the Lord.
+And he shall split it open [holding it] by its wings, but shall not cut it in two. And the priest shall burn it on the altar, on the wood that is on the fire; it is a burnt offering, an offering made by fire, a sweet and satisfying odor to the Lord.

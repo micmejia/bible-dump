@@ -12,19 +12,19 @@ next: ['1 Thess 3']
 ###### 1 
 
 
-For you yourselves know, brethren, that our coming among you was not useless _and_ fruitless. 
+For you yourselves know, brethren, that our coming among you was not useless and fruitless. 
 
 
 ###### 2 
 
 
-But though we had already suffered and been outrageously treated at Philippi, as you know, yet in [the strength of] our God we summoned courage to proclaim to you unfalteringly the good news (the Gospel) with earnest contention _and_ much conflict _and_ great opposition. 
+But though we had already suffered and been outrageously treated at Philippi, as you know, yet in [the strength of] our God we summoned courage to proclaim to you unfalteringly the good news (the Gospel) with earnest contention and much conflict and great opposition. 
 
 
 ###### 3 
 
 
-For our appeal [in preaching] does not [originate] from delusion _or_ error or impure purpose _or_ motive, nor in fraud _or_ deceit. 
+For our appeal [in preaching] does not [originate] from delusion or error or impure purpose or motive, nor in fraud or deceit. 
 
 
 ###### 4 
@@ -36,25 +36,25 @@ But just as we have been approved by God to be entrusted with the glad tidings (
 ###### 5 
 
 
-For as you well know, we never resorted either to words of flattery or to any cloak to conceal greedy motives _or_ pretexts for gain, [as] God is our witness. 
+For as you well know, we never resorted either to words of flattery or to any cloak to conceal greedy motives or pretexts for gain, [as] God is our witness. 
 
 
 ###### 6 
 
 
-Nor did we seek to extract praise _and_ honor _and_ glory from men, either from you or from anyone else, though we might have asserted our authority [stood on our dignity and claimed honor] as apostles (special missionaries) of Christ (the Messiah). 
+Nor did we seek to extract praise and honor and glory from men, either from you or from anyone else, though we might have asserted our authority [stood on our dignity and claimed honor] as apostles (special missionaries) of Christ (the Messiah). 
 
 
 ###### 7 
 
 
-But we behaved gently when we were among you, like a devoted mother nursing _and_ cherishing her own children. 
+But we behaved gently when we were among you, like a devoted mother nursing and cherishing her own children. 
 
 
 ###### 8 
 
 
-So, being thus tenderly _and_ affectionately desirous of you, we continued to share with you not only God's good news (the Gospel) but also our own lives as well, for you had become so very dear to us. 
+So, being thus tenderly and affectionately desirous of you, we continued to share with you not only God's good news (the Gospel) but also our own lives as well, for you had become so very dear to us. 
 
 
 ###### 9 
@@ -72,7 +72,7 @@ You are witnesses, [yes] and God [also], how unworldly and upright and blameless
 ###### 11 
 
 
-For you know how, as a father [dealing with] his children, we used to exhort each of you personally, stimulating _and_ encouraging and charging you 
+For you know how, as a father [dealing with] his children, we used to exhort each of you personally, stimulating and encouraging and charging you 
 
 
 ###### 12 
@@ -96,13 +96,13 @@ For you, brethren, became imitators of the assemblies (churches) of God in Chris
 ###### 15 
 
 
-Who killed both the Lord Jesus and the prophets, and harassed _and_ drove us out, and continue to make themselves hateful _and_ offensive to God and to show themselves foes of all men, 
+Who killed both the Lord Jesus and the prophets, and harassed and drove us out, and continue to make themselves hateful and offensive to God and to show themselves foes of all men, 
 
 
 ###### 16 
 
 
-Forbidding _and_ hindering us from speaking to the Gentiles (the nations) that they may be saved. So as always they fill up [to the brim the measure of] their sins. But God's wrath has come upon them at last [completely and forever]! 
+Forbidding and hindering us from speaking to the Gentiles (the nations) that they may be saved. So as always they fill up [to the brim the measure of] their sins. But God's wrath has come upon them at last [completely and forever]! 
 
 
 ###### 17 
@@ -114,7 +114,7 @@ But since we were bereft of you, brethren, for a little while in person, [of cou
 ###### 18 
 
 
-Because it was our will to come to you. [I mean that] I, Paul, again and again [wanted to come], but Satan hindered _and_ impeded us. 
+Because it was our will to come to you. [I mean that] I, Paul, again and again [wanted to come], but Satan hindered and impeded us. 
 
 
 ###### 19 

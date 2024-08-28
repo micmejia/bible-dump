@@ -28,7 +28,7 @@ next: ['Mark 7']
 
 
 
-Jesus went away from there and came to His [own] country _and_ hometown [Nazareth], and His disciples followed [with] Him. 
+Jesus went away from there and came to His [own] country and hometown [Nazareth], and His disciples followed [with] Him. 
 
 
 
@@ -49,7 +49,7 @@ Jesus went away from there and came to His [own] country _and_ hometown [Nazaret
 
 
 
-And on the Sabbath He began to teach in the synagogue; and many who listened to Him were utterly astonished, saying, Where did this Man acquire all this? What is the wisdom [the broad and full intelligence which has been] given to Him? What mighty works _and_ exhibitions of power are wrought by His hands! 
+And on the Sabbath He began to teach in the synagogue; and many who listened to Him were utterly astonished, saying, Where did this Man acquire all this? What is the wisdom [the broad and full intelligence which has been] given to Him? What mighty works and exhibitions of power are wrought by His hands! 
 
 
 
@@ -70,7 +70,7 @@ And on the Sabbath He began to teach in the synagogue; and many who listened to 
 
 
 
-Is not this the Carpenter, the son of Mary and the brother of James and Joses and Judas and Simon? And are not His sisters here among us? And they took offense at Him _and_ were hurt [that is, they disapproved of Him, and it hindered them from acknowledging His authority] _and_ they were caused to stumble _and_ fall. 
+Is not this the Carpenter, the son of Mary and the brother of James and Joses and Judas and Simon? And are not His sisters here among us? And they took offense at Him and were hurt [that is, they disapproved of Him, and it hindered them from acknowledging His authority] and they were caused to stumble and fall. 
 
 
 
@@ -154,7 +154,7 @@ And He marveled because of their unbelief (their lack of faith in Him). And He w
 
 
 
-And He called to Him the Twelve [apostles] and began to send them out [as His ambassadors] two by two and gave them authority _and_ power over the unclean spirits. 
+And He called to Him the Twelve [apostles] and began to send them out [as His ambassadors] two by two and gave them authority and power over the unclean spirits. 
 
 
 
@@ -238,7 +238,7 @@ And He told them, Wherever you go into a house, stay there until you leave that 
 
 
 
-And if any community will not receive _and_ accept _and_ welcome you, and they refuse to listen to you, when you depart, shake off the dust that is on your feet, for a testimony against them. _Truly I tell you, it will be more tolerable for Sodom and Gomorrah in the judgment day than for that town._ 
+And if any community will not receive and accept and welcome you, and they refuse to listen to you, when you depart, shake off the dust that is on your feet, for a testimony against them. Truly I tell you, it will be more tolerable for Sodom and Gomorrah in the judgment day than for that town. 
 
 
 
@@ -301,7 +301,7 @@ And they drove out many unclean spirits and anointed with oil many who were sick
 
 
 
-King Herod heard of it, for [Jesus'] name had become well known. He _and_ they [of his court] said, John the Baptist has been raised from the dead; that is why these mighty powers [of performing miracles] are at work in Him. 
+King Herod heard of it, for [Jesus'] name had become well known. He and they [of his court] said, John the Baptist has been raised from the dead; that is why these mighty powers [of performing miracles] are at work in Him. 
 
 
 
@@ -385,7 +385,7 @@ For [this] Herod himself had sent and seized John and bound him in prison for th
 
 
 
-For John had told Herod, It is not lawful _and_ you have no right to have your brother's wife. 
+For John had told Herod, It is not lawful and you have no right to have your brother's wife. 
 
 
 
@@ -406,7 +406,7 @@ For John had told Herod, It is not lawful _and_ you have no right to have your b
 
 
 
-And Herodias was angry (enraged) with him _and_ held a grudge against him and wanted to kill him; but she could not, 
+And Herodias was angry (enraged) with him and held a grudge against him and wanted to kill him; but she could not, 
 
 
 
@@ -469,7 +469,7 @@ But an opportune time came [for Herodias] when Herod on his birthday gave a banq
 
 
 
-For when the daughter of Herodias herself came in and danced, she pleased _and_ fascinated Herod and his guests; and the king said to the girl, Ask me for whatever you desire, and I will give it to you. 
+For when the daughter of Herodias herself came in and danced, she pleased and fascinated Herod and his guests; and the king said to the girl, Ask me for whatever you desire, and I will give it to you. 
 
 
 
@@ -553,7 +553,7 @@ And she rushed back instantly to the king and requested, saying, I wish you to g
 
 
 
-And the king was deeply pained _and_ grieved _and_ exceedingly sorry, but because of his oaths and his guests, he did not want to slight her [by breaking faith with her]. 
+And the king was deeply pained and grieved and exceedingly sorry, but because of his oaths and his guests, he did not want to slight her [by breaking faith with her]. 
 
 
 
@@ -637,7 +637,7 @@ When his disciples learned of it, they came and took [John's] body and laid it i
 
 
 
-The apostles [sent out as missionaries] came back _and_ gathered together to Jesus, and told Him all that they had done and taught. 
+The apostles [sent out as missionaries] came back and gathered together to Jesus, and told Him all that they had done and taught. 
 
 
 
@@ -742,7 +742,7 @@ As Jesus landed, He saw a great crowd waiting, and He was moved with compassion 
 
 
 
-And when the day was already far gone, His disciples came to Him and said, This is a desolate _and_ isolated place, and the hour is now late. 
+And when the day was already far gone, His disciples came to Him and said, This is a desolate and isolated place, and the hour is now late. 
 
 
 
@@ -1015,7 +1015,7 @@ Now when evening had come, the boat was out in the middle of the lake, and He wa
 
 
 
-And having seen that they were troubled _and_ tormented in [their] rowing, for the wind was against them, about the fourth watch of the night [between 3:00-6:00 a.m.] He came to them, walking [directly] on the sea. And He acted as if He meant to pass by them, 
+And having seen that they were troubled and tormented in [their] rowing, for the wind was against them, about the fourth watch of the night [between 3:00-6:00 a.m.] He came to them, walking [directly] on the sea. And He acted as if He meant to pass by them, 
 
 
 
@@ -1057,7 +1057,7 @@ But when they saw Him walking on the sea they thought it was a ghost, and raised
 
 
 
-For they all saw Him and were agitated (troubled and filled with fear and dread). But immediately He talked with them and said, Take heart! I Am! Stop being alarmed _and_ afraid. 
+For they all saw Him and were agitated (troubled and filled with fear and dread). But immediately He talked with them and said, Take heart! I Am! Stop being alarmed and afraid. 
 
 
 
@@ -1099,7 +1099,7 @@ And He went up into the boat with them, and the wind ceased (sank to rest as if 
 
 
 
-For they failed to consider _or_ understand [the teaching and meaning of the miracle of] the loaves; [in fact] their hearts had grown callous [had become dull and had lost the power of understanding]. 
+For they failed to consider or understand [the teaching and meaning of the miracle of] the loaves; [in fact] their hearts had grown callous [had become dull and had lost the power of understanding]. 
 
 
 
@@ -1162,7 +1162,7 @@ As soon as they got out of the boat, [the people] recognized Him,
 
 
 
-And they ran about the whole countryside, and began to carry around sick people on their sleeping pads _or_ mats to any place where they heard that He was. 
+And they ran about the whole countryside, and began to carry around sick people on their sleeping pads or mats to any place where they heard that He was. 
 
 
 

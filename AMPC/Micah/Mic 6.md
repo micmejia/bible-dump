@@ -28,7 +28,7 @@ next: ['Mic 7']
 
 
 
-Hear now what the Lord says: Arise, contend _and_ plead your case before the mountains, and let the hills hear your voice. 
+Hear now what the Lord says: Arise, contend and plead your case before the mountains, and let the hills hear your voice. 
 
 
 
@@ -49,7 +49,7 @@ Hear now what the Lord says: Arise, contend _and_ plead your case before the mou
 
 
 
-Hear, O mountains, the Lord's controversy, and you strong _and_ enduring foundations of the earth, for the Lord has a controversy (a pleading contention) with His people, and He will [pleadingly] contend with Israel. 
+Hear, O mountains, the Lord's controversy, and you strong and enduring foundations of the earth, for the Lord has a controversy (a pleading contention) with His people, and He will [pleadingly] contend with Israel. 
 
 
 
@@ -112,7 +112,7 @@ For I brought you up out of the land of Egypt and redeemed you out of the house 
 
 
 
-O My people, [earnestly] remember now what Balak king of Moab devised and what Balaam the son of Beor answered him; [remember what the Lord did for you] from Shittim to Gilgal, that you may know the righteous _and_ saving acts of the Lord. 
+O My people, [earnestly] remember now what Balak king of Moab devised and what Balaam the son of Beor answered him; [remember what the Lord did for you] from Shittim to Gilgal, that you may know the righteous and saving acts of the Lord. 
 
 
 
@@ -175,7 +175,7 @@ Will the Lord be pleased with thousands of rams or with ten thousands of rivers 
 
 
 
-He has showed you, O man, what is good. And what does the Lord require of you but to do justly, and to love kindness _and_ mercy, and to humble yourself _and_ walk humbly with your God? 
+He has showed you, O man, what is good. And what does the Lord require of you but to do justly, and to love kindness and mercy, and to humble yourself and walk humbly with your God? 
 
 
 
@@ -196,7 +196,7 @@ He has showed you, O man, what is good. And what does the Lord require of you bu
 
 
 
-The voice of the Lord calls to the city [Jerusalem]--and it is sound wisdom to hear _and_ fear Your name--Hear (heed) the rod and Him Who has appointed it. 
+The voice of the Lord calls to the city [Jerusalem]--and it is sound wisdom to hear and fear Your name--Hear (heed) the rod and Him Who has appointed it. 
 
 
 
@@ -217,7 +217,7 @@ The voice of the Lord calls to the city [Jerusalem]--and it is sound wisdom to h
 
 
 
-Are there not still treasures gained by wickedness in the house of the wicked, and a scant measure [a false measure for grain] that is abominable _and_ accursed? 
+Are there not still treasures gained by wickedness in the house of the wicked, and a scant measure [a false measure for grain] that is abominable and accursed? 
 
 
 
@@ -280,7 +280,7 @@ For [the city's] rich men are full of violence; her inhabitants have spoken lies
 
 
 
-Therefore I have also smitten you with a deadly wound _and_ made you sick, laying you desolate, waste, _and_ deserted because of your sins. 
+Therefore I have also smitten you with a deadly wound and made you sick, laying you desolate, waste, and deserted because of your sins. 
 
 
 
@@ -301,7 +301,7 @@ Therefore I have also smitten you with a deadly wound _and_ made you sick, layin
 
 
 
-You shall eat but not be satisfied, and your emptiness _and_ hunger shall remain in you; you shall carry away [goods and those you love] but fail to save them, and those you do deliver I will give to the sword. 
+You shall eat but not be satisfied, and your emptiness and hunger shall remain in you; you shall carry away [goods and those you love] but fail to save them, and those you do deliver I will give to the sword. 
 
 
 
@@ -343,4 +343,4 @@ You shall sow but not reap; you shall tread olives but not anoint yourselves wit
 
 
 
-For the statutes of [idolatrous] Omri you have kept, and all the works of the house of [wicked] Ahab, and you walk in their counsels. Therefore I will make you a desolation _and_ an astonishment and your [city's] inhabitants a hissing, and you shall bear the reproach _and_ scorn of My people.
+For the statutes of [idolatrous] Omri you have kept, and all the works of the house of [wicked] Ahab, and you walk in their counsels. Therefore I will make you a desolation and an astonishment and your [city's] inhabitants a hissing, and you shall bear the reproach and scorn of My people.

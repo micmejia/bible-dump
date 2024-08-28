@@ -448,7 +448,7 @@ And Joseph bought all the land of Egypt for Pharaoh; for the Egyptians sold ever
 
 
 
-And as for the people, he removed them to cities _and_ practically made slaves of them [at their own request], from one end of the borders of Egypt to the other. 
+And as for the people, he removed them to cities and practically made slaves of them [at their own request], from one end of the borders of Egypt to the other. 
 
 
 

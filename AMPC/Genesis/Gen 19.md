@@ -70,7 +70,7 @@ And he said, My lords, turn aside, I beg of you, into your servant's house and s
 
 
 
-[Lot] entreated _and_ urged them greatly until they yielded and [with him] entered his house. And he made them a dinner [with drinking] and had unleavened bread which he baked, and they ate. 
+[Lot] entreated and urged them greatly until they yielded and [with him] entered his house. And he made them a dinner [with drinking] and had unleavened bread which he baked, and they ate. 
 
 
 
@@ -196,7 +196,7 @@ Look now, I have two daughters who are virgins; let me, I beg of you, bring them
 
 
 
-But they said, Stand back! And they said, This fellow came in to live here temporarily, and now he presumes to be [our] judge! Now we will deal worse with you than with them. So they rushed at _and_ pressed violently against Lot and came close to breaking down the door. 
+But they said, Stand back! And they said, This fellow came in to live here temporarily, and now he presumes to be [our] judge! Now we will deal worse with you than with them. So they rushed at and pressed violently against Lot and came close to breaking down the door. 
 
 
 
@@ -280,7 +280,7 @@ And the [two] men asked Lot, Have you any others here--sons-in-law or your sons 
 
 
 
-For we will spoil _and_ destroy [Sodom]; for the outcry _and_ shriek against its people has grown great before the Lord, and He has sent us to destroy it. 
+For we will spoil and destroy [Sodom]; for the outcry and shriek against its people has grown great before the Lord, and He has sent us to destroy it. 
 
 
 
@@ -301,7 +301,7 @@ For we will spoil _and_ destroy [Sodom]; for the outcry _and_ shriek against its
 
 
 
-And Lot went out and spoke to his sons-in-law, who were to marry his daughters, and said, Up, get out of this place, for the Lord will spoil _and_ destroy this city! But he seemed to his sons-in-law to be [only] joking. 
+And Lot went out and spoke to his sons-in-law, who were to marry his daughters, and said, Up, get out of this place, for the Lord will spoil and destroy this city! But he seemed to his sons-in-law to be [only] joking. 
 
 
 
@@ -322,7 +322,7 @@ And Lot went out and spoke to his sons-in-law, who were to marry his daughters, 
 
 
 
-When morning came, the angels urged Lot to hurry, saying, Arise, take your wife and two daughters who are here [and be off], lest you [too] be consumed _and_ swept away in the iniquity _and_ punishment of the city. 
+When morning came, the angels urged Lot to hurry, saying, Arise, take your wife and two daughters who are here [and be off], lest you [too] be consumed and swept away in the iniquity and punishment of the city. 
 
 
 
@@ -532,7 +532,7 @@ Then the Lord rained on Sodom and on Gomorrah brimstone and fire from the Lord o
 
 
 
-He overthrew, destroyed, _and_ ended those cities, and all the valley and all the inhabitants of the cities, and what grew on the ground. 
+He overthrew, destroyed, and ended those cities, and all the valley and all the inhabitants of the cities, and what grew on the ground. 
 
 
 
@@ -616,7 +616,7 @@ And he looked toward Sodom and Gomorrah, and toward all the land of the valley, 
 
 
 
-When God ravaged _and_ destroyed the cities of the plain [of Siddim], He [earnestly] remembered Abraham [imprinted and fixed him indelibly on His mind], and He sent Lot out of the midst of the overthrow when He overthrew the cities where Lot lived. 
+When God ravaged and destroyed the cities of the plain [of Siddim], He [earnestly] remembered Abraham [imprinted and fixed him indelibly on His mind], and He sent Lot out of the midst of the overthrow when He overthrew the cities where Lot lived. 
 
 
 

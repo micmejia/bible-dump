@@ -217,4 +217,4 @@ Rejoice, O young man, in your adolescence, and let your heart cheer you in the d
 
 
 
-Therefore remove [the lusts that end in] sorrow _and_ vexation from your heart _and_ mind and put away evil from your body, for youth and the dawn of life are vanity [transitory, idle, empty, and devoid of truth].
+Therefore remove [the lusts that end in] sorrow and vexation from your heart and mind and put away evil from your body, for youth and the dawn of life are vanity [transitory, idle, empty, and devoid of truth].

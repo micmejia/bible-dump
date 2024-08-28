@@ -112,7 +112,7 @@ Your words have held firm him who was falling, and you have strengthened the fee
 
 
 
-But now it is come upon you, and you faint _and_ are grieved; it touches you, and you are troubled _and_ dismayed. 
+But now it is come upon you, and you faint and are grieved; it touches you, and you are troubled and dismayed. 
 
 
 
@@ -133,7 +133,7 @@ But now it is come upon you, and you faint _and_ are grieved; it touches you, an
 
 
 
-Is not your [reverent] fear of God your confidence and the integrity _and_ uprightness of your ways your hope? 
+Is not your [reverent] fear of God your confidence and the integrity and uprightness of your ways your hope? 
 
 
 
@@ -154,7 +154,7 @@ Is not your [reverent] fear of God your confidence and the integrity _and_ uprig
 
 
 
-Think [earnestly], I beg of you: who, being innocent, ever perished? Or where were those upright _and_ in right standing with God cut off? 
+Think [earnestly], I beg of you: who, being innocent, ever perished? Or where were those upright and in right standing with God cut off? 
 
 
 
@@ -175,7 +175,7 @@ Think [earnestly], I beg of you: who, being innocent, ever perished? Or where we
 
 
 
-As I myself have seen, those who plow iniquity and sow trouble _and_ mischief reap the same. 
+As I myself have seen, those who plow iniquity and sow trouble and mischief reap the same. 
 
 
 
@@ -238,7 +238,7 @@ The roaring of the lion and the voice of the fierce lion, and the teeth of the y
 
 
 
-The old _and_ strong lion perishes for lack of prey, and the whelps of the lioness are scattered abroad. 
+The old and strong lion perishes for lack of prey, and the whelps of the lioness are scattered abroad. 
 
 
 
@@ -364,7 +364,7 @@ Then a spirit passed before my face; the hair of my flesh stood up!
 
 
 
-Can mortal man be just before God, _or_ be more right than He is? Can a man be pure before his Maker, _or_ be more cleansed than He is? 
+Can mortal man be just before God, or be more right than He is? Can a man be pure before his Maker, or be more cleansed than He is? 
 
 
 
@@ -385,7 +385,7 @@ Can mortal man be just before God, _or_ be more right than He is? Can a man be p
 
 
 
-Even in His [heavenly] servants He puts no trust _or_ confidence, and His angels He charges with folly _and_ error-- 
+Even in His [heavenly] servants He puts no trust or confidence, and His angels He charges with folly and error-- 
 
 
 

@@ -49,7 +49,7 @@ Thus says the Lord God: The gate of the inner court that faces east shall be shu
 
 
 
-And the prince shall enter by the porch _or_ vestibule of the gate from without and shall stand by the sidepost of the gate. The priests shall prepare _and_ offer his burnt offering and his peace offerings, and he shall worship at the threshold of the gate. Then he shall go out, but the gate shall not be shut until evening. 
+And the prince shall enter by the porch or vestibule of the gate from without and shall stand by the sidepost of the gate. The priests shall prepare and offer his burnt offering and his peace offerings, and he shall worship at the threshold of the gate. Then he shall go out, but the gate shall not be shut until evening. 
 
 
 
@@ -112,7 +112,7 @@ And the burnt offering that the prince shall offer to the Lord on the Sabbath da
 
 
 
-And the bloodless _or_ meal offering with the ram shall be an ephah, and the meal offering with the lambs shall be as much as he is able _and_ willing to give, and a hin of oil with each ephah. 
+And the bloodless or meal offering with the ram shall be an ephah, and the meal offering with the lambs shall be as much as he is able and willing to give, and a hin of oil with each ephah. 
 
 
 
@@ -154,7 +154,7 @@ And on the day of the New Moon the offering shall be a young bull without blemis
 
 
 
-And the prince shall provide _and_ make a meal _or_ bloodless offering, an ephah for the bullock and an ephah for the ram, and for the lambs as he is able _and_ willing according to what has been made available to his hand, and a hin of oil to each ephah. 
+And the prince shall provide and make a meal or bloodless offering, an ephah for the bullock and an ephah for the ram, and for the lambs as he is able and willing according to what has been made available to his hand, and a hin of oil to each ephah. 
 
 
 
@@ -175,7 +175,7 @@ And the prince shall provide _and_ make a meal _or_ bloodless offering, an ephah
 
 
 
-And when the prince shall enter, he shall go in by the porch _or_ vestibule of that gate and he shall go out by way of it. 
+And when the prince shall enter, he shall go in by the porch or vestibule of that gate and he shall go out by way of it. 
 
 
 
@@ -238,7 +238,7 @@ And the prince, when they go in, shall go in with them, and when they go out, he
 
 
 
-And in the appointed and solemn feasts the meal _or_ bloodless offering shall be with a bullock an ephah, and with a ram an ephah, and with the lambs as much as the prince is willing _and_ able to give [from what has been made available to him], and a hin of oil with each ephah. 
+And in the appointed and solemn feasts the meal or bloodless offering shall be with a bullock an ephah, and with a ram an ephah, and with the lambs as much as the prince is willing and able to give [from what has been made available to him], and a hin of oil with each ephah. 
 
 
 
@@ -259,7 +259,7 @@ And in the appointed and solemn feasts the meal _or_ bloodless offering shall be
 
 
 
-When the prince shall prepare _and_ make a freewill burnt offering or peace offerings voluntarily to the Lord, the gate that faces east shall be opened for him, and he shall offer his burnt offering and his peace offerings as he does on the Sabbath day. Then he shall go out, and after he has gone out, the gate shall be shut. 
+When the prince shall prepare and make a freewill burnt offering or peace offerings voluntarily to the Lord, the gate that faces east shall be opened for him, and he shall offer his burnt offering and his peace offerings as he does on the Sabbath day. Then he shall go out, and after he has gone out, the gate shall be shut. 
 
 
 
@@ -280,7 +280,7 @@ When the prince shall prepare _and_ make a freewill burnt offering or peace offe
 
 
 
-And a lamb a year old without blemish shall you [the priests, for the congregation] offer daily to the Lord; you shall prepare _and_ offer it every morning. 
+And a lamb a year old without blemish shall you [the priests, for the congregation] offer daily to the Lord; you shall prepare and offer it every morning. 
 
 
 
@@ -322,7 +322,7 @@ And you [the priests] shall prepare a meal offering to go with it every morning,
 
 
 
-Thus shall they prepare _and_ offer the lamb and the meal offering and the oil every morning for a continual burnt offering. 
+Thus shall they prepare and offer the lamb and the meal offering and the oil every morning for a continual burnt offering. 
 
 
 
@@ -469,7 +469,7 @@ And he brought me out into the outer court and caused me to pass by the four cor
 
 
 
-In the four corners of the court there were courts joined on _and_ enclosed, forty cubits long and thirty broad; these four in the corners were the same size. 
+In the four corners of the court there were courts joined on and enclosed, forty cubits long and thirty broad; these four in the corners were the same size. 
 
 
 

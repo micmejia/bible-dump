@@ -49,7 +49,7 @@ Then Job answered,
 
 
 
-Even today is my complaint rebellious _and_ bitter; my stroke is heavier than my groaning. 
+Even today is my complaint rebellious and bitter; my stroke is heavier than my groaning. 
 
 
 
@@ -259,7 +259,7 @@ My foot has held fast to His steps; His ways have I kept and not turned aside.
 
 
 
-I have not gone back from the commandment of His lips; I have esteemed _and_ treasured the words of His mouth more than my necessary food. 
+I have not gone back from the commandment of His lips; I have esteemed and treasured the words of His mouth more than my necessary food. 
 
 
 
@@ -322,7 +322,7 @@ For He performs [that which He has] planned for me, and of many such matters He 
 
 
 
-Therefore am I troubled _and_ terrified at His presence; when I consider, I am in dread _and_ afraid of Him. 
+Therefore am I troubled and terrified at His presence; when I consider, I am in dread and afraid of Him. 
 
 
 
@@ -343,7 +343,7 @@ Therefore am I troubled _and_ terrified at His presence; when I consider, I am i
 
 
 
-For God has made my heart faint, timid, _and_ broken, and the Almighty has terrified me, 
+For God has made my heart faint, timid, and broken, and the Almighty has terrified me, 
 
 
 

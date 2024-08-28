@@ -28,7 +28,7 @@ next: ['1 Cor 8']
 
 
 
-Now as to the matters of which you wrote me. It is well [and by that I mean advantageous, expedient, profitable, and wholesome] for a man not to touch a woman [to cohabit with her] _but_ to remain unmarried. 
+Now as to the matters of which you wrote me. It is well [and by that I mean advantageous, expedient, profitable, and wholesome] for a man not to touch a woman [to cohabit with her] but to remain unmarried. 
 
 
 
@@ -49,7 +49,7 @@ Now as to the matters of which you wrote me. It is well [and by that I mean adva
 
 
 
-But because of the temptation to impurity _and_ to avoid immorality, let each [man] have his own wife and let each [woman] have her own husband. 
+But because of the temptation to impurity and to avoid immorality, let each [man] have his own wife and let each [woman] have her own husband. 
 
 
 
@@ -91,7 +91,7 @@ The husband should give to his wife her conjugal rights (goodwill, kindness, and
 
 
 
-For the wife does not have [exclusive] authority _and_ control over her own body, but the husband [has his rights]; likewise also the husband does not have [exclusive] authority _and_ control over his body, but the wife [has her rights]. 
+For the wife does not have [exclusive] authority and control over her own body, but the husband [has his rights]; likewise also the husband does not have [exclusive] authority and control over his body, but the wife [has her rights]. 
 
 
 
@@ -112,7 +112,7 @@ For the wife does not have [exclusive] authority _and_ control over her own body
 
 
 
-Do not refuse _and_ deprive _and_ defraud each other [of your due marital rights], except perhaps by mutual consent for a time, so that you may devote yourselves unhindered to prayer. But afterwards resume marital relations, lest Satan tempt you [to sin] through your lack of restraint of sexual desire. 
+Do not refuse and deprive and defraud each other [of your due marital rights], except perhaps by mutual consent for a time, so that you may devote yourselves unhindered to prayer. But afterwards resume marital relations, lest Satan tempt you [to sin] through your lack of restraint of sexual desire. 
 
 
 
@@ -133,7 +133,7 @@ Do not refuse _and_ deprive _and_ defraud each other [of your due marital rights
 
 
 
-But I am saying this more as a matter of permission _and_ concession, not as a command _or_ regulation. 
+But I am saying this more as a matter of permission and concession, not as a command or regulation. 
 
 
 
@@ -238,7 +238,7 @@ But to the married people I give charge--not I but the Lord--that the wife is no
 
 
 
-But if she does [separate from and divorce him], let her remain single or else be reconciled to her husband. And [I charge] the husband [also] that he should not put away _or_ divorce his wife. 
+But if she does [separate from and divorce him], let her remain single or else be reconciled to her husband. And [I charge] the husband [also] that he should not put away or divorce his wife. 
 
 
 
@@ -259,7 +259,7 @@ But if she does [separate from and divorce him], let her remain single or else b
 
 
 
-To the rest I declare--I, not the Lord [for Jesus did not discuss this]--that if any brother has a wife who does not believe [in Christ] and she consents to live with him, he should not leave _or_ divorce her. 
+To the rest I declare--I, not the Lord [for Jesus did not discuss this]--that if any brother has a wife who does not believe [in Christ] and she consents to live with him, he should not leave or divorce her. 
 
 
 
@@ -280,7 +280,7 @@ To the rest I declare--I, not the Lord [for Jesus did not discuss this]--that if
 
 
 
-And if any woman has an unbelieving husband and he consents to live with her, she should not leave _or_ divorce him. 
+And if any woman has an unbelieving husband and he consents to live with her, she should not leave or divorce him. 
 
 
 
@@ -301,7 +301,7 @@ And if any woman has an unbelieving husband and he consents to live with her, sh
 
 
 
-For the unbelieving husband is set apart (separated, withdrawn from heathen contamination, and affiliated with the Christian people) by union with his consecrated (set-apart) wife, and the unbelieving wife is set apart _and_ separated through union with her consecrated husband. Otherwise your children would be unclean (unblessed heathen, outside the Christian covenant), but as it is they are prepared for God [pure and clean]. 
+For the unbelieving husband is set apart (separated, withdrawn from heathen contamination, and affiliated with the Christian people) by union with his consecrated (set-apart) wife, and the unbelieving wife is set apart and separated through union with her consecrated husband. Otherwise your children would be unclean (unblessed heathen, outside the Christian covenant), but as it is they are prepared for God [pure and clean]. 
 
 
 
@@ -343,7 +343,7 @@ But if the unbelieving partner [actually] leaves, let him do so; in such [cases 
 
 
 
-For, wife, how can you be sure of converting _and_ saving your husband? Husband, how can you be sure of converting _and_ saving your wife? 
+For, wife, how can you be sure of converting and saving your husband? Husband, how can you be sure of converting and saving your wife? 
 
 
 
@@ -364,7 +364,7 @@ For, wife, how can you be sure of converting _and_ saving your husband? Husband,
 
 
 
-Only, let each one [seek to conduct himself and regulate his affairs so as to] lead the life which the Lord has allotted _and_ imparted to him and to which God has invited _and_ summoned him. This is my order in all the churches. 
+Only, let each one [seek to conduct himself and regulate his affairs so as to] lead the life which the Lord has allotted and imparted to him and to which God has invited and summoned him. This is my order in all the churches. 
 
 
 
@@ -406,7 +406,7 @@ Was anyone at the time of his summons [from God] already circumcised? Let him no
 
 
 
-For circumcision is nothing _and_ counts for nothing, neither does uncircumcision, but [what counts is] keeping the commandments of God. 
+For circumcision is nothing and counts for nothing, neither does uncircumcision, but [what counts is] keeping the commandments of God. 
 
 
 
@@ -427,7 +427,7 @@ For circumcision is nothing _and_ counts for nothing, neither does uncircumcisio
 
 
 
-Everyone should remain after God calls him in the station _or_ condition of life in which the summons found him. 
+Everyone should remain after God calls him in the station or condition of life in which the summons found him. 
 
 
 
@@ -511,7 +511,7 @@ You were bought with a price [purchased with a preciousness and paid for by Chri
 
 
 
-So, brethren, in whatever station _or_ state _or_ condition of life each one was when he was called, there let him continue with _and_ close to God. 
+So, brethren, in whatever station or state or condition of life each one was when he was called, there let him continue with and close to God. 
 
 
 
@@ -532,7 +532,7 @@ So, brethren, in whatever station _or_ state _or_ condition of life each one was
 
 
 
-Now concerning the virgins (the marriageable maidens) I have no command of the Lord, but I give my opinion _and_ advice as one who by the Lord's mercy is rendered trustworthy _and_ faithful. 
+Now concerning the virgins (the marriageable maidens) I have no command of the Lord, but I give my opinion and advice as one who by the Lord's mercy is rendered trustworthy and faithful. 
 
 
 
@@ -553,7 +553,7 @@ Now concerning the virgins (the marriageable maidens) I have no command of the L
 
 
 
-I think then, because of the impending distress [that is even now setting in], it is well (expedient, profitable, and wholesome) for a person to remain as he _or_ she is. 
+I think then, because of the impending distress [that is even now setting in], it is well (expedient, profitable, and wholesome) for a person to remain as he or she is. 
 
 
 
@@ -595,7 +595,7 @@ Are you bound to a wife? Do not seek to be free. Are you free from a wife? Do no
 
 
 
-But if you do marry, you do not sin [in doing so], and if a virgin marries, she does not sin [in doing so]. Yet those who marry will have physical _and_ earthly troubles, and I would like to spare you that. 
+But if you do marry, you do not sin [in doing so], and if a virgin marries, she does not sin [in doing so]. Yet those who marry will have physical and earthly troubles, and I would like to spare you that. 
 
 
 
@@ -616,7 +616,7 @@ But if you do marry, you do not sin [in doing so], and if a virgin marries, she 
 
 
 
-I mean, brethren, the appointed time has been winding down _and_ it has grown very short. From now on, let even those who have wives be as if they had none, 
+I mean, brethren, the appointed time has been winding down and it has grown very short. From now on, let even those who have wives be as if they had none, 
 
 
 
@@ -637,7 +637,7 @@ I mean, brethren, the appointed time has been winding down _and_ it has grown ve
 
 
 
-And those who weep _and_ mourn as though they were not weeping _and_ mourning, and those who rejoice as though they were not rejoicing, and those who buy as though they did not possess anything, 
+And those who weep and mourn as though they were not weeping and mourning, and those who rejoice as though they were not rejoicing, and those who buy as though they did not possess anything, 
 
 
 
@@ -658,7 +658,7 @@ And those who weep _and_ mourn as though they were not weeping _and_ mourning, a
 
 
 
-And those who deal with this world [overusing the enjoyments of this life] as though they were not absorbed by it _and_ as if they had no dealings with it. For the outward form of this world (the present world order) is passing away. 
+And those who deal with this world [overusing the enjoyments of this life] as though they were not absorbed by it and as if they had no dealings with it. For the outward form of this world (the present world order) is passing away. 
 
 
 
@@ -679,7 +679,7 @@ And those who deal with this world [overusing the enjoyments of this life] as th
 
 
 
-My desire is to have you free from all anxiety _and_ distressing care. The unmarried man is anxious about the things of the Lord--how he may please the Lord; 
+My desire is to have you free from all anxiety and distressing care. The unmarried man is anxious about the things of the Lord--how he may please the Lord; 
 
 
 
@@ -721,7 +721,7 @@ But the married man is anxious about worldly matters--how he may please his wife
 
 
 
-And he is drawn in diverging directions [his interests are divided _and_ he is distracted from his devotion to God]. And the unmarried woman or girl is concerned _and_ anxious about the matters of the Lord, how to be wholly separated _and_ set apart in body and spirit; but the married woman has her cares [centered] in earthly affairs--how she may please her husband. 
+And he is drawn in diverging directions [his interests are divided and he is distracted from his devotion to God]. And the unmarried woman or girl is concerned and anxious about the matters of the Lord, how to be wholly separated and set apart in body and spirit; but the married woman has her cares [centered] in earthly affairs--how she may please her husband. 
 
 
 
@@ -742,7 +742,7 @@ And he is drawn in diverging directions [his interests are divided _and_ he is d
 
 
 
-Now I say this for your own welfare _and_ profit, not to put [a halter of] restraint upon you, but to promote what is seemly _and_ in good order and to secure your undistracted _and_ undivided devotion to the Lord. 
+Now I say this for your own welfare and profit, not to put [a halter of] restraint upon you, but to promote what is seemly and in good order and to secure your undistracted and undivided devotion to the Lord. 
 
 
 
@@ -763,7 +763,7 @@ Now I say this for your own welfare _and_ profit, not to put [a halter of] restr
 
 
 
-But if any man thinks that he is not acting properly toward _and_ in regard to his virgin [that he is preparing disgrace for her or incurring reproach], in case she is passing the bloom of her youth and if there is need for it, let him do what to him seems right; he does not sin; let them marry. 
+But if any man thinks that he is not acting properly toward and in regard to his virgin [that he is preparing disgrace for her or incurring reproach], in case she is passing the bloom of her youth and if there is need for it, let him do what to him seems right; he does not sin; let them marry. 
 
 
 
@@ -784,7 +784,7 @@ But if any man thinks that he is not acting properly toward _and_ in regard to h
 
 
 
-But whoever is firmly established in his heart [strong in mind and purpose], not being forced by necessity but having control over his own will _and_ desire, and has resolved this in his heart to keep his own virginity, he is doing well. 
+But whoever is firmly established in his heart [strong in mind and purpose], not being forced by necessity but having control over his own will and desire, and has resolved this in his heart to keep his own virginity, he is doing well. 
 
 
 

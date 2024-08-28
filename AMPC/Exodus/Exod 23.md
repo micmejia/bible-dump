@@ -28,7 +28,7 @@ next: ['Exod 24']
 
 
 
-You shall not repeat _or_ raise a false report; you shall not join with the wicked to be an unrighteous witness. 
+You shall not repeat or raise a false report; you shall not join with the wicked to be an unrighteous witness. 
 
 
 
@@ -154,7 +154,7 @@ You shall not pervert the justice due to your poor in his cause.
 
 
 
-Keep far from a false matter and [be very careful] not to condemn to death the innocent and the righteous, for I will not justify _and_ acquit the wicked. 
+Keep far from a false matter and [be very careful] not to condemn to death the innocent and the righteous, for I will not justify and acquit the wicked. 
 
 
 
@@ -175,7 +175,7 @@ Keep far from a false matter and [be very careful] not to condemn to death the i
 
 
 
-You shall take no bribe, for the bribe blinds those who have sight and perverts the testimony _and_ the cause of the righteous. 
+You shall take no bribe, for the bribe blinds those who have sight and perverts the testimony and the cause of the righteous. 
 
 
 
@@ -196,7 +196,7 @@ You shall take no bribe, for the bribe blinds those who have sight and perverts 
 
 
 
-Also you shall not oppress a temporary resident, for you know the heart of a stranger _and_ sojourner, seeing you were strangers _and_ sojourners in Egypt. 
+Also you shall not oppress a temporary resident, for you know the heart of a stranger and sojourner, seeing you were strangers and sojourners in Egypt. 
 
 
 
@@ -238,7 +238,7 @@ Six years you shall sow your land and reap its yield.
 
 
 
-But the seventh year you shall release it _and_ let it rest and lie fallow, that the poor of your people may eat [what the land voluntarily yields], and what they leave the wild beasts shall eat. In like manner you shall deal with your vineyard and olive grove. 
+But the seventh year you shall release it and let it rest and lie fallow, that the poor of your people may eat [what the land voluntarily yields], and what they leave the wild beasts shall eat. In like manner you shall deal with your vineyard and olive grove. 
 
 
 
@@ -427,7 +427,7 @@ The first of the firstfruits of your ground you shall bring into the house of th
 
 
 
-Behold, I send an Angel before you to keep _and_ guard you on the way and to bring you to the place I have prepared. 
+Behold, I send an Angel before you to keep and guard you on the way and to bring you to the place I have prepared. 
 
 
 
@@ -448,7 +448,7 @@ Behold, I send an Angel before you to keep _and_ guard you on the way and to bri
 
 
 
-Give heed to Him, listen to _and_ obey His voice; be not rebellious before Him _or_ provoke Him, for He will not pardon your transgression; for My Name is in Him. 
+Give heed to Him, listen to and obey His voice; be not rebellious before Him or provoke Him, for He will not pardon your transgression; for My Name is in Him. 
 
 
 
@@ -490,7 +490,7 @@ But if you will indeed listen to and obey His voice and all that I speak, then I
 
 
 
-When My Angel goes before you and brings you to the Amorites, the Hittites, the Perizzites, the Canaanites, the Hivites, and the Jebusites, and I reject them _and_ blot them out, 
+When My Angel goes before you and brings you to the Amorites, the Hittites, the Perizzites, the Canaanites, the Hivites, and the Jebusites, and I reject them and blot them out, 
 
 
 
@@ -511,7 +511,7 @@ When My Angel goes before you and brings you to the Amorites, the Hittites, the 
 
 
 
-You shall not bow down to their gods or serve them or do after their works; but you shall utterly overthrow them and break down their pillars _and_ images. 
+You shall not bow down to their gods or serve them or do after their works; but you shall utterly overthrow them and break down their pillars and images. 
 
 
 
@@ -637,7 +637,7 @@ I will not drive them out from before you in one year, lest the land become deso
 
 
 
-Little by little I will drive them out from before you, until you have increased _and_ are numerous enough to take possession of the land. 
+Little by little I will drive them out from before you, until you have increased and are numerous enough to take possession of the land. 
 
 
 

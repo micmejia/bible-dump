@@ -28,7 +28,7 @@ next: ['Ezek 43']
 
 
 
-Then _the man_ [an angel] brought me forth into the outer court northward, and he brought me to the attached chambers that were opposite the temple yard and were opposite the building on the north. 
+Then the man [an angel] brought me forth into the outer court northward, and he brought me to the attached chambers that were opposite the temple yard and were opposite the building on the north. 
 
 
 
@@ -154,7 +154,7 @@ For they were in three stories, but did not have pillars as the pillars of the [
 
 
 
-And the wall _or_ fence that was outside, opposite _and_ parallel to the chambers, toward the outer court before the chambers, was fifty cubits long, 
+And the wall or fence that was outside, opposite and parallel to the chambers, toward the outer court before the chambers, was fifty cubits long, 
 
 
 
@@ -280,7 +280,7 @@ And like the doors of the chambers that were toward the south there was an entra
 
 
 
-Then said _the man_ [an angel] to me, The north chambers and the south chambers, which are opposite the yard, are the holy chambers where the priests who approach the Lord shall eat the most holy offerings; there shall they lay the most holy things--the meal offering, the sin offering, and the trespass _or_ guilt offering--for the place is holy. 
+Then said the man [an angel] to me, The north chambers and the south chambers, which are opposite the yard, are the holy chambers where the priests who approach the Lord shall eat the most holy offerings; there shall they lay the most holy things--the meal offering, the sin offering, and the trespass or guilt offering--for the place is holy. 
 
 
 
@@ -301,7 +301,7 @@ Then said _the man_ [an angel] to me, The north chambers and the south chambers,
 
 
 
-When the priests enter the Holy Place, they shall not go out of it into the outer court unless they lay aside there the garments in which they minister, for these are holy, separate, _and_ set apart. They shall put on other garments before they approach that which is for the people. 
+When the priests enter the Holy Place, they shall not go out of it into the outer court unless they lay aside there the garments in which they minister, for these are holy, separate, and set apart. They shall put on other garments before they approach that which is for the people. 
 
 
 

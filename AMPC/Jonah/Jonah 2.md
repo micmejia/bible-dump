@@ -91,7 +91,7 @@ For You cast me into the deep, into the heart of the seas, and the floods surrou
 
 
 
-Then I said, I have been cast out of Your presence _and_ Your sight; yet I will look again toward Your holy temple. 
+Then I said, I have been cast out of Your presence and Your sight; yet I will look again toward Your holy temple. 
 
 
 
@@ -133,7 +133,7 @@ The waters compassed me about, even to [the extinction of] life; the abyss surro
 
 
 
-I went down to the bottoms _and_ the very roots of the mountains; the earth with its bars closed behind me forever. Yet You have brought up my life from the pit _and_ corruption, O Lord my God. 
+I went down to the bottoms and the very roots of the mountains; the earth with its bars closed behind me forever. Yet You have brought up my life from the pit and corruption, O Lord my God. 
 
 
 
@@ -154,7 +154,7 @@ I went down to the bottoms _and_ the very roots of the mountains; the earth with
 
 
 
-When my soul fainted upon me [crushing me], I earnestly _and_ seriously remembered the Lord; and my prayer came to You, into Your holy temple. 
+When my soul fainted upon me [crushing me], I earnestly and seriously remembered the Lord; and my prayer came to You, into Your holy temple. 
 
 
 
@@ -175,7 +175,7 @@ When my soul fainted upon me [crushing me], I earnestly _and_ seriously remember
 
 
 
-Those who pay regard to false, useless, _and_ worthless idols forsake their own [Source of] mercy _and_ loving-kindness. 
+Those who pay regard to false, useless, and worthless idols forsake their own [Source of] mercy and loving-kindness. 
 
 
 
@@ -196,7 +196,7 @@ Those who pay regard to false, useless, _and_ worthless idols forsake their own 
 
 
 
-But as for me, I will sacrifice to You with the voice of thanksgiving; I will pay that which I have vowed. Salvation _and_ deliverance belong to the Lord! 
+But as for me, I will sacrifice to You with the voice of thanksgiving; I will pay that which I have vowed. Salvation and deliverance belong to the Lord! 
 
 
 

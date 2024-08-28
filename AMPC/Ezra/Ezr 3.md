@@ -238,7 +238,7 @@ And when the builders laid the foundation of the temple of the Lord, the priests
 
 
 
-They sang responsively, praising and giving thanks to the Lord, saying, For He is good, for His mercy _and_ loving-kindness endure forever toward Israel. And all the people shouted with a great shout when they praised the Lord, because the foundation of the house of the Lord was laid! 
+They sang responsively, praising and giving thanks to the Lord, saying, For He is good, for His mercy and loving-kindness endure forever toward Israel. And all the people shouted with a great shout when they praised the Lord, because the foundation of the house of the Lord was laid! 
 
 
 

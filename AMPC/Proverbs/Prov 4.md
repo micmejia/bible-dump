@@ -28,7 +28,7 @@ next: ['Prov 5']
 
 
 
-Hear, my sons, the instruction of a father, and pay attention in order to gain _and_ to know intelligent discernment, comprehension, _and_ interpretation [of spiritual matters]. 
+Hear, my sons, the instruction of a father, and pay attention in order to gain and to know intelligent discernment, comprehension, and interpretation [of spiritual matters]. 
 
 
 
@@ -112,7 +112,7 @@ He taught me and said to me, Let your heart hold fast my words; keep my commandm
 
 
 
-Get skillful _and_ godly Wisdom, get understanding (discernment, comprehension, and interpretation); do not forget and do not turn back from the words of my mouth. 
+Get skillful and godly Wisdom, get understanding (discernment, comprehension, and interpretation); do not forget and do not turn back from the words of my mouth. 
 
 
 
@@ -133,7 +133,7 @@ Get skillful _and_ godly Wisdom, get understanding (discernment, comprehension, 
 
 
 
-Forsake not [Wisdom], and she will keep, defend, _and_ protect you; love her, and she will guard you. 
+Forsake not [Wisdom], and she will keep, defend, and protect you; love her, and she will guard you. 
 
 
 
@@ -154,7 +154,7 @@ Forsake not [Wisdom], and she will keep, defend, _and_ protect you; love her, an
 
 
 
-The beginning of Wisdom is: get Wisdom (skillful and godly Wisdom)! [For skillful _and_ godly Wisdom is the principal thing.] And with all you have gotten, get understanding (discernment, comprehension, and interpretation). 
+The beginning of Wisdom is: get Wisdom (skillful and godly Wisdom)! [For skillful and godly Wisdom is the principal thing.] And with all you have gotten, get understanding (discernment, comprehension, and interpretation). 
 
 
 
@@ -175,7 +175,7 @@ The beginning of Wisdom is: get Wisdom (skillful and godly Wisdom)! [For skillfu
 
 
 
-Prize Wisdom highly _and_ exalt her, and she will exalt _and_ promote you; she will bring you to honor when you embrace her. 
+Prize Wisdom highly and exalt her, and she will exalt and promote you; she will bring you to honor when you embrace her. 
 
 
 
@@ -196,7 +196,7 @@ Prize Wisdom highly _and_ exalt her, and she will exalt _and_ promote you; she w
 
 
 
-She shall give to your head a wreath of gracefulness; a crown of beauty _and_ glory will she deliver to you. 
+She shall give to your head a wreath of gracefulness; a crown of beauty and glory will she deliver to you. 
 
 
 
@@ -238,7 +238,7 @@ Hear, O my son, and receive my sayings, and the years of your life shall be many
 
 
 
-I have taught you in the way of skillful _and_ godly Wisdom [which is comprehensive insight into the ways and purposes of God]; I have led you in paths of uprightness. 
+I have taught you in the way of skillful and godly Wisdom [which is comprehensive insight into the ways and purposes of God]; I have led you in paths of uprightness. 
 
 
 
@@ -343,7 +343,7 @@ Avoid it, do not go on it; turn from it and pass on.
 
 
 
-For they cannot sleep unless they have caused trouble _or_ vexation; their sleep is taken away unless they have caused someone to fall. 
+For they cannot sleep unless they have caused trouble or vexation; their sleep is taken away unless they have caused someone to fall. 
 
 
 
@@ -385,7 +385,7 @@ For they eat the bread of wickedness and drink the wine of violence.
 
 
 
-But the path of the [uncompromisingly] just _and_ righteous is like the light of dawn, that shines more and more (brighter and clearer) until [it reaches its full strength and glory in] the perfect day [to be prepared]. 
+But the path of the [uncompromisingly] just and righteous is like the light of dawn, that shines more and more (brighter and clearer) until [it reaches its full strength and glory in] the perfect day [to be prepared]. 
 
 
 
@@ -427,7 +427,7 @@ The way of the wicked is like deep darkness; they do not know over what they stu
 
 
 
-My son, attend to my words; consent _and_ submit to my sayings. 
+My son, attend to my words; consent and submit to my sayings. 
 
 
 
@@ -469,7 +469,7 @@ Let them not depart from your sight; keep them in the center of your heart.
 
 
 
-For they are life to those who find them, healing _and_ health to all their flesh. 
+For they are life to those who find them, healing and health to all their flesh. 
 
 
 
@@ -490,7 +490,7 @@ For they are life to those who find them, healing _and_ health to all their fles
 
 
 
-Keep _and_ guard your heart with all vigilance _and_ above all that you guard, for out of it flow the springs of life. 
+Keep and guard your heart with all vigilance and above all that you guard, for out of it flow the springs of life. 
 
 
 
@@ -511,7 +511,7 @@ Keep _and_ guard your heart with all vigilance _and_ above all that you guard, f
 
 
 
-Put away from you false _and_ dishonest speech, and willful _and_ contrary talk put far from you. 
+Put away from you false and dishonest speech, and willful and contrary talk put far from you. 
 
 
 
@@ -553,7 +553,7 @@ Let your eyes look right on [with fixed purpose], and let your gaze be straight 
 
 
 
-Consider well the path of your feet, and let all your ways be established _and_ ordered aright. 
+Consider well the path of your feet, and let all your ways be established and ordered aright. 
 
 
 

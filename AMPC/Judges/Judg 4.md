@@ -322,7 +322,7 @@ And Deborah said to Barak, Up! For this is the day when the Lord has given Siser
 
 
 
-And the Lord confused _and_ terrified Sisera and all his chariot drivers and all his army before Barak with the sword. And Sisera alighted from his chariot and fled on foot. 
+And the Lord confused and terrified Sisera and all his chariot drivers and all his army before Barak with the sword. And Sisera alighted from his chariot and fled on foot. 
 
 
 

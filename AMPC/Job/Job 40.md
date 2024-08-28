@@ -91,7 +91,7 @@ Then Job replied to the Lord:
 
 
 
-Behold, I am of small account _and_ vile! What shall I answer You? I lay my hand upon my mouth. 
+Behold, I am of small account and vile! What shall I answer You? I lay my hand upon my mouth. 
 
 
 
@@ -175,7 +175,7 @@ Gird up your loins now like a man; I will demand of you, and you answer Me.
 
 
 
-Will you also annul (set aside and render void) My judgment? Will you condemn Me [your God], that you may [appear] righteous _and_ justified? 
+Will you also annul (set aside and render void) My judgment? Will you condemn Me [your God], that you may [appear] righteous and justified? 
 
 
 
@@ -217,7 +217,7 @@ Have you an arm like God? Or can you thunder with a voice like His?
 
 
 
-[Since you question the manner of the Almighty's rule] deck yourself now with the excellency _and_ dignity [of the Supreme Ruler, and yourself undertake the government of the world if you are so wise], _and_ array yourself with honor and majesty. 
+[Since you question the manner of the Almighty's rule] deck yourself now with the excellency and dignity [of the Supreme Ruler, and yourself undertake the government of the world if you are so wise], and array yourself with honor and majesty. 
 
 
 
@@ -490,7 +490,7 @@ The lotus trees cover him with their shade; the willows of the brook compass him
 
 
 
-Behold, if a river is violent _and_ overflows, he does not tremble; he is confident, though the Jordan [River] swells and rushes against his mouth. 
+Behold, if a river is violent and overflows, he does not tremble; he is confident, though the Jordan [River] swells and rushes against his mouth. 
 
 
 

@@ -280,7 +280,7 @@ And all the Levites who were singers--all of those of Asaph, Heman, and Jeduthun
 
 
 
-And when the trumpeters and singers were joined in unison, making one sound to be heard in praising and thanking the Lord, and when they lifted up their voice with the trumpets and cymbals and other instruments for song and praised the Lord, saying, For He is good, for His mercy _and_ loving-kindness endure forever, then the house of the Lord was filled with a cloud, 
+And when the trumpeters and singers were joined in unison, making one sound to be heard in praising and thanking the Lord, and when they lifted up their voice with the trumpets and cymbals and other instruments for song and praised the Lord, saying, For He is good, for His mercy and loving-kindness endure forever, then the house of the Lord was filled with a cloud, 
 
 
 

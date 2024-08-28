@@ -91,7 +91,7 @@ And this shall be the priest's due from the people, from those who offer a sacri
 
 
 
-The firstfruits of your grain, of your new wine, and of your oil, and the first _or_ best of the fleece of your sheep you shall give the priest. 
+The firstfruits of your grain, of your new wine, and of your oil, and the first or best of the fleece of your sheep you shall give the priest. 
 
 
 

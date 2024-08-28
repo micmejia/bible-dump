@@ -70,7 +70,7 @@ Hear the word of the Lord, O king of Judah, you who sit upon the throne of David
 
 
 
-Thus says the Lord: Execute justice and righteousness, and deliver out of the hand of the oppressor him who has been robbed. And do no wrong; do no violence to the stranger _or_ temporary resident, the fatherless, or the widow, nor shed innocent blood in this place. 
+Thus says the Lord: Execute justice and righteousness, and deliver out of the hand of the oppressor him who has been robbed. And do no wrong; do no violence to the stranger or temporary resident, the fatherless, or the widow, nor shed innocent blood in this place. 
 
 
 
@@ -154,7 +154,7 @@ For thus says the Lord concerning the house of the king of Judah: [If you will n
 
 
 
-And I will prepare, solemnly set apart, _and_ appoint [to execute My judgments against you] destroyers, each with his weapons, and they will cut down your [palaces built of] choicest cedars and cast them into the fire. 
+And I will prepare, solemnly set apart, and appoint [to execute My judgments against you] destroyers, each with his weapons, and they will cut down your [palaces built of] choicest cedars and cast them into the fire. 
 
 
 
@@ -196,7 +196,7 @@ And many nations will pass by this city, and every man will say to his neighbor,
 
 
 
-Then they will answer, Because [the people] forsook the covenant _or_ solemn pledge with the Lord their God and worshiped other gods and served them. 
+Then they will answer, Because [the people] forsook the covenant or solemn pledge with the Lord their God and worshiped other gods and served them. 
 
 
 
@@ -301,7 +301,7 @@ Woe to him who builds his house by unrighteousness and his [upper] chambers by i
 
 
 
-Who says, I will build myself a wide house with large rooms, and he cuts himself out windows, and it is ceiled _or_ paneled with cedar and painted with vermilion. 
+Who says, I will build myself a wide house with large rooms, and he cuts himself out windows, and it is ceiled or paneled with cedar and painted with vermilion. 
 
 
 
@@ -322,7 +322,7 @@ Who says, I will build myself a wide house with large rooms, and he cuts himself
 
 
 
-Do you think that being a king [merely] means [self-indulgent] vying [with Solomon] _and_ striving to excel in cedar [palaces]? Did not your father [Josiah], as he ate and drank, do justice and righteousness [being upright and in right standing with God]? Then it was well with him. 
+Do you think that being a king [merely] means [self-indulgent] vying [with Solomon] and striving to excel in cedar [palaces]? Did not your father [Josiah], as he ate and drank, do justice and righteousness [being upright and in right standing with God]? Then it was well with him. 
 
 
 
@@ -343,7 +343,7 @@ Do you think that being a king [merely] means [self-indulgent] vying [with Solom
 
 
 
-He judged _and_ defended the cause of the poor and needy; then it was well. Was not [all] this [what it means] to know _and_ recognize Me? says the Lord. 
+He judged and defended the cause of the poor and needy; then it was well. Was not [all] this [what it means] to know and recognize Me? says the Lord. 
 
 
 
@@ -364,7 +364,7 @@ He judged _and_ defended the cause of the poor and needy; then it was well. Was 
 
 
 
-But your eyes and your heart are only for your covetousness _and_ dishonest gain, for shedding innocent blood, for oppression and doing violence. 
+But your eyes and your heart are only for your covetousness and dishonest gain, for shedding innocent blood, for oppression and doing violence. 
 
 
 
@@ -385,7 +385,7 @@ But your eyes and your heart are only for your covetousness _and_ dishonest gain
 
 
 
-Therefore thus says the Lord concerning Jehoiakim son of Josiah king of Judah: [Relatives] shall not lament for him, saying, Ah, my brother! or, Ah, sister, [how great our loss! Subjects] shall not lament for him saying, Ah, lord! or Ah, his majesty! _or_ Ah, [how great was] his glory! 
+Therefore thus says the Lord concerning Jehoiakim son of Josiah king of Judah: [Relatives] shall not lament for him, saying, Ah, my brother! or, Ah, sister, [how great our loss! Subjects] shall not lament for him saying, Ah, lord! or Ah, his majesty! or Ah, [how great was] his glory! 
 
 
 
@@ -469,7 +469,7 @@ I spoke to you in your [times of] prosperity, but you said, I will not listen! T
 
 
 
-The wind [of adversity] shall pasture upon _and_ consume all your shepherds (your princes and statesmen), and your lovers (allies) shall go into captivity. Surely then shall you be ashamed and confounded _and_ dismayed because of all your wickedness. 
+The wind [of adversity] shall pasture upon and consume all your shepherds (your princes and statesmen), and your lovers (allies) shall go into captivity. Surely then shall you be ashamed and confounded and dismayed because of all your wickedness. 
 
 
 
@@ -490,7 +490,7 @@ The wind [of adversity] shall pasture upon _and_ consume all your shepherds (you
 
 
 
-O inhabitant of Lebanon [Jerusalem, whose palaces are made of Lebanon's trees], you who make your nest among the cedars, how you will groan _and_ how pitiable you will be when pangs come upon you, pain like that of a woman in childbirth! 
+O inhabitant of Lebanon [Jerusalem, whose palaces are made of Lebanon's trees], you who make your nest among the cedars, how you will groan and how pitiable you will be when pangs come upon you, pain like that of a woman in childbirth! 
 
 
 
@@ -595,7 +595,7 @@ But to the land to which they will yearn to return, there they will not return.
 
 
 
-Is this man [King] Coniah a despised, broken pot? Is he a vessel in which no one takes pleasure? Why are they hurled out, he and his royal offspring, and cast into a land which they do not know, understand, _or_ recognize? 
+Is this man [King] Coniah a despised, broken pot? Is he a vessel in which no one takes pleasure? Why are they hurled out, he and his royal offspring, and cast into a land which they do not know, understand, or recognize? 
 
 
 

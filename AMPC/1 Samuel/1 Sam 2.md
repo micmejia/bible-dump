@@ -28,7 +28,7 @@ next: ['1 Sam 3']
 
 
 
-Hannah prayed, and said, My heart exults _and_ triumphs in the Lord; my horn (my strength) is lifted up in the Lord. My mouth is no longer silent, for it is opened wide over my enemies, because I rejoice in Your salvation. 
+Hannah prayed, and said, My heart exults and triumphs in the Lord; my horn (my strength) is lifted up in the Lord. My mouth is no longer silent, for it is opened wide over my enemies, because I rejoice in Your salvation. 
 
 
 
@@ -112,7 +112,7 @@ The bows of the mighty are broken, and those who stumbled are girded with streng
 
 
 
-Those who were full have hired themselves out for bread, but those who were hungry have ceased to hunger. The barren has borne seven, but she who has many children languishes _and_ is forlorn. 
+Those who were full have hired themselves out for bread, but those who were hungry have ceased to hunger. The barren has borne seven, but she who has many children languishes and is forlorn. 
 
 
 
@@ -196,7 +196,7 @@ He raises up the poor out of the dust and lifts up the needy from the ash heap, 
 
 
 
-He will guard the feet of His godly ones, but the wicked shall be silenced _and_ perish in darkness; for by strength shall no man prevail. 
+He will guard the feet of His godly ones, but the wicked shall be silenced and perish in darkness; for by strength shall no man prevail. 
 
 
 
@@ -259,7 +259,7 @@ Elkanah and his wife Hannah returned to Ramah to his house. But the child minist
 
 
 
-The sons of Eli were base _and_ worthless; they did not know _or_ regard the Lord. 
+The sons of Eli were base and worthless; they did not know or regard the Lord. 
 
 
 
@@ -427,7 +427,7 @@ Moreover, his mother made him a little robe and brought it to him from year to y
 
 
 
-And Eli would bless Elkanah and his wife and say, May the Lord give you children by this woman for the gift she asked for _and_ gave to the Lord. Then they would go to their own home. 
+And Eli would bless Elkanah and his wife and say, May the Lord give you children by this woman for the gift she asked for and gave to the Lord. Then they would go to their own home. 
 
 
 

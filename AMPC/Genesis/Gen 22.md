@@ -28,7 +28,7 @@ next: ['Gen 23']
 
 
 
-After these events, God tested _and_ proved Abraham and said to him, Abraham! And he said, Here I am. 
+After these events, God tested and proved Abraham and said to him, Abraham! And he said, Here I am. 
 
 
 
@@ -112,7 +112,7 @@ On the third day Abraham looked up and saw the place in the distance.
 
 
 
-And Abraham said to his servants, Settle down _and_ stay here with the donkey, and I and the young man will go yonder and worship and come again to you. 
+And Abraham said to his servants, Settle down and stay here with the donkey, and I and the young man will go yonder and worship and come again to you. 
 
 
 
@@ -259,7 +259,7 @@ But the Angel of the Lord called to him from heaven and said, Abraham, Abraham! 
 
 
 
-And He said, Do not lay your hand on the lad or do anything to him; for now I know that you fear _and_ revere God, since you have not held back from Me _or_ begrudged giving Me your son, your only son. 
+And He said, Do not lay your hand on the lad or do anything to him; for now I know that you fear and revere God, since you have not held back from Me or begrudged giving Me your son, your only son. 
 
 
 
@@ -280,7 +280,7 @@ And He said, Do not lay your hand on the lad or do anything to him; for now I kn
 
 
 
-Then Abraham looked up _and_ glanced around, and behold, behind him was a ram caught in a thicket by his horns. And Abraham went and took the ram and offered it up for a burnt offering _and_ an ascending sacrifice instead of his son! 
+Then Abraham looked up and glanced around, and behold, behind him was a ram caught in a thicket by his horns. And Abraham went and took the ram and offered it up for a burnt offering and an ascending sacrifice instead of his son! 
 
 
 
@@ -343,7 +343,7 @@ The Angel of the Lord called to Abraham from heaven a second time
 
 
 
-And said, I have sworn by Myself, says the Lord, that since you have done this and have not withheld [from Me] _or_ begrudged [giving Me] your son, your only son, 
+And said, I have sworn by Myself, says the Lord, that since you have done this and have not withheld [from Me] or begrudged [giving Me] your son, your only son, 
 
 
 
@@ -385,7 +385,7 @@ In blessing I will bless you and in multiplying I will multiply your descendants
 
 
 
-And in your Seed [Christ] shall all the nations of the earth be blessed _and_ [by Him] bless themselves, because you have heard _and_ obeyed My voice. 
+And in your Seed [Christ] shall all the nations of the earth be blessed and [by Him] bless themselves, because you have heard and obeyed My voice. 
 
 
 

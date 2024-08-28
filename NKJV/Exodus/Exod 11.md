@@ -10,22 +10,22 @@ next: ['Exod 12']
 
 
 ###### 1 
-And the Lord said to Moses, "I will bring one more plague on Pharaoh and on Egypt. Afterward he will let you go from here. When he lets _you_ go, he will surely drive you out of here altogether. 
+And the Lord said to Moses, "I will bring one more plague on Pharaoh and on Egypt. Afterward he will let you go from here. When he lets you go, he will surely drive you out of here altogether. 
 
 ###### 2 
 Speak now in the hearing of the people, and let every man ask from his neighbor and every woman from her neighbor, articles of silver and articles of gold." 
 
 ###### 3 
-And the Lord gave the people favor in the sight of the Egyptians. Moreover the man Moses _was_ very great in the land of Egypt, in the sight of Pharaoh's servants and in the sight of the people. 
+And the Lord gave the people favor in the sight of the Egyptians. Moreover the man Moses was very great in the land of Egypt, in the sight of Pharaoh's servants and in the sight of the people. 
 
 ###### 4 
 Then Moses said, "Thus says the Lord: 'About midnight I will go out into the midst of Egypt; 
 
 ###### 5 
-and all the firstborn in the land of Egypt shall die, from the firstborn of Pharaoh who sits on his throne, even to the firstborn of the female servant who _is_ behind the handmill, and all the firstborn of the animals. 
+and all the firstborn in the land of Egypt shall die, from the firstborn of Pharaoh who sits on his throne, even to the firstborn of the female servant who is behind the handmill, and all the firstborn of the animals. 
 
 ###### 6 
-Then there shall be a great cry throughout all the land of Egypt, such as was not like it _before,_ nor shall be like it again. 
+Then there shall be a great cry throughout all the land of Egypt, such as was not like it before, nor shall be like it again. 
 
 ###### 7 
 But against none of the children of Israel shall a dog move its tongue, against man or beast, that you may know that the Lord does make a difference between the Egyptians and Israel.' 

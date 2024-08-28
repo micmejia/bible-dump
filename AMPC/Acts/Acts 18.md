@@ -91,7 +91,7 @@ And because he was of the same occupation, he stayed with them; and they worked 
 
 
 
-But he discoursed _and_ argued in the synagogue every Sabbath and won over [both] Jews and Greeks. 
+But he discoursed and argued in the synagogue every Sabbath and won over [both] Jews and Greeks. 
 
 
 
@@ -112,7 +112,7 @@ But he discoursed _and_ argued in the synagogue every Sabbath and won over [both
 
 
 
-By the time Silas and Timothy arrived from Macedonia, Paul was completely engrossed with preaching, earnestly arguing _and_ testifying to the Jews that Jesus [is] the Christ. 
+By the time Silas and Timothy arrived from Macedonia, Paul was completely engrossed with preaching, earnestly arguing and testifying to the Jews that Jesus [is] the Christ. 
 
 
 
@@ -133,7 +133,7 @@ By the time Silas and Timothy arrived from Macedonia, Paul was completely engros
 
 
 
-But since they kept opposing _and_ abusing _and_ reviling him, he shook out his clothing [against them] and said to them, Your blood be upon your [own] heads! I am innocent [of it]. From now on I will go to the Gentiles (the heathen). 
+But since they kept opposing and abusing and reviling him, he shook out his clothing [against them] and said to them, Your blood be upon your [own] heads! I am innocent [of it]. From now on I will go to the Gentiles (the heathen). 
 
 
 
@@ -280,7 +280,7 @@ But when Gallio was proconsul of Achaia (most of Greece), the Jews unitedly made
 
 
 
-Declaring, This fellow is advising _and_ inducing _and_ inciting people to worship God in violation of the Law [of Rome and of Moses]. 
+Declaring, This fellow is advising and inducing and inciting people to worship God in violation of the Law [of Rome and of Moses]. 
 
 
 
@@ -301,7 +301,7 @@ Declaring, This fellow is advising _and_ inducing _and_ inciting people to worsh
 
 
 
-But when Paul was about to open his mouth to reply, Gallio said to the Jews, If it were a matter of some misdemeanor or villainy, O Jews, I should have cause to bear with you _and_ listen; 
+But when Paul was about to open his mouth to reply, Gallio said to the Jews, If it were a matter of some misdemeanor or villainy, O Jews, I should have cause to bear with you and listen; 
 
 
 
@@ -322,7 +322,7 @@ But when Paul was about to open his mouth to reply, Gallio said to the Jews, If 
 
 
 
-But since it is merely a question [of doctrine] about words and names and your own law, see to it yourselves; I decline to be a judge of such matters _and_ I have no intention of trying such cases. 
+But since it is merely a question [of doctrine] about words and names and your own law, see to it yourselves; I decline to be a judge of such matters and I have no intention of trying such cases. 
 
 
 
@@ -406,7 +406,7 @@ Afterward Paul remained many days longer, and then told the brethren farewell an
 
 
 
-Then they arrived in Ephesus, and [Paul] left the others there; but he himself entered the synagogue and discoursed _and_ argued with the Jews. 
+Then they arrived in Ephesus, and [Paul] left the others there; but he himself entered the synagogue and discoursed and argued with the Jews. 
 
 
 
@@ -490,7 +490,7 @@ When he landed at Caesarea, he went up and saluted the church [at Jerusalem], an
 
 
 
-After staying there some time, he left and went from place to place in an orderly journey through the territory of Galatia and Phrygia, establishing the disciples _and_ imparting new strength to them. 
+After staying there some time, he left and went from place to place in an orderly journey through the territory of Galatia and Phrygia, establishing the disciples and imparting new strength to them. 
 
 
 
@@ -511,7 +511,7 @@ After staying there some time, he left and went from place to place in an orderl
 
 
 
-Meanwhile, there was a Jew named Apollos, a native of Alexandria, who came to Ephesus. He was a cultured _and_ eloquent man, well versed _and_ mighty in the Scriptures. 
+Meanwhile, there was a Jew named Apollos, a native of Alexandria, who came to Ephesus. He was a cultured and eloquent man, well versed and mighty in the Scriptures. 
 
 
 
@@ -532,7 +532,7 @@ Meanwhile, there was a Jew named Apollos, a native of Alexandria, who came to Ep
 
 
 
-He had been instructed in the way of the Lord, and burning with spiritual zeal, he spoke and taught diligently _and_ accurately the things concerning Jesus, though he was acquainted only with the baptism of John. 
+He had been instructed in the way of the Lord, and burning with spiritual zeal, he spoke and taught diligently and accurately the things concerning Jesus, though he was acquainted only with the baptism of John. 
 
 
 
@@ -553,7 +553,7 @@ He had been instructed in the way of the Lord, and burning with spiritual zeal, 
 
 
 
-He began to speak freely (fearlessly and boldly) in the synagogue; but when Priscilla and Aquila heard him, they took him with them and expounded to him the way of God more definitely _and_ accurately. 
+He began to speak freely (fearlessly and boldly) in the synagogue; but when Priscilla and Aquila heard him, they took him with them and expounded to him the way of God more definitely and accurately. 
 
 
 
@@ -574,7 +574,7 @@ He began to speak freely (fearlessly and boldly) in the synagogue; but when Pris
 
 
 
-And when [Apollos] wished to cross to Achaia (most of Greece), the brethren wrote to the disciples there, urging _and_ encouraging them to accept _and_ welcome him heartily. When he arrived, he proved a great help to those who through grace (God's unmerited favor and mercy) had believed (adhered to, trusted in, and relied on Christ as Lord and Savior). 
+And when [Apollos] wished to cross to Achaia (most of Greece), the brethren wrote to the disciples there, urging and encouraging them to accept and welcome him heartily. When he arrived, he proved a great help to those who through grace (God's unmerited favor and mercy) had believed (adhered to, trusted in, and relied on Christ as Lord and Savior). 
 
 
 
@@ -595,4 +595,4 @@ And when [Apollos] wished to cross to Achaia (most of Greece), the brethren wrot
 
 
 
-For with great power he refuted the Jews in public [discussions], showing _and_ proving by the Scriptures that Jesus is the Christ (the Messiah).
+For with great power he refuted the Jews in public [discussions], showing and proving by the Scriptures that Jesus is the Christ (the Messiah).

@@ -28,7 +28,7 @@ next: ['Acts 21']
 
 
 
-After the uproar had ceased, Paul sent for the disciples and warned _and_ consoled _and_ urged _and_ encouraged them; then he embraced them _and_ told them farewell and set forth on his journey to Macedonia. 
+After the uproar had ceased, Paul sent for the disciples and warned and consoled and urged and encouraged them; then he embraced them and told them farewell and set forth on his journey to Macedonia. 
 
 
 
@@ -49,7 +49,7 @@ After the uproar had ceased, Paul sent for the disciples and warned _and_ consol
 
 
 
-Then after he had gone through those districts and had warned _and_ consoled _and_ urged _and_ encouraged the brethren with much discourse, he came to Greece. 
+Then after he had gone through those districts and had warned and consoled and urged and encouraged the brethren with much discourse, he came to Greece. 
 
 
 
@@ -238,7 +238,7 @@ But Paul went down and bent over him and embraced him, saying, Make no ado; his 
 
 
 
-When Paul had gone back upstairs and had broken bread and eaten [with them], and after he had talked confidentially _and_ communed with them for a considerable time--until daybreak [in fact]--he departed. 
+When Paul had gone back upstairs and had broken bread and eaten [with them], and after he had talked confidentially and communed with them for a considerable time--until daybreak [in fact]--he departed. 
 
 
 
@@ -259,7 +259,7 @@ When Paul had gone back upstairs and had broken bread and eaten [with them], and
 
 
 
-They took the youth home alive, and were not a little comforted _and_ cheered _and_ refreshed _and_ encouraged. 
+They took the youth home alive, and were not a little comforted and cheered and refreshed and encouraged. 
 
 
 
@@ -448,7 +448,7 @@ How I did not shrink from telling you anything that was for your benefit and tea
 
 
 
-But constantly _and_ earnestly I bore testimony both to Jews and Greeks, urging them to turn in repentance [that is due] to God and to have faith in our Lord Jesus Christ [that is due Him]. 
+But constantly and earnestly I bore testimony both to Jews and Greeks, urging them to turn in repentance [that is due] to God and to have faith in our Lord Jesus Christ [that is due Him]. 
 
 
 
@@ -469,7 +469,7 @@ But constantly _and_ earnestly I bore testimony both to Jews and Greeks, urging 
 
 
 
-And now, you see, I am going to Jerusalem, bound by the [Holy] Spirit _and_ obligated _and_ compelled by the [convictions of my own] spirit, not knowing what will befall me there-- 
+And now, you see, I am going to Jerusalem, bound by the [Holy] Spirit and obligated and compelled by the [convictions of my own] spirit, not knowing what will befall me there-- 
 
 
 
@@ -490,7 +490,7 @@ And now, you see, I am going to Jerusalem, bound by the [Holy] Spirit _and_ obli
 
 
 
-Except that the Holy Spirit clearly _and_ emphatically affirms to me in city after city that imprisonment and suffering await me. 
+Except that the Holy Spirit clearly and emphatically affirms to me in city after city that imprisonment and suffering await me. 
 
 
 
@@ -511,7 +511,7 @@ Except that the Holy Spirit clearly _and_ emphatically affirms to me in city aft
 
 
 
-But _none of these things move me_; neither do I esteem my life dear to myself, if only I may finish my course _with joy_ and the ministry which I have obtained from [which was entrusted to me by] the Lord Jesus, faithfully to attest to the good news (Gospel) of God's grace (His unmerited favor, spiritual blessing, and mercy). 
+But none of these things move me; neither do I esteem my life dear to myself, if only I may finish my course with joy and the ministry which I have obtained from [which was entrusted to me by] the Lord Jesus, faithfully to attest to the good news (Gospel) of God's grace (His unmerited favor, spiritual blessing, and mercy). 
 
 
 
@@ -553,7 +553,7 @@ And now, observe, I perceive that all of you, among whom I have gone in and out 
 
 
 
-Therefore I testify _and_ protest to you on this [our parting] day that I am clean _and_ innocent _and_ not responsible for the blood of any of you. 
+Therefore I testify and protest to you on this [our parting] day that I am clean and innocent and not responsible for the blood of any of you. 
 
 
 
@@ -574,7 +574,7 @@ Therefore I testify _and_ protest to you on this [our parting] day that I am cle
 
 
 
-For I never shrank _or_ kept back _or_ fell short from declaring to you the whole purpose _and_ plan _and_ counsel of God. 
+For I never shrank or kept back or fell short from declaring to you the whole purpose and plan and counsel of God. 
 
 
 
@@ -595,7 +595,7 @@ For I never shrank _or_ kept back _or_ fell short from declaring to you the whol
 
 
 
-Take care _and_ be on guard for yourselves and the whole flock over which the Holy Spirit has appointed you bishops and guardians, to shepherd (tend and feed and guide) the church of the Lord _or_ _of God_ which He obtained for Himself [buying it and saving it for Himself] with His own blood. 
+Take care and be on guard for yourselves and the whole flock over which the Holy Spirit has appointed you bishops and guardians, to shepherd (tend and feed and guide) the church of the Lord or of God which He obtained for Himself [buying it and saving it for Himself] with His own blood. 
 
 
 
@@ -658,7 +658,7 @@ Even from among your own selves men will come to the front who, by saying perver
 
 
 
-Therefore be always alert _and_ on your guard, being mindful that for three years I never stopped night or day seriously to admonish _and_ advise _and_ exhort you one by one with tears. 
+Therefore be always alert and on your guard, being mindful that for three years I never stopped night or day seriously to admonish and advise and exhort you one by one with tears. 
 
 
 
@@ -784,7 +784,7 @@ Having spoken thus, he knelt down with them all and prayed.
 
 
 
-And they all wept freely and threw their arms around Paul's neck and kissed him fervently _and_ repeatedly, 
+And they all wept freely and threw their arms around Paul's neck and kissed him fervently and repeatedly, 
 
 
 
@@ -805,4 +805,4 @@ And they all wept freely and threw their arms around Paul's neck and kissed him 
 
 
 
-Being especially distressed _and_ sorrowful because he had stated that they were about to see his face no more. And they accompanied him to the ship.
+Being especially distressed and sorrowful because he had stated that they were about to see his face no more. And they accompanied him to the ship.

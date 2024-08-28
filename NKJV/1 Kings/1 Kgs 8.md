@@ -10,34 +10,34 @@ next: ['1 Kgs 9']
 
 
 ###### 1 
-Now Solomon assembled the elders of Israel and all the heads of the tribes, the chief fathers of the children of Israel, to King Solomon in Jerusalem, that they might bring up the ark of the covenant of the Lord from the City of David, which _is_ Zion. 
+Now Solomon assembled the elders of Israel and all the heads of the tribes, the chief fathers of the children of Israel, to King Solomon in Jerusalem, that they might bring up the ark of the covenant of the Lord from the City of David, which is Zion. 
 
 ###### 2 
-Therefore all the men of Israel assembled with King Solomon at the feast in the month of Ethanim, which _is_ the seventh month. 
+Therefore all the men of Israel assembled with King Solomon at the feast in the month of Ethanim, which is the seventh month. 
 
 ###### 3 
 So all the elders of Israel came, and the priests took up the ark. 
 
 ###### 4 
-Then they brought up the ark of the Lord, the tabernacle of meeting, and all the holy furnishings that _were_ in the tabernacle. The priests and the Levites brought them up. 
+Then they brought up the ark of the Lord, the tabernacle of meeting, and all the holy furnishings that were in the tabernacle. The priests and the Levites brought them up. 
 
 ###### 5 
-Also King Solomon, and all the congregation of Israel who were assembled with him, _were_ with him before the ark, sacrificing sheep and oxen that could not be counted or numbered for multitude. 
+Also King Solomon, and all the congregation of Israel who were assembled with him, were with him before the ark, sacrificing sheep and oxen that could not be counted or numbered for multitude. 
 
 ###### 6 
-Then the priests brought in the ark of the covenant of the Lord to its place, into the inner sanctuary of the temple, to the Most Holy _Place,_ under the wings of the cherubim. 
+Then the priests brought in the ark of the covenant of the Lord to its place, into the inner sanctuary of the temple, to the Most Holy Place, under the wings of the cherubim. 
 
 ###### 7 
-For the cherubim spread _their_ two wings over the place of the ark, and the cherubim overshadowed the ark and its poles. 
+For the cherubim spread their two wings over the place of the ark, and the cherubim overshadowed the ark and its poles. 
 
 ###### 8 
-The poles extended so that the ends of the poles could be seen from the holy _place,_ in front of the inner sanctuary; but they could not be seen from outside. And they are there to this day. 
+The poles extended so that the ends of the poles could be seen from the holy place, in front of the inner sanctuary; but they could not be seen from outside. And they are there to this day. 
 
 ###### 9 
-Nothing _was_ in the ark except the two tablets of stone which Moses put there at Horeb, when the Lord made _a covenant_ with the children of Israel, when they came out of the land of Egypt. 
+Nothing was in the ark except the two tablets of stone which Moses put there at Horeb, when the Lord made a covenant with the children of Israel, when they came out of the land of Egypt. 
 
 ###### 10 
-And it came to pass, when the priests came out of the holy _place,_ that the cloud filled the house of the Lord, 
+And it came to pass, when the priests came out of the holy place, that the cloud filled the house of the Lord, 
 
 ###### 11 
 so that the priests could not continue ministering because of the cloud; for the glory of the Lord filled the house of the Lord. 
@@ -54,10 +54,10 @@ I have surely built You an exalted house, And a place for You to dwell in foreve
 Then the king turned around and blessed the whole assembly of Israel, while all the assembly of Israel was standing. 
 
 ###### 15 
-And he said: "Blessed _be_ the Lord God of Israel, who spoke with His mouth to my father David, and with His hand has fulfilled _it,_ saying, 
+And he said: "Blessed be the Lord God of Israel, who spoke with His mouth to my father David, and with His hand has fulfilled it, saying, 
 
 ###### 16 
-'Since the day that I brought My people Israel out of Egypt, I have chosen no city from any tribe of Israel _in which_ to build a house, that My name might be there; but I chose David to be over My people Israel.' 
+'Since the day that I brought My people Israel out of Egypt, I have chosen no city from any tribe of Israel in which to build a house, that My name might be there; but I chose David to be over My people Israel.' 
 
 ###### 17 
 Now it was in the heart of my father David to build a temple for the name of the Lord God of Israel. 
@@ -72,7 +72,7 @@ Nevertheless you shall not build the temple, but your son who will come from you
 So the Lord has fulfilled His word which He spoke; and I have filled the position of my father David, and sit on the throne of Israel, as the Lord promised; and I have built a temple for the name of the Lord God of Israel. 
 
 ###### 21 
-And there I have made a place for the ark, in which _is_ the covenant of the Lord which He made with our fathers, when He brought them out of the land of Egypt." 
+And there I have made a place for the ark, in which is the covenant of the Lord which He made with our fathers, when He brought them out of the land of Egypt." 
 
 ## Solomon's Prayer of Dedication 
 
@@ -80,10 +80,10 @@ And there I have made a place for the ark, in which _is_ the covenant of the Lor
 Then Solomon stood before the altar of the Lord in the presence of all the assembly of Israel, and spread out his hands toward heaven; 
 
 ###### 23 
-and he said: "Lord God of Israel, _there is_ no God in heaven above or on earth below like You, who keep _Your_ covenant and mercy with Your servants who walk before You with all their hearts. 
+and he said: "Lord God of Israel, there is no God in heaven above or on earth below like You, who keep Your covenant and mercy with Your servants who walk before You with all their hearts. 
 
 ###### 24 
-You have kept what You promised Your servant David my father; You have both spoken with Your mouth and fulfilled _it_ with Your hand, as _it is_ this day. 
+You have kept what You promised Your servant David my father; You have both spoken with Your mouth and fulfilled it with Your hand, as it is this day. 
 
 ###### 25 
 Therefore, Lord God of Israel, now keep what You promised Your servant David my father, saying, 'You shall not fail to have a man sit before Me on the throne of Israel, only if your sons take heed to their way, that they walk before Me as you have walked before Me.' 
@@ -104,7 +104,7 @@ that Your eyes may be open toward this temple night and day, toward the place of
 And may You hear the supplication of Your servant and of Your people Israel, when they pray toward this place. Hear in heaven Your dwelling place; and when You hear, forgive. 
 
 ###### 31 
-"When anyone sins against his neighbor, and is forced to take an oath, and comes _and_ takes an oath before Your altar in this temple, 
+"When anyone sins against his neighbor, and is forced to take an oath, and comes and takes an oath before Your altar in this temple, 
 
 ###### 32 
 then hear in heaven, and act, and judge Your servants, condemning the wicked, bringing his way on his head, and justifying the righteous by giving him according to his righteousness. 
@@ -122,10 +122,10 @@ then hear in heaven, and forgive the sin of Your people Israel, and bring them b
 then hear in heaven, and forgive the sin of Your servants, Your people Israel, that You may teach them the good way in which they should walk; and send rain on Your land which You have given to Your people as an inheritance. 
 
 ###### 37 
-"When there is famine in the land, pestilence _or_ blight _or_ mildew, locusts _or_ grasshoppers; when their enemy besieges them in the land of their cities; whatever plague or whatever sickness _there is;_ 
+"When there is famine in the land, pestilence or blight or mildew, locusts or grasshoppers; when their enemy besieges them in the land of their cities; whatever plague or whatever sickness there is; 
 
 ###### 38 
-whatever prayer, whatever supplication is made by anyone, _or_ by all Your people Israel, when each one knows the plague of his own heart, and spreads out his hands toward this temple: 
+whatever prayer, whatever supplication is made by anyone, or by all Your people Israel, when each one knows the plague of his own heart, and spreads out his hands toward this temple: 
 
 ###### 39 
 then hear in heaven Your dwelling place, and forgive, and act, and give to everyone according to all his ways, whose heart You know (for You alone know the hearts of all the sons of men), 
@@ -134,13 +134,13 @@ then hear in heaven Your dwelling place, and forgive, and act, and give to every
 that they may fear You all the days that they live in the land which You gave to our fathers. 
 
 ###### 41 
-"Moreover, concerning a foreigner, who _is_ not of Your people Israel, but has come from a far country for Your name's sake 
+"Moreover, concerning a foreigner, who is not of Your people Israel, but has come from a far country for Your name's sake 
 
 ###### 42 
 (for they will hear of Your great name and Your strong hand and Your outstretched arm), when he comes and prays toward this temple, 
 
 ###### 43 
-hear in heaven Your dwelling place, and do according to all for which the foreigner calls to You, that all peoples of the earth may know Your name and fear You, as _do_ Your people Israel, and that they may know that this temple which I have built is called by Your name. 
+hear in heaven Your dwelling place, and do according to all for which the foreigner calls to You, that all peoples of the earth may know Your name and fear You, as do Your people Israel, and that they may know that this temple which I have built is called by Your name. 
 
 ###### 44 
 "When Your people go out to battle against their enemy, wherever You send them, and when they pray to the Lord toward the city which You have chosen and the temple which I have built for Your name, 
@@ -149,13 +149,13 @@ hear in heaven Your dwelling place, and do according to all for which the foreig
 then hear in heaven their prayer and their supplication, and maintain their cause. 
 
 ###### 46 
-"When they sin against You (for _there is_ no one who does not sin), and You become angry with them and deliver them to the enemy, and they take them captive to the land of the enemy, far or near; 
+"When they sin against You (for there is no one who does not sin), and You become angry with them and deliver them to the enemy, and they take them captive to the land of the enemy, far or near; 
 
 ###### 47 
-_yet_ when they come to themselves in the land where they were carried captive, and repent, and make supplication to You in the land of those who took them captive, saying, 'We have sinned and done wrong, we have committed wickedness'; 
+yet when they come to themselves in the land where they were carried captive, and repent, and make supplication to You in the land of those who took them captive, saying, 'We have sinned and done wrong, we have committed wickedness'; 
 
 ###### 48 
-and _when_ they return to You with all their heart and with all their soul in the land of their enemies who led them away captive, and pray to You toward their land which You gave to their fathers, the city which You have chosen and the temple which I have built for Your name: 
+and when they return to You with all their heart and with all their soul in the land of their enemies who led them away captive, and pray to You toward their land which You gave to their fathers, the city which You have chosen and the temple which I have built for Your name: 
 
 ###### 49 
 then hear in heaven Your dwelling place their prayer and their supplication, and maintain their cause, 
@@ -164,13 +164,13 @@ then hear in heaven Your dwelling place their prayer and their supplication, and
 and forgive Your people who have sinned against You, and all their transgressions which they have transgressed against You; and grant them compassion before those who took them captive, that they may have compassion on them 
 
 ###### 51 
-(for they _are_ Your people and Your inheritance, whom You brought out of Egypt, out of the iron furnace), 
+(for they are Your people and Your inheritance, whom You brought out of Egypt, out of the iron furnace), 
 
 ###### 52 
 that Your eyes may be open to the supplication of Your servant and the supplication of Your people Israel, to listen to them whenever they call to You. 
 
 ###### 53 
-For You separated them from among all the peoples of the earth _to be_ Your inheritance, as You spoke by Your servant Moses, when You brought our fathers out of Egypt, O Lord God." 
+For You separated them from among all the peoples of the earth to be Your inheritance, as You spoke by Your servant Moses, when You brought our fathers out of Egypt, O Lord God." 
 
 ## Solomon Blesses the Assembly 
 
@@ -181,7 +181,7 @@ And so it was, when Solomon had finished praying all this prayer and supplicatio
 Then he stood and blessed all the assembly of Israel with a loud voice, saying: 
 
 ###### 56 
-"Blessed _be_ the Lord, who has given rest to His people Israel, according to all that He promised. There has not failed one word of all His good promise, which He promised through His servant Moses. 
+"Blessed be the Lord, who has given rest to His people Israel, according to all that He promised. There has not failed one word of all His good promise, which He promised through His servant Moses. 
 
 ###### 57 
 May the Lord our God be with us, as He was with our fathers. May He not leave us nor forsake us, 
@@ -193,7 +193,7 @@ that He may incline our hearts to Himself, to walk in all His ways, and to keep 
 And may these words of mine, with which I have made supplication before the Lord, be near the Lord our God day and night, that He may maintain the cause of His servant and the cause of His people Israel, as each day may require, 
 
 ###### 60 
-that all the peoples of the earth may know that the Lord _is_ God; _there is_ no other. 
+that all the peoples of the earth may know that the Lord is God; there is no other. 
 
 ###### 61 
 Let your heart therefore be loyal to the Lord our God, to walk in His statutes and keep His commandments, as at this day." 
@@ -207,10 +207,10 @@ Then the king and all Israel with him offered sacrifices before the Lord.
 And Solomon offered a sacrifice of peace offerings, which he offered to the Lord, twenty-two thousand bulls and one hundred and twenty thousand sheep. So the king and all the children of Israel dedicated the house of the Lord. 
 
 ###### 64 
-On the same day the king consecrated the middle of the court that _was_ in front of the house of the Lord; for there he offered burnt offerings, grain offerings, and the fat of the peace offerings, because the bronze altar that _was_ before the Lord _was_ too small to receive the burnt offerings, the grain offerings, and the fat of the peace offerings. 
+On the same day the king consecrated the middle of the court that was in front of the house of the Lord; for there he offered burnt offerings, grain offerings, and the fat of the peace offerings, because the bronze altar that was before the Lord was too small to receive the burnt offerings, the grain offerings, and the fat of the peace offerings. 
 
 ###### 65 
-At that time Solomon held a feast, and all Israel with him, a great assembly from the entrance of Hamath to the Brook of Egypt, before the Lord our God, seven days and seven _more_ days--fourteen days. 
+At that time Solomon held a feast, and all Israel with him, a great assembly from the entrance of Hamath to the Brook of Egypt, before the Lord our God, seven days and seven more days--fourteen days. 
 
 ###### 66 
 On the eighth day he sent the people away; and they blessed the king, and went to their tents joyful and glad of heart for all the good that the Lord had done for His servant David, and for Israel His people.

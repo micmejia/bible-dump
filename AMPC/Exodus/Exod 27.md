@@ -175,7 +175,7 @@ The poles shall be put through the rings on the two sides of the altar, with whi
 
 
 
-You shall make [the altar] hollow with slabs _or_ planks; as shown you on the mountain, so shall it be made. 
+You shall make [the altar] hollow with slabs or planks; as shown you on the mountain, so shall it be made. 
 
 
 
@@ -406,7 +406,7 @@ The length of the court shall be a hundred cubits and the breadth fifty and the 
 
 
 
-All the tabernacle's utensils _and_ instruments used in all its service, and all its pegs and all the pegs for the court, shall be of bronze. 
+All the tabernacle's utensils and instruments used in all its service, and all its pegs and all the pegs for the court, shall be of bronze. 
 
 
 

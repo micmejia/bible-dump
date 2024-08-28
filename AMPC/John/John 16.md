@@ -49,7 +49,7 @@ I have told you all these things, so that you should not be offended (taken unaw
 
 
 
-They will put you out of (expel you from) the synagogues; but an hour is coming when whoever kills you will think _and_ claim that he has offered service to God. 
+They will put you out of (expel you from) the synagogues; but an hour is coming when whoever kills you will think and claim that he has offered service to God. 
 
 
 
@@ -175,7 +175,7 @@ However, I am telling you nothing but the truth when I say it is profitable (goo
 
 
 
-And when He comes, He will convict _and_ convince the world _and_ bring demonstration to it about sin and about righteousness (uprightness of heart and right standing with God) and about judgment: 
+And when He comes, He will convict and convince the world and bring demonstration to it about sin and about righteousness (uprightness of heart and right standing with God) and about judgment: 
 
 
 
@@ -238,7 +238,7 @@ About righteousness (uprightness of heart and right standing with God), because 
 
 
 
-About judgment, because the ruler (evil genius, prince) of this world [Satan] is judged _and_ condemned _and_ sentence already is passed upon him. 
+About judgment, because the ruler (evil genius, prince) of this world [Satan] is judged and condemned and sentence already is passed upon him. 
 
 
 
@@ -259,7 +259,7 @@ About judgment, because the ruler (evil genius, prince) of this world [Satan] is
 
 
 
-I have still many things to say to you, but you are not able to bear them _or_ to take them upon you _or_ to grasp them now. 
+I have still many things to say to you, but you are not able to bear them or to take them upon you or to grasp them now. 
 
 
 
@@ -280,7 +280,7 @@ I have still many things to say to you, but you are not able to bear them _or_ t
 
 
 
-But when He, the Spirit of Truth (the Truth-giving Spirit) comes, He will guide you into all the Truth (the whole, full Truth). For He will not speak His own message [on His own authority]; but He will tell whatever He hears [from the Father; He will give the message that has been given to Him], and He will announce _and_ declare to you the things that are to come [that will happen in the future]. 
+But when He, the Spirit of Truth (the Truth-giving Spirit) comes, He will guide you into all the Truth (the whole, full Truth). For He will not speak His own message [on His own authority]; but He will tell whatever He hears [from the Father; He will give the message that has been given to Him], and He will announce and declare to you the things that are to come [that will happen in the future]. 
 
 
 
@@ -301,7 +301,7 @@ But when He, the Spirit of Truth (the Truth-giving Spirit) comes, He will guide 
 
 
 
-He will honor _and_ glorify Me, because He will take of (receive, draw upon) what is Mine and will reveal (declare, disclose, transmit) it to you. 
+He will honor and glorify Me, because He will take of (receive, draw upon) what is Mine and will reveal (declare, disclose, transmit) it to you. 
 
 
 
@@ -385,7 +385,7 @@ So some of His disciples questioned among themselves, What does He mean when He 
 
 
 
-What does He mean by a little while? We do not know _or_ understand what He is talking about. 
+What does He mean by a little while? We do not know or understand what He is talking about. 
 
 
 
@@ -406,7 +406,7 @@ What does He mean by a little while? We do not know _or_ understand what He is t
 
 
 
-Jesus knew that they wanted to ask Him, so He said to them, Are you wondering _and_ inquiring among yourselves what I meant when I said, In a little while you will no longer see Me, and again after a short while you will see Me? 
+Jesus knew that they wanted to ask Him, so He said to them, Are you wondering and inquiring among yourselves what I meant when I said, In a little while you will no longer see Me, and again after a short while you will see Me? 
 
 
 
@@ -511,7 +511,7 @@ And when that time comes, you will ask nothing of Me [you will need to ask Me no
 
 
 
-Up to this time you have not asked a [single] thing in My Name [as presenting all that I Am]; but now ask _and_ keep on asking and you will receive, so that your joy (gladness, delight) may be full _and_ complete. 
+Up to this time you have not asked a [single] thing in My Name [as presenting all that I Am]; but now ask and keep on asking and you will receive, so that your joy (gladness, delight) may be full and complete. 
 
 
 
@@ -532,7 +532,7 @@ Up to this time you have not asked a [single] thing in My Name [as presenting al
 
 
 
-I have told you these things in parables (veiled language, allegories, dark sayings); the hour is now coming when I shall no longer speak to you in figures of speech, but I shall tell you about the Father in plain words _and_ openly (without reserve). 
+I have told you these things in parables (veiled language, allegories, dark sayings); the hour is now coming when I shall no longer speak to you in figures of speech, but I shall tell you about the Father in plain words and openly (without reserve). 
 
 
 
@@ -679,7 +679,7 @@ Jesus answered them, Do you now believe? [Do you believe it at last?]
 
 
 
-But take notice, the hour is coming, and it has arrived, when you will all be dispersed _and_ scattered, every man to his own home, leaving Me alone. Yet I am not alone, because the Father is with Me. 
+But take notice, the hour is coming, and it has arrived, when you will all be dispersed and scattered, every man to his own home, leaving Me alone. Yet I am not alone, because the Father is with Me. 
 
 
 
@@ -700,4 +700,4 @@ But take notice, the hour is coming, and it has arrived, when you will all be di
 
 
 
-I have told you these things, so that in Me you may have [perfect] peace _and_ confidence. In the world you have tribulation _and_ trials _and_ distress _and_ frustration; but be of good cheer [take courage; be confident, certain, undaunted]! For I have overcome the world. [I have deprived it of power to harm you and have conquered it for you.]
+I have told you these things, so that in Me you may have [perfect] peace and confidence. In the world you have tribulation and trials and distress and frustration; but be of good cheer [take courage; be confident, certain, undaunted]! For I have overcome the world. [I have deprived it of power to harm you and have conquered it for you.]

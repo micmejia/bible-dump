@@ -133,7 +133,7 @@ And to the others He said in my hearing, Follow [the man with the ink bottle] th
 
 
 
-Slay outright the elderly, the young man and the virgin, the infant and the women; but do not touch _or_ go near anyone on whom is the mark. Begin at My sanctuary. So they began with the old men who were in front of the temple [who did not have the Lord's mark on their foreheads]. 
+Slay outright the elderly, the young man and the virgin, the infant and the women; but do not touch or go near anyone on whom is the mark. Begin at My sanctuary. So they began with the old men who were in front of the temple [who did not have the Lord's mark on their foreheads]. 
 
 
 
@@ -175,7 +175,7 @@ And He said to [the executioners], Defile the temple and fill its courts with th
 
 
 
-And while they were slaying them and I was left, I fell upon my face and cried, Ah, Lord God! Will You destroy all that is left of Israel in Your pouring out of Your wrath _and_ indignation upon Jerusalem? 
+And while they were slaying them and I was left, I fell upon my face and cried, Ah, Lord God! Will You destroy all that is left of Israel in Your pouring out of Your wrath and indignation upon Jerusalem? 
 
 
 
@@ -196,7 +196,7 @@ And while they were slaying them and I was left, I fell upon my face and cried, 
 
 
 
-Then said He to me, The iniquity _and_ guilt of the house of Israel and Judah are exceedingly great; the land is full of blood and the city full of injustice _and_ perverseness; for they say, The Lord has forsaken the land; the Lord does not see [what we are doing]. 
+Then said He to me, The iniquity and guilt of the house of Israel and Judah are exceedingly great; the land is full of blood and the city full of injustice and perverseness; for they say, The Lord has forsaken the land; the Lord does not see [what we are doing]. 
 
 
 

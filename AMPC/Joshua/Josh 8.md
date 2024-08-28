@@ -280,7 +280,7 @@ And he took about five thousand men and set them in ambush between Bethel and Ai
 
 
 
-So they stationed all the army--the main encampment that was north of the city and their men in ambush behind _and_ on the west of the city--and Joshua went that night into the midst of the ravine. 
+So they stationed all the army--the main encampment that was north of the city and their men in ambush behind and on the west of the city--and Joshua went that night into the midst of the ravine. 
 
 
 

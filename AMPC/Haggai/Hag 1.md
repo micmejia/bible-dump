@@ -111,7 +111,7 @@ Is it time for you yourselves to dwell in your paneled houses while this house [
 
 
 
-Now therefore thus says the Lord of hosts: Consider your ways _and_ set your mind on what has come to you. 
+Now therefore thus says the Lord of hosts: Consider your ways and set your mind on what has come to you. 
 
 
 
@@ -153,7 +153,7 @@ You have sown much, but you have reaped little; you eat, but you do not have eno
 
 
 
-Thus says the Lord of hosts: Consider your ways (your previous and present conduct) _and_ how you have fared. 
+Thus says the Lord of hosts: Consider your ways (your previous and present conduct) and how you have fared. 
 
 
 
@@ -258,7 +258,7 @@ And I have called for a drought upon the land and the hill country, upon the gra
 
 
 
-Then Zerubbabel son of Shealtiel and Joshua son of Jehozadak, the high priest, with all the remnant of the people [who had returned from captivity], listened to _and_ obeyed the voice of the Lord their God [not vaguely or partly, but completely, according to] the words of Haggai the prophet, since the Lord their God had sent him, and the people [reverently] feared _and_ [worshipfully] turned to the Lord. 
+Then Zerubbabel son of Shealtiel and Joshua son of Jehozadak, the high priest, with all the remnant of the people [who had returned from captivity], listened to and obeyed the voice of the Lord their God [not vaguely or partly, but completely, according to] the words of Haggai the prophet, since the Lord their God had sent him, and the people [reverently] feared and [worshipfully] turned to the Lord. 
 
 
 

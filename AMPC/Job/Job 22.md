@@ -70,7 +70,7 @@ Can a man be profitable to God? Surely he that is wise is profitable to himself.
 
 
 
-Is it any pleasure _or_ advantage to the Almighty that you are righteous (upright and in right standing with Him)? Or is it gain to Him that you make your ways perfect? 
+Is it any pleasure or advantage to the Almighty that you are righteous (upright and in right standing with Him)? Or is it gain to Him that you make your ways perfect? 
 
 
 
@@ -175,7 +175,7 @@ You have not given water to the weary to drink, and you have withheld bread from
 
 
 
-But [you, Job] the man with power possessed the land, and the favored _and_ accepted man dwelt in it. 
+But [you, Job] the man with power possessed the land, and the favored and accepted man dwelt in it. 
 
 
 
@@ -217,7 +217,7 @@ You have sent widows away empty-handed, and the arms of the fatherless have been
 
 
 
-Therefore snares are round about you, and sudden fear troubles _and_ overwhelms you; 
+Therefore snares are round about you, and sudden fear troubles and overwhelms you; 
 
 
 
@@ -280,7 +280,7 @@ Is not God in the height of heaven? And behold the height of the stars, how high
 
 
 
-Therefore you say, How _and_ what does God know [about me]? Can He judge through the thick darkness? 
+Therefore you say, How and what does God know [about me]? Can He judge through the thick darkness? 
 
 
 
@@ -322,7 +322,7 @@ Thick clouds are a covering to Him, so that He does not see, and He walks on the
 
 
 
-Will you pay attention _and_ keep to the old way that wicked men trod [in Noah's time], 
+Will you pay attention and keep to the old way that wicked men trod [in Noah's time], 
 
 
 
@@ -364,7 +364,7 @@ Men who were snatched away before their time, whose foundations were poured out 
 
 
 
-They said to God, Depart from us, and, What can the Almighty do for _or_ to us? 
+They said to God, Depart from us, and, What can the Almighty do for or to us? 
 
 
 
@@ -469,7 +469,7 @@ Acquaint now yourself with Him [agree with God and show yourself to be conformed
 
 
 
-Receive, I pray you, the law _and_ instruction from His mouth and lay up His words in your heart. 
+Receive, I pray you, the law and instruction from His mouth and lay up His words in your heart. 
 
 
 
@@ -595,7 +595,7 @@ You will make your prayer to Him, and He will hear you, and you will pay your vo
 
 
 
-You shall also decide _and_ decree a thing, and it shall be established for you; and the light [of God's favor] shall shine upon your ways. 
+You shall also decide and decree a thing, and it shall be established for you; and the light [of God's favor] shall shine upon your ways. 
 
 
 
@@ -616,7 +616,7 @@ You shall also decide _and_ decree a thing, and it shall be established for you;
 
 
 
-When they make [you] low, you will say, [There is] a lifting up; and the humble person He lifts up _and_ saves. 
+When they make [you] low, you will say, [There is] a lifting up; and the humble person He lifts up and saves. 
 
 
 

@@ -574,7 +574,7 @@ If you ever take your neighbor's garment in pledge, you shall give it back to hi
 
 
 
-For that is his only covering, his clothing for his body. In what shall he sleep? When he cries to Me, I will hear, for I am gracious _and_ merciful. 
+For that is his only covering, his clothing for his body. In what shall he sleep? When he cries to Me, I will hear, for I am gracious and merciful. 
 
 
 
@@ -595,7 +595,7 @@ For that is his only covering, his clothing for his body. In what shall he sleep
 
 
 
-You shall not revile God [the judges as His agents] or esteem lightly _or_ curse a ruler of your people. 
+You shall not revile God [the judges as His agents] or esteem lightly or curse a ruler of your people. 
 
 
 
@@ -616,7 +616,7 @@ You shall not revile God [the judges as His agents] or esteem lightly _or_ curse
 
 
 
-You shall not delay to bring to Me from the fullness [of your harvested grain] and the outflow [of your grape juice _and_ olive oil]; give Me the firstborn of your sons [or redeem them]. 
+You shall not delay to bring to Me from the fullness [of your harvested grain] and the outflow [of your grape juice and olive oil]; give Me the firstborn of your sons [or redeem them]. 
 
 
 
@@ -637,7 +637,7 @@ You shall not delay to bring to Me from the fullness [of your harvested grain] a
 
 
 
-Likewise shall you do with your oxen _and_ your sheep. Seven days the firstborn [beast] shall be with its mother; on the eighth day you shall give it to Me. 
+Likewise shall you do with your oxen and your sheep. Seven days the firstborn [beast] shall be with its mother; on the eighth day you shall give it to Me. 
 
 
 

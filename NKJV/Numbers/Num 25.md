@@ -25,10 +25,10 @@ Then the Lord said to Moses, "Take all the leaders of the people and hang the of
 So Moses said to the judges of Israel, "Every one of you kill his men who were joined to Baal of Peor." 
 
 ###### 6 
-And indeed, one of the children of Israel came and presented to his brethren a Midianite woman in the sight of Moses and in the sight of all the congregation of the children of Israel, who _were_ weeping at the door of the tabernacle of meeting. 
+And indeed, one of the children of Israel came and presented to his brethren a Midianite woman in the sight of Moses and in the sight of all the congregation of the children of Israel, who were weeping at the door of the tabernacle of meeting. 
 
 ###### 7 
-Now when Phinehas the son of Eleazar, the son of Aaron the priest, saw _it,_ he rose from among the congregation and took a javelin in his hand; 
+Now when Phinehas the son of Eleazar, the son of Aaron the priest, saw it, he rose from among the congregation and took a javelin in his hand; 
 
 ###### 8 
 and he went after the man of Israel into the tent and thrust both of them through, the man of Israel, and the woman through her body. So the plague was stopped among the children of Israel. 
@@ -49,10 +49,10 @@ Therefore say, 'Behold, I give to him My covenant of peace;
 and it shall be to him and his descendants after him a covenant of an everlasting priesthood, because he was zealous for his God, and made atonement for the children of Israel.' " 
 
 ###### 14 
-Now the name of the Israelite who was killed, who was killed with the Midianite woman, _was_ Zimri the son of Salu, a leader of a father's house among the Simeonites. 
+Now the name of the Israelite who was killed, who was killed with the Midianite woman, was Zimri the son of Salu, a leader of a father's house among the Simeonites. 
 
 ###### 15 
-And the name of the Midianite woman who was killed _was_ Cozbi the daughter of Zur; he _was_ head of the people of a father's house in Midian. 
+And the name of the Midianite woman who was killed was Cozbi the daughter of Zur; he was head of the people of a father's house in Midian. 
 
 ###### 16 
 Then the Lord spoke to Moses, saying: 

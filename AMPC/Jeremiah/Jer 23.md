@@ -49,7 +49,7 @@ Woe to the shepherds (the civil leaders) who destroy and scatter the sheep of My
 
 
 
-Therefore thus says the Lord, the God of Israel, concerning the shepherds who care for _and_ feed My people: You have scattered My flock and driven them away and have not visited _and_ attended to them; behold, I will visit _and_ attend to you for the evil of your doings, says the Lord. 
+Therefore thus says the Lord, the God of Israel, concerning the shepherds who care for and feed My people: You have scattered My flock and driven them away and have not visited and attended to them; behold, I will visit and attend to you for the evil of your doings, says the Lord. 
 
 
 
@@ -70,7 +70,7 @@ Therefore thus says the Lord, the God of Israel, concerning the shepherds who ca
 
 
 
-And I will gather the remnant of My flock out of all the countries to which I have driven them and will bring them again to their folds _and_ pastures; and they will be fruitful and multiply. 
+And I will gather the remnant of My flock out of all the countries to which I have driven them and will bring them again to their folds and pastures; and they will be fruitful and multiply. 
 
 
 
@@ -91,7 +91,7 @@ And I will gather the remnant of My flock out of all the countries to which I ha
 
 
 
-And I will set up shepherds over them who will feed them. And they will fear no more nor be dismayed, neither will any be missing _or_ lost, says the Lord. 
+And I will set up shepherds over them who will feed them. And they will fear no more nor be dismayed, neither will any be missing or lost, says the Lord. 
 
 
 
@@ -217,7 +217,7 @@ Concerning the prophets: My heart [says Jeremiah] is broken within me, all my bo
 
 
 
-For the land is full of adulterers (forsakers of God, Israel's true Husband). Because of the curse [of God upon it] the land mourns, the pastures of the wilderness are dried up. They [both false prophets and people] rush into wickedness; _and_ their course is evil, their might is not right. 
+For the land is full of adulterers (forsakers of God, Israel's true Husband). Because of the curse [of God upon it] the land mourns, the pastures of the wilderness are dried up. They [both false prophets and people] rush into wickedness; and their course is evil, their might is not right. 
 
 
 
@@ -238,7 +238,7 @@ For the land is full of adulterers (forsakers of God, Israel's true Husband). Be
 
 
 
-For both [false] prophet and priest are ungodly _and_ profane; even in My house have I found their wickedness, says the Lord. 
+For both [false] prophet and priest are ungodly and profane; even in My house have I found their wickedness, says the Lord. 
 
 
 
@@ -280,7 +280,7 @@ Therefore their way will be to them like slippery paths in the dark; they will b
 
 
 
-And I have seen folly in the prophets of Samaria: they prophesied by Baal and caused My people Israel to err _and_ go astray. 
+And I have seen folly in the prophets of Samaria: they prophesied by Baal and caused My people Israel to err and go astray. 
 
 
 
@@ -301,7 +301,7 @@ And I have seen folly in the prophets of Samaria: they prophesied by Baal and ca
 
 
 
-I have seen also in the prophets of Jerusalem a horrible thing: they commit adultery and walk in lies; they encourage _and_ strengthen the hands of evildoers, so that none returns from his wickedness. They have all of them become to Me like Sodom, and her inhabitants like Gomorrah. 
+I have seen also in the prophets of Jerusalem a horrible thing: they commit adultery and walk in lies; they encourage and strengthen the hands of evildoers, so that none returns from his wickedness. They have all of them become to Me like Sodom, and her inhabitants like Gomorrah. 
 
 
 
@@ -322,7 +322,7 @@ I have seen also in the prophets of Jerusalem a horrible thing: they commit adul
 
 
 
-Therefore thus says the Lord of hosts concerning the prophets: Behold, I will feed them with [the bitterness of] wormwood and make them drink the [poisonous] water of gall, for from the [false] prophets of Jerusalem profaneness _and_ ungodliness have gone forth into all the land. 
+Therefore thus says the Lord of hosts concerning the prophets: Behold, I will feed them with [the bitterness of] wormwood and make them drink the [poisonous] water of gall, for from the [false] prophets of Jerusalem profaneness and ungodliness have gone forth into all the land. 
 
 
 
@@ -343,7 +343,7 @@ Therefore thus says the Lord of hosts concerning the prophets: Behold, I will fe
 
 
 
-Thus says the Lord of hosts: Do not listen to the words of the [false] prophets who prophesy to you. They teach you vanity (emptiness, falsity, and futility) _and_ fill you with vain hopes; they speak a vision of their own minds and not from the mouth of the Lord. 
+Thus says the Lord of hosts: Do not listen to the words of the [false] prophets who prophesy to you. They teach you vanity (emptiness, falsity, and futility) and fill you with vain hopes; they speak a vision of their own minds and not from the mouth of the Lord. 
 
 
 
@@ -364,7 +364,7 @@ Thus says the Lord of hosts: Do not listen to the words of the [false] prophets 
 
 
 
-They are continually saying to those who despise Me _and_ the word of the Lord, The Lord has said: You shall have peace; and they say to everyone who walks after the stubbornness of his own mind _and_ heart, No evil shall come upon you. 
+They are continually saying to those who despise Me and the word of the Lord, The Lord has said: You shall have peace; and they say to everyone who walks after the stubbornness of his own mind and heart, No evil shall come upon you. 
 
 
 
@@ -406,7 +406,7 @@ For who among them has stood in the council of the Lord, that he should perceive
 
 
 
-Behold, the tempest of the Lord has gone forth in wrath, a whirling tempest; it shall whirl _and_ burst upon the heads of the wicked. 
+Behold, the tempest of the Lord has gone forth in wrath, a whirling tempest; it shall whirl and burst upon the heads of the wicked. 
 
 
 
@@ -427,7 +427,7 @@ Behold, the tempest of the Lord has gone forth in wrath, a whirling tempest; it 
 
 
 
-The anger of the Lord shall not turn back until He has executed _and_ accomplished the thoughts _and_ intents of His mind _and_ heart. In the latter days you shall consider _and_ understand it perfectly. 
+The anger of the Lord shall not turn back until He has executed and accomplished the thoughts and intents of His mind and heart. In the latter days you shall consider and understand it perfectly. 
 
 
 
@@ -679,7 +679,7 @@ Behold, I am against the prophets, says the Lord, who use their [own deceitful] 
 
 
 
-Behold, I am against those who prophesy lying dreams, says the Lord, and tell them and cause My people to err _and_ go astray by their lies and by their vain boasting _and_ recklessness--when I did not send them or command them; nor do they profit these people at all, says the Lord. 
+Behold, I am against those who prophesy lying dreams, says the Lord, and tell them and cause My people to err and go astray by their lies and by their vain boasting and recklessness--when I did not send them or command them; nor do they profit these people at all, says the Lord. 
 
 
 
@@ -700,7 +700,7 @@ Behold, I am against those who prophesy lying dreams, says the Lord, and tell th
 
 
 
-And when these people, or a prophet or a priest, ask you, What is the burden of the Lord [the thing to be lifted up now]? then you shall say to them, What burden [indeed]! [You are the burden!] And I will disburden Myself of you _and_ I will cast you off, says the Lord. 
+And when these people, or a prophet or a priest, ask you, What is the burden of the Lord [the thing to be lifted up now]? then you shall say to them, What burden [indeed]! [You are the burden!] And I will disburden Myself of you and I will cast you off, says the Lord. 
 
 
 
@@ -721,7 +721,7 @@ And when these people, or a prophet or a priest, ask you, What is the burden of 
 
 
 
-And as for the prophet, the priest, or [any of these] the people, whoever [in mockery calls the word of the Lord a burden and] says, The burden of the Lord, I will even visit in wrath _and_ punish that man and his house. 
+And as for the prophet, the priest, or [any of these] the people, whoever [in mockery calls the word of the Lord a burden and] says, The burden of the Lord, I will even visit in wrath and punish that man and his house. 
 
 
 
@@ -763,7 +763,7 @@ And as for the prophet, the priest, or [any of these] the people, whoever [in mo
 
 
 
-But the burden of the Lord you must mention no more, for every man's burden is his own response _and_ word [for as they mockingly call all prophecies burdens, whether good or bad, so will it prove to be to them; God will take them at their own word]; for you pervert the words [not of a lifeless idol, but] of the living God, the Lord of hosts, our God! 
+But the burden of the Lord you must mention no more, for every man's burden is his own response and word [for as they mockingly call all prophecies burdens, whether good or bad, so will it prove to be to them; God will take them at their own word]; for you pervert the words [not of a lifeless idol, but] of the living God, the Lord of hosts, our God! 
 
 
 

@@ -49,7 +49,7 @@ After two full years, Pharaoh dreamed that he stood by the river [Nile].
 
 
 
-And behold, there came up out of the river [Nile] seven well-favored cows, sleek _and_ handsome and fat; and they grazed in the reed grass [in a marshy pasture]. 
+And behold, there came up out of the river [Nile] seven well-favored cows, sleek and handsome and fat; and they grazed in the reed grass [in a marshy pasture]. 
 
 
 
@@ -70,7 +70,7 @@ And behold, there came up out of the river [Nile] seven well-favored cows, sleek
 
 
 
-And behold, seven other cows came up after them out of the river [Nile], ill favored and gaunt _and_ ugly, and stood by the fat cows on the bank of the river [Nile]. 
+And behold, seven other cows came up after them out of the river [Nile], ill favored and gaunt and ugly, and stood by the fat cows on the bank of the river [Nile]. 
 
 
 
@@ -91,7 +91,7 @@ And behold, seven other cows came up after them out of the river [Nile], ill fav
 
 
 
-And the ill-favored, gaunt, _and_ ugly cows ate up the seven well-favored and fat cows. Then Pharaoh awoke. 
+And the ill-favored, gaunt, and ugly cows ate up the seven well-favored and fat cows. Then Pharaoh awoke. 
 
 
 
@@ -133,7 +133,7 @@ But he slept and dreamed the second time; and behold, seven ears of grain came o
 
 
 
-And behold, after them seven ears [of grain] sprouted, thin _and_ blighted by the east wind. 
+And behold, after them seven ears [of grain] sprouted, thin and blighted by the east wind. 
 
 
 
@@ -259,7 +259,7 @@ We dreamed a dream in the same night, he and I; we dreamed each of us according 
 
 
 
-And there was there with us a young man, a Hebrew, servant to the captain of the guard _and_ chief executioner; and we told him our dreams, and he interpreted them to us, to each man according to the significance of his dream. 
+And there was there with us a young man, a Hebrew, servant to the captain of the guard and chief executioner; and we told him our dreams, and he interpreted them to us, to each man according to the significance of his dream. 
 
 
 
@@ -301,7 +301,7 @@ And as he interpreted to us, so it came to pass; I was restored to my office [as
 
 
 
-Then Pharaoh sent and called Joseph, and they brought him hastily out of the dungeon. But Joseph [first] shaved himself, changed his clothes, _and_ made himself presentable; then he came into Pharaoh's presence. 
+Then Pharaoh sent and called Joseph, and they brought him hastily out of the dungeon. But Joseph [first] shaved himself, changed his clothes, and made himself presentable; then he came into Pharaoh's presence. 
 
 
 
@@ -322,7 +322,7 @@ Then Pharaoh sent and called Joseph, and they brought him hastily out of the dun
 
 
 
-And Pharaoh said to Joseph, I have dreamed a dream, and there is no one who can interpret it; and I have heard it said of you that you can understand a dream _and_ interpret it. 
+And Pharaoh said to Joseph, I have dreamed a dream, and there is no one who can interpret it; and I have heard it said of you that you can understand a dream and interpret it. 
 
 
 
@@ -385,7 +385,7 @@ And Pharaoh said to Joseph, In my dream, behold, I stood on the bank of the rive
 
 
 
-And behold, there came up out of the river [Nile] seven fat, sleek, _and_ handsome cows, and they grazed in the reed grass [of a marshy pasture]. 
+And behold, there came up out of the river [Nile] seven fat, sleek, and handsome cows, and they grazed in the reed grass [of a marshy pasture]. 
 
 
 
@@ -406,7 +406,7 @@ And behold, there came up out of the river [Nile] seven fat, sleek, _and_ handso
 
 
 
-And behold, seven other cows came up after them, undernourished, gaunt, _and_ ugly [just skin and bones; such emaciated animals] as I have never seen in all of Egypt. 
+And behold, seven other cows came up after them, undernourished, gaunt, and ugly [just skin and bones; such emaciated animals] as I have never seen in all of Egypt. 
 
 
 
@@ -448,7 +448,7 @@ And the lean and ill favored cows ate up the seven fat cows that had come first.
 
 
 
-And when they had eaten them up, it could not be detected _and_ known that they had eaten them, for they were still as thin _and_ emaciated as at the beginning. Then I awoke. [But again I fell asleep and dreamed.] 
+And when they had eaten them up, it could not be detected and known that they had eaten them, for they were still as thin and emaciated as at the beginning. Then I awoke. [But again I fell asleep and dreamed.] 
 
 
 
@@ -574,7 +574,7 @@ The seven good cows are seven years, and the seven good ears [of grain] are seve
 
 
 
-And the seven thin and ill favored cows that came up after them are seven years, and also the seven empty ears [of grain], blighted _and_ shriveled by the east wind; they are seven years of hunger _and_ famine. 
+And the seven thin and ill favored cows that came up after them are seven years, and also the seven empty ears [of grain], blighted and shriveled by the east wind; they are seven years of hunger and famine. 
 
 
 
@@ -637,7 +637,7 @@ Take note! Seven years of great plenty throughout all the land of Egypt are comi
 
 
 
-Then there will come seven years of hunger _and_ famine, and [there will be so much want that] all the great abundance of the previous years will be forgotten in the land of Egypt; and hunger (destitution, starvation) will exhaust (consume, finish) the land. 
+Then there will come seven years of hunger and famine, and [there will be so much want that] all the great abundance of the previous years will be forgotten in the land of Egypt; and hunger (destitution, starvation) will exhaust (consume, finish) the land. 
 
 
 
@@ -679,7 +679,7 @@ And the plenty will become quite unknown in the land because of that following f
 
 
 
-That the dream was sent twice to Pharaoh _and_ in two forms indicates that this thing which God will very soon bring to pass is fully prepared _and_ established by God. 
+That the dream was sent twice to Pharaoh and in two forms indicates that this thing which God will very soon bring to pass is fully prepared and established by God. 
 
 
 
@@ -700,7 +700,7 @@ That the dream was sent twice to Pharaoh _and_ in two forms indicates that this 
 
 
 
-So now let Pharaoh seek out _and_ provide a man discreet, understanding, proficient, _and_ wise and set him over the land of Egypt [as governor]. 
+So now let Pharaoh seek out and provide a man discreet, understanding, proficient, and wise and set him over the land of Egypt [as governor]. 
 
 
 
@@ -742,7 +742,7 @@ Let Pharaoh do this; then let him select and appoint officers over the land, and
 
 
 
-And let them gather all the food of these good years that are coming and lay up grain under the direction _and_ authority of Pharaoh, and let them retain food [in fortified granaries] in the cities. 
+And let them gather all the food of these good years that are coming and lay up grain under the direction and authority of Pharaoh, and let them retain food [in fortified granaries] in the cities. 
 
 
 
@@ -763,7 +763,7 @@ And let them gather all the food of these good years that are coming and lay up 
 
 
 
-And that food shall be put in store for the country against the seven years of hunger _and_ famine that are to come upon the land of Egypt, so that the land may not be ruined _and_ cut off by the famine. 
+And that food shall be put in store for the country against the seven years of hunger and famine that are to come upon the land of Egypt, so that the land may not be ruined and cut off by the famine. 
 
 
 
@@ -826,7 +826,7 @@ And Pharaoh said to his servants, Can we find this man's equal, a man in whom is
 
 
 
-And Pharaoh said to Joseph, Forasmuch as [your] God has shown you all this, there is nobody as intelligent _and_ discreet _and_ understanding and wise as you are. 
+And Pharaoh said to Joseph, Forasmuch as [your] God has shown you all this, there is nobody as intelligent and discreet and understanding and wise as you are. 
 
 
 
@@ -1078,7 +1078,7 @@ Now to Joseph were born two sons before the years of famine came, whom Asenath d
 
 
 
-And Joseph called the firstborn Manasseh [making to forget], For God, said he, has made me forget all my toil _and_ hardship and all my father's house. 
+And Joseph called the firstborn Manasseh [making to forget], For God, said he, has made me forget all my toil and hardship and all my father's house. 
 
 
 
@@ -1141,7 +1141,7 @@ When the seven years of plenty were ended in the land of Egypt,
 
 
 
-The seven years of scarcity _and_ famine began to come, as Joseph had said they would; the famine was in all [the surrounding] lands, but in all of Egypt there was food. 
+The seven years of scarcity and famine began to come, as Joseph had said they would; the famine was in all [the surrounding] lands, but in all of Egypt there was food. 
 
 
 

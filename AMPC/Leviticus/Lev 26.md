@@ -28,7 +28,7 @@ next: ['Lev 27']
 
 
 
-You shall make for yourselves no idols nor shall you erect a graven image, pillar, _or_ obelisk, nor shall you place any figured stone in your land to which _or_ on which to bow down; for I am the Lord your God. 
+You shall make for yourselves no idols nor shall you erect a graven image, pillar, or obelisk, nor shall you place any figured stone in your land to which or on which to bow down; for I am the Lord your God. 
 
 
 
@@ -133,7 +133,7 @@ And your threshing [time] shall reach to the vintage and the vintage [time] shal
 
 
 
-I will give peace in the land; you shall lie down and none shall fill you with dread _or_ make you afraid; and I will clear ferocious (wild) beasts out of the land, and no sword shall go through your land. 
+I will give peace in the land; you shall lie down and none shall fill you with dread or make you afraid; and I will clear ferocious (wild) beasts out of the land, and no sword shall go through your land. 
 
 
 
@@ -196,7 +196,7 @@ Five of you shall chase a hundred, and a hundred of you shall put ten thousand t
 
 
 
-For I will be leaning toward you with favor _and_ regard for you, rendering you fruitful, multiplying you, and establishing _and_ ratifying My covenant with you. 
+For I will be leaning toward you with favor and regard for you, rendering you fruitful, multiplying you, and establishing and ratifying My covenant with you. 
 
 
 
@@ -238,7 +238,7 @@ And you shall eat the [abundant] old store of produce long kept, and clear out t
 
 
 
-I will set My dwelling in _and_ among you, and My soul shall not despise _or_ reject _or_ separate itself from you. 
+I will set My dwelling in and among you, and My soul shall not despise or reject or separate itself from you. 
 
 
 
@@ -259,7 +259,7 @@ I will set My dwelling in _and_ among you, and My soul shall not despise _or_ re
 
 
 
-And I will walk in _and_ with _and_ among you and will be your God, and you shall be My people. 
+And I will walk in and with and among you and will be your God, and you shall be My people. 
 
 
 
@@ -322,7 +322,7 @@ But if you will not hearken to Me and will not do all these commandments,
 
 
 
-And if you spurn _and_ despise My statutes, and if your soul despises _and_ rejects My ordinances, so that you will not do all My commandments, but break My covenant, 
+And if you spurn and despise My statutes, and if your soul despises and rejects My ordinances, so that you will not do all My commandments, but break My covenant, 
 
 
 
@@ -343,7 +343,7 @@ And if you spurn _and_ despise My statutes, and if your soul despises _and_ reje
 
 
 
-I will do this: I will appoint over you [sudden] terror (trembling, trouble), even consumption and fever that consume _and_ waste the eyes and make the [physical] life pine away. You shall sow your seed in vain, for your enemies shall eat it. 
+I will do this: I will appoint over you [sudden] terror (trembling, trouble), even consumption and fever that consume and waste the eyes and make the [physical] life pine away. You shall sow your seed in vain, for your enemies shall eat it. 
 
 
 
@@ -364,7 +364,7 @@ I will do this: I will appoint over you [sudden] terror (trembling, trouble), ev
 
 
 
-I [the Lord] will set My face against you and you shall be defeated _and_ slain before your enemies; they who hate you shall rule over you; you shall flee when no one pursues you. 
+I [the Lord] will set My face against you and you shall be defeated and slain before your enemies; they who hate you shall rule over you; you shall flee when no one pursues you. 
 
 
 
@@ -385,7 +385,7 @@ I [the Lord] will set My face against you and you shall be defeated _and_ slain 
 
 
 
-And if in spite of all this you still will not listen _and_ be obedient to Me, then I will chastise _and_ discipline you seven times more for your sins. 
+And if in spite of all this you still will not listen and be obedient to Me, then I will chastise and discipline you seven times more for your sins. 
 
 
 
@@ -406,7 +406,7 @@ And if in spite of all this you still will not listen _and_ be obedient to Me, t
 
 
 
-And I will break _and_ humble your pride in your power, and I will make your heavens as iron [yielding no answer, no blessing, no rain] and your earth [as sterile] as brass. 
+And I will break and humble your pride in your power, and I will make your heavens as iron [yielding no answer, no blessing, no rain] and your earth [as sterile] as brass. 
 
 
 
@@ -469,7 +469,7 @@ If you walk contrary to Me and will not heed Me, I will bring seven times more p
 
 
 
-I will loose the wild beasts of the field among you, which shall rob you of your children, destroy your livestock, and make you few so that your roads shall be deserted _and_ desolate. 
+I will loose the wild beasts of the field among you, which shall rob you of your children, destroy your livestock, and make you few so that your roads shall be deserted and desolate. 
 
 
 
@@ -553,7 +553,7 @@ And I will bring a sword upon you that shall execute the vengeance [for the brea
 
 
 
-When I break your staff of bread _and_ cut off your supply of food, ten women shall bake your bread in one oven, and they shall ration your bread _and_ deliver it again by weight; and you shall eat, and not be satisfied. 
+When I break your staff of bread and cut off your supply of food, ten women shall bake your bread in one oven, and they shall ration your bread and deliver it again by weight; and you shall eat, and not be satisfied. 
 
 
 
@@ -574,7 +574,7 @@ When I break your staff of bread _and_ cut off your supply of food, ten women sh
 
 
 
-And if in spite of all this you will not listen _and_ give heed to Me but walk contrary to Me, 
+And if in spite of all this you will not listen and give heed to Me but walk contrary to Me, 
 
 
 
@@ -616,7 +616,7 @@ Then I will walk contrary to you in wrath, and I also will chastise you seven ti
 
 
 
-You shall eat the flesh of your sons _and_ of your daughters. 
+You shall eat the flesh of your sons and of your daughters. 
 
 
 
@@ -658,7 +658,7 @@ And I will destroy your high places [devoted to idolatrous worship], and cut dow
 
 
 
-I will lay your cities waste, bring your sanctuaries to desolation, and I will not smell the fragrance of your sweet _and_ soothing odors [of offerings made by fire]. 
+I will lay your cities waste, bring your sanctuaries to desolation, and I will not smell the fragrance of your sweet and soothing odors [of offerings made by fire]. 
 
 
 
@@ -721,7 +721,7 @@ I will scatter you among the nations and draw out [your enemies'] sword after yo
 
 
 
-Then shall the land [of Israel have the opportunity to] enjoy its sabbaths as long as it lies desolate and you are in your enemies' land; then shall the land rest, to enjoy _and_ receive payments for its sabbaths [divinely ordained for it]. 
+Then shall the land [of Israel have the opportunity to] enjoy its sabbaths as long as it lies desolate and you are in your enemies' land; then shall the land rest, to enjoy and receive payments for its sabbaths [divinely ordained for it]. 
 
 
 
@@ -742,7 +742,7 @@ Then shall the land [of Israel have the opportunity to] enjoy its sabbaths as lo
 
 
 
-As long as it lies desolate _and_ waste, it shall have rest, the rest it did not have in your sabbaths when you dwelt upon it. 
+As long as it lies desolate and waste, it shall have rest, the rest it did not have in your sabbaths when you dwelt upon it. 
 
 
 
@@ -763,7 +763,7 @@ As long as it lies desolate _and_ waste, it shall have rest, the rest it did not
 
 
 
-As for those who are left of you, I will send dejection (lack of courage, a faintness) into their hearts in the lands of their enemies; the sound of a driven leaf shall put them to hasty _and_ tumultuous flight, and they shall flee as if from the sword, and fall when no one pursues them. 
+As for those who are left of you, I will send dejection (lack of courage, a faintness) into their hearts in the lands of their enemies; the sound of a driven leaf shall put them to hasty and tumultuous flight, and they shall flee as if from the sword, and fall when no one pursues them. 
 
 
 
@@ -910,7 +910,7 @@ Then will I [earnestly] remember My covenant with Jacob, My covenant with Isaac,
 
 
 
-But the land shall be left behind them and shall enjoy its sabbaths while it lies desolate without them; and they shall accept the punishment for their sins _and_ make amends because they despised _and_ rejected My ordinances and their soul scorned _and_ rejected My statutes. 
+But the land shall be left behind them and shall enjoy its sabbaths while it lies desolate without them; and they shall accept the punishment for their sins and make amends because they despised and rejected My ordinances and their soul scorned and rejected My statutes. 
 
 
 
@@ -931,7 +931,7 @@ But the land shall be left behind them and shall enjoy its sabbaths while it lie
 
 
 
-And yet for all that, when they are in the land of their enemies, I will not spurn _and_ cast them away, neither will I despise _and_ abhor them to destroy them utterly and to break My covenant with them, for I am the Lord their God. 
+And yet for all that, when they are in the land of their enemies, I will not spurn and cast them away, neither will I despise and abhor them to destroy them utterly and to break My covenant with them, for I am the Lord their God. 
 
 
 

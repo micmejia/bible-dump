@@ -112,7 +112,7 @@ And I will turn you back and put hooks into your jaws, and I will bring you fort
 
 
 
-Persia, Cush, and Put _or_ Libya with them, all of them with shield and helmet, 
+Persia, Cush, and Put or Libya with them, all of them with shield and helmet, 
 
 
 
@@ -154,7 +154,7 @@ Gomer and all his hordes, the house of Togarmah in the uttermost parts of the no
 
 
 
-You [Gog] be prepared; yes, prepare yourself, you and all your companies that are assembled about you, and you be a guard _and_ a commander for them. 
+You [Gog] be prepared; yes, prepare yourself, you and all your companies that are assembled about you, and you be a guard and a commander for them. 
 
 
 
@@ -175,7 +175,7 @@ You [Gog] be prepared; yes, prepare yourself, you and all your companies that ar
 
 
 
-After many days you shall be visited _and_ mustered [for service]; in the latter years you shall go against the land that is restored from the ravages of the sword, where people are gathered out of many nations upon the mountains of Israel, which had been a continual waste; but its [people] are brought forth out of the nations and they shall dwell securely, all of them. 
+After many days you shall be visited and mustered [for service]; in the latter years you shall go against the land that is restored from the ravages of the sword, where people are gathered out of many nations upon the mountains of Israel, which had been a continual waste; but its [people] are brought forth out of the nations and they shall dwell securely, all of them. 
 
 
 
@@ -301,7 +301,7 @@ Sheba and Dedan and the merchants of Tarshish, with all their lionlike cubs [or 
 
 
 
-Therefore, son of man, prophesy and say to Gog, Thus says the Lord God: In that day when My people Israel dwell securely, will you not know it _and_ be aroused? 
+Therefore, son of man, prophesy and say to Gog, Thus says the Lord God: In that day when My people Israel dwell securely, will you not know it and be aroused? 
 
 
 
@@ -343,7 +343,7 @@ And you will come from your place out of the uttermost parts of the north, you a
 
 
 
-And you shall come up against My people Israel like a cloud to cover the land. In the latter days I will bring you against My land, that the nations may know, understand, _and_ realize Me when My holiness shall be vindicated through you [vindicated and honored in your overwhelming destruction], O Gog, before their eyes. 
+And you shall come up against My people Israel like a cloud to cover the land. In the latter days I will bring you against My land, that the nations may know, understand, and realize Me when My holiness shall be vindicated through you [vindicated and honored in your overwhelming destruction], O Gog, before their eyes. 
 
 
 
@@ -406,7 +406,7 @@ But in that day when Gog shall come against the land of Israel, says the Lord Go
 
 
 
-For in My jealousy and in the fire of My wrath have I said, Surely in that day there shall be a great shaking _or_ cosmic catastrophe in the land of Israel, 
+For in My jealousy and in the fire of My wrath have I said, Surely in that day there shall be a great shaking or cosmic catastrophe in the land of Israel, 
 
 
 
@@ -427,7 +427,7 @@ For in My jealousy and in the fire of My wrath have I said, Surely in that day t
 
 
 
-So that the fishes of the sea and the birds of the heavens, the beasts of the field and all creeping things that creep upon the earth, and all the men that are upon the face of the earth, shall tremble _and_ shake at My presence; and the mountains shall be thrown down and the steep places shall fall and every wall [natural or artificial] shall fall to the ground. 
+So that the fishes of the sea and the birds of the heavens, the beasts of the field and all creeping things that creep upon the earth, and all the men that are upon the face of the earth, shall tremble and shake at My presence; and the mountains shall be thrown down and the steep places shall fall and every wall [natural or artificial] shall fall to the ground. 
 
 
 
@@ -490,4 +490,4 @@ And with pestilence and with bloodshed will I enter into judgment with [Gog], an
 
 
 
-Thus will I demonstrate My greatness and My holiness, and I will be recognized, understood, _and_ known in the eyes of many nations; yes, they shall know that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service].
+Thus will I demonstrate My greatness and My holiness, and I will be recognized, understood, and known in the eyes of many nations; yes, they shall know that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service].

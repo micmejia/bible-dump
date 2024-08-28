@@ -175,7 +175,7 @@ And I will take you to Me for a people, and I will be to you a God; and you shal
 
 
 
-And I will bring you into the land concerning which I lifted up My hand _and_ swore that I would give it to Abraham, Isaac, and Jacob; and I will give it to you for a heritage. I am the Lord [you have the pledge of My changeless omnipotence and faithfulness]. 
+And I will bring you into the land concerning which I lifted up My hand and swore that I would give it to Abraham, Isaac, and Jacob; and I will give it to you for a heritage. I am the Lord [you have the pledge of My changeless omnipotence and faithfulness]. 
 
 
 
@@ -196,7 +196,7 @@ And I will bring you into the land concerning which I lifted up My hand _and_ sw
 
 
 
-Moses told this to the Israelites, but they refused to listen to Moses because of their impatience _and_ anguish of spirit and because of their cruel bondage. 
+Moses told this to the Israelites, but they refused to listen to Moses because of their impatience and anguish of spirit and because of their cruel bondage. 
 
 
 
@@ -259,7 +259,7 @@ Go in, tell Pharaoh king of Egypt to let the Israelites go out of his land.
 
 
 
-But Moses said to the Lord, Behold, [my own people] the Israelites have not listened to me; how then shall Pharaoh give heed to me, who am of deficient _and_ impeded speech? 
+But Moses said to the Lord, Behold, [my own people] the Israelites have not listened to me; how then shall Pharaoh give heed to me, who am of deficient and impeded speech? 
 
 
 
@@ -637,4 +637,4 @@ The Lord said to Moses, I am the Lord; tell Pharaoh king of Egypt all that I say
 
 
 
-But Moses said to the Lord, Behold, I am of deficient _and_ impeded speech; how then shall Pharaoh listen to me?
+But Moses said to the Lord, Behold, I am of deficient and impeded speech; how then shall Pharaoh listen to me?

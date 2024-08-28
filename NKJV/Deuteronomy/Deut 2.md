@@ -19,22 +19,22 @@ next: ['Deut 3']
 'You have skirted this mountain long enough; turn northward. 
 
 ###### 4 
-And command the people, saying, "You _are about to_ pass through the territory of your brethren, the descendants of Esau, who live in Seir; and they will be afraid of you. Therefore watch yourselves carefully. 
+And command the people, saying, "You are about to pass through the territory of your brethren, the descendants of Esau, who live in Seir; and they will be afraid of you. Therefore watch yourselves carefully. 
 
 ###### 5 
-Do not meddle with them, for I will not give you _any_ of their land, no, not so much as one footstep, because I have given Mount Seir to Esau _as_ a possession. 
+Do not meddle with them, for I will not give you any of their land, no, not so much as one footstep, because I have given Mount Seir to Esau as a possession. 
 
 ###### 6 
 You shall buy food from them with money, that you may eat; and you shall also buy water from them with money, that you may drink. 
 
 ###### 7 
-"For the Lord your God has blessed you in all the work of your hand. He knows your trudging through this great wilderness. These forty years the Lord your God _has been_ with you; you have lacked nothing." ' 
+"For the Lord your God has blessed you in all the work of your hand. He knows your trudging through this great wilderness. These forty years the Lord your God has been with you; you have lacked nothing." ' 
 
 ###### 8 
 "And when we passed beyond our brethren, the descendants of Esau who dwell in Seir, away from the road of the plain, away from Elath and Ezion Geber, we turned and passed by way of the Wilderness of Moab. 
 
 ###### 9 
-Then the Lord said to me, 'Do not harass Moab, nor contend with them in battle, for I will not give you _any_ of their land _as_ a possession, because I have given Ar to the descendants of Lot _as_ a possession.' " 
+Then the Lord said to me, 'Do not harass Moab, nor contend with them in battle, for I will not give you any of their land as a possession, because I have given Ar to the descendants of Lot as a possession.' " 
 
 ###### 10 
 (The Emim had dwelt there in times past, a people as great and numerous and tall as the Anakim. 
@@ -49,7 +49,7 @@ The Horites formerly dwelt in Seir, but the descendants of Esau dispossessed the
 " 'Now rise and cross over the Valley of the Zered.' So we crossed over the Valley of the Zered. 
 
 ###### 14 
-And the time we took to come from Kadesh Barnea until we crossed over the Valley of the Zered _was_ thirty-eight years, until all the generation of the men of war was consumed from the midst of the camp, just as the Lord had sworn to them. 
+And the time we took to come from Kadesh Barnea until we crossed over the Valley of the Zered was thirty-eight years, until all the generation of the men of war was consumed from the midst of the camp, just as the Lord had sworn to them. 
 
 ###### 15 
 For indeed the hand of the Lord was against them, to destroy them from the midst of the camp until they were consumed. 
@@ -64,7 +64,7 @@ that the Lord spoke to me, saying:
 'This day you are to cross over at Ar, the boundary of Moab. 
 
 ###### 19 
-And _when_ you come near the people of Ammon, do not harass them or meddle with them, for I will not give you _any_ of the land of the people of Ammon _as_ a possession, because I have given it to the descendants of Lot _as_ a possession.' " 
+And when you come near the people of Ammon, do not harass them or meddle with them, for I will not give you any of the land of the people of Ammon as a possession, because I have given it to the descendants of Lot as a possession.' " 
 
 ###### 20 
 (That was also regarded as a land of giants; giants formerly dwelt there. But the Ammonites call them Zamzummim, 
@@ -79,7 +79,7 @@ just as He had done for the descendants of Esau, who dwelt in Seir, when He dest
 And the Avim, who dwelt in villages as far as Gaza--the Caphtorim, who came from Caphtor, destroyed them and dwelt in their place.) 
 
 ###### 24 
-" 'Rise, take your journey, and cross over the River Arnon. Look, I have given into your hand Sihon the Amorite, king of Heshbon, and his land. Begin to possess _it,_ and engage him in battle. 
+" 'Rise, take your journey, and cross over the River Arnon. Look, I have given into your hand Sihon the Amorite, king of Heshbon, and his land. Begin to possess it, and engage him in battle. 
 
 ###### 25 
 This day I will begin to put the dread and fear of you upon the nations under the whole heaven, who shall hear the report of you, and shall tremble and be in anguish because of you.' 
@@ -99,10 +99,10 @@ You shall sell me food for money, that I may eat, and give me water for money, t
 just as the descendants of Esau who dwell in Seir and the Moabites who dwell in Ar did for me, until I cross the Jordan to the land which the Lord our God is giving us.' 
 
 ###### 30 
-"But Sihon king of Heshbon would not let us pass through, for the Lord your God hardened his spirit and made his heart obstinate, that He might deliver him into your hand, as _it is_ this day. 
+"But Sihon king of Heshbon would not let us pass through, for the Lord your God hardened his spirit and made his heart obstinate, that He might deliver him into your hand, as it is this day. 
 
 ###### 31 
-"And the Lord said to me, 'See, I have begun to give Sihon and his land over to you. Begin to possess _it,_ that you may inherit his land.' 
+"And the Lord said to me, 'See, I have begun to give Sihon and his land over to you. Begin to possess it, that you may inherit his land.' 
 
 ###### 32 
 Then Sihon and all his people came out against us to fight at Jahaz. 
@@ -117,7 +117,7 @@ We took all his cities at that time, and we utterly destroyed the men, women, an
 We took only the livestock as plunder for ourselves, with the spoil of the cities which we took. 
 
 ###### 36 
-From Aroer, which _is_ on the bank of the River Arnon, and _from_ the city that _is_ in the ravine, as far as Gilead, there was not one city too strong for us; the Lord our God delivered all to us. 
+From Aroer, which is on the bank of the River Arnon, and from the city that is in the ravine, as far as Gilead, there was not one city too strong for us; the Lord our God delivered all to us. 
 
 ###### 37 
 Only you did not go near the land of the people of Ammon--anywhere along the River Jabbok, or to the cities of the mountains, or wherever the Lord our God had forbidden us.

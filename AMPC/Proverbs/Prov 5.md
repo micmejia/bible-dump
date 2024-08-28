@@ -49,7 +49,7 @@ My son, be attentive to my Wisdom [godly Wisdom learned by actual and costly exp
 
 
 
-That you may exercise proper discrimination _and_ discretion and your lips may guard _and_ keep knowledge _and_ the wise answer [to temptation]. 
+That you may exercise proper discrimination and discretion and your lips may guard and keep knowledge and the wise answer [to temptation]. 
 
 
 
@@ -91,7 +91,7 @@ For the lips of a loose woman drip honey as a honeycomb, and her mouth is smooth
 
 
 
-But in the end she is bitter as wormwood, sharp as a two-edged _and_ devouring sword. 
+But in the end she is bitter as wormwood, sharp as a two-edged and devouring sword. 
 
 
 
@@ -133,7 +133,7 @@ Her feet go down to death; her steps take hold of Sheol (Hades, the place of the
 
 
 
-She loses sight of _and_ walks not in the path of life; her ways wind about aimlessly, and you cannot know them. 
+She loses sight of and walks not in the path of life; her ways wind about aimlessly, and you cannot know them. 
 
 
 
@@ -217,7 +217,7 @@ Lest you give your honor to others and your years to those without mercy,
 
 
 
-Lest strangers [and false teachings] take their fill of your strength _and_ wealth and your labors go to the house of an alien [from God]-- 
+Lest strangers [and false teachings] take their fill of your strength and wealth and your labors go to the house of an alien [from God]-- 
 
 
 
@@ -238,7 +238,7 @@ Lest strangers [and false teachings] take their fill of your strength _and_ weal
 
 
 
-And you groan _and_ mourn when your end comes, when your flesh and body are consumed, 
+And you groan and mourn when your end comes, when your flesh and body are consumed, 
 
 
 
@@ -259,7 +259,7 @@ And you groan _and_ mourn when your end comes, when your flesh and body are cons
 
 
 
-And you say, How I hated instruction _and_ discipline, and my heart despised reproof! 
+And you say, How I hated instruction and discipline, and my heart despised reproof! 
 
 
 
@@ -280,7 +280,7 @@ And you say, How I hated instruction _and_ discipline, and my heart despised rep
 
 
 
-I have not obeyed the voice of my teachers nor submitted _and_ consented to those who instructed me. 
+I have not obeyed the voice of my teachers nor submitted and consented to those who instructed me. 
 
 
 
@@ -301,7 +301,7 @@ I have not obeyed the voice of my teachers nor submitted _and_ consented to thos
 
 
 
-[The extent and boldness of] my sin involved almost all evil [in the estimation] of the congregation _and_ the community. 
+[The extent and boldness of] my sin involved almost all evil [in the estimation] of the congregation and the community. 
 
 
 
@@ -427,7 +427,7 @@ Let her be as the loving hind and pleasant doe [tender, gentle, attractive]--let
 
 
 
-Why should you, my son, be infatuated with a loose woman, embrace the bosom of an outsider, _and_ go astray? 
+Why should you, my son, be infatuated with a loose woman, embrace the bosom of an outsider, and go astray? 
 
 
 
@@ -490,4 +490,4 @@ His own iniquities shall ensnare the wicked man, and he shall be held with the c
 
 
 
-He will die for lack of discipline _and_ instruction, and in the greatness of his folly he will go astray _and_ be lost.
+He will die for lack of discipline and instruction, and in the greatness of his folly he will go astray and be lost.

@@ -70,7 +70,7 @@ Belshazzar, while he was tasting the wine, commanded that the gold and silver ve
 
 
 
-Then they brought in the gold _and_ silver vessels which had been taken out of the temple, the house of God which was in Jerusalem; and the king and his lords, his wives, and his concubines drank from them. 
+Then they brought in the gold and silver vessels which had been taken out of the temple, the house of God which was in Jerusalem; and the king and his lords, his wives, and his concubines drank from them. 
 
 
 
@@ -112,7 +112,7 @@ They drank wine and praised the gods of gold and silver, of bronze, iron, wood, 
 
 
 
-Immediately _and_ suddenly there appeared the fingers of a man's hand and wrote on the plaster of the wall opposite the candlestick [so exposed especially to the light] in the king's palace, and the king saw the part of the hand that wrote. 
+Immediately and suddenly there appeared the fingers of a man's hand and wrote on the plaster of the wall opposite the candlestick [so exposed especially to the light] in the king's palace, and the king saw the part of the hand that wrote. 
 
 
 
@@ -133,7 +133,7 @@ Immediately _and_ suddenly there appeared the fingers of a man's hand and wrote 
 
 
 
-Then the color _and_ the [drunken] hilarious brightness of the king's face was changed, and his [terrifying] thoughts troubled _and_ alarmed him; the joints _and_ muscles of his hips _and_ back gave way and his knees smote together. 
+Then the color and the [drunken] hilarious brightness of the king's face was changed, and his [terrifying] thoughts troubled and alarmed him; the joints and muscles of his hips and back gave way and his knees smote together. 
 
 
 
@@ -154,7 +154,7 @@ Then the color _and_ the [drunken] hilarious brightness of the king's face was c
 
 
 
-The king cried aloud [mightily] to bring in the enchanters _or_ soothsayers, the Chaldeans [diviners], and the astrologers. The king said to the wise men of Babylon, Whoever will read this writing and show me the interpretation of it will be clothed with purple and have a chain of gold put about his neck and will be the third ruler in the kingdom. 
+The king cried aloud [mightily] to bring in the enchanters or soothsayers, the Chaldeans [diviners], and the astrologers. The king said to the wise men of Babylon, Whoever will read this writing and show me the interpretation of it will be clothed with purple and have a chain of gold put about his neck and will be the third ruler in the kingdom. 
 
 
 
@@ -196,7 +196,7 @@ And all the king's wise men came in, but they could not read the writing or make
 
 
 
-Then King Belshazzar was greatly perplexed _and_ alarmed and the color faded from his face, and his lords were puzzled _and_ astounded. 
+Then King Belshazzar was greatly perplexed and alarmed and the color faded from his face, and his lords were puzzled and astounded. 
 
 
 
@@ -217,7 +217,7 @@ Then King Belshazzar was greatly perplexed _and_ alarmed and the color faded fro
 
 
 
-Now the queen [mother], overhearing the exciting words of the king and his lords, came into the banquet house. The queen [mother] said, O king, live forever! Do not be alarmed at your thoughts or let your cheerful expression _and_ the color of your face be changed. 
+Now the queen [mother], overhearing the exciting words of the king and his lords, came into the banquet house. The queen [mother] said, O king, live forever! Do not be alarmed at your thoughts or let your cheerful expression and the color of your face be changed. 
 
 
 
@@ -238,7 +238,7 @@ Now the queen [mother], overhearing the exciting words of the king and his lords
 
 
 
-There is a man in your kingdom in whom is the Spirit of the holy God [or gods], and in the days of your father light and understanding and wisdom like the wisdom of the gods were found in him; and King Nebuchadnezzar, your father--the king, I say, your father--appointed him master of the magicians, enchanters _or_ soothsayers, Chaldeans, and astrologers, 
+There is a man in your kingdom in whom is the Spirit of the holy God [or gods], and in the days of your father light and understanding and wisdom like the wisdom of the gods were found in him; and King Nebuchadnezzar, your father--the king, I say, your father--appointed him master of the magicians, enchanters or soothsayers, Chaldeans, and astrologers, 
 
 
 
@@ -427,7 +427,7 @@ And because of the greatness that He gave him, all peoples, nations, and languag
 
 
 
-But when his heart was lifted up and his mind _and_ spirit were hardened so that he dealt proudly, he was deposed from his kingly throne and his glory was taken from him; 
+But when his heart was lifted up and his mind and spirit were hardened so that he dealt proudly, he was deposed from his kingly throne and his glory was taken from him; 
 
 
 
@@ -448,7 +448,7 @@ But when his heart was lifted up and his mind _and_ spirit were hardened so that
 
 
 
-He was driven from among men, and his heart _or_ mind was made like the beasts, and his dwelling was with the wild asses. He was fed with grass like oxen, and his body was wet with the dew of the heavens until he learned _and_ knew that the Most High God rules in the kingdom of men and that He appoints _and_ sets over it whomever He will. 
+He was driven from among men, and his heart or mind was made like the beasts, and his dwelling was with the wild asses. He was fed with grass like oxen, and his body was wet with the dew of the heavens until he learned and knew that the Most High God rules in the kingdom of men and that He appoints and sets over it whomever He will. 
 
 
 
@@ -469,7 +469,7 @@ He was driven from among men, and his heart _or_ mind was made like the beasts, 
 
 
 
-And you his son, O Belshazzar, have not humbled your heart _and_ mind, though you knew all this [knew it and were defiant]. 
+And you his son, O Belshazzar, have not humbled your heart and mind, though you knew all this [knew it and were defiant]. 
 
 
 
@@ -490,7 +490,7 @@ And you his son, O Belshazzar, have not humbled your heart _and_ mind, though yo
 
 
 
-And you have lifted yourself up against the Lord of heaven, and the vessels of His house have been brought before you, and you and your lords, your wives, and your concubines have drunk wine from them; and you have praised the gods of silver and gold, of bronze, iron, wood, and stone, which do not see or hear or know; but the God in Whose hand your breath is and Whose are all your ways you have not honored _and_ glorified [but have dishonored and disgraced]. 
+And you have lifted yourself up against the Lord of heaven, and the vessels of His house have been brought before you, and you and your lords, your wives, and your concubines have drunk wine from them; and you have praised the gods of silver and gold, of bronze, iron, wood, and stone, which do not see or hear or know; but the God in Whose hand your breath is and Whose are all your ways you have not honored and glorified [but have dishonored and disgraced]. 
 
 
 
@@ -595,7 +595,7 @@ tekel, You are weighed in the balances and are found wanting;
 
 
 
-peres, Your kingdom _and_ your kingship are divided and given to the Medes and Persians. [Foretold in Isa. 21:2, 5, 9.] 
+peres, Your kingdom and your kingship are divided and given to the Medes and Persians. [Foretold in Isa. 21:2, 5, 9.] 
 
 
 

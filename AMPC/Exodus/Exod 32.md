@@ -322,7 +322,7 @@ Then the Lord turned from the evil which He had thought to do to His people.
 
 
 
-And Moses turned and went down from the mountain with the two tables of the Testimony in his hand, tables _or_ tablets that were written on both sides. 
+And Moses turned and went down from the mountain with the two tables of the Testimony in his hand, tables or tablets that were written on both sides. 
 
 
 
@@ -532,7 +532,7 @@ I said to them, Those who have any gold, let them take it off. So they gave it t
 
 
 
-And when Moses saw that the people were unruly _and_ unrestrained (for Aaron had let them get out of control, so that they were a derision _and_ object of shame among their enemies), 
+And when Moses saw that the people were unruly and unrestrained (for Aaron had let them get out of control, so that they were a derision and object of shame among their enemies), 
 
 
 
@@ -616,7 +616,7 @@ And the sons of Levi did according to the word of Moses; and there fell of the p
 
 
 
-And Moses said [to the Levites, By your obedience to God's command] you have consecrated yourselves today [as priests] to the Lord, each man [at the cost of being] against his own son and his own brother, that the Lord may restore _and_ bestow His blessing upon _you_ this day. 
+And Moses said [to the Levites, By your obedience to God's command] you have consecrated yourselves today [as priests] to the Lord, each man [at the cost of being] against his own son and his own brother, that the Lord may restore and bestow His blessing upon you this day. 
 
 
 

@@ -133,7 +133,7 @@ And David and all the house of Israel played before the Lord with all their migh
 
 
 
-And when they came to Nacon's threshing floor, Uzzah put out his hand to the ark of God and took hold of it, for the oxen stumbled _and_ shook it. 
+And when they came to Nacon's threshing floor, Uzzah put out his hand to the ark of God and took hold of it, for the oxen stumbled and shook it. 
 
 
 
@@ -175,7 +175,7 @@ And the anger of the Lord was kindled against Uzzah; and God smote him there for
 
 
 
-David was grieved _and_ offended because the Lord had broken forth upon Uzzah, and that place is called Perez-uzzah [the breaking forth upon Uzzah] to this day. 
+David was grieved and offended because the Lord had broken forth upon Uzzah, and that place is called Perez-uzzah [the breaking forth upon Uzzah] to this day. 
 
 
 
@@ -427,7 +427,7 @@ And distributed among all the people, the whole multitude of Israel, both to men
 
 
 
-Then David returned to bless his household. And [his wife] Michal daughter of Saul came out to meet David and said, How glorious was the king of Israel today, who stripped himself of his kingly robes _and_ uncovered himself in the eyes of his servants' maids as one of the worthless fellows shamelessly uncovers himself! 
+Then David returned to bless his household. And [his wife] Michal daughter of Saul came out to meet David and said, How glorious was the king of Israel today, who stripped himself of his kingly robes and uncovered himself in the eyes of his servants' maids as one of the worthless fellows shamelessly uncovers himself! 
 
 
 
@@ -469,7 +469,7 @@ David said to Michal, It was before the Lord, Who chose me above your father and
 
 
 
-I will be still more lightly esteemed than this, and will humble _and_ lower myself in my own sight [and yours]. But by the maids you mentioned, I will be held in honor. 
+I will be still more lightly esteemed than this, and will humble and lower myself in my own sight [and yours]. But by the maids you mentioned, I will be held in honor. 
 
 
 

@@ -70,7 +70,7 @@ But the people sacrificed [to God] in the high places [as the heathen did to the
 
 
 
-Solomon loved the Lord, walking [at first] in the statutes _and_ practices of David his father, only he sacrificed and burned incense in the high places. 
+Solomon loved the Lord, walking [at first] in the statutes and practices of David his father, only he sacrificed and burned incense in the high places. 
 
 
 
@@ -133,7 +133,7 @@ In Gibeon the Lord appeared to Solomon in a dream by night. And God said, Ask wh
 
 
 
-Solomon said, You have shown to Your servant David my father great mercy _and_ loving-kindness, according as he walked before You in faithfulness, righteousness, and uprightness of heart with You; and You have kept for him this great kindness _and_ steadfast love, that You have given him a son to sit on his throne this day. 
+Solomon said, You have shown to Your servant David my father great mercy and loving-kindness, according as he walked before You in faithfulness, righteousness, and uprightness of heart with You; and You have kept for him this great kindness and steadfast love, that You have given him a son to sit on his throne this day. 
 
 
 
@@ -196,7 +196,7 @@ Your servant is in the midst of Your people whom You have chosen, a great people
 
 
 
-So give Your servant an understanding mind _and_ a hearing heart to judge Your people, that I may discern between good and bad. For who is able to judge _and_ rule this Your great people? 
+So give Your servant an understanding mind and a hearing heart to judge Your people, that I may discern between good and bad. For who is able to judge and rule this Your great people? 
 
 
 

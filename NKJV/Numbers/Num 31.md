@@ -22,16 +22,16 @@ So Moses spoke to the people, saying, "Arm some of yourselves for war, and let t
 A thousand from each tribe of all the tribes of Israel you shall send to the war." 
 
 ###### 5 
-So there were recruited from the divisions of Israel one thousand from _each_ tribe, twelve thousand armed for war. 
+So there were recruited from the divisions of Israel one thousand from each tribe, twelve thousand armed for war. 
 
 ###### 6 
-Then Moses sent them to the war, one thousand from _each_ tribe; he sent them to the war with Phinehas the son of Eleazar the priest, with the holy articles and the signal trumpets in his hand. 
+Then Moses sent them to the war, one thousand from each tribe; he sent them to the war with Phinehas the son of Eleazar the priest, with the holy articles and the signal trumpets in his hand. 
 
 ###### 7 
 And they warred against the Midianites, just as the Lord commanded Moses, and they killed all the males. 
 
 ###### 8 
-They killed the kings of Midian with _the rest of_ those who were killed--Evi, Rekem, Zur, Hur, and Reba, the five kings of Midian. Balaam the son of Beor they also killed with the sword. 
+They killed the kings of Midian with the rest of those who were killed--Evi, Rekem, Zur, Hur, and Reba, the five kings of Midian. Balaam the son of Beor they also killed with the sword. 
 
 ###### 9 
 And the children of Israel took the women of Midian captive, with their little ones, and took as spoil all their cattle, all their flocks, and all their goods. 
@@ -45,19 +45,19 @@ And they took all the spoil and all the booty--of man and beast.
 ## Return from the War 
 
 ###### 12 
-Then they brought the captives, the booty, and the spoil to Moses, to Eleazar the priest, and to the congregation of the children of Israel, to the camp in the plains of Moab by the Jordan, _across from_ Jericho. 
+Then they brought the captives, the booty, and the spoil to Moses, to Eleazar the priest, and to the congregation of the children of Israel, to the camp in the plains of Moab by the Jordan, across from Jericho. 
 
 ###### 13 
 And Moses, Eleazar the priest, and all the leaders of the congregation, went to meet them outside the camp. 
 
 ###### 14 
-But Moses was angry with the officers of the army, _with_ the captains over thousands and captains over hundreds, who had come from the battle. 
+But Moses was angry with the officers of the army, with the captains over thousands and captains over hundreds, who had come from the battle. 
 
 ###### 15 
 And Moses said to them: "Have you kept all the women alive? 
 
 ###### 16 
-Look, these _women_ caused the children of Israel, through the counsel of Balaam, to trespass against the Lord in the incident of Peor, and there was a plague among the congregation of the Lord. 
+Look, these women caused the children of Israel, through the counsel of Balaam, to trespass against the Lord in the incident of Peor, and there was a plague among the congregation of the Lord. 
 
 ###### 17 
 Now therefore, kill every male among the little ones, and kill every woman who has known a man intimately. 
@@ -69,10 +69,10 @@ But keep alive for yourselves all the young girls who have not known a man intim
 And as for you, remain outside the camp seven days; whoever has killed any person, and whoever has touched any slain, purify yourselves and your captives on the third day and on the seventh day. 
 
 ###### 20 
-Purify every garment, everything made of leather, everything woven of goats' _hair,_ and everything made of wood." 
+Purify every garment, everything made of leather, everything woven of goats' hair, and everything made of wood." 
 
 ###### 21 
-Then Eleazar the priest said to the men of war who had gone to the battle, "This _is_ the ordinance of the law which the Lord commanded Moses: 
+Then Eleazar the priest said to the men of war who had gone to the battle, "This is the ordinance of the law which the Lord commanded Moses: 
 
 ###### 22 
 Only the gold, the silver, the bronze, the iron, the tin, and the lead, 
@@ -98,7 +98,7 @@ and divide the plunder into two parts, between those who took part in the war, w
 And levy a tribute for the Lord on the men of war who went out to battle: one of every five hundred of the persons, the cattle, the donkeys, and the sheep; 
 
 ###### 29 
-take _it_ from their half, and give _it_ to Eleazar the priest as a heave offering to the Lord. 
+take it from their half, and give it to Eleazar the priest as a heave offering to the Lord. 
 
 ###### 30 
 And from the children of Israel's half you shall take one of every fifty, drawn from the persons, the cattle, the donkeys, and the sheep, from all the livestock, and give them to the Levites who keep charge of the tabernacle of the Lord." 
@@ -125,16 +125,16 @@ And the half, the portion for those who had gone out to war, was in number three
 and the Lord's tribute of the sheep was six hundred and seventy-five. 
 
 ###### 38 
-The cattle _were_ thirty-six thousand, of which the Lord's tribute _was_ seventy-two. 
+The cattle were thirty-six thousand, of which the Lord's tribute was seventy-two. 
 
 ###### 39 
-The donkeys _were_ thirty thousand five hundred, of which the Lord's tribute _was_ sixty-one. 
+The donkeys were thirty thousand five hundred, of which the Lord's tribute was sixty-one. 
 
 ###### 40 
-The persons _were_ sixteen thousand, of which the Lord's tribute _was_ thirty-two persons. 
+The persons were sixteen thousand, of which the Lord's tribute was thirty-two persons. 
 
 ###### 41 
-So Moses gave the tribute _which was_ the Lord's heave offering to Eleazar the priest, as the Lord commanded Moses. 
+So Moses gave the tribute which was the Lord's heave offering to Eleazar the priest, as the Lord commanded Moses. 
 
 ###### 42 
 And from the children of Israel's half, which Moses separated from the men who fought-- 
@@ -155,10 +155,10 @@ and sixteen thousand persons--
 and from the children of Israel's half Moses took one of every fifty, drawn from man and beast, and gave them to the Levites, who kept charge of the tabernacle of the Lord, as the Lord commanded Moses. 
 
 ###### 48 
-Then the officers who _were_ over thousands of the army, the captains of thousands and captains of hundreds, came near to Moses; 
+Then the officers who were over thousands of the army, the captains of thousands and captains of hundreds, came near to Moses; 
 
 ###### 49 
-and they said to Moses, "Your servants have taken a count of the men of war who _are_ under our command, and not a man of us is missing. 
+and they said to Moses, "Your servants have taken a count of the men of war who are under our command, and not a man of us is missing. 
 
 ###### 50 
 Therefore we have brought an offering for the Lord, what every man found of ornaments of gold: armlets and bracelets and signet rings and earrings and necklaces, to make atonement for ourselves before the Lord." 

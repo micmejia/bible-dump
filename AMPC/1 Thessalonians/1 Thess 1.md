@@ -29,13 +29,13 @@ Recalling unceasingly before our God and Father your work energized by faith and
 ###### 4 
 
 
-[O] brethren beloved by God, we recognize _and_ know that He has selected (chosen) you; 
+[O] brethren beloved by God, we recognize and know that He has selected (chosen) you; 
 
 
 ###### 5 
 
 
-For our [preaching of the] glad tidings (the Gospel) came to you not only in word, but also in [its own inherent] power and in the Holy Spirit and with great conviction _and_ absolute certainty [on our part]. You know what kind of men we proved [ourselves] to be among you for your good. 
+For our [preaching of the] glad tidings (the Gospel) came to you not only in word, but also in [its own inherent] power and in the Holy Spirit and with great conviction and absolute certainty [on our part]. You know what kind of men we proved [ourselves] to be among you for your good. 
 
 
 ###### 6 
@@ -53,16 +53,16 @@ So that you [thus] became a pattern to all the believers (those who adhere to, t
 ###### 8 
 
 
-For not only has the Word concerning _and_ from the Lord resounded forth from you unmistakably in Macedonia and Achaia, but everywhere the report has gone forth of your faith in God [of your leaning of your whole personality on Him in complete trust and confidence in His power, wisdom, and goodness]. So we [find that we] never need to tell people anything [further about it]. 
+For not only has the Word concerning and from the Lord resounded forth from you unmistakably in Macedonia and Achaia, but everywhere the report has gone forth of your faith in God [of your leaning of your whole personality on Him in complete trust and confidence in His power, wisdom, and goodness]. So we [find that we] never need to tell people anything [further about it]. 
 
 
 ###### 9 
 
 
-For they themselves volunteer testimony concerning us, telling what an entrance we had among you, and how you turned to God from [your] idols to serve a God Who is alive and true _and_ genuine, 
+For they themselves volunteer testimony concerning us, telling what an entrance we had among you, and how you turned to God from [your] idols to serve a God Who is alive and true and genuine, 
 
 
 ###### 10 
 
 
-And [how you] look forward to _and_ await the coming of His Son from heaven, Whom He raised from the dead--Jesus, Who personally rescues _and_ delivers us out of _and_ from the wrath [bringing punishment] which is coming [upon the impenitent] _and_ draws us to Himself [investing us with all the privileges and rewards of the new life in Christ, the Messiah].
+And [how you] look forward to and await the coming of His Son from heaven, Whom He raised from the dead--Jesus, Who personally rescues and delivers us out of and from the wrath [bringing punishment] which is coming [upon the impenitent] and draws us to Himself [investing us with all the privileges and rewards of the new life in Christ, the Messiah].

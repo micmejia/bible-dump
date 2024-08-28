@@ -91,7 +91,7 @@ But [then] Satan entered into Judas, called Iscariot, who was one of the Twelve 
 
 
 
-And he went away and discussed with the chief priests and captains how he might betray Him _and_ deliver Him up to them. 
+And he went away and discussed with the chief priests and captains how he might betray Him and deliver Him up to them. 
 
 
 
@@ -217,7 +217,7 @@ They said to Him, Where do You want us to prepare [it]?
 
 
 
-He said to them, Behold, when you have gone into the city, a man carrying an earthen jug _or_ pitcher of water will meet you; follow him into the house which he enters, 
+He said to them, Behold, when you have gone into the city, a man carrying an earthen jug or pitcher of water will meet you; follow him into the house which he enters, 
 
 
 
@@ -322,7 +322,7 @@ And when the hour came, [Jesus] reclined at table, and the apostles with Him.
 
 
 
-And He said to them, I have earnestly _and_ intensely desired to eat this Passover with you before I suffer; 
+And He said to them, I have earnestly and intensely desired to eat this Passover with you before I suffer; 
 
 
 
@@ -364,7 +364,7 @@ For I say to you, I shall eat it no more until it is fulfilled in the kingdom of
 
 
 
-And He took a cup, and when He had given thanks, He said, Take this and divide _and_ distribute it among yourselves; 
+And He took a cup, and when He had given thanks, He said, Take this and divide and distribute it among yourselves; 
 
 
 
@@ -427,7 +427,7 @@ Then He took a loaf [of bread], and when He had given thanks, He broke [it] and 
 
 
 
-And in like manner, He took the cup after supper, saying, This cup is the new testament _or_ covenant [ratified] in My blood, which is shed (poured out) for you. 
+And in like manner, He took the cup after supper, saying, This cup is the new testament or covenant [ratified] in My blood, which is shed (poured out) for you. 
 
 
 
@@ -469,7 +469,7 @@ But, behold, the hand of him who is now engaged in betraying Me is with Me on th
 
 
 
-For the Son of Man is going as it has been determined _and_ appointed, but woe to that man by whom He is betrayed _and_ delivered up! 
+For the Son of Man is going as it has been determined and appointed, but woe to that man by whom He is betrayed and delivered up! 
 
 
 
@@ -511,7 +511,7 @@ And they began to inquire among themselves which of them it was who was about to
 
 
 
-Now an eager contention arose among them [as to] which of them was considered _and_ reputed to be the greatest. 
+Now an eager contention arose among them [as to] which of them was considered and reputed to be the greatest. 
 
 
 
@@ -532,7 +532,7 @@ Now an eager contention arose among them [as to] which of them was considered _a
 
 
 
-But Jesus said to them, The kings of the Gentiles are deified by them _and_ exercise lordship [ruling as emperor-gods] over them; and those in authority over them are called benefactors _and_ well-doers. 
+But Jesus said to them, The kings of the Gentiles are deified by them and exercise lordship [ruling as emperor-gods] over them; and those in authority over them are called benefactors and well-doers. 
 
 
 
@@ -553,7 +553,7 @@ But Jesus said to them, The kings of the Gentiles are deified by them _and_ exer
 
 
 
-But this is not to be so with you; on the contrary, let him who is the greatest among you become like the youngest, and him who is the chief _and_ leader like one who serves. 
+But this is not to be so with you; on the contrary, let him who is the greatest among you become like the youngest, and him who is the chief and leader like one who serves. 
 
 
 
@@ -595,7 +595,7 @@ For who is the greater, the one who reclines at table (the master), or the one w
 
 
 
-And you are those who have remained [throughout] _and_ persevered with Me in My trials; 
+And you are those who have remained [throughout] and persevered with Me in My trials; 
 
 
 
@@ -616,7 +616,7 @@ And you are those who have remained [throughout] _and_ persevered with Me in My 
 
 
 
-And as My Father has appointed a kingdom _and_ conferred it on Me, so do I confer on you [the privilege and decree], 
+And as My Father has appointed a kingdom and conferred it on Me, so do I confer on you [the privilege and decree], 
 
 
 
@@ -679,7 +679,7 @@ Simon, Simon (Peter), listen! Satan has asked excessively that [all of] you be g
 
 
 
-But I have prayed especially for you [Peter], that your [own] faith may not fail; and when you yourself have turned again, strengthen _and_ establish your brethren. 
+But I have prayed especially for you [Peter], that your [own] faith may not fail; and when you yourself have turned again, strengthen and establish your brethren. 
 
 
 
@@ -784,7 +784,7 @@ Then He said to them, But now let him who has a purse take it, and also [his pro
 
 
 
-For I tell you that this Scripture must yet be fulfilled in Me: And He was counted _and_ classed among the wicked (the outlaws, the criminals); for what is written about Me has its fulfillment [has reached its end and is finally settled]. 
+For I tell you that this Scripture must yet be fulfilled in Me: And He was counted and classed among the wicked (the outlaws, the criminals); for what is written about Me has its fulfillment [has reached its end and is finally settled]. 
 
 
 
@@ -931,7 +931,7 @@ And there appeared to Him an angel from heaven, strengthening Him in spirit.
 
 
 
-And being in an agony [of mind], He prayed [all the] more earnestly _and_ intently, and His sweat became like great clots of blood dropping down upon the ground. 
+And being in an agony [of mind], He prayed [all the] more earnestly and intently, and His sweat became like great clots of blood dropping down upon the ground. 
 
 
 
@@ -1015,7 +1015,7 @@ And while He was still speaking, behold, there came a crowd, and the man called 
 
 
 
-But Jesus said to him, Judas! Would you betray _and_ deliver up the Son of Man with a kiss? 
+But Jesus said to him, Judas! Would you betray and deliver up the Son of Man with a kiss? 
 
 
 
@@ -1330,7 +1330,7 @@ And he went out and wept bitterly [that is, with painfully moving grief].
 
 
 
-Now the men who had Jesus in custody treated Him with contempt _and_ scoffed at _and_ ridiculed Him and beat Him; 
+Now the men who had Jesus in custody treated Him with contempt and scoffed at and ridiculed Him and beat Him; 
 
 
 
@@ -1372,7 +1372,7 @@ They blindfolded Him also and asked Him, Prophesy! Who is it that struck You?
 
 
 
-And they said many other evil _and_ slanderous _and_ insulting words against Him, reviling Him. 
+And they said many other evil and slanderous and insulting words against Him, reviling Him. 
 
 
 

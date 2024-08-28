@@ -70,7 +70,7 @@ These are the names of the sons of Aaron: Nadab the firstborn, Abihu, Eleazar, a
 
 
 
-These are the names of the sons of Aaron, the priests who were anointed, whom Aaron consecrated _and_ ordained to minister in the priest's office. 
+These are the names of the sons of Aaron, the priests who were anointed, whom Aaron consecrated and ordained to minister in the priest's office. 
 
 
 
@@ -91,7 +91,7 @@ These are the names of the sons of Aaron, the priests who were anointed, whom Aa
 
 
 
-But Nadab and Abihu died before the Lord when they offered strange fire before the Lord in the Wilderness of Sinai; and they had no children. So Eleazar and Ithamar ministered in the priest's office in the presence _and_ under the supervision of Aaron their father. 
+But Nadab and Abihu died before the Lord when they offered strange fire before the Lord in the Wilderness of Sinai; and they had no children. So Eleazar and Ithamar ministered in the priest's office in the presence and under the supervision of Aaron their father. 
 
 
 
@@ -175,7 +175,7 @@ And they shall carry out his instructions and the duties connected with the whol
 
 
 
-And they shall keep all the instruments _and_ furnishings of the Tent of Meeting and take charge of [attending] the Israelites, to serve in the tabernacle. 
+And they shall keep all the instruments and furnishings of the Tent of Meeting and take charge of [attending] the Israelites, to serve in the tabernacle. 
 
 
 
@@ -217,7 +217,7 @@ And you shall give the Levites [as servants and helpers] to Aaron and his sons; 
 
 
 
-And you shall appoint Aaron and his sons, and they shall observe _and_ attend to their priest's office; but the excluded [anyone daring to assume priestly duties or privileges who is not of the house of Aaron and called of God] who comes near [the holy things] shall be put to death. 
+And you shall appoint Aaron and his sons, and they shall observe and attend to their priest's office; but the excluded [anyone daring to assume priestly duties or privileges who is not of the house of Aaron and called of God] who comes near [the holy things] shall be put to death. 
 
 
 
@@ -763,7 +763,7 @@ And the head of the fathers' houses of the families of Merari was Zuriel son of 
 
 
 
-And the appointed charge of the sons of Merari was the boards _or_ frames of the tabernacle, and its bars, pillars, sockets _or_ bases, and all the accessories _or_ instruments of it, and all the work connected with them, 
+And the appointed charge of the sons of Merari was the boards or frames of the tabernacle, and its bars, pillars, sockets or bases, and all the accessories or instruments of it, and all the work connected with them, 
 
 
 
@@ -784,7 +784,7 @@ And the appointed charge of the sons of Merari was the boards _or_ frames of the
 
 
 
-And the pillars of the surrounding court and their sockets _or_ bases, with their pegs and their cords. 
+And the pillars of the surrounding court and their sockets or bases, with their pegs and their cords. 
 
 
 

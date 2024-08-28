@@ -28,7 +28,7 @@ next: ['Ezek 42']
 
 
 
-And _the man_ [an angel] brought me to [the Holy Place of] the temple and measured the wall pillars, six cubits broad on one side [of the ten-cubit door] and six cubits broad on the other side, which was the breadth of the tabernacle _or_ tent [later called the temple]. 
+And the man [an angel] brought me to [the Holy Place of] the temple and measured the wall pillars, six cubits broad on one side [of the ten-cubit door] and six cubits broad on the other side, which was the breadth of the tabernacle or tent [later called the temple]. 
 
 
 
@@ -70,7 +70,7 @@ And the breadth of the entrance was ten cubits, and the leaves of the door were 
 
 
 
-Then _the man_ [being an angel, and unrestricted] went inside [the inner room, but went alone] and measured each post of the door, two cubits, the doorway, six cubits, and the breadth of the entrance, seven cubits. 
+Then the man [being an angel, and unrestricted] went inside [the inner room, but went alone] and measured each post of the door, two cubits, the doorway, six cubits, and the breadth of the entrance, seven cubits. 
 
 
 
@@ -175,7 +175,7 @@ And the side rooms became broader as they encompassed the temple higher and high
 
 
 
-I saw also that the temple had an elevation _or_ foundation platform round about it. The foundations of the side chambers measured a full reed measure of six long cubits. 
+I saw also that the temple had an elevation or foundation platform round about it. The foundations of the side chambers measured a full reed measure of six long cubits. 
 
 
 
@@ -280,7 +280,7 @@ And the building that faced the temple yard on the west side was seventy cubits 
 
 
 
-And _the man_ [an angel in my vision] measured the temple, a hundred cubits long; and the yard and the building with its walls, a hundred cubits long; 
+And the man [an angel in my vision] measured the temple, a hundred cubits long; and the yard and the building with its walls, a hundred cubits long; 
 
 
 
@@ -322,7 +322,7 @@ Also the breadth of the east front of the temple and the yard, a hundred cubits.
 
 
 
-Then _the man_ [an angel] measured the length of the building on the west side of the yard with its walls on either side, a hundred cubits. The Holy Place of the temple, the inner Holy of Holies, and the outer vestibule 
+Then the man [an angel] measured the length of the building on the west side of the yard with its walls on either side, a hundred cubits. The Holy Place of the temple, the inner Holy of Holies, and the outer vestibule 
 
 
 
@@ -469,7 +469,7 @@ The door frames of the temple were squared, and in front [outside of the sanctua
 
 
 
-An altar of wood, three cubits high and two cubits long [and wide]; and its corners, its base, and its sides were of wood. And _the man_ [an angel] said to me, This is the table that is before the Lord. 
+An altar of wood, three cubits high and two cubits long [and wide]; and its corners, its base, and its sides were of wood. And the man [an angel] said to me, This is the table that is before the Lord. 
 
 
 
@@ -490,7 +490,7 @@ An altar of wood, three cubits high and two cubits long [and wide]; and its corn
 
 
 
-And the temple _or_ Holy Place and the sanctuary _or_ Holy of Holies, had two doors [one for each of them]. 
+And the temple or Holy Place and the sanctuary or Holy of Holies, had two doors [one for each of them]. 
 
 
 

@@ -112,7 +112,7 @@ Benaiah son of Jehoiada commanded the army; Zadok and Abiathar were priests;
 
 
 
-Azariah son of Nathan was over the officers; Zabud son of Nathan was priest and the king's friend _and_ private advisor; 
+Azariah son of Nathan was over the officers; Zabud son of Nathan was priest and the king's friend and private advisor; 
 
 
 

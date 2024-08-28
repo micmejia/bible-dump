@@ -19,10 +19,10 @@ And it shall be, on the day when you cross over the Jordan to the land which the
 You shall write on them all the words of this law, when you have crossed over, that you may enter the land which the Lord your God is giving you, 'a land flowing with milk and honey,' just as the Lord God of your fathers promised you. 
 
 ###### 4 
-Therefore it shall be, when you have crossed over the Jordan, _that_ on Mount Ebal you shall set up these stones, which I command you today, and you shall whitewash them with lime. 
+Therefore it shall be, when you have crossed over the Jordan, that on Mount Ebal you shall set up these stones, which I command you today, and you shall whitewash them with lime. 
 
 ###### 5 
-And there you shall build an altar to the Lord your God, an altar of stones; you shall not use an iron _tool_ on them. 
+And there you shall build an altar to the Lord your God, an altar of stones; you shall not use an iron tool on them. 
 
 ###### 6 
 You shall build with whole stones the altar of the Lord your God, and offer burnt offerings on it to the Lord your God. 
@@ -54,37 +54,37 @@ and these shall stand on Mount Ebal to curse: Reuben, Gad, Asher, Zebulun, Dan, 
 "And the Levites shall speak with a loud voice and say to all the men of Israel: 
 
 ###### 15 
-'Cursed _is_ the one who makes a carved or molded image, an abomination to the Lord, the work of the hands of the craftsman, and sets _it_ up in secret.' "And all the people shall answer and say, 'Amen!' 
+'Cursed is the one who makes a carved or molded image, an abomination to the Lord, the work of the hands of the craftsman, and sets it up in secret.' "And all the people shall answer and say, 'Amen!' 
 
 ###### 16 
-'Cursed _is_ the one who treats his father or his mother with contempt.' "And all the people shall say, 'Amen!' 
+'Cursed is the one who treats his father or his mother with contempt.' "And all the people shall say, 'Amen!' 
 
 ###### 17 
-'Cursed _is_ the one who moves his neighbor's landmark.' "And all the people shall say, 'Amen!' 
+'Cursed is the one who moves his neighbor's landmark.' "And all the people shall say, 'Amen!' 
 
 ###### 18 
-'Cursed _is_ the one who makes the blind to wander off the road.' "And all the people shall say, 'Amen!' 
+'Cursed is the one who makes the blind to wander off the road.' "And all the people shall say, 'Amen!' 
 
 ###### 19 
-'Cursed _is_ the one who perverts the justice due the stranger, the fatherless, and widow.' "And all the people shall say, 'Amen!' 
+'Cursed is the one who perverts the justice due the stranger, the fatherless, and widow.' "And all the people shall say, 'Amen!' 
 
 ###### 20 
-'Cursed _is_ the one who lies with his father's wife, because he has uncovered his father's bed.' "And all the people shall say, 'Amen!' 
+'Cursed is the one who lies with his father's wife, because he has uncovered his father's bed.' "And all the people shall say, 'Amen!' 
 
 ###### 21 
-'Cursed _is_ the one who lies with any kind of animal.' "And all the people shall say, 'Amen!' 
+'Cursed is the one who lies with any kind of animal.' "And all the people shall say, 'Amen!' 
 
 ###### 22 
-'Cursed _is_ the one who lies with his sister, the daughter of his father or the daughter of his mother.' "And all the people shall say, 'Amen!' 
+'Cursed is the one who lies with his sister, the daughter of his father or the daughter of his mother.' "And all the people shall say, 'Amen!' 
 
 ###### 23 
-'Cursed _is_ the one who lies with his mother-in-law.' "And all the people shall say, 'Amen!' 
+'Cursed is the one who lies with his mother-in-law.' "And all the people shall say, 'Amen!' 
 
 ###### 24 
-'Cursed _is_ the one who attacks his neighbor secretly.' "And all the people shall say, 'Amen!' 
+'Cursed is the one who attacks his neighbor secretly.' "And all the people shall say, 'Amen!' 
 
 ###### 25 
-'Cursed _is_ the one who takes a bribe to slay an innocent person.' "And all the people shall say, 'Amen!' 
+'Cursed is the one who takes a bribe to slay an innocent person.' "And all the people shall say, 'Amen!' 
 
 ###### 26 
-'Cursed _is_ the one who does not confirm _all_ the words of this law by observing them.' "And all the people shall say, 'Amen!' "
+'Cursed is the one who does not confirm all the words of this law by observing them.' "And all the people shall say, 'Amen!' "

@@ -91,7 +91,7 @@ Should he reason with unprofitable talk? Or with speeches with which he can do n
 
 
 
-Indeed, you are doing away with [reverential] fear, and you are hindering _and_ diminishing meditation _and_ devotion before God. 
+Indeed, you are doing away with [reverential] fear, and you are hindering and diminishing meditation and devotion before God. 
 
 
 
@@ -301,7 +301,7 @@ That you turn your spirit against God and let [such] words [as you have spoken] 
 
 
 
-What is man, that he could be pure _and_ clean? And he who is born of a woman, that he could be right _and_ just? 
+What is man, that he could be pure and clean? And he who is born of a woman, that he could be right and just? 
 
 
 
@@ -406,7 +406,7 @@ What wise men have not hid but have freely communicated; it was told to them by 
 
 
 
-Unto whom alone the land was given, and no stranger intruded _or_ passed among them [corrupting the truth]. 
+Unto whom alone the land was given, and no stranger intruded or passed among them [corrupting the truth]. 
 
 
 
@@ -427,7 +427,7 @@ Unto whom alone the land was given, and no stranger intruded _or_ passed among t
 
 
 
-The wicked man suffers with [self-inflicted] torment all his days, through all the years that are numbered _and_ laid up for him, the oppressor. 
+The wicked man suffers with [self-inflicted] torment all his days, through all the years that are numbered and laid up for him, the oppressor. 
 
 
 
@@ -490,7 +490,7 @@ He believes that he will not return out of darkness, and [because of his guilt] 
 
 
 
-He wanders abroad for food, saying, Where is it? He knows that the day of darkness _and_ destruction is already close upon him. 
+He wanders abroad for food, saying, Where is it? He knows that the day of darkness and destruction is already close upon him. 
 
 
 
@@ -532,7 +532,7 @@ Distress and anguish terrify him; [he knows] they shall prevail against him, lik
 
 
 
-Because he has stretched out his hand against God and bids defiance _and_ behaves himself proudly against the Almighty, 
+Because he has stretched out his hand against God and bids defiance and behaves himself proudly against the Almighty, 
 
 
 
@@ -616,7 +616,7 @@ And has lived in desolate [God-forsaken] cities and in houses which no man shoul
 
 
 
-He shall not be rich, neither shall his wealth last, neither shall his produce bend to the earth _nor_ his possessions be extended on the earth. 
+He shall not be rich, neither shall his wealth last, neither shall his produce bend to the earth nor his possessions be extended on the earth. 
 
 
 
@@ -679,7 +679,7 @@ Let him not deceive himself and trust in vanity (emptiness, falseness, and futil
 
 
 
-It shall be accomplished _and_ paid in full while he still lives, and his branch shall not be green [but shall wither away]. 
+It shall be accomplished and paid in full while he still lives, and his branch shall not be green [but shall wither away]. 
 
 
 

@@ -259,7 +259,7 @@ Israel has sinned; they have transgressed My covenant which I commanded them. Th
 
 
 
-That is why the Israelites could not stand before their enemies, but fled before them; they are accursed _and_ have become devoted [for destruction]. I will cease to be with you unless you destroy the accursed [devoted] things among you. 
+That is why the Israelites could not stand before their enemies, but fled before them; they are accursed and have become devoted [for destruction]. I will cease to be with you unless you destroy the accursed [devoted] things among you. 
 
 
 
@@ -322,7 +322,7 @@ In the morning therefore, you shall present your tribes. And the tribe which the
 
 
 
-And he who is taken with the devoted things shall be [killed and his body] burned with fire, he and all he has, because he has transgressed the covenant of the Lord and because he has done a shameful _and_ wicked thing in Israel. 
+And he who is taken with the devoted things shall be [killed and his body] burned with fire, he and all he has, because he has transgressed the covenant of the Lord and because he has done a shameful and wicked thing in Israel. 
 
 
 
@@ -553,4 +553,4 @@ And Joshua said, Why have you brought trouble on us? The Lord will trouble you t
 
 
 
-And they raised over him a great heap of stones that remains to this day. Then the Lord turned from the fierceness of His anger. Therefore the name of that place has been called the Valley of Achor _or_ Troubling to this day.
+And they raised over him a great heap of stones that remains to this day. Then the Lord turned from the fierceness of His anger. Therefore the name of that place has been called the Valley of Achor or Troubling to this day.

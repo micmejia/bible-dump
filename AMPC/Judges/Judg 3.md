@@ -91,7 +91,7 @@ The remaining nations are: the five lords of the Philistines, all the Canaanites
 
 
 
-They were for the testing _and_ proving of Israel to know whether Israel would listen _and_ obey the commandments of the Lord, which He commanded their fathers by Moses. 
+They were for the testing and proving of Israel to know whether Israel would listen and obey the commandments of the Lord, which He commanded their fathers by Moses. 
 
 
 
@@ -532,7 +532,7 @@ When [Ehud] had gone out, [Eglon's] servants came. And when they saw the doors o
 
 
 
-They waited a long time until they became embarrassed _and_ uneasy, but when he still did not open the doors of the upper room, they took the key and opened them, and there lay their master fallen to the floor, dead! 
+They waited a long time until they became embarrassed and uneasy, but when he still did not open the doors of the upper room, they took the key and opened them, and there lay their master fallen to the floor, dead! 
 
 
 
@@ -637,7 +637,7 @@ They slew at that time about 10,000 Moabites, all strong, courageous men; not a 
 
 
 
-So Moab was subdued that day under the hand of Israel, and the land had peace _and_ rest for eighty years. 
+So Moab was subdued that day under the hand of Israel, and the land had peace and rest for eighty years. 
 
 
 

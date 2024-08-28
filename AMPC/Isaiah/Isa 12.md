@@ -91,7 +91,7 @@ Therefore with joy will you draw water from the wells of salvation.
 
 
 
-And in that day you will say, Give thanks to the Lord, call upon His name _and_ by means of His name [in solemn entreaty]; declare _and_ make known His deeds among the peoples of the earth, proclaim that His name is exalted! 
+And in that day you will say, Give thanks to the Lord, call upon His name and by means of His name [in solemn entreaty]; declare and make known His deeds among the peoples of the earth, proclaim that His name is exalted! 
 
 
 
@@ -133,4 +133,4 @@ Sing praises to the Lord, for He has done excellent things [gloriously]; let thi
 
 
 
-Cry aloud and shout joyfully, you women _and_ inhabitants of Zion, for great in your midst is the Holy One of Israel.
+Cry aloud and shout joyfully, you women and inhabitants of Zion, for great in your midst is the Holy One of Israel.

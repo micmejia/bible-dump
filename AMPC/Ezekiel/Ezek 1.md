@@ -90,7 +90,7 @@ The word of the Lord came expressly to Ezekiel the priest, the son of Buzi, in t
 
 
 
-As I looked, behold, a stormy wind came out of the north, and a great cloud with a fire enveloping it _and_ flashing continually; a brightness was about it and out of the midst of it there seemed to glow amber metal, out of the midst of the fire. 
+As I looked, behold, a stormy wind came out of the north, and a great cloud with a fire enveloping it and flashing continually; a brightness was about it and out of the midst of it there seemed to glow amber metal, out of the midst of the fire. 
 
 
 
@@ -426,7 +426,7 @@ And when the living creatures went, the wheels went beside them; and when the li
 
 
 
-Wherever the spirit went, the creatures went and the wheels rose along with them, for the spirit _or_ life of the [four living creatures acting as one] living creature was in the wheels. 
+Wherever the spirit went, the creatures went and the wheels rose along with them, for the spirit or life of the [four living creatures acting as one] living creature was in the wheels. 
 
 
 
@@ -447,7 +447,7 @@ Wherever the spirit went, the creatures went and the wheels rose along with them
 
 
 
-When those went, these went; and when those stood, these stood; and when those were lifted up from the earth, the wheels were lifted up high beside them, for the spirit _or_ life of the [combined] living creature was in the wheels. 
+When those went, these went; and when those stood, these stood; and when those were lifted up from the earth, the wheels were lifted up high beside them, for the spirit or life of the [combined] living creature was in the wheels. 
 
 
 
@@ -468,7 +468,7 @@ When those went, these went; and when those stood, these stood; and when those w
 
 
 
-Over the head of the [combined] living creature there was the likeness of a firmament, looking like the terrible _and_ awesome [dazzling of shining] crystal _or_ ice stretched across the expanse of sky over their heads. 
+Over the head of the [combined] living creature there was the likeness of a firmament, looking like the terrible and awesome [dazzling of shining] crystal or ice stretched across the expanse of sky over their heads. 
 
 
 

@@ -112,7 +112,7 @@ Answer not a [self-confident] fool according to his folly, lest you also be like
 
 
 
-Answer a [self-confident] fool according to his folly, lest he be wise in his own eyes _and_ conceit. 
+Answer a [self-confident] fool according to his folly, lest he be wise in his own eyes and conceit. 
 
 
 
@@ -259,7 +259,7 @@ As a dog returns to his vomit, so a fool returns to his folly.
 
 
 
-Do you see a man wise in his own eyes _and_ conceit? There is more hope for a [self-confident] fool than for him. 
+Do you see a man wise in his own eyes and conceit? There is more hope for a [self-confident] fool than for him. 
 
 
 
@@ -322,7 +322,7 @@ As the door turns on its hinges, so does the lazy man [move not from his place] 
 
 
 
-The slothful _and_ self-indulgent buries his hand in his bosom; it distresses _and_ wearies him to bring it again to his mouth. 
+The slothful and self-indulgent buries his hand in his bosom; it distresses and wearies him to bring it again to his mouth. 
 
 
 
@@ -343,7 +343,7 @@ The slothful _and_ self-indulgent buries his hand in his bosom; it distresses _a
 
 
 
-The sluggard is wiser in his own eyes _and_ conceit than seven men who can render a reason _and_ answer discreetly. 
+The sluggard is wiser in his own eyes and conceit than seven men who can render a reason and answer discreetly. 
 
 
 
@@ -469,7 +469,7 @@ As coals are to hot embers and as wood to fire, so is a quarrelsome man to infla
 
 
 
-The words of a whisperer _or_ slanderer are like dainty morsels _or_ words of sport [to some, but to others are like deadly wounds]; and they go down into the innermost parts of the body [or of the victim's nature]. 
+The words of a whisperer or slanderer are like dainty morsels or words of sport [to some, but to others are like deadly wounds]; and they go down into the innermost parts of the body [or of the victim's nature]. 
 
 
 
@@ -595,4 +595,4 @@ Whoever digs a pit [for another man's feet] shall fall into it himself, and he w
 
 
 
-A lying tongue hates those it wounds _and_ crushes, and a flattering mouth works ruin.
+A lying tongue hates those it wounds and crushes, and a flattering mouth works ruin.

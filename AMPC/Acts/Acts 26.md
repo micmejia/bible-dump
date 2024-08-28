@@ -70,7 +70,7 @@ I consider myself fortunate, King Agrippa, that it is before you that I am to ma
 
 
 
-[Especially] because you are so fully _and_ unusually conversant with all the Jewish customs and controversies; therefore, I beg you to hear me patiently. 
+[Especially] because you are so fully and unusually conversant with all the Jewish customs and controversies; therefore, I beg you to hear me patiently. 
 
 
 
@@ -91,7 +91,7 @@ I consider myself fortunate, King Agrippa, that it is before you that I am to ma
 
 
 
-My behavior _and_ manner of living from my youth up is known by all the Jews; [they are aware] that from [its] commencement my youth was spent among my own race in Jerusalem. 
+My behavior and manner of living from my youth up is known by all the Jews; [they are aware] that from [its] commencement my youth was spent among my own race in Jerusalem. 
 
 
 
@@ -154,7 +154,7 @@ And now I stand here on trial [to be judged on the ground] of the hope of that p
 
 
 
-Which hope [of the Messiah and the resurrection] our twelve tribes confidently expect to realize as they fervently worship [without ceasing] night and day. And for that hope, O king, I am accused by Jews _and_ considered a criminal! 
+Which hope [of the Messiah and the resurrection] our twelve tribes confidently expect to realize as they fervently worship [without ceasing] night and day. And for that hope, O king, I am accused by Jews and considered a criminal! 
 
 
 
@@ -196,7 +196,7 @@ Why is it thought incredible by any of you that God raises the dead?
 
 
 
-I myself indeed was [once] persuaded that it was my duty to do many things contrary to _and_ in defiance of the name of Jesus of Nazareth. 
+I myself indeed was [once] persuaded that it was my duty to do many things contrary to and in defiance of the name of Jesus of Nazareth. 
 
 
 
@@ -238,7 +238,7 @@ And that is what I did in Jerusalem; I [not only] locked up many of the [faithfu
 
 
 
-And frequently I punished them in all the synagogues to make them blaspheme; and in my bitter fury against them, I harassed (troubled, molested, persecuted) _and_ pursued them even to foreign cities. 
+And frequently I punished them in all the synagogues to make them blaspheme; and in my bitter fury against them, I harassed (troubled, molested, persecuted) and pursued them even to foreign cities. 
 
 
 
@@ -301,7 +301,7 @@ When on the road at midday, O king, I saw a light from heaven surpassing the bri
 
 
 
-And when we had all fallen to the ground, I heard a voice in the Hebrew tongue saying to me, Saul, Saul, why do you continue to persecute Me [to harass and trouble and molest Me]? It is dangerous _and_ turns out badly for you to keep kicking against the goads [to keep offering vain and perilous resistance]. 
+And when we had all fallen to the ground, I heard a voice in the Hebrew tongue saying to me, Saul, Saul, why do you continue to persecute Me [to harass and trouble and molest Me]? It is dangerous and turns out badly for you to keep kicking against the goads [to keep offering vain and perilous resistance]. 
 
 
 
@@ -364,7 +364,7 @@ But arise and stand upon your feet; for I have appeared to you for this purpose,
 
 
 
-Choosing you out [selecting you for Myself] _and_ delivering you from among this [Jewish] people and the Gentiles to whom I am sending you-- 
+Choosing you out [selecting you for Myself] and delivering you from among this [Jewish] people and the Gentiles to whom I am sending you-- 
 
 
 
@@ -385,7 +385,7 @@ Choosing you out [selecting you for Myself] _and_ delivering you from among this
 
 
 
-To open their eyes that they may turn from darkness to light and from the power of Satan to God, so that they may thus receive forgiveness _and_ release from their sins and a place _and_ portion among those who are consecrated _and_ purified by faith in Me. 
+To open their eyes that they may turn from darkness to light and from the power of Satan to God, so that they may thus receive forgiveness and release from their sins and a place and portion among those who are consecrated and purified by faith in Me. 
 
 
 
@@ -427,7 +427,7 @@ Wherefore, O King Agrippa, I was not disobedient unto the heavenly vision,
 
 
 
-But made known openly first of all to those at Damascus, then at Jerusalem and throughout the whole land of Judea, and also among the Gentiles, that they should repent and turn to God, and do works _and_ live lives consistent with _and_ worthy of their repentance. 
+But made known openly first of all to those at Damascus, then at Jerusalem and throughout the whole land of Judea, and also among the Gentiles, that they should repent and turn to God, and do works and live lives consistent with and worthy of their repentance. 
 
 
 
@@ -490,7 +490,7 @@ Because of these things the Jews seized me in the temple [enclosure] and tried t
 
 
 
-That the Christ (the Anointed One) must suffer and that He, by being the first to rise from the dead, would declare _and_ show light both to the [Jewish] people and to the Gentiles. 
+That the Christ (the Anointed One) must suffer and that He, by being the first to rise from the dead, would declare and show light both to the [Jewish] people and to the Gentiles. 
 
 
 
@@ -553,7 +553,7 @@ But Paul replied, I am not mad, most noble Festus, but I am uttering the straigh
 
 
 
-For the king understands about these things well enough, and [therefore] to him I speak with bold frankness _and_ confidence. I am convinced that not one of these things has escaped his notice, for all this did not take place in a corner [in secret]. 
+For the king understands about these things well enough, and [therefore] to him I speak with bold frankness and confidence. I am convinced that not one of these things has escaped his notice, for all this did not take place in a corner [in secret]. 
 
 
 
@@ -574,7 +574,7 @@ For the king understands about these things well enough, and [therefore] to him 
 
 
 
-King Agrippa, do you believe the prophets? [Do you give credence to God's messengers and their words?] I perceive _and_ know that you do believe. 
+King Agrippa, do you believe the prophets? [Do you give credence to God's messengers and their words?] I perceive and know that you do believe. 
 
 
 

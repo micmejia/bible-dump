@@ -91,7 +91,7 @@ Man sets an end to darkness, and he searches out the farthest bounds for the ore
 
 
 
-Men break open shafts away from where people sojourn, in places forgotten by [human] foot; and [descend into them], hanging afar from men, they swing _or_ flit to and fro. 
+Men break open shafts away from where people sojourn, in places forgotten by [human] foot; and [descend into them], hanging afar from men, they swing or flit to and fro. 
 
 
 
@@ -217,7 +217,7 @@ Man puts forth his hand upon the flinty rock; he overturns the mountains by the 
 
 
 
-He cuts out channels _and_ passages among the rocks; and his eye sees every precious thing. 
+He cuts out channels and passages among the rocks; and his eye sees every precious thing. 
 
 
 
@@ -343,7 +343,7 @@ It cannot be gotten for gold, neither shall silver be weighed for the price of i
 
 
 
-It cannot be valued in [terms of] the gold of Ophir, in the precious onyx _or_ beryl, or the sapphire. 
+It cannot be valued in [terms of] the gold of Ophir, in the precious onyx or beryl, or the sapphire. 
 
 
 
@@ -364,7 +364,7 @@ It cannot be valued in [terms of] the gold of Ophir, in the precious onyx _or_ b
 
 
 
-Gold and glass cannot equal [Wisdom], nor can it be exchanged for jewels _or_ vessels of fine gold. 
+Gold and glass cannot equal [Wisdom], nor can it be exchanged for jewels or vessels of fine gold. 
 
 
 
@@ -385,7 +385,7 @@ Gold and glass cannot equal [Wisdom], nor can it be exchanged for jewels _or_ ve
 
 
 
-No mention shall be made of coral or of crystal; for the possession of Wisdom is even above rubies _or_ pearls. 
+No mention shall be made of coral or of crystal; for the possession of Wisdom is even above rubies or pearls. 
 
 
 
@@ -532,7 +532,7 @@ For He looks to the ends of the earth and sees everything under the heavens.
 
 
 
-When He gave to the wind weight _or_ pressure and allotted the waters by measure, 
+When He gave to the wind weight or pressure and allotted the waters by measure, 
 
 
 
@@ -595,4 +595,4 @@ Then He saw [Wisdom] and declared it; He established it, yes, and searched it ou
 
 
 
-But to man He said, Behold, the reverential _and_ worshipful fear of the Lord--that is Wisdom; and to depart from evil is understanding.
+But to man He said, Behold, the reverential and worshipful fear of the Lord--that is Wisdom; and to depart from evil is understanding.

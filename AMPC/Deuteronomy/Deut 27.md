@@ -406,7 +406,7 @@ Cursed is he who misleads a blind man on his way. All the people shall say, Amen
 
 
 
-Cursed is he who perverts the justice due to the sojourner _or_ the stranger, the fatherless, and the widow. All the people shall say, Amen. 
+Cursed is he who perverts the justice due to the sojourner or the stranger, the fatherless, and the widow. All the people shall say, Amen. 
 
 
 
@@ -553,4 +553,4 @@ Cursed is he who takes a bribe to slay an innocent person. All the people shall 
 
 
 
-Cursed is he who does not support _and_ give assent to the words of this law to do them [as the rule of his life]. All the people shall say, Amen.
+Cursed is he who does not support and give assent to the words of this law to do them [as the rule of his life]. All the people shall say, Amen.

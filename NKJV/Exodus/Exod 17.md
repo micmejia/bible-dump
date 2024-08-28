@@ -10,13 +10,13 @@ next: ['Exod 18']
 
 
 ###### 1 
-Then all the congregation of the children of Israel set out on their journey from the Wilderness of Sin, according to the commandment of the Lord, and camped in Rephidim; but _there was_ no water for the people to drink. 
+Then all the congregation of the children of Israel set out on their journey from the Wilderness of Sin, according to the commandment of the Lord, and camped in Rephidim; but there was no water for the people to drink. 
 
 ###### 2 
 Therefore the people contended with Moses, and said, "Give us water, that we may drink." So Moses said to them, "Why do you contend with me? Why do you tempt the Lord?" 
 
 ###### 3 
-And the people thirsted there for water, and the people complained against Moses, and said, "Why _is_ it you have brought us up out of Egypt, to kill us and our children and our livestock with thirst?" 
+And the people thirsted there for water, and the people complained against Moses, and said, "Why is it you have brought us up out of Egypt, to kill us and our children and our livestock with thirst?" 
 
 ###### 4 
 So Moses cried out to the Lord, saying, "What shall I do with this people? They are almost ready to stone me!" 
@@ -45,16 +45,16 @@ So Joshua did as Moses said to him, and fought with Amalek. And Moses, Aaron, an
 And so it was, when Moses held up his hand, that Israel prevailed; and when he let down his hand, Amalek prevailed. 
 
 ###### 12 
-But Moses' hands _became_ heavy; so they took a stone and put _it_ under him, and he sat on it. And Aaron and Hur supported his hands, one on one side, and the other on the other side; and his hands were steady until the going down of the sun. 
+But Moses' hands became heavy; so they took a stone and put it under him, and he sat on it. And Aaron and Hur supported his hands, one on one side, and the other on the other side; and his hands were steady until the going down of the sun. 
 
 ###### 13 
 So Joshua defeated Amalek and his people with the edge of the sword. 
 
 ###### 14 
-Then the Lord said to Moses, "Write this _for_ a memorial in the book and recount _it_ in the hearing of Joshua, that I will utterly blot out the remembrance of Amalek from under heaven." 
+Then the Lord said to Moses, "Write this for a memorial in the book and recount it in the hearing of Joshua, that I will utterly blot out the remembrance of Amalek from under heaven." 
 
 ###### 15 
 And Moses built an altar and called its name, The-Lord-Is-My-Banner; 
 
 ###### 16 
-for he said, "Because the Lord has sworn: the Lord _will have_ war with Amalek from generation to generation."
+for he said, "Because the Lord has sworn: the Lord will have war with Amalek from generation to generation."

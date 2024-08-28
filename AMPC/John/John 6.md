@@ -238,7 +238,7 @@ Jesus said, Make all the people recline (sit down). Now the ground (a pasture) w
 
 
 
-Jesus took the loaves, and when He had given thanks, He distributed _to the disciples and the disciples_ to the reclining people; so also [He did] with the fish, as much as they wanted. 
+Jesus took the loaves, and when He had given thanks, He distributed to the disciples and the disciples to the reclining people; so also [He did] with the fish, as much as they wanted. 
 
 
 
@@ -259,7 +259,7 @@ Jesus took the loaves, and when He had given thanks, He distributed _to the disc
 
 
 
-When they had all had enough, He said to His disciples, Gather up now the fragments (the broken pieces that are left over), so that nothing may be lost _and_ wasted. 
+When they had all had enough, He said to His disciples, Gather up now the fragments (the broken pieces that are left over), so that nothing may be lost and wasted. 
 
 
 
@@ -301,7 +301,7 @@ So accordingly they gathered them up, and they filled twelve [small hand] basket
 
 
 
-When the people saw the sign (miracle) that Jesus had performed, they began saying, Surely _and_ beyond a doubt this is the Prophet Who is to come into the world! 
+When the people saw the sign (miracle) that Jesus had performed, they began saying, Surely and beyond a doubt this is the Prophet Who is to come into the world! 
 
 
 
@@ -385,7 +385,7 @@ And they took a boat and were going across the sea to Capernaum. It was now dark
 
 
 
-Meanwhile, the sea was getting rough _and_ rising high because of a great _and_ violent wind that was blowing. 
+Meanwhile, the sea was getting rough and rising high because of a great and violent wind that was blowing. 
 
 
 
@@ -448,7 +448,7 @@ But Jesus said to them, It is I; be not afraid! [I Am; stop being frightened!]
 
 
 
-Then they were quite willing _and_ glad for Him to come into the boat. And now the boat went at once to the land they had steered toward. [And immediately they reached the shore toward which they had been slowly making their way.] 
+Then they were quite willing and glad for Him to come into the boat. And now the boat went at once to the land they had steered toward. [And immediately they reached the shore toward which they had been slowly making their way.] 
 
 
 
@@ -553,7 +553,7 @@ And when they found Him on the other side of the lake, they said to Him, Rabbi! 
 
 
 
-Jesus answered them, I assure you, most solemnly I tell you, you have been searching for Me, not because you saw the miracles _and_ signs but because you were fed with the loaves and were filled _and_ satisfied. 
+Jesus answered them, I assure you, most solemnly I tell you, you have been searching for Me, not because you saw the miracles and signs but because you were fed with the loaves and were filled and satisfied. 
 
 
 
@@ -574,7 +574,7 @@ Jesus answered them, I assure you, most solemnly I tell you, you have been searc
 
 
 
-Stop toiling _and_ doing _and_ producing for the food that perishes _and_ decomposes [in the using], but strive _and_ work _and_ produce rather for the [lasting] food which endures [continually] unto life eternal; the Son of Man will give (furnish) you that, for God the Father has authorized _and_ certified Him _and_ put His seal of endorsement upon Him. 
+Stop toiling and doing and producing for the food that perishes and decomposes [in the using], but strive and work and produce rather for the [lasting] food which endures [continually] unto life eternal; the Son of Man will give (furnish) you that, for God the Father has authorized and certified Him and put His seal of endorsement upon Him. 
 
 
 
@@ -637,7 +637,7 @@ Jesus replied, This is the work (service) that God asks of you: that you believe
 
 
 
-Therefore they said to Him, What sign (miracle, wonderwork) will You perform then, so that we may see it and believe _and_ rely on _and_ adhere to You? What [supernatural] work have You [to show what You can do]? 
+Therefore they said to Him, What sign (miracle, wonderwork) will You perform then, so that we may see it and believe and rely on and adhere to You? What [supernatural] work have You [to show what You can do]? 
 
 
 
@@ -742,7 +742,7 @@ Then they said to Him, Lord, give us this bread always (all the time)!
 
 
 
-Jesus replied, I am the Bread of Life. He who comes to Me will never be hungry, and he who believes in _and_ cleaves to _and_ trusts in _and_ relies on Me will never thirst any more (at any time). 
+Jesus replied, I am the Bread of Life. He who comes to Me will never be hungry, and he who believes in and cleaves to and trusts in and relies on Me will never thirst any more (at any time). 
 
 
 
@@ -763,7 +763,7 @@ Jesus replied, I am the Bread of Life. He who comes to Me will never be hungry, 
 
 
 
-But [as] I told you, although you have seen Me, still you do not believe _and_ trust _and_ have faith. 
+But [as] I told you, although you have seen Me, still you do not believe and trust and have faith. 
 
 
 
@@ -805,7 +805,7 @@ All whom My Father gives (entrusts) to Me will come to Me; and the one who comes
 
 
 
-For I have come down from heaven not to do My own will _and_ purpose but to do the will _and_ purpose of Him Who sent Me. 
+For I have come down from heaven not to do My own will and purpose but to do the will and purpose of Him Who sent Me. 
 
 
 
@@ -826,7 +826,7 @@ For I have come down from heaven not to do My own will _and_ purpose but to do t
 
 
 
-And this is the will of Him Who sent Me, that I should not lose any of all that He has given Me, but that I should give new life _and_ raise [them all] up at the last day. 
+And this is the will of Him Who sent Me, that I should not lose any of all that He has given Me, but that I should give new life and raise [them all] up at the last day. 
 
 
 
@@ -847,7 +847,7 @@ And this is the will of Him Who sent Me, that I should not lose any of all that 
 
 
 
-For this is My Father's will _and_ His purpose, that everyone who sees the Son and believes in _and_ cleaves to _and_ trusts in _and_ relies on Him should have eternal life, and I will raise him up [from the dead] at the last day. 
+For this is My Father's will and His purpose, that everyone who sees the Son and believes in and cleaves to and trusts in and relies on Him should have eternal life, and I will raise him up [from the dead] at the last day. 
 
 
 
@@ -868,7 +868,7 @@ For this is My Father's will _and_ His purpose, that everyone who sees the Son a
 
 
 
-Now the Jews murmured _and_ found fault with _and_ grumbled about Jesus because He said, I am [Myself] the Bread that came down from heaven. 
+Now the Jews murmured and found fault with and grumbled about Jesus because He said, I am [Myself] the Bread that came down from heaven. 
 
 
 
@@ -910,7 +910,7 @@ They kept asking, Is not this Jesus, the Son of Joseph, Whose father and mother 
 
 
 
-So Jesus answered them, Stop grumbling _and_ saying things against Me to one another. 
+So Jesus answered them, Stop grumbling and saying things against Me to one another. 
 
 
 
@@ -931,7 +931,7 @@ So Jesus answered them, Stop grumbling _and_ saying things against Me to one ano
 
 
 
-No one is able to come to Me unless the Father Who sent Me attracts _and_ draws him _and_ gives him the desire to come to Me, and [then] I will raise him up [from the dead] at the last day. 
+No one is able to come to Me unless the Father Who sent Me attracts and draws him and gives him the desire to come to Me, and [then] I will raise him up [from the dead] at the last day. 
 
 
 
@@ -994,7 +994,7 @@ Which does not imply that anyone has seen the Father [not that anyone has ever s
 
 
 
-I assure you, most solemnly I tell you, he who believes _in Me_ [who adheres to, trusts in, relies on, and has faith in Me] has (now possesses) eternal life. 
+I assure you, most solemnly I tell you, he who believes in Me [who adheres to, trusts in, relies on, and has faith in Me] has (now possesses) eternal life. 
 
 
 
@@ -1162,7 +1162,7 @@ He who feeds on My flesh and drinks My blood has (possesses now) eternal life, a
 
 
 
-For My flesh is true _and_ genuine food, and My blood is true _and_ genuine drink. 
+For My flesh is true and genuine food, and My blood is true and genuine drink. 
 
 
 
@@ -1204,7 +1204,7 @@ He who feeds on My flesh and drinks My blood dwells continually in Me, and I [in
 
 
 
-Just as the living Father sent Me and I live by (through, because of) the Father, even so whoever continues to feed on Me [whoever takes Me for his food _and_ is nourished by Me] shall [in his turn] live through _and_ because of Me. 
+Just as the living Father sent Me and I live by (through, because of) the Father, even so whoever continues to feed on Me [whoever takes Me for his food and is nourished by Me] shall [in his turn] live through and because of Me. 
 
 
 
@@ -1267,7 +1267,7 @@ He said these things in a synagogue while He was teaching at Capernaum.
 
 
 
-When His disciples heard this, many of them said, This is a hard _and_ difficult _and_ strange saying (an offensive and unbearable message). Who can stand to hear it? [Who can be expected to listen to such teaching?] 
+When His disciples heard this, many of them said, This is a hard and difficult and strange saying (an offensive and unbearable message). Who can stand to hear it? [Who can be expected to listen to such teaching?] 
 
 
 
@@ -1288,7 +1288,7 @@ When His disciples heard this, many of them said, This is a hard _and_ difficult
 
 
 
-But Jesus, knowing within Himself that His disciples were complaining _and_ protesting _and_ grumbling about it, said to them: Is this a stumbling block _and_ an offense to you? [Does this upset and displease and shock and scandalize you?] 
+But Jesus, knowing within Himself that His disciples were complaining and protesting and grumbling about it, said to them: Is this a stumbling block and an offense to you? [Does this upset and displease and shock and scandalize you?] 
 
 
 
@@ -1351,7 +1351,7 @@ It is the Spirit Who gives life [He is the Life-giver]; the flesh conveys no ben
 
 
 
-But [still] some of you fail to believe _and_ trust _and_ have faith. For Jesus knew from the first who did not believe _and_ had no faith and who would betray Him _and_ be false to Him. 
+But [still] some of you fail to believe and trust and have faith. For Jesus knew from the first who did not believe and had no faith and who would betray Him and be false to Him. 
 
 
 
@@ -1456,7 +1456,7 @@ Simon Peter answered, Lord, to whom shall we go? You have the words (the message
 
 
 
-And we have learned to believe _and_ trust, and [more] we have come to know [surely] that You are _the Holy One of God_, the Christ (the Anointed One), the Son of the living God. 
+And we have learned to believe and trust, and [more] we have come to know [surely] that You are the Holy One of God, the Christ (the Anointed One), the Son of the living God. 
 
 
 

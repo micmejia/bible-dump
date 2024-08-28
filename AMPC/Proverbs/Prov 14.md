@@ -49,7 +49,7 @@ Every wise woman builds her house, but the foolish one tears it down with her ow
 
 
 
-He who walks in uprightness reverently _and_ worshipfully fears the Lord, but he who is contrary _and_ devious in his ways despises Him. 
+He who walks in uprightness reverently and worshipfully fears the Lord, but he who is contrary and devious in his ways despises Him. 
 
 
 
@@ -154,7 +154,7 @@ A scoffer seeks Wisdom in vain [for his very attitude blinds and deafens him to 
 
 
 
-Go from the presence of a foolish _and_ self-confident man, for you will not find knowledge on his lips. 
+Go from the presence of a foolish and self-confident man, for you will not find knowledge on his lips. 
 
 
 
@@ -196,7 +196,7 @@ The Wisdom [godly Wisdom, which is comprehensive insight into the ways and purpo
 
 
 
-Fools make a mock of sin _and_ sin mocks the fools [who are its victims; a sin offering made by them only mocks them, bringing them disappointment and disfavor], but among the upright there is the favor of God. 
+Fools make a mock of sin and sin mocks the fools [who are its victims; a sin offering made by them only mocks them, bringing them disappointment and disfavor], but among the upright there is the favor of God. 
 
 
 
@@ -259,7 +259,7 @@ The house of the wicked shall be overthrown, but the tent of the upright shall f
 
 
 
-There is a way which seems right to a man _and_ appears straight before him, but at the end of it is the way of death. 
+There is a way which seems right to a man and appears straight before him, but at the end of it is the way of death. 
 
 
 
@@ -280,7 +280,7 @@ There is a way which seems right to a man _and_ appears straight before him, but
 
 
 
-Even in laughter the heart is sorrowful, and the end of mirth is heaviness _and_ grief. 
+Even in laughter the heart is sorrowful, and the end of mirth is heaviness and grief. 
 
 
 
@@ -322,7 +322,7 @@ The backslider in heart [from God and from fearing God] shall be filled with [th
 
 
 
-The simpleton believes every word he hears, but the prudent man looks _and_ considers well where he is going. 
+The simpleton believes every word he hears, but the prudent man looks and considers well where he is going. 
 
 
 
@@ -364,7 +364,7 @@ A wise man suspects danger and cautiously avoids evil, but the fool bears himsel
 
 
 
-He who foams up quickly _and_ flies into a passion deals foolishly, and a man of wicked plots _and_ plans is hated. 
+He who foams up quickly and flies into a passion deals foolishly, and a man of wicked plots and plans is hated. 
 
 
 
@@ -448,7 +448,7 @@ The poor is hated even by his own neighbor, but the rich has many friends.
 
 
 
-He who despises his neighbor sins [against God, his fellowman, and himself], but happy (blessed and fortunate) is he who is kind _and_ merciful to the poor. 
+He who despises his neighbor sins [against God, his fellowman, and himself], but happy (blessed and fortunate) is he who is kind and merciful to the poor. 
 
 
 
@@ -469,7 +469,7 @@ He who despises his neighbor sins [against God, his fellowman, and himself], but
 
 
 
-Do they not err who devise evil _and_ wander from the way of life? But loving-kindness _and_ mercy, loyalty _and_ faithfulness, shall be to those who devise good. 
+Do they not err who devise evil and wander from the way of life? But loving-kindness and mercy, loyalty and faithfulness, shall be to those who devise good. 
 
 
 
@@ -553,7 +553,7 @@ A truthful witness saves lives, but a deceitful witness speaks lies [and endange
 
 
 
-In the reverent _and_ worshipful fear of the Lord there is strong confidence, and His children shall always have a place of refuge. 
+In the reverent and worshipful fear of the Lord there is strong confidence, and His children shall always have a place of refuge. 
 
 
 
@@ -574,7 +574,7 @@ In the reverent _and_ worshipful fear of the Lord there is strong confidence, an
 
 
 
-Reverent _and_ worshipful fear of the Lord is a fountain of life, that one may avoid the snares of death. 
+Reverent and worshipful fear of the Lord is a fountain of life, that one may avoid the snares of death. 
 
 
 
@@ -616,7 +616,7 @@ In a multitude of people is the king's glory, but in a lack of people is the pri
 
 
 
-He who is slow to anger has great understanding, but he who is hasty of spirit exposes _and_ exalts his folly. 
+He who is slow to anger has great understanding, but he who is hasty of spirit exposes and exalts his folly. 
 
 
 
@@ -637,7 +637,7 @@ He who is slow to anger has great understanding, but he who is hasty of spirit e
 
 
 
-A calm _and_ undisturbed mind _and_ heart are the life _and_ health of the body, but envy, jealousy, _and_ wrath are like rottenness of the bones. 
+A calm and undisturbed mind and heart are the life and health of the body, but envy, jealousy, and wrath are like rottenness of the bones. 
 
 
 
@@ -658,7 +658,7 @@ A calm _and_ undisturbed mind _and_ heart are the life _and_ health of the body,
 
 
 
-He who oppresses the poor reproaches, mocks, _and_ insults his Maker, but he who is kind _and_ merciful to the needy honors Him. 
+He who oppresses the poor reproaches, mocks, and insults his Maker, but he who is kind and merciful to the needy honors Him. 
 
 
 
@@ -679,7 +679,7 @@ He who oppresses the poor reproaches, mocks, _and_ insults his Maker, but he who
 
 
 
-The wicked is overthrown through his wrongdoing _and_ calamity, but the [consistently] righteous has hope _and_ confidence even in death. 
+The wicked is overthrown through his wrongdoing and calamity, but the [consistently] righteous has hope and confidence even in death. 
 
 
 
@@ -700,7 +700,7 @@ The wicked is overthrown through his wrongdoing _and_ calamity, but the [consist
 
 
 
-Wisdom rests [silently] in the mind _and_ heart of him who has understanding, but that which is in the inward part of [self-confident] fools is made known. 
+Wisdom rests [silently] in the mind and heart of him who has understanding, but that which is in the inward part of [self-confident] fools is made known. 
 
 
 
@@ -721,7 +721,7 @@ Wisdom rests [silently] in the mind _and_ heart of him who has understanding, bu
 
 
 
-Uprightness _and_ right standing with God (moral and spiritual rectitude in every area and relation) elevate a nation, but sin is a reproach to any people. 
+Uprightness and right standing with God (moral and spiritual rectitude in every area and relation) elevate a nation, but sin is a reproach to any people. 
 
 
 
@@ -742,4 +742,4 @@ Uprightness _and_ right standing with God (moral and spiritual rectitude in ever
 
 
 
-The king's favor is toward a wise _and_ discreet servant, but his wrath is against him who does shamefully.
+The king's favor is toward a wise and discreet servant, but his wrath is against him who does shamefully.

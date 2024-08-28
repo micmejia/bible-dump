@@ -28,28 +28,28 @@ but He did not respect Cain and his offering. And Cain was very angry, and his c
 So the Lord said to Cain, "Why are you angry? And why has your countenance fallen? 
 
 ###### 7 
-If you do well, will you not be accepted? And if you do not do well, sin lies at the door. And its desire _is_ for you, but you should rule over it." 
+If you do well, will you not be accepted? And if you do not do well, sin lies at the door. And its desire is for you, but you should rule over it." 
 
 ###### 8 
 Now Cain talked with Abel his brother; and it came to pass, when they were in the field, that Cain rose up against Abel his brother and killed him. 
 
 ###### 9 
-Then the Lord said to Cain, "Where _is_ Abel your brother?" He said, "I do not know. _Am_ I my brother's keeper?" 
+Then the Lord said to Cain, "Where is Abel your brother?" He said, "I do not know. Am I my brother's keeper?" 
 
 ###### 10 
 And He said, "What have you done? The voice of your brother's blood cries out to Me from the ground. 
 
 ###### 11 
-So now you _are_ cursed from the earth, which has opened its mouth to receive your brother's blood from your hand. 
+So now you are cursed from the earth, which has opened its mouth to receive your brother's blood from your hand. 
 
 ###### 12 
 When you till the ground, it shall no longer yield its strength to you. A fugitive and a vagabond you shall be on the earth." 
 
 ###### 13 
-And Cain said to the Lord, "My punishment _is_ greater than I can bear! 
+And Cain said to the Lord, "My punishment is greater than I can bear! 
 
 ###### 14 
-Surely You have driven me out this day from the face of the ground; I shall be hidden from Your face; I shall be a fugitive and a vagabond on the earth, and it will happen _that_ anyone who finds me will kill me." 
+Surely You have driven me out this day from the face of the ground; I shall be hidden from Your face; I shall be a fugitive and a vagabond on the earth, and it will happen that anyone who finds me will kill me." 
 
 ###### 15 
 And the Lord said to him, "Therefore, whoever kills Cain, vengeance shall be taken on him sevenfold." And the Lord set a mark on Cain, lest anyone finding him should kill him.
@@ -66,16 +66,16 @@ And Cain knew his wife, and she conceived and bore Enoch. And he built a city, a
 To Enoch was born Irad; and Irad begot Mehujael, and Mehujael begot Methushael, and Methushael begot Lamech. 
 
 ###### 19 
-Then Lamech took for himself two wives: the name of one _was_ Adah, and the name of the second _was_ Zillah. 
+Then Lamech took for himself two wives: the name of one was Adah, and the name of the second was Zillah. 
 
 ###### 20 
 And Adah bore Jabal. He was the father of those who dwell in tents and have livestock. 
 
 ###### 21 
-His brother's name _was_ Jubal. He was the father of all those who play the harp and flute. 
+His brother's name was Jubal. He was the father of all those who play the harp and flute. 
 
 ###### 22 
-And as for Zillah, she also bore Tubal-Cain, an instructor of every craftsman in bronze and iron. And the sister of Tubal-Cain _was_ Naamah. 
+And as for Zillah, she also bore Tubal-Cain, an instructor of every craftsman in bronze and iron. And the sister of Tubal-Cain was Naamah. 
 
 ###### 23 
 Then Lamech said to his wives: "Adah and Zillah, hear my voice; Wives of Lamech, listen to my speech! For I have killed a man for wounding me, Even a young man for hurting me. 
@@ -89,4 +89,4 @@ If Cain shall be avenged sevenfold, Then Lamech seventy-sevenfold."
 And Adam knew his wife again, and she bore a son and named him Seth, "For God has appointed another seed for me instead of Abel, whom Cain killed." 
 
 ###### 26 
-And as for Seth, to him also a son was born; and he named him Enosh. Then _men_ began to call on the name of the Lord.
+And as for Seth, to him also a son was born; and he named him Enosh. Then men began to call on the name of the Lord.

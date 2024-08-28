@@ -49,7 +49,7 @@ The mournful, inspired prediction (a burden to be lifted up) concerning the Vall
 
 
 
-You who are full of shouting, a tumultuous city, a joyous _and_ exultant city? [O Jerusalem] your slain warriors have not met [a glorious] death with the sword or in battle. 
+You who are full of shouting, a tumultuous city, a joyous and exultant city? [O Jerusalem] your slain warriors have not met [a glorious] death with the sword or in battle. 
 
 
 
@@ -70,7 +70,7 @@ You who are full of shouting, a tumultuous city, a joyous _and_ exultant city? [
 
 
 
-All your [military] leaders have fled together; without the bow [which they had thrown away] they have been taken captive _and_ bound by the archers. All of you who were found were bound together [as captives], though they had fled far away. 
+All your [military] leaders have fled together; without the bow [which they had thrown away] they have been taken captive and bound by the archers. All of you who were found were bound together [as captives], though they had fled far away. 
 
 
 
@@ -91,7 +91,7 @@ All your [military] leaders have fled together; without the bow [which they had 
 
 
 
-Therefore I [Isaiah] said, Look away from me; I will weep bitterly. Do not hasten _and_ try to comfort me over the destruction of the daughter of my people. 
+Therefore I [Isaiah] said, Look away from me; I will weep bitterly. Do not hasten and try to comfort me over the destruction of the daughter of my people. 
 
 
 
@@ -112,7 +112,7 @@ Therefore I [Isaiah] said, Look away from me; I will weep bitterly. Do not haste
 
 
 
-For it is a day of discomfiture _and_ of tumult, of treading down, of confusion _and_ perplexity from the Lord God of hosts in the Valley of Vision, a day of breaking down the walls and of crying to the mountains. 
+For it is a day of discomfiture and of tumult, of treading down, of confusion and perplexity from the Lord God of hosts in the Valley of Vision, a day of breaking down the walls and of crying to the mountains. 
 
 
 
@@ -133,7 +133,7 @@ For it is a day of discomfiture _and_ of tumult, of treading down, of confusion 
 
 
 
-And [in my vision I saw] Elam take up the quiver, with troops in chariots, infantry, _and_ horsemen; and Kir [with Elam subject to Assyria] uncovered the shield. 
+And [in my vision I saw] Elam take up the quiver, with troops in chariots, infantry, and horsemen; and Kir [with Elam subject to Assyria] uncovered the shield. 
 
 
 
@@ -322,7 +322,7 @@ And the Lord of hosts revealed Himself in my ears [as He said], Surely this unat
 
 
 
-Come, go to this [contemptible] steward _and_ treasurer, to Shebna, who is over the house [but who is presumptuous enough to be building himself a tomb among those of the mighty, a tomb worthy of a king], and say to him, 
+Come, go to this [contemptible] steward and treasurer, to Shebna, who is over the house [but who is presumptuous enough to be building himself a tomb among those of the mighty, a tomb worthy of a king], and say to him, 
 
 
 
@@ -364,7 +364,7 @@ What business have you here? And whom have you entombed here, that you have the 
 
 
 
-Behold, the Lord will hurl you away violently, O you strong man; yes, He will take tight hold of you _and_ He will surely cover you [with shame]. 
+Behold, the Lord will hurl you away violently, O you strong man; yes, He will take tight hold of you and He will surely cover you [with shame]. 
 
 
 
@@ -490,7 +490,7 @@ And the key of the house of David I will lay upon his shoulder; he shall open an
 
 
 
-And I will fasten him like a peg _or_ nail in a firm place; and he will become a throne of honor _and_ glory to his father's house. 
+And I will fasten him like a peg or nail in a firm place; and he will become a throne of honor and glory to his father's house. 
 
 
 
@@ -511,7 +511,7 @@ And I will fasten him like a peg _or_ nail in a firm place; and he will become a
 
 
 
-And they will hang on him the honor _and_ the whole weight of [responsibility for] his father's house: the offspring and issue [of the family, high and low], every small vessel, from the cups even to all the flasks _and_ big bulging bottles. 
+And they will hang on him the honor and the whole weight of [responsibility for] his father's house: the offspring and issue [of the family, high and low], every small vessel, from the cups even to all the flasks and big bulging bottles. 
 
 
 
@@ -532,4 +532,4 @@ And they will hang on him the honor _and_ the whole weight of [responsibility fo
 
 
 
-In that day, says the Lord of hosts, the nail _or_ peg that was fastened into the sure place shall give way _and_ be moved and be hewn down and fall, and the burden that was upon it shall be cut off; for the Lord has spoken it.
+In that day, says the Lord of hosts, the nail or peg that was fastened into the sure place shall give way and be moved and be hewn down and fall, and the burden that was upon it shall be cut off; for the Lord has spoken it.

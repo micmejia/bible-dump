@@ -321,7 +321,7 @@ Behold, while you are still talking there with the king, I also will come in aft
 
 
 
-So Bathsheba went in to the king in his chamber. Now the king was very old _and_ feeble, and Abishag the Shunammite was ministering to [him]. 
+So Bathsheba went in to the king in his chamber. Now the king was very old and feeble, and Abishag the Shunammite was ministering to [him]. 
 
 
 

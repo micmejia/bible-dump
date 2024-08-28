@@ -16,16 +16,16 @@ Then the men of Ephraim gathered together, crossed over toward Zaphon, and said 
 And Jephthah said to them, "My people and I were in a great struggle with the people of Ammon; and when I called you, you did not deliver me out of their hands. 
 
 ###### 3 
-So when I saw that you would not deliver _me,_ I took my life in my hands and crossed over against the people of Ammon; and the Lord delivered them into my hand. Why then have you come up to me this day to fight against me?" 
+So when I saw that you would not deliver me, I took my life in my hands and crossed over against the people of Ammon; and the Lord delivered them into my hand. Why then have you come up to me this day to fight against me?" 
 
 ###### 4 
-Now Jephthah gathered together all the men of Gilead and fought against Ephraim. And the men of Gilead defeated Ephraim, because they said, "You Gileadites _are_ fugitives of Ephraim among the Ephraimites _and_ among the Manassites." 
+Now Jephthah gathered together all the men of Gilead and fought against Ephraim. And the men of Gilead defeated Ephraim, because they said, "You Gileadites are fugitives of Ephraim among the Ephraimites and among the Manassites." 
 
 ###### 5 
-The Gileadites seized the fords of the Jordan before the Ephraimites _arrived._ And when _any_ Ephraimite who escaped said, "Let me cross over," the men of Gilead would say to him, "_Are_ you an Ephraimite?" If he said, "No," 
+The Gileadites seized the fords of the Jordan before the Ephraimites arrived. And when any Ephraimite who escaped said, "Let me cross over," the men of Gilead would say to him, "Are you an Ephraimite?" If he said, "No," 
 
 ###### 6 
-then they would say to him, "Then say, 'Shibboleth'!" And he would say, "Sibboleth," for he could not pronounce _it_ right. Then they would take him and kill him at the fords of the Jordan. There fell at that time forty-two thousand Ephraimites. 
+then they would say to him, "Then say, 'Shibboleth'!" And he would say, "Sibboleth," for he could not pronounce it right. Then they would take him and kill him at the fords of the Jordan. There fell at that time forty-two thousand Ephraimites. 
 
 ###### 7 
 And Jephthah judged Israel six years. Then Jephthah the Gileadite died and was buried among the cities of Gilead.

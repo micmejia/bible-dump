@@ -154,7 +154,7 @@ And the Lord said to Moses,
 
 
 
-The daughters of Zelophehad are justified _and_ speak correctly. You shall surely give them an inheritance among their father's brethren, and you shall cause their father's inheritance to pass to them. 
+The daughters of Zelophehad are justified and speak correctly. You shall surely give them an inheritance among their father's brethren, and you shall cause their father's inheritance to pass to them. 
 
 
 
@@ -427,7 +427,7 @@ And set him before Eleazar the priest and all the congregation and give him a ch
 
 
 
-And put some of your honor _and_ authority upon him, that all the congregation of the Israelites may obey him. 
+And put some of your honor and authority upon him, that all the congregation of the Israelites may obey him. 
 
 
 

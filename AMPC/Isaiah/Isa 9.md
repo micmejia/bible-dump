@@ -49,7 +49,7 @@ But [in the midst of judgment there is the promise and the certainty of the Lord
 
 
 
-The people who walked in darkness have seen a great Light; those who dwelt in the land of intense darkness _and_ the shadow of death, upon them has the Light shined. 
+The people who walked in darkness have seen a great Light; those who dwelt in the land of intense darkness and the shadow of death, upon them has the Light shined. 
 
 
 
@@ -91,7 +91,7 @@ You [O Lord] have multiplied the nation and increased their joy; they rejoice be
 
 
 
-For the yoke of [Israel's] burden, and the staff _or_ rod for [goading] their shoulders, the rod of their oppressor, You have broken as in the day of [Gideon with] Midian. 
+For the yoke of [Israel's] burden, and the staff or rod for [goading] their shoulders, the rod of their oppressor, You have broken as in the day of [Gideon with] Midian. 
 
 
 
@@ -112,7 +112,7 @@ For the yoke of [Israel's] burden, and the staff _or_ rod for [goading] their sh
 
 
 
-For every [tramping] warrior's war boots _and_ all his armor in the battle tumult and every garment rolled in blood shall be burned as fuel for the fire. 
+For every [tramping] warrior's war boots and all his armor in the battle tumult and every garment rolled in blood shall be burned as fuel for the fire. 
 
 
 
@@ -238,7 +238,7 @@ The bricks have fallen, but we will build [all the better] with hewn stones; the
 
 
 
-Therefore the Lord has stirred up the adversaries [the Assyrians] of Rezin [king of Syria] against [Ephraim], and He will stir up their enemies _and_ arm _and_ join them together, 
+Therefore the Lord has stirred up the adversaries [the Assyrians] of Rezin [king of Syria] against [Ephraim], and He will stir up their enemies and arm and join them together, 
 
 
 
@@ -406,7 +406,7 @@ For wickedness burns like a fire; it devours the briers and thorns, and it kindl
 
 
 
-Through the wrath of the Lord of hosts the land is darkened _and_ burned up, and the people are like fuel for the fire; no man spares his brother. 
+Through the wrath of the Lord of hosts the land is darkened and burned up, and the people are like fuel for the fire; no man spares his brother. 
 
 
 
@@ -427,7 +427,7 @@ Through the wrath of the Lord of hosts the land is darkened _and_ burned up, and
 
 
 
-They snatch in discord on the right hand, but are still hungry [their cruelty not diminished]; and they devour _and_ destroy on the left hand, but are not satisfied. Each devours _and_ destroys his own flesh [and blood] _or_ his neighbor's. 
+They snatch in discord on the right hand, but are still hungry [their cruelty not diminished]; and they devour and destroy on the left hand, but are not satisfied. Each devours and destroys his own flesh [and blood] or his neighbor's. 
 
 
 

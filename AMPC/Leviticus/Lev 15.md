@@ -406,7 +406,7 @@ The woman also with whom a man with emission of semen shall lie, they shall both
 
 
 
-And if a woman has a discharge, her [regular] discharge of blood of her body, she shall be in her impurity _or_ separation for seven days, and whoever touches her shall be unclean until evening. 
+And if a woman has a discharge, her [regular] discharge of blood of her body, she shall be in her impurity or separation for seven days, and whoever touches her shall be unclean until evening. 
 
 
 

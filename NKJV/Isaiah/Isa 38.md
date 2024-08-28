@@ -16,7 +16,7 @@ In those days Hezekiah was sick and near death. And Isaiah the prophet, the son 
 Then Hezekiah turned his face toward the wall, and prayed to the Lord, 
 
 ###### 3 
-and said, "Remember now, O Lord, I pray, how I have walked before You in truth and with a loyal heart, and have done _what is_ good in Your sight." And Hezekiah wept bitterly. 
+and said, "Remember now, O Lord, I pray, how I have walked before You in truth and with a loyal heart, and have done what is good in Your sight." And Hezekiah wept bitterly. 
 
 ###### 4 
 And the word of the Lord came to Isaiah, saying, 
@@ -28,7 +28,7 @@ And the word of the Lord came to Isaiah, saying,
 I will deliver you and this city from the hand of the king of Assyria, and I will defend this city." ' 
 
 ###### 7 
-And this _is_ the sign to you from the Lord, that the Lord will do this thing which He has spoken: 
+And this is the sign to you from the Lord, that the Lord will do this thing which He has spoken: 
 
 ###### 8 
 Behold, I will bring the shadow on the sundial, which has gone down with the sun on the sundial of Ahaz, ten degrees backward." So the sun returned ten degrees on the dial by which it had gone down. 
@@ -49,28 +49,28 @@ My life span is gone, Taken from me like a shepherd's tent; I have cut off my li
 I have considered until morning-- Like a lion, So He breaks all my bones; From day until night You make an end of me. 
 
 ###### 14 
-Like a crane _or_ a swallow, so I chattered; I mourned like a dove; My eyes fail _from looking_ upward. O Lord, I am oppressed; Undertake for me! 
+Like a crane or a swallow, so I chattered; I mourned like a dove; My eyes fail from looking upward. O Lord, I am oppressed; Undertake for me! 
 
 ###### 15 
-"What shall I say? He has both spoken to me, And He Himself has done _it._ I shall walk carefully all my years In the bitterness of my soul. 
+"What shall I say? He has both spoken to me, And He Himself has done it. I shall walk carefully all my years In the bitterness of my soul. 
 
 ###### 16 
-O Lord, by these _things men_ live; And in all these _things is_ the life of my spirit; So You will restore me and make me live. 
+O Lord, by these things men live; And in all these things is the life of my spirit; So You will restore me and make me live. 
 
 ###### 17 
-Indeed _it was_ for _my own_ peace _That_ I had great bitterness; But You have lovingly _delivered_ my soul from the pit of corruption, For You have cast all my sins behind Your back. 
+Indeed it was for my own peace That I had great bitterness; But You have lovingly delivered my soul from the pit of corruption, For You have cast all my sins behind Your back. 
 
 ###### 18 
 For Sheol cannot thank You, Death cannot praise You; Those who go down to the pit cannot hope for Your truth. 
 
 ###### 19 
-The living, the living man, he shall praise You, As I _do_ this day; The father shall make known Your truth to the children. 
+The living, the living man, he shall praise You, As I do this day; The father shall make known Your truth to the children. 
 
 ###### 20 
-"The Lord _was ready_ to save me; Therefore we will sing my songs with stringed instruments All the days of our life, in the house of the Lord." 
+"The Lord was ready to save me; Therefore we will sing my songs with stringed instruments All the days of our life, in the house of the Lord." 
 
 ###### 21 
-Now Isaiah had said, "Let them take a lump of figs, and apply _it_ as a poultice on the boil, and he shall recover." 
+Now Isaiah had said, "Let them take a lump of figs, and apply it as a poultice on the boil, and he shall recover." 
 
 ###### 22 
-And Hezekiah had said, "What _is_ the sign that I shall go up to the house of the Lord?"
+And Hezekiah had said, "What is the sign that I shall go up to the house of the Lord?"

@@ -27,7 +27,7 @@ up: ['John']
 
 
 
-After this, Jesus let Himself be seen _and_ revealed [Himself] again to the disciples, at the Sea of Tiberias. And He did it in this way: 
+After this, Jesus let Himself be seen and revealed [Himself] again to the disciples, at the Sea of Tiberias. And He did it in this way: 
 
 
 
@@ -258,7 +258,7 @@ So Simon Peter went aboard and hauled the net to land, full of large fish, 153 o
 
 
 
-Jesus said to them, Come [and] have breakfast. But none of the disciples ventured _or_ dared to ask Him, Who are You? because they [well] knew that it was the Lord. 
+Jesus said to them, Come [and] have breakfast. But none of the disciples ventured or dared to ask Him, Who are You? because they [well] knew that it was the Lord. 
 
 
 

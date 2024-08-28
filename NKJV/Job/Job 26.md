@@ -13,10 +13,10 @@ next: ['Job 27']
 But Job answered and said: 
 
 ###### 2 
-"How have you helped _him who is_ without power? _How_ have you saved the arm _that has_ no strength? 
+"How have you helped him who is without power? How have you saved the arm that has no strength? 
 
 ###### 3 
-How have you counseled _one who has_ no wisdom? And _how_ have you declared sound advice to many? 
+How have you counseled one who has no wisdom? And how have you declared sound advice to many? 
 
 ###### 4 
 To whom have you uttered words? And whose spirit came from you? 
@@ -25,16 +25,16 @@ To whom have you uttered words? And whose spirit came from you?
 "The dead tremble, Those under the waters and those inhabiting them. 
 
 ###### 6 
-Sheol _is_ naked before Him, And Destruction has no covering. 
+Sheol is naked before Him, And Destruction has no covering. 
 
 ###### 7 
-He stretches out the north over empty space; _He_ hangs the earth on nothing. 
+He stretches out the north over empty space; He hangs the earth on nothing. 
 
 ###### 8 
 He binds up the water in His thick clouds, Yet the clouds are not broken under it. 
 
 ###### 9 
-He covers the face of _His_ throne, _And_ spreads His cloud over it. 
+He covers the face of His throne, And spreads His cloud over it. 
 
 ###### 10 
 He drew a circular horizon on the face of the waters, At the boundary of light and darkness. 
@@ -49,4 +49,4 @@ He stirs up the sea with His power, And by His understanding He breaks up the st
 By His Spirit He adorned the heavens; His hand pierced the fleeing serpent. 
 
 ###### 14 
-Indeed these _are_ the mere edges of His ways, And how small a whisper we hear of Him! But the thunder of His power who can understand?"
+Indeed these are the mere edges of His ways, And how small a whisper we hear of Him! But the thunder of His power who can understand?"

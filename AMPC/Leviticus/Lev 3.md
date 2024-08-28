@@ -112,7 +112,7 @@ And the two kidneys with the fat that is on them at the loins, and the appendage
 
 
 
-Aaron's sons shall burn it all on the altar upon the burnt offering which is on the wood on the fire, an offering made by fire, of a sweet _and_ satisfying odor to the Lord. 
+Aaron's sons shall burn it all on the altar upon the burnt offering which is on the wood on the fire, an offering made by fire, of a sweet and satisfying odor to the Lord. 
 
 
 
@@ -343,7 +343,7 @@ And the two kidneys and the fat that is on them at the loins, and the appendage 
 
 
 
-The priest shall burn them on the altar as food, offered by fire, for a sweet _and_ satisfying fragrance. All the fat is the Lord's. 
+The priest shall burn them on the altar as food, offered by fire, for a sweet and satisfying fragrance. All the fat is the Lord's. 
 
 
 

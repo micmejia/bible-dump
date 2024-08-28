@@ -70,7 +70,7 @@ And you shall [earnestly] remember all the way which the Lord your God led you t
 
 
 
-And He humbled you and allowed you to hunger and fed you with manna, which you did not know nor did your fathers know, that He might make you recognize _and_ personally know that man does not live by bread only, but man lives by every word that proceeds out of the mouth of the Lord. 
+And He humbled you and allowed you to hunger and fed you with manna, which you did not know nor did your fathers know, that He might make you recognize and personally know that man does not live by bread only, but man lives by every word that proceeds out of the mouth of the Lord. 
 
 
 
@@ -112,7 +112,7 @@ Your clothing did not become old upon you nor did your feet swell these forty ye
 
 
 
-Know also in your [minds and] hearts that, as a man disciplines _and_ instructs his son, so the Lord your God disciplines _and_ instructs you. 
+Know also in your [minds and] hearts that, as a man disciplines and instructs his son, so the Lord your God disciplines and instructs you. 
 
 
 

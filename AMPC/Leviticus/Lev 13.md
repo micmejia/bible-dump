@@ -70,7 +70,7 @@ When a man has a swelling on his skin, a scab, or a bright spot, and it becomes 
 
 
 
-The priest shall look at the diseased spot on his skin, and if the hair in it has turned white and the disease appears depressed _and_ deeper than his skin, it is a leprous disease; and the priest shall examine him, and pronounce him unclean. 
+The priest shall look at the diseased spot on his skin, and if the hair in it has turned white and the disease appears depressed and deeper than his skin, it is a leprous disease; and the priest shall examine him, and pronounce him unclean. 
 
 
 
@@ -91,7 +91,7 @@ The priest shall look at the diseased spot on his skin, and if the hair in it ha
 
 
 
-If the bright spot is white on his skin, not depressed, and the hair on it not turned white, the priest shall quarantine the person _or_ bind up the spot for seven days. 
+If the bright spot is white on his skin, not depressed, and the hair on it not turned white, the priest shall quarantine the person or bind up the spot for seven days. 
 
 
 
@@ -112,7 +112,7 @@ If the bright spot is white on his skin, not depressed, and the hair on it not t
 
 
 
-And the priest shall examine him on the seventh day, and if the disease in his estimation is at a standstill _and_ has not spread in the skin, then the priest shall quarantine the person _or_ bind up the spot seven more days. 
+And the priest shall examine him on the seventh day, and if the disease in his estimation is at a standstill and has not spread in the skin, then the priest shall quarantine the person or bind up the spot seven more days. 
 
 
 
@@ -133,7 +133,7 @@ And the priest shall examine him on the seventh day, and if the disease in his e
 
 
 
-And the priest shall examine him again the seventh day, and if the diseased part has a more normal color and the disease has not spread in the skin, the priest shall pronounce him clean; it is only an eruption _or_ a scab; and he shall wash his clothes and be clean. 
+And the priest shall examine him again the seventh day, and if the diseased part has a more normal color and the disease has not spread in the skin, the priest shall pronounce him clean; it is only an eruption or a scab; and he shall wash his clothes and be clean. 
 
 
 
@@ -154,7 +154,7 @@ And the priest shall examine him again the seventh day, and if the diseased part
 
 
 
-But if the eruption _or_ scab spreads farther in the skin after he has shown himself to the priest for his cleansing, he shall be seen by the priest again. 
+But if the eruption or scab spreads farther in the skin after he has shown himself to the priest for his cleansing, he shall be seen by the priest again. 
 
 
 
@@ -175,7 +175,7 @@ But if the eruption _or_ scab spreads farther in the skin after he has shown him
 
 
 
-If the priest sees that the eruption _or_ scab is spreading in the skin, then he shall pronounce him unclean; it is leprosy. 
+If the priest sees that the eruption or scab is spreading in the skin, then he shall pronounce him unclean; it is leprosy. 
 
 
 
@@ -1015,7 +1015,7 @@ The garment also that the disease of leprosy [symbolic of sin] is in, whether a 
 
 
 
-Whether it be in woven or knitted stuff _or_ in the warp or woof of linen or of wool, or in a skin or anything made of skin, 
+Whether it be in woven or knitted stuff or in the warp or woof of linen or of wool, or in a skin or anything made of skin, 
 
 
 
@@ -1078,7 +1078,7 @@ The priest shall examine the diseased article and shut it up for seven days.
 
 
 
-He shall examine the disease on the seventh day; if [it] is spread in the garment, or in the article, whatever service it may be used for, the disease is a rotting _or_ corroding leprosy; it is unclean. 
+He shall examine the disease on the seventh day; if [it] is spread in the garment, or in the article, whatever service it may be used for, the disease is a rotting or corroding leprosy; it is unclean. 
 
 
 
@@ -1099,7 +1099,7 @@ He shall examine the disease on the seventh day; if [it] is spread in the garmen
 
 
 
-He shall burn the garment, whether diseased in warp or woof, in wool or linen, or anything made of skin; for it is a rotting _or_ corroding leprosy, to be burned in the fire. 
+He shall burn the garment, whether diseased in warp or woof, in wool or linen, or anything made of skin; for it is a rotting or corroding leprosy, to be burned in the fire. 
 
 
 
@@ -1162,7 +1162,7 @@ Then the priest shall command that they wash the thing in which the plague is, a
 
 
 
-And the priest shall examine the diseased article after it has been washed, and if the diseased portion has not changed color, though the disease has not spread, it is unclean; you shall burn it in the fire; it is a rotting _or_ corroding [disease], whether the leprous spot be inside or outside. 
+And the priest shall examine the diseased article after it has been washed, and if the diseased portion has not changed color, though the disease has not spread, it is unclean; you shall burn it in the fire; it is a rotting or corroding [disease], whether the leprous spot be inside or outside. 
 
 
 
@@ -1225,7 +1225,7 @@ If it appears still in the garment, either in the warp or in the woof, or in any
 
 
 
-But the garment, or the woven or knitted stuff _or_ warp or woof, or anything made of skin from which the disease departs when you have washed it, shall then be washed a second time, and be clean. 
+But the garment, or the woven or knitted stuff or warp or woof, or anything made of skin from which the disease departs when you have washed it, shall then be washed a second time, and be clean. 
 
 
 

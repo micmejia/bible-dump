@@ -91,7 +91,7 @@ Lest I strip her naked and make her as in the day she was born, and make her as 
 
 
 
-Yes, for her children I will have no love _nor_ pity _nor_ mercy, for they are the children of harlotry. 
+Yes, for her children I will have no love nor pity nor mercy, for they are the children of harlotry. 
 
 
 
@@ -175,7 +175,7 @@ And she shall follow after her lovers but she shall not overtake them; and she s
 
 
 
-For she has not noticed, understood, _or_ realized that it was I [the Lord God] Who gave her the grain and the new wine and the fresh oil, and Who lavished upon her silver and gold which they used for Baal _and_ made into his image. 
+For she has not noticed, understood, or realized that it was I [the Lord God] Who gave her the grain and the new wine and the fresh oil, and Who lavished upon her silver and gold which they used for Baal and made into his image. 
 
 
 
@@ -196,7 +196,7 @@ For she has not noticed, understood, _or_ realized that it was I [the Lord God] 
 
 
 
-Therefore will I return _and_ take back My grain in the time for it and My new wine in the season for it, and will pluck away _and_ recover My wool and My flax which were to cover her [Israel's] nakedness. 
+Therefore will I return and take back My grain in the time for it and My new wine in the season for it, and will pluck away and recover My wool and My flax which were to cover her [Israel's] nakedness. 
 
 
 
@@ -217,7 +217,7 @@ Therefore will I return _and_ take back My grain in the time for it and My new w
 
 
 
-And now will I uncover her lewdness _and_ her shame in the sight of her lovers, and no one shall rescue her out of My hand. 
+And now will I uncover her lewdness and her shame in the sight of her lovers, and no one shall rescue her out of My hand. 
 
 
 
@@ -238,7 +238,7 @@ And now will I uncover her lewdness _and_ her shame in the sight of her lovers, 
 
 
 
-I will also cause to cease all her mirth, her feastmaking, her New Moons, her Sabbaths, and all her solemn feasts _and_ appointed festive assemblies. 
+I will also cause to cease all her mirth, her feastmaking, her New Moons, her Sabbaths, and all her solemn feasts and appointed festive assemblies. 
 
 
 
@@ -259,7 +259,7 @@ I will also cause to cease all her mirth, her feastmaking, her New Moons, her Sa
 
 
 
-And I will lay waste _and_ destroy her vines and her fig trees of which she has said, These are my reward _or_ loose woman's hire that my lovers have given me; and I will make [her plantations] an inaccessible forest, and the wild beasts of the open country shall eat them. 
+And I will lay waste and destroy her vines and her fig trees of which she has said, These are my reward or loose woman's hire that my lovers have given me; and I will make [her plantations] an inaccessible forest, and the wild beasts of the open country shall eat them. 
 
 
 
@@ -280,7 +280,7 @@ And I will lay waste _and_ destroy her vines and her fig trees of which she has 
 
 
 
-And I will visit [punishment] upon her for the feast days of the Baals, when she burned incense to them and decked herself with her earrings _and_ nose rings and her jewelry and went after her lovers and forgot Me, says the Lord. 
+And I will visit [punishment] upon her for the feast days of the Baals, when she burned incense to them and decked herself with her earrings and nose rings and her jewelry and went after her lovers and forgot Me, says the Lord. 
 
 
 
@@ -301,7 +301,7 @@ And I will visit [punishment] upon her for the feast days of the Baals, when she
 
 
 
-Therefore, behold, I will allure her [Israel] and bring her into the wilderness, and I will speak tenderly _and_ to her heart. 
+Therefore, behold, I will allure her [Israel] and bring her into the wilderness, and I will speak tenderly and to her heart. 
 
 
 
@@ -322,7 +322,7 @@ Therefore, behold, I will allure her [Israel] and bring her into the wilderness,
 
 
 
-There I will give her her vineyards and make the Valley of Achor [troubling] to be for her a door of hope _and_ expectation. And she shall sing there _and_ respond as in the days of her youth and as at the time when she came up out of the land of Egypt. 
+There I will give her her vineyards and make the Valley of Achor [troubling] to be for her a door of hope and expectation. And she shall sing there and respond as in the days of her youth and as at the time when she came up out of the land of Egypt. 
 
 
 
@@ -364,7 +364,7 @@ And it shall be in that day, says the Lord, that you will call Me Ishi [my Husba
 
 
 
-For I will take away the names of Baalim [the Baals] out of her mouth, and they shall no more be mentioned _or_ seriously remembered by their name. 
+For I will take away the names of Baalim [the Baals] out of her mouth, and they shall no more be mentioned or seriously remembered by their name. 
 
 
 
@@ -427,7 +427,7 @@ And I will betroth you to Me forever; yes, I will betroth you to Me in righteous
 
 
 
-I will even betroth you to Me in stability _and_ in faithfulness, and you shall know (recognize, be acquainted with, appreciate, give heed to, and cherish) the Lord. 
+I will even betroth you to Me in stability and in faithfulness, and you shall know (recognize, be acquainted with, appreciate, give heed to, and cherish) the Lord. 
 
 
 
@@ -490,4 +490,4 @@ And the earth shall respond to the grain and the wine and the oil [which beseech
 
 
 
-And I will sow her for Myself anew in the land, and I will have love, pity, _and_ mercy for her who had not obtained love, pity, _and_ mercy; and I will say to those who were not My people, You are My people, and they shall say, You are my God!
+And I will sow her for Myself anew in the land, and I will have love, pity, and mercy for her who had not obtained love, pity, and mercy; and I will say to those who were not My people, You are My people, and they shall say, You are my God!

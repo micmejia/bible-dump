@@ -322,7 +322,7 @@ I will be his Father, and he shall be My son. When he commits iniquity, I will c
 
 
 
-But My mercy _and_ loving-kindness shall not depart from him, as I took [them] from Saul, whom I took away from before you. 
+But My mercy and loving-kindness shall not depart from him, as I took [them] from Saul, whom I took away from before you. 
 
 
 
@@ -448,7 +448,7 @@ What more can David say to You? For You know Your servant, O Lord God.
 
 
 
-Because of Your promise and as Your own heart dictates, You have done all these astounding things to make Your servant know _and_ understand. 
+Because of Your promise and as Your own heart dictates, You have done all these astounding things to make Your servant know and understand. 
 
 
 
@@ -490,7 +490,7 @@ Therefore You are great, O Lord God; for none is like You, nor is there any God 
 
 
 
-What [other] one nation on earth is like Your people Israel, whom God went to redeem to be a people for Himself and to make for Himself a name? You have done great and terrible things for Yourself _and_ for Your land, before Your people, whom You redeemed _and_ delivered for Yourself from Egypt, from the nations and their gods. 
+What [other] one nation on earth is like Your people Israel, whom God went to redeem to be a people for Himself and to make for Himself a name? You have done great and terrible things for Yourself and for Your land, before Your people, whom You redeemed and delivered for Yourself from Egypt, from the nations and their gods. 
 
 
 

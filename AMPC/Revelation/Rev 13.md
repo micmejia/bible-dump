@@ -18,25 +18,25 @@ next: ['Rev 14']
 ###### 2 
 
 
-And the beast that I saw resembled a leopard, but his feet were like those of a bear and his mouth was like that of a lion. And to him the dragon gave his [own] might _and_ power and his [own] throne and great dominion. 
+And the beast that I saw resembled a leopard, but his feet were like those of a bear and his mouth was like that of a lion. And to him the dragon gave his [own] might and power and his [own] throne and great dominion. 
 
 
 ###### 3 
 
 
-And one of his heads seemed to have a deadly wound. But his death stroke was healed; and the whole earth went after the beast in amazement _and_ admiration. 
+And one of his heads seemed to have a deadly wound. But his death stroke was healed; and the whole earth went after the beast in amazement and admiration. 
 
 
 ###### 4 
 
 
-They fell down _and_ paid homage to the dragon, because he had bestowed on the beast all his dominion _and_ authority; they also praised _and_ worshiped the beast, exclaiming, Who is a match for the beast, and, Who can make war against him? 
+They fell down and paid homage to the dragon, because he had bestowed on the beast all his dominion and authority; they also praised and worshiped the beast, exclaiming, Who is a match for the beast, and, Who can make war against him? 
 
 
 ###### 5 
 
 
-And the beast was given the power of speech, uttering boastful and blasphemous words, and he was given freedom to exert his authority _and_ to exercise his will during forty-two months (three and a half years). 
+And the beast was given the power of speech, uttering boastful and blasphemous words, and he was given freedom to exert his authority and to exercise his will during forty-two months (three and a half years). 
 
 
 ###### 6 
@@ -54,7 +54,7 @@ He was further permitted to wage war on God's holy people (the saints) and to ov
 ###### 8 
 
 
-And all the inhabitants of the earth will fall down in adoration _and_ pay him homage, everyone whose name has not been recorded in the Book of Life of the Lamb that was slain [in sacrifice] from the foundation of the world. 
+And all the inhabitants of the earth will fall down in adoration and pay him homage, everyone whose name has not been recorded in the Book of Life of the Lamb that was slain [in sacrifice] from the foundation of the world. 
 
 
 ###### 9 
@@ -66,7 +66,7 @@ If anyone is able to hear, let him listen:
 ###### 10 
 
 
-Whoever leads into captivity will himself go into captivity; if anyone slays with the sword, with the sword must he be slain. Herein is [the call for] the patience and the faith _and_ fidelity of the saints (God's people). 
+Whoever leads into captivity will himself go into captivity; if anyone slays with the sword, with the sword must he be slain. Herein is [the call for] the patience and the faith and fidelity of the saints (God's people). 
 
 
 ###### 11 
@@ -78,7 +78,7 @@ Then I saw another beast rising up out of the land [itself]; he had two horns li
 ###### 12 
 
 
-He exerts all the power _and_ right of control of the former beast in his presence, and causes the earth and those who dwell upon it to exalt _and_ deify the first beast, whose deadly wound was healed, _and_ to worship him. 
+He exerts all the power and right of control of the former beast in his presence, and causes the earth and those who dwell upon it to exalt and deify the first beast, whose deadly wound was healed, and to worship him. 
 
 
 ###### 13 
@@ -96,7 +96,7 @@ And because of the signs (miracles) which he is allowed to perform in the presen
 ###### 15 
 
 
-And he is permitted [also] to impart the breath of life into the beast's image, so that the statue of the beast could actually talk and cause to be put to death those who would not bow down _and_ worship the image of the beast. 
+And he is permitted [also] to impart the breath of life into the beast's image, so that the statue of the beast could actually talk and cause to be put to death those who would not bow down and worship the image of the beast. 
 
 
 ###### 16 

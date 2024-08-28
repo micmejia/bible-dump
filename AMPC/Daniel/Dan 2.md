@@ -28,7 +28,7 @@ next: ['Dan 3']
 
 
 
-In the second year of the reign of Nebuchadnezzar, Nebuchadnezzar had dreams by which his spirit was troubled _and_ agitated and his sleep went from him. 
+In the second year of the reign of Nebuchadnezzar, Nebuchadnezzar had dreams by which his spirit was troubled and agitated and his sleep went from him. 
 
 
 
@@ -49,7 +49,7 @@ In the second year of the reign of Nebuchadnezzar, Nebuchadnezzar had dreams by 
 
 
 
-Then the king commanded to call the magicians, the enchanters _or_ soothsayers, the sorcerers, and the Chaldeans [diviners], to tell the king his dreams. So they came and stood before the king. 
+Then the king commanded to call the magicians, the enchanters or soothsayers, the sorcerers, and the Chaldeans [diviners], to tell the king his dreams. So they came and stood before the king. 
 
 
 
@@ -112,7 +112,7 @@ Then said the Chaldeans [diviners] to the king in Aramaic [the Syrian language],
 
 
 
-The king answered the Chaldeans, The thing is gone from me! And the decree goes forth from me _and_ I say it with all emphasis: if you do not make known to me the dream with its interpretation, you shall be cut in pieces and your houses shall be made a dunghill! 
+The king answered the Chaldeans, The thing is gone from me! And the decree goes forth from me and I say it with all emphasis: if you do not make known to me the dream with its interpretation, you shall be cut in pieces and your houses shall be made a dunghill! 
 
 
 
@@ -175,7 +175,7 @@ They answered again, Let the king tell his servants the dream, and we will show 
 
 
 
-The king answered, I know with certainty that you are trying to gain time, because you see the thing is gone from me _and_ because you see that my word [against you] is sure: 
+The king answered, I know with certainty that you are trying to gain time, because you see the thing is gone from me and because you see that my word [against you] is sure: 
 
 
 
@@ -238,7 +238,7 @@ The Chaldeans [diviners] answered before the king and said, There is not a man o
 
 
 
-A rare _and_ weighty thing indeed the king requires! None except the gods can reveal it to the king, and their dwelling is not with [human] flesh. 
+A rare and weighty thing indeed the king requires! None except the gods can reveal it to the king, and their dwelling is not with [human] flesh. 
 
 
 
@@ -301,7 +301,7 @@ So the decree went forth that the wise men were to be killed, and [the officers]
 
 
 
-Then Daniel returned an answer which was full of prudence and wisdom to Arioch the captain _or_ executioner of the king's guard, who had gone forth to slay the wise men of Babylon. 
+Then Daniel returned an answer which was full of prudence and wisdom to Arioch the captain or executioner of the king's guard, who had gone forth to slay the wise men of Babylon. 
 
 
 
@@ -322,7 +322,7 @@ Then Daniel returned an answer which was full of prudence and wisdom to Arioch t
 
 
 
-He said to Arioch, the king's captain, Why is the decree so urgent _and_ hasty from the king? Then Arioch explained the matter to Daniel. 
+He said to Arioch, the king's captain, Why is the decree so urgent and hasty from the king? Then Arioch explained the matter to Daniel. 
 
 
 
@@ -343,7 +343,7 @@ He said to Arioch, the king's captain, Why is the decree so urgent _and_ hasty f
 
 
 
-And Daniel went in and desired of the king that he would set a date _and_ give him time, and he would show the king the interpretation. 
+And Daniel went in and desired of the king that he would set a date and give him time, and he would show the king the interpretation. 
 
 
 
@@ -385,7 +385,7 @@ Then Daniel went to his house and made the thing known to Hananiah, Mishael, and
 
 
 
-So that they would desire _and_ request mercy of the God of heaven concerning this secret, that Daniel and his companions should not perish with the rest of the wise men of Babylon. 
+So that they would desire and request mercy of the God of heaven concerning this secret, that Daniel and his companions should not perish with the rest of the wise men of Babylon. 
 
 
 
@@ -637,7 +637,7 @@ As for you, O king, as you were lying upon your bed thoughts came into your mind
 
 
 
-But as for me, this secret is not revealed to me for any wisdom that I have more than anyone else living, but in order that the interpretation may be made known to the king and that you may know the thoughts of your heart _and_ mind. 
+But as for me, this secret is not revealed to me for any wisdom that I have more than anyone else living, but in order that the interpretation may be made known to the king and that you may know the thoughts of your heart and mind. 
 
 
 
@@ -658,7 +658,7 @@ But as for me, this secret is not revealed to me for any wisdom that I have more
 
 
 
-You, O king, saw, and behold, [there was] a great image. This image which was mighty and of exceedingly great brightness stood before you, and the appearance of it was frightening _and_ terrible. 
+You, O king, saw, and behold, [there was] a great image. This image which was mighty and of exceedingly great brightness stood before you, and the appearance of it was frightening and terrible. 
 
 
 
@@ -742,7 +742,7 @@ As you looked, a Stone was cut out without human hands, which smote the image on
 
 
 
-Then the iron, the [baked] clay [of the potter], the bronze, the silver, and the gold were broken _and_ crushed together and became like the chaff of the summer threshing floors, and the wind carried them away so that not a trace of them could be found. And the Stone that smote the image became a great mountain _or_ rock and filled the whole earth. 
+Then the iron, the [baked] clay [of the potter], the bronze, the silver, and the gold were broken and crushed together and became like the chaff of the summer threshing floors, and the wind carried them away so that not a trace of them could be found. And the Stone that smote the image became a great mountain or rock and filled the whole earth. 
 
 
 
@@ -868,7 +868,7 @@ And the fourth kingdom [Rome] shall be strong as iron, since iron breaks to piec
 
 
 
-And as you saw the feet and toes, partly of [baked] clay [of the potter] and partly of iron, it shall be a divided kingdom; but there shall be in it some of the firmness _and_ strength of iron, just as you saw the iron mixed with miry [earthen] clay. 
+And as you saw the feet and toes, partly of [baked] clay [of the potter] and partly of iron, it shall be a divided kingdom; but there shall be in it some of the firmness and strength of iron, just as you saw the iron mixed with miry [earthen] clay. 
 
 
 
@@ -889,7 +889,7 @@ And as you saw the feet and toes, partly of [baked] clay [of the potter] and par
 
 
 
-And as the toes of the feet were partly of iron and partly of [baked] clay [of the potter], so the kingdom shall be partly strong and partly brittle _and_ broken. 
+And as the toes of the feet were partly of iron and partly of [baked] clay [of the potter], so the kingdom shall be partly strong and partly brittle and broken. 
 
 
 
@@ -910,7 +910,7 @@ And as the toes of the feet were partly of iron and partly of [baked] clay [of t
 
 
 
-And as you saw the iron mixed with miry _and_ earthen clay, so they shall mingle themselves in the seed of men [in marriage bonds]; but they will not hold together [for two such elements or ideologies can never harmonize], even as iron does not mingle itself with clay. 
+And as you saw the iron mixed with miry and earthen clay, so they shall mingle themselves in the seed of men [in marriage bonds]; but they will not hold together [for two such elements or ideologies can never harmonize], even as iron does not mingle itself with clay. 
 
 
 
@@ -931,7 +931,7 @@ And as you saw the iron mixed with miry _and_ earthen clay, so they shall mingle
 
 
 
-And in the days of these [final ten] kings shall the God of heaven set up a kingdom which shall never be destroyed, nor shall its sovereignty be left to another people; but it shall break _and_ crush and consume all these kingdoms and it shall stand forever. 
+And in the days of these [final ten] kings shall the God of heaven set up a kingdom which shall never be destroyed, nor shall its sovereignty be left to another people; but it shall break and crush and consume all these kingdoms and it shall stand forever. 
 
 
 

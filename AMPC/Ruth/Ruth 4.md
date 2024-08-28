@@ -237,7 +237,7 @@ Also Ruth the Moabitess, the widow of Mahlon, I have bought to be my wife to res
 
 
 
-And all the people at the gate and the elders said, We are witnesses. May the Lord make the woman who is coming into your house like Rachel and Leah, the two who built the household of Israel. May you do worthily _and_ get wealth (power) in Ephratah and be famous in Bethlehem. 
+And all the people at the gate and the elders said, We are witnesses. May the Lord make the woman who is coming into your house like Rachel and Leah, the two who built the household of Israel. May you do worthily and get wealth (power) in Ephratah and be famous in Bethlehem. 
 
 
 
@@ -321,7 +321,7 @@ And the women said to Naomi, Blessed be the Lord, Who has not left you this day 
 
 
 
-And may he be to you a restorer of life and a nourisher _and_ supporter in your old age, for your daughter-in-law who loves you, who is better to you than seven sons, has borne him. 
+And may he be to you a restorer of life and a nourisher and supporter in your old age, for your daughter-in-law who loves you, who is better to you than seven sons, has borne him. 
 
 
 

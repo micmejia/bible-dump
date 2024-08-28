@@ -217,7 +217,7 @@ Now the men who were with me saw the light, but they did not hear [the sound of 
 
 
 
-And I asked, What shall I do, Lord? And the Lord answered me, Get up and go into Damascus, and there it will be told you all that it is destined _and_ appointed for you to do. 
+And I asked, What shall I do, Lord? And the Lord answered me, Get up and go into Damascus, and there it will be told you all that it is destined and appointed for you to do. 
 
 
 
@@ -280,7 +280,7 @@ And one Ananias, a devout man according to the Law, well spoken of by all the Je
 
 
 
-Came to see me, and standing by my side said to me, Brother Saul, look up _and_ receive back your sight. And in that very instant I [recovered my sight and] looking up saw him. 
+Came to see me, and standing by my side said to me, Brother Saul, look up and receive back your sight. And in that very instant I [recovered my sight and] looking up saw him. 
 
 
 
@@ -301,7 +301,7 @@ Came to see me, and standing by my side said to me, Brother Saul, look up _and_ 
 
 
 
-And he said, The God of our forefathers has destined _and_ appointed you to come progressively to know His will [to perceive, to recognize more strongly and clearly, and to become better and more intimately acquainted with His will], and to see the Righteous One (Jesus Christ, the Messiah), and to hear a voice from His [own] mouth _and_ a message from His [own] lips; 
+And he said, The God of our forefathers has destined and appointed you to come progressively to know His will [to perceive, to recognize more strongly and clearly, and to become better and more intimately acquainted with His will], and to see the Righteous One (Jesus Christ, the Messiah), and to hear a voice from His [own] mouth and a message from His [own] lips; 
 
 
 
@@ -427,7 +427,7 @@ And I said, Lord, they themselves well know that throughout all the synagogues I
 
 
 
-And when the blood of Your witness (martyr) Stephen was shed, I also was personally standing by and consenting _and_ approving and guarding the garments of those who slew him. 
+And when the blood of Your witness (martyr) Stephen was shed, I also was personally standing by and consenting and approving and guarding the garments of those who slew him. 
 
 
 
@@ -490,7 +490,7 @@ Up to the moment that Paul made this last statement, the people listened to him;
 
 
 
-And as they were shouting and tossing _and_ waving their garments and throwing dust into the air, 
+And as they were shouting and tossing and waving their garments and throwing dust into the air, 
 
 
 
@@ -616,7 +616,7 @@ The commandant replied, I purchased this citizenship [as a capital investment] f
 
 
 
-Instantly those who were about to examine _and_ flog him withdrew from him; and the commandant also was frightened, for he realized that [Paul] was a Roman citizen and he had put him in chains. 
+Instantly those who were about to examine and flog him withdrew from him; and the commandant also was frightened, for he realized that [Paul] was a Roman citizen and he had put him in chains. 
 
 
 

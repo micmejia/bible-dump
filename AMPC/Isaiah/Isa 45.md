@@ -28,7 +28,7 @@ next: ['Isa 46']
 
 
 
-Thus says the Lord to His anointed, to Cyrus, whose right hand I have held to subdue nations before him, and I will unarm _and_ ungird the loins of kings to open doors before him, so that gates will not be shut. 
+Thus says the Lord to His anointed, to Cyrus, whose right hand I have held to subdue nations before him, and I will unarm and ungird the loins of kings to open doors before him, so that gates will not be shut. 
 
 
 
@@ -112,7 +112,7 @@ For the sake of Jacob My servant, and of Israel My chosen, I have called you by 
 
 
 
-I am the Lord, and there is no one else; there is no God besides Me. I will gird _and_ arm you, though you have not known Me, 
+I am the Lord, and there is no one else; there is no God besides Me. I will gird and arm you, though you have not known Me, 
 
 
 
@@ -133,7 +133,7 @@ I am the Lord, and there is no one else; there is no God besides Me. I will gird
 
 
 
-That men may know from the east _and_ the rising of the sun and from the west _and_ the setting of the sun that there is no God besides Me. I am the Lord, and no one else [is He]. 
+That men may know from the east and the rising of the sun and from the west and the setting of the sun that there is no God besides Me. I am the Lord, and no one else [is He]. 
 
 
 
@@ -175,7 +175,7 @@ I form the light and create darkness, I make peace [national well-being] and I c
 
 
 
-Let fall in showers, you heavens, from above, and let the skies rain down righteousness [the pure, spiritual, heaven-born possibilities that have their foundation in the holy being of God]; let the earth open, and let them [skies and earth] sprout forth salvation, and let righteousness germinate _and_ spring up [as plants do] together; I the Lord have created it. 
+Let fall in showers, you heavens, from above, and let the skies rain down righteousness [the pure, spiritual, heaven-born possibilities that have their foundation in the holy being of God]; let the earth open, and let them [skies and earth] sprout forth salvation, and let righteousness germinate and spring up [as plants do] together; I the Lord have created it. 
 
 
 
@@ -301,7 +301,7 @@ I will raise [Cyrus] up in righteousness [willing in every way that which is rig
 
 
 
-Thus says the Lord: The labor _and_ wealth of Egypt and the merchandise of Ethiopia and the Sabeans, men of stature, shall come over to you and they shall be yours; they shall follow you; in chains [of subjection to you] they shall come over, and they shall fall down before you; they shall make supplication to you, saying, Surely God is with you, and there is no other, no God besides Him. 
+Thus says the Lord: The labor and wealth of Egypt and the merchandise of Ethiopia and the Sabeans, men of stature, shall come over to you and they shall be yours; they shall follow you; in chains [of subjection to you] they shall come over, and they shall fall down before you; they shall make supplication to you, saying, Surely God is with you, and there is no other, no God besides Him. 
 
 
 
@@ -448,7 +448,7 @@ Assemble yourselves and come; draw near together, you survivors of the nations! 
 
 
 
-Declare and bring forward your strong arguments [for praying to gods that cannot save]; yes, take counsel together. Who announced this [the rise of Cyrus and his conquests] beforehand (long ago)? [What god] declared it of old? Was it not I, the Lord? And there is no other God besides Me, a rigidly _and_ uncompromisingly just _and_ righteous God and Savior; there is none besides Me. 
+Declare and bring forward your strong arguments [for praying to gods that cannot save]; yes, take counsel together. Who announced this [the rise of Cyrus and his conquests] beforehand (long ago)? [What god] declared it of old? Was it not I, the Lord? And there is no other God besides Me, a rigidly and uncompromisingly just and righteous God and Savior; there is none besides Me. 
 
 
 

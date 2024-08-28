@@ -48,7 +48,7 @@ The vision [seen by spiritual perception] of Isaiah son of Amoz, which he saw co
 
 
 
-Hear, O heavens, and give ear, O earth! For the Lord has spoken: I have nourished and brought up sons _and_ have made them great and exalted, but they have rebelled against Me _and_ broken away from Me. 
+Hear, O heavens, and give ear, O earth! For the Lord has spoken: I have nourished and brought up sons and have made them great and exalted, but they have rebelled against Me and broken away from Me. 
 
 
 
@@ -69,7 +69,7 @@ Hear, O heavens, and give ear, O earth! For the Lord has spoken: I have nourishe
 
 
 
-The ox [instinctively] knows his owner, and the donkey his master's crib, but Israel does not know _or_ recognize Me [as Lord], My people do not consider _or_ understand. 
+The ox [instinctively] knows his owner, and the donkey his master's crib, but Israel does not know or recognize Me [as Lord], My people do not consider or understand. 
 
 
 
@@ -90,7 +90,7 @@ The ox [instinctively] knows his owner, and the donkey his master's crib, but Is
 
 
 
-Ah, sinful nation, a people loaded with iniquity, offspring of evildoers, sons who deal corruptly! They have forsaken the Lord, they have despised _and_ shown contempt _and_ provoked the Holy One of Israel to anger, they have become utterly estranged (alienated). 
+Ah, sinful nation, a people loaded with iniquity, offspring of evildoers, sons who deal corruptly! They have forsaken the Lord, they have despised and shown contempt and provoked the Holy One of Israel to anger, they have become utterly estranged (alienated). 
 
 
 
@@ -111,7 +111,7 @@ Ah, sinful nation, a people loaded with iniquity, offspring of evildoers, sons w
 
 
 
-Why should you be stricken _and_ punished any more [since it brings no correction]? You will revolt more and more. The whole head is sick, and the whole heart is faint (feeble, sick, and nauseated). 
+Why should you be stricken and punished any more [since it brings no correction]? You will revolt more and more. The whole head is sick, and the whole heart is faint (feeble, sick, and nauseated). 
 
 
 
@@ -132,7 +132,7 @@ Why should you be stricken _and_ punished any more [since it brings no correctio
 
 
 
-From the sole of the foot even to the head there is no soundness _or_ health in [the nation's body]--but wounds and bruises and fresh _and_ bleeding stripes; they have not been pressed out _and_ closed up or bound up or softened with oil. [No one has troubled to seek a remedy.] 
+From the sole of the foot even to the head there is no soundness or health in [the nation's body]--but wounds and bruises and fresh and bleeding stripes; they have not been pressed out and closed up or bound up or softened with oil. [No one has troubled to seek a remedy.] 
 
 
 
@@ -216,7 +216,7 @@ Except the Lord of hosts had left us a very small remnant [of survivors], we sho
 
 
 
-Hear [O Jerusalem] the word of the Lord, you rulers _or_ judges of [another] Sodom! Give ear to the law _and_ the teaching of our God, you people of [another] Gomorrah! 
+Hear [O Jerusalem] the word of the Lord, you rulers or judges of [another] Sodom! Give ear to the law and the teaching of our God, you people of [another] Gomorrah! 
 
 
 
@@ -279,7 +279,7 @@ When you come to appear before Me, who requires of you that your [unholy feet] t
 
 
 
-Bring no more offerings of vanity (emptiness, falsity, vainglory, and futility); [your hollow offering of] incense is an abomination to Me; the New Moons and Sabbaths, the calling of assemblies, I cannot endure--[it is] iniquity _and_ profanation, even the solemn meeting. 
+Bring no more offerings of vanity (emptiness, falsity, vainglory, and futility); [your hollow offering of] incense is an abomination to Me; the New Moons and Sabbaths, the calling of assemblies, I cannot endure--[it is] iniquity and profanation, even the solemn meeting. 
 
 
 
@@ -363,7 +363,7 @@ Wash yourselves, make yourselves clean; put away the evil of your doings from be
 
 
 
-Learn to do right! Seek justice, relieve the oppressed, _and_ correct the oppressor. Defend the fatherless, plead for the widow. 
+Learn to do right! Seek justice, relieve the oppressed, and correct the oppressor. Defend the fatherless, plead for the widow. 
 
 
 
@@ -447,7 +447,7 @@ But if you refuse and rebel, you will be devoured by the sword. For the mouth of
 
 
 
-How the faithful city has become an [idolatrous] harlot, she who was full of justice! Uprightness _and_ right standing with God [once] lodged in her--but now murderers. 
+How the faithful city has become an [idolatrous] harlot, she who was full of justice! Uprightness and right standing with God [once] lodged in her--but now murderers. 
 
 
 
@@ -489,7 +489,7 @@ Your silver has become dross, your wine is mixed with water.
 
 
 
-Your princes are rebels and companions of thieves; everyone loves bribes and runs after compensation _and_ rewards. They judge not for the fatherless _nor_ defend them, neither does the cause of the widow come to them [for they delay or turn a deaf ear]. 
+Your princes are rebels and companions of thieves; everyone loves bribes and runs after compensation and rewards. They judge not for the fatherless nor defend them, neither does the cause of the widow come to them [for they delay or turn a deaf ear]. 
 
 
 
@@ -531,7 +531,7 @@ Therefore says the Lord, the Lord of hosts, the Mighty One of Israel, Ah, I will
 
 
 
-And I will bring My hand again upon you and thoroughly purge away your dross [as with lye] and take away all your tin _or_ alloy. 
+And I will bring My hand again upon you and thoroughly purge away your dross [as with lye] and take away all your tin or alloy. 
 
 
 
@@ -594,7 +594,7 @@ Zion shall be redeemed with justice, and her [returned] converts with righteousn
 
 
 
-But the crushing _and_ destruction of rebels and sinners shall be together, and they who forsake the Lord shall be consumed. 
+But the crushing and destruction of rebels and sinners shall be together, and they who forsake the Lord shall be consumed. 
 
 
 
@@ -615,7 +615,7 @@ But the crushing _and_ destruction of rebels and sinners shall be together, and 
 
 
 
-For you will be ashamed [of the folly and degradation] of the oak _or_ terebinth trees in which you found [idolatrous] pleasure, and you will blush with shame for the [idolatrous worship which you practice in the passion-inflaming] gardens which you have chosen. 
+For you will be ashamed [of the folly and degradation] of the oak or terebinth trees in which you found [idolatrous] pleasure, and you will blush with shame for the [idolatrous worship which you practice in the passion-inflaming] gardens which you have chosen. 
 
 
 
@@ -636,7 +636,7 @@ For you will be ashamed [of the folly and degradation] of the oak _or_ terebinth
 
 
 
-For you shall be like an oak _or_ terebinth whose leaf withers, and like a garden that has no water. 
+For you shall be like an oak or terebinth whose leaf withers, and like a garden that has no water. 
 
 
 
@@ -657,4 +657,4 @@ For you shall be like an oak _or_ terebinth whose leaf withers, and like a garde
 
 
 
-And the strong shall become like tow _and_ become tinder, and his work like a spark, and they shall both burn together, with none to quench them.
+And the strong shall become like tow and become tinder, and his work like a spark, and they shall both burn together, with none to quench them.

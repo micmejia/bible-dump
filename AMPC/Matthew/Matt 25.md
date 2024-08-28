@@ -112,7 +112,7 @@ But the wise took flasks of oil along with them [also] with their lamps.
 
 
 
-While the bridegroom lingered _and_ was slow in coming, they all began nodding their heads, and they fell asleep. 
+While the bridegroom lingered and was slow in coming, they all began nodding their heads, and they fell asleep. 
 
 
 
@@ -280,7 +280,7 @@ But He replied, I solemnly declare to you, I do not know you [I am not acquainte
 
 
 
-Watch therefore [give strict attention and be cautious and active], for you know neither the day nor the hour _when the Son of Man will come_. 
+Watch therefore [give strict attention and be cautious and active], for you know neither the day nor the hour when the Son of Man will come. 
 
 
 
@@ -322,7 +322,7 @@ For it is like a man who was about to take a long journey, and he called his ser
 
 
 
-To one he gave five talents [probably about $5,000], to another two, to another one--to each in proportion to his own personal ability. Then he departed _and_ left the country. 
+To one he gave five talents [probably about $5,000], to another two, to another one--to each in proportion to his own personal ability. Then he departed and left the country. 
 
 
 
@@ -448,7 +448,7 @@ And he who had received the five talents came and brought him five more, saying,
 
 
 
-His master said to him, Well done, you upright (honorable, admirable) and faithful servant! You have been faithful _and_ trustworthy over a little; I will put you in charge of much. Enter into _and_ share the joy (the delight, the blessedness) which your master enjoys. 
+His master said to him, Well done, you upright (honorable, admirable) and faithful servant! You have been faithful and trustworthy over a little; I will put you in charge of much. Enter into and share the joy (the delight, the blessedness) which your master enjoys. 
 
 
 
@@ -490,7 +490,7 @@ And he also who had the two talents came forward, saying, Master, you entrusted 
 
 
 
-His master said to him, Well done, you upright (honorable, admirable) and faithful servant! You have been faithful _and_ trustworthy over a little; I will put you in charge of much. Enter into _and_ share the joy (the delight, the blessedness) which your master enjoys. 
+His master said to him, Well done, you upright (honorable, admirable) and faithful servant! You have been faithful and trustworthy over a little; I will put you in charge of much. Enter into and share the joy (the delight, the blessedness) which your master enjoys. 
 
 
 
@@ -511,7 +511,7 @@ His master said to him, Well done, you upright (honorable, admirable) and faithf
 
 
 
-He who had received one talent also came forward, saying, Master, I knew you to be a harsh _and_ hard man, reaping where you did not sow, and gathering where you had not winnowed [the grain]. 
+He who had received one talent also came forward, saying, Master, I knew you to be a harsh and hard man, reaping where you did not sow, and gathering where you had not winnowed [the grain]. 
 
 
 
@@ -553,7 +553,7 @@ So I was afraid, and I went and hid your talent in the ground. Here you have wha
 
 
 
-But his master answered him, You wicked _and_ lazy _and_ idle servant! Did you indeed know that I reap where I have not sowed and gather [grain] where I have not winnowed? 
+But his master answered him, You wicked and lazy and idle servant! Did you indeed know that I reap where I have not sowed and gather [grain] where I have not winnowed? 
 
 
 
@@ -658,7 +658,7 @@ And throw the good-for-nothing servant into the outer darkness; there will be we
 
 
 
-When the Son of Man comes in His glory (His majesty and splendor), and all the _holy_ angels with Him, then He will sit on the throne of His glory. 
+When the Son of Man comes in His glory (His majesty and splendor), and all the holy angels with Him, then He will sit on the throne of His glory. 
 
 
 
@@ -742,7 +742,7 @@ Then the King will say to those at His right hand, Come, you blessed of My Fathe
 
 
 
-For I was hungry and you gave Me food, I was thirsty and you gave Me something to drink, I was a stranger and you brought Me together with yourselves _and_ welcomed _and_ entertained _and_ lodged Me, 
+For I was hungry and you gave Me food, I was thirsty and you gave Me something to drink, I was a stranger and you brought Me together with yourselves and welcomed and entertained and lodged Me, 
 
 
 
@@ -763,7 +763,7 @@ For I was hungry and you gave Me food, I was thirsty and you gave Me something t
 
 
 
-I was naked and you clothed Me, I was sick and you visited Me with help _and_ ministering care, I was in prison and you came to see Me. 
+I was naked and you clothed Me, I was sick and you visited Me with help and ministering care, I was in prison and you came to see Me. 
 
 
 
@@ -784,7 +784,7 @@ I was naked and you clothed Me, I was sick and you visited Me with help _and_ mi
 
 
 
-Then the just _and_ upright will answer Him, Lord, when did we see You hungry and gave You food, or thirsty and gave You something to drink? 
+Then the just and upright will answer Him, Lord, when did we see You hungry and gave You food, or thirsty and gave You something to drink? 
 
 
 
@@ -805,7 +805,7 @@ Then the just _and_ upright will answer Him, Lord, when did we see You hungry an
 
 
 
-And when did we see You a stranger and welcomed _and_ entertained You, or naked and clothed You? 
+And when did we see You a stranger and welcomed and entertained You, or naked and clothed You? 
 
 
 
@@ -910,7 +910,7 @@ For I was hungry and you gave Me no food, I was thirsty and you gave Me nothing 
 
 
 
-I was a stranger and you did not welcome Me _and_ entertain Me, I was naked and you did not clothe Me, I was sick and in prison and you did not visit Me with help _and_ ministering care. 
+I was a stranger and you did not welcome Me and entertain Me, I was naked and you did not clothe Me, I was sick and in prison and you did not visit Me with help and ministering care. 
 
 
 
@@ -973,4 +973,4 @@ And He will reply to them, Solemnly I declare to you, in so far as you failed to
 
 
 
-Then they will go away into eternal punishment, but those who are just _and_ upright _and_ in right standing with God into eternal life.
+Then they will go away into eternal punishment, but those who are just and upright and in right standing with God into eternal life.

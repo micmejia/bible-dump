@@ -12,49 +12,49 @@ next: ['Phil 3']
 ###### 1 
 
 
-So by whatever [appeal to you there is in our mutual dwelling in Christ, by whatever] strengthening _and_ consoling _and_ encouraging [our relationship] in Him [affords], by whatever persuasive incentive there is in love, by whatever participation in the [Holy] Spirit [we share], and by whatever depth of affection and compassionate sympathy, 
+So by whatever [appeal to you there is in our mutual dwelling in Christ, by whatever] strengthening and consoling and encouraging [our relationship] in Him [affords], by whatever persuasive incentive there is in love, by whatever participation in the [Holy] Spirit [we share], and by whatever depth of affection and compassionate sympathy, 
 
 
 ###### 2 
 
 
-Fill up _and_ complete my joy by living in harmony _and_ being of the same mind _and_ one in purpose, having the same love, being in full accord and of one harmonious mind _and_ intention. 
+Fill up and complete my joy by living in harmony and being of the same mind and one in purpose, having the same love, being in full accord and of one harmonious mind and intention. 
 
 
 ###### 3 
 
 
-Do nothing from factional motives [through contentiousness, strife, selfishness, or for unworthy ends] or prompted by conceit _and_ empty arrogance. Instead, in the true spirit of humility (lowliness of mind) let each regard the others as better than _and_ superior to himself [thinking more highly of one another than you do of yourselves]. 
+Do nothing from factional motives [through contentiousness, strife, selfishness, or for unworthy ends] or prompted by conceit and empty arrogance. Instead, in the true spirit of humility (lowliness of mind) let each regard the others as better than and superior to himself [thinking more highly of one another than you do of yourselves]. 
 
 
 ###### 4 
 
 
-Let each of you esteem _and_ look upon _and_ be concerned for not [merely] his own interests, but also each for the interests of others. 
+Let each of you esteem and look upon and be concerned for not [merely] his own interests, but also each for the interests of others. 
 
 
 ###### 5 
 
 
-Let this same attitude _and_ purpose _and_ [humble] mind be in you which was in Christ Jesus: [Let Him be your example in humility:] 
+Let this same attitude and purpose and [humble] mind be in you which was in Christ Jesus: [Let Him be your example in humility:] 
 
 
 ###### 6 
 
 
-Who, although being essentially one with God _and_ in the form of God [possessing the fullness of the attributes which make God God], did not think this equality with God was a thing to be eagerly grasped _or_ retained, 
+Who, although being essentially one with God and in the form of God [possessing the fullness of the attributes which make God God], did not think this equality with God was a thing to be eagerly grasped or retained, 
 
 
 ###### 7 
 
 
-But stripped Himself [of all privileges and rightful dignity], so as to assume the guise of a servant (slave), in that He became like men _and_ was born a human being. 
+But stripped Himself [of all privileges and rightful dignity], so as to assume the guise of a servant (slave), in that He became like men and was born a human being. 
 
 
 ###### 8 
 
 
-And after He had appeared in human form, He abased _and_ humbled Himself [still further] and carried His obedience to the extreme of death, even the death of the cross! 
+And after He had appeared in human form, He abased and humbled Himself [still further] and carried His obedience to the extreme of death, even the death of the cross! 
 
 
 ###### 9 
@@ -72,37 +72,37 @@ That in (at) the name of Jesus every knee should (must) bow, in heaven and on ea
 ###### 11 
 
 
-And every tongue [frankly and openly] confess _and_ acknowledge that Jesus Christ is Lord, to the glory of God the Father. 
+And every tongue [frankly and openly] confess and acknowledge that Jesus Christ is Lord, to the glory of God the Father. 
 
 
 ###### 12 
 
 
-Therefore, my dear ones, as you have always obeyed [my suggestions], so now, not only [with the enthusiasm you would show] in my presence but much more because I am absent, work out (cultivate, carry out to the goal, and fully complete) your own salvation with reverence _and_ awe and trembling (self-distrust, with serious caution, tenderness of conscience, watchfulness against temptation, timidly shrinking from whatever might offend God and discredit the name of Christ). 
+Therefore, my dear ones, as you have always obeyed [my suggestions], so now, not only [with the enthusiasm you would show] in my presence but much more because I am absent, work out (cultivate, carry out to the goal, and fully complete) your own salvation with reverence and awe and trembling (self-distrust, with serious caution, tenderness of conscience, watchfulness against temptation, timidly shrinking from whatever might offend God and discredit the name of Christ). 
 
 
 ###### 13 
 
 
-[Not in your own strength] for it is God Who is all the while effectually at work in you [energizing and creating in you the power and desire], both to will and to work for His good pleasure _and_ satisfaction _and_ delight. 
+[Not in your own strength] for it is God Who is all the while effectually at work in you [energizing and creating in you the power and desire], both to will and to work for His good pleasure and satisfaction and delight. 
 
 
 ###### 14 
 
 
-Do all things without grumbling _and_ faultfinding _and_ complaining [against God] and questioning _and_ doubting [among yourselves], 
+Do all things without grumbling and faultfinding and complaining [against God] and questioning and doubting [among yourselves], 
 
 
 ###### 15 
 
 
-That you may show yourselves to be blameless _and_ guileless, innocent _and_ uncontaminated, children of God without blemish (faultless, unrebukable) in the midst of a crooked _and_ wicked generation [spiritually perverted and perverse], among whom you are seen as bright lights (stars or beacons shining out clearly) in the [dark] world, 
+That you may show yourselves to be blameless and guileless, innocent and uncontaminated, children of God without blemish (faultless, unrebukable) in the midst of a crooked and wicked generation [spiritually perverted and perverse], among whom you are seen as bright lights (stars or beacons shining out clearly) in the [dark] world, 
 
 
 ###### 16 
 
 
-Holding out [to it] _and_ offering [to all men] the Word of Life, so that in the day of Christ I may have something of which exultantly to rejoice _and_ glory in that I did not run my race in vain or spend my labor to no purpose. 
+Holding out [to it] and offering [to all men] the Word of Life, so that in the day of Christ I may have something of which exultantly to rejoice and glory in that I did not run my race in vain or spend my labor to no purpose. 
 
 
 ###### 17 
@@ -120,13 +120,13 @@ And you also in like manner be glad and congratulate me on [my share in] it.
 ###### 19 
 
 
-But I hope _and_ trust in the Lord Jesus soon to send Timothy to you, so that I may also be encouraged _and_ cheered by learning news of you. 
+But I hope and trust in the Lord Jesus soon to send Timothy to you, so that I may also be encouraged and cheered by learning news of you. 
 
 
 ###### 20 
 
 
-For I have no one like him [no one of so kindred a spirit] who will be so genuinely interested in your welfare _and_ devoted to your interests. 
+For I have no one like him [no one of so kindred a spirit] who will be so genuinely interested in your welfare and devoted to your interests. 
 
 
 ###### 21 
@@ -150,7 +150,7 @@ I hope therefore to send him promptly, just as soon as I know how my case is goi
 ###### 24 
 
 
-But [really] I am confident _and_ fully trusting in the Lord that shortly I myself shall come to you also. 
+But [really] I am confident and fully trusting in the Lord that shortly I myself shall come to you also. 
 
 
 ###### 25 
@@ -174,13 +174,13 @@ He certainly was ill [too], near to death. But God had compassion on him, and no
 ###### 28 
 
 
-So I have sent him the more willingly _and_ eagerly, that you may be gladdened at seeing him again, and that I may be the less disquieted. 
+So I have sent him the more willingly and eagerly, that you may be gladdened at seeing him again, and that I may be the less disquieted. 
 
 
 ###### 29 
 
 
-Welcome him [home] then in the Lord with all joy, and honor _and_ highly appreciate men like him, 
+Welcome him [home] then in the Lord with all joy, and honor and highly appreciate men like him, 
 
 
 ###### 30 

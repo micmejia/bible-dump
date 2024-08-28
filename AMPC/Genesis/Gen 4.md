@@ -28,7 +28,7 @@ next: ['Gen 5']
 
 
 
-And Adam knew Eve as his wife, and she became pregnant and bore Cain; and she said, I have gotten _and_ gained a man with the help of the Lord. 
+And Adam knew Eve as his wife, and she became pregnant and bore Cain; and she said, I have gotten and gained a man with the help of the Lord. 
 
 
 
@@ -91,7 +91,7 @@ And in the course of time Cain brought to the Lord an offering of the fruit of t
 
 
 
-And Abel brought of the firstborn of his flock and of the fat portions. And the Lord had respect _and_ regard for Abel and for his offering, 
+And Abel brought of the firstborn of his flock and of the fat portions. And the Lord had respect and regard for Abel and for his offering, 
 
 
 
@@ -112,7 +112,7 @@ And Abel brought of the firstborn of his flock and of the fat portions. And the 
 
 
 
-But for Cain and his offering He had no respect _or_ regard. So Cain was exceedingly angry _and_ indignant, and he looked sad _and_ depressed. 
+But for Cain and his offering He had no respect or regard. So Cain was exceedingly angry and indignant, and he looked sad and depressed. 
 
 
 
@@ -133,7 +133,7 @@ But for Cain and his offering He had no respect _or_ regard. So Cain was exceedi
 
 
 
-And the Lord said to Cain, Why are you angry? And why do you look sad _and_ depressed _and_ dejected? 
+And the Lord said to Cain, Why are you angry? And why do you look sad and depressed and dejected? 
 
 
 
@@ -301,7 +301,7 @@ Then Cain said to the Lord, My punishment is greater than I can bear.
 
 
 
-Behold, You have driven me out this day from the face of the land, and from Your face I will be hidden; and I will be a fugitive and a vagabond _and_ a wanderer on the earth, and whoever finds me will kill me. 
+Behold, You have driven me out this day from the face of the land, and from Your face I will be hidden; and I will be a fugitive and a vagabond and a wanderer on the earth, and whoever finds me will kill me. 
 
 
 
@@ -322,7 +322,7 @@ Behold, You have driven me out this day from the face of the land, and from Your
 
 
 
-And the Lord said to him, Therefore, if anyone kills Cain, vengeance shall be taken on him sevenfold. And the Lord set a mark _or_ sign upon Cain, lest anyone finding him should kill him. 
+And the Lord said to him, Therefore, if anyone kills Cain, vengeance shall be taken on him sevenfold. And the Lord set a mark or sign upon Cain, lest anyone finding him should kill him. 
 
 
 
@@ -427,7 +427,7 @@ And Lamech took two wives; the name of the one was Adah and of the other was Zil
 
 
 
-Adah bore Jabal; he was the father of those who dwell in tents and have cattle _and_ purchase possessions. 
+Adah bore Jabal; he was the father of those who dwell in tents and have cattle and purchase possessions. 
 
 
 
@@ -490,7 +490,7 @@ Zillah bore Tubal-cain; he was the forger of all [cutting] instruments of bronze
 
 
 
-Lamech said to his wives, Adah and Zillah, Hear my voice; you wives of Lamech, listen to what I say; for I have slain a man [merely] for wounding me, and a young man [only] for striking _and_ bruising me. 
+Lamech said to his wives, Adah and Zillah, Hear my voice; you wives of Lamech, listen to what I say; for I have slain a man [merely] for wounding me, and a young man [only] for striking and bruising me. 
 
 
 

@@ -49,7 +49,7 @@ Afterward, the officials came to me and said, The Israelites and the priests and
 
 
 
-For they have taken as wives some of their daughters for themselves and for their sons, so that the holy offspring have mixed themselves with the peoples of the lands. Indeed, the officials and chief men have been foremost in this wicked act _and_ direct violation [of God's will]. 
+For they have taken as wives some of their daughters for themselves and for their sons, so that the holy offspring have mixed themselves with the peoples of the lands. Indeed, the officials and chief men have been foremost in this wicked act and direct violation [of God's will]. 
 
 
 
@@ -196,7 +196,7 @@ And now, for a brief moment, grace has been shown us by the Lord our God, Who ha
 
 
 
-For we are bondmen; yet our God has not forsaken us in our bondage, but has extended mercy _and_ steadfast love to us before the kings of Persia, to give us some reviving to set up the house of our God, to repair its ruins, and to give us a wall [of protection] in Judah and Jerusalem. 
+For we are bondmen; yet our God has not forsaken us in our bondage, but has extended mercy and steadfast love to us before the kings of Persia, to give us some reviving to set up the house of our God, to repair its ruins, and to give us a wall [of protection] in Judah and Jerusalem. 
 
 
 
@@ -322,4 +322,4 @@ Shall we break Your commandments again and intermarry with the peoples who pract
 
 
 
-O Lord, the God of Israel, You are rigidly just _and_ righteous, for we are left a remnant that is escaped, as it is this day. Behold, we are before You in our guilt, for none can stand before You because of this.
+O Lord, the God of Israel, You are rigidly just and righteous, for we are left a remnant that is escaped, as it is this day. Behold, we are before You in our guilt, for none can stand before You because of this.

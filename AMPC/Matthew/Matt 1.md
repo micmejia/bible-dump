@@ -405,7 +405,7 @@ Now the birth of Jesus Christ took place under these circumstances: When His mot
 
 
 
-And her [promised] husband Joseph, being a just _and_ upright man and not willing to expose her publicly _and_ to shame _and_ disgrace her, decided to repudiate _and_ dismiss (divorce) her quietly _and_ secretly. 
+And her [promised] husband Joseph, being a just and upright man and not willing to expose her publicly and to shame and disgrace her, decided to repudiate and dismiss (divorce) her quietly and secretly. 
 
 
 
@@ -531,4 +531,4 @@ Then Joseph, being aroused from his sleep, did as the angel of the Lord had comm
 
 
 
-But he had no union with her as her husband until she had borne _her firstborn_ Son; and he called His name Jesus.
+But he had no union with her as her husband until she had borne her firstborn Son; and he called His name Jesus.

@@ -91,7 +91,7 @@ Then said Jeremiah to them, Say this to Zedekiah:
 
 
 
-Thus says the Lord, the God of Israel: Behold, I will turn back _and_ dull the edge of the weapons of war that are in your hands, with which you fight against the king of Babylon and the Chaldeans who are besieging you outside the walls; and I will bring them into the midst of this city [Jerusalem]. 
+Thus says the Lord, the God of Israel: Behold, I will turn back and dull the edge of the weapons of war that are in your hands, with which you fight against the king of Babylon and the Chaldeans who are besieging you outside the walls; and I will bring them into the midst of this city [Jerusalem]. 
 
 
 
@@ -112,7 +112,7 @@ Thus says the Lord, the God of Israel: Behold, I will turn back _and_ dull the e
 
 
 
-And I Myself will fight against you with an outstretched hand and with a strong arm in anger, in fury, and in great indignation _and_ wrath. 
+And I Myself will fight against you with an outstretched hand and with a strong arm in anger, in fury, and in great indignation and wrath. 
 
 
 
@@ -154,7 +154,7 @@ And I will smite the inhabitants of this city, both man and beast; they will die
 
 
 
-And afterward, says the Lord, I will deliver Zedekiah king of Judah and his servants and the people in this city who survive the pestilence, the sword, and the famine, into the hand of Nebuchadrezzar king of Babylon and into the hands of their enemies, into the hands of those who seek their lives. And he will smite them with the edge of the sword; he will not spare them nor have pity or mercy _and_ compassion upon them. 
+And afterward, says the Lord, I will deliver Zedekiah king of Judah and his servants and the people in this city who survive the pestilence, the sword, and the famine, into the hand of Nebuchadrezzar king of Babylon and into the hands of their enemies, into the hands of those who seek their lives. And he will smite them with the edge of the sword; he will not spare them nor have pity or mercy and compassion upon them. 
 
 
 

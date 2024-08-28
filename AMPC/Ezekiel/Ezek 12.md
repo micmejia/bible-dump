@@ -70,7 +70,7 @@ Son of man, you dwell in the midst of the house of the rebellious, who have eyes
 
 
 
-Therefore, son of man, prepare your belongings for removing _and_ going into exile, and move out by day in their sight; and you shall remove from your place to another place in their sight. It may be they will consider _and_ perceive that they are a rebellious house. 
+Therefore, son of man, prepare your belongings for removing and going into exile, and move out by day in their sight; and you shall remove from your place to another place in their sight. It may be they will consider and perceive that they are a rebellious house. 
 
 
 
@@ -217,7 +217,7 @@ Son of man, has not the house of Israel, the rebellious house, asked you what yo
 
 
 
-Say to them, Thus says the Lord God: This oracle _or_ revelation concerns the prince in Jerusalem and all the house of Israel who are in it. 
+Say to them, Thus says the Lord God: This oracle or revelation concerns the prince in Jerusalem and all the house of Israel who are in it. 
 
 
 
@@ -343,7 +343,7 @@ And they shall know (recognize, understand, and realize) that I am the Lord, whe
 
 
 
-But I will leave a few survivors who will escape the sword, the famine, and the pestilence, that they may declare _and_ confess all their [idolatrous] abominations among the nations to which they go, and [thus God's punishment of them will be justified before everyone and] they shall know (understand and realize) that I am the Lord. 
+But I will leave a few survivors who will escape the sword, the famine, and the pestilence, that they may declare and confess all their [idolatrous] abominations among the nations to which they go, and [thus God's punishment of them will be justified before everyone and] they shall know (understand and realize) that I am the Lord. 
 
 
 
@@ -406,7 +406,7 @@ Son of man, eat your bread with shaking, and drink water with trembling and with
 
 
 
-And say to the people of the land, Thus says the Lord God concerning the inhabitants of Jerusalem in the land of Israel: They shall eat their bread with fearfulness and drink water with dismay, for their land will be stripped _and_ plundered of all its fullness, because of the violence of all those who dwell in it. 
+And say to the people of the land, Thus says the Lord God concerning the inhabitants of Jerusalem in the land of Israel: They shall eat their bread with fearfulness and drink water with dismay, for their land will be stripped and plundered of all its fullness, because of the violence of all those who dwell in it. 
 
 
 
@@ -427,7 +427,7 @@ And say to the people of the land, Thus says the Lord God concerning the inhabit
 
 
 
-And the cities that are inhabited shall be laid waste, and the land shall be deserted _and_ become a desolation; and you shall know (understand and realize) that I am the Lord. 
+And the cities that are inhabited shall be laid waste, and the land shall be deserted and become a desolation; and you shall know (understand and realize) that I am the Lord. 
 
 
 
@@ -469,7 +469,7 @@ And the word of the Lord came to me, saying,
 
 
 
-Son of man, what is this proverb that you have in the land of Israel, saying, The days drag on and every vision comes to nothing _and_ is not fulfilled? 
+Son of man, what is this proverb that you have in the land of Israel, saying, The days drag on and every vision comes to nothing and is not fulfilled? 
 
 
 
@@ -511,7 +511,7 @@ Tell them therefore, Thus says the Lord God: I will put an end to this proverb, 
 
 
 
-For there shall be no more any false, empty, _and_ fruitless vision or flattering divination in the house of Israel. 
+For there shall be no more any false, empty, and fruitless vision or flattering divination in the house of Israel. 
 
 
 
@@ -532,7 +532,7 @@ For there shall be no more any false, empty, _and_ fruitless vision or flatterin
 
 
 
-For I am the Lord; I will speak, and the word that I shall speak shall be performed (come to pass); it shall be no more delayed _or_ prolonged, for in your days, O rebellious house, I will speak the word and will perform it, says the Lord God. 
+For I am the Lord; I will speak, and the word that I shall speak shall be performed (come to pass); it shall be no more delayed or prolonged, for in your days, O rebellious house, I will speak the word and will perform it, says the Lord God. 
 
 
 

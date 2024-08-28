@@ -28,7 +28,7 @@ next: ['Gen 19']
 
 
 
-Now the Lord appeared to Abraham by the oaks _or_ terebinths of Mamre; as he sat at the door of his tent in the heat of the day, 
+Now the Lord appeared to Abraham by the oaks or terebinths of Mamre; as he sat at the door of his tent in the heat of the day, 
 
 
 
@@ -91,7 +91,7 @@ And said, My lord, if now I have found favor in your sight, do not pass by your 
 
 
 
-Let a little water be brought, and you may wash your feet and recline _and_ rest yourselves under the tree. 
+Let a little water be brought, and you may wash your feet and recline and rest yourselves under the tree. 
 
 
 
@@ -112,7 +112,7 @@ Let a little water be brought, and you may wash your feet and recline _and_ rest
 
 
 
-And I will bring a morsel (mouthful) of bread to refresh _and_ sustain your hearts before you go on further--for that is why you have come to your servant. And they replied, Do as you have said. 
+And I will bring a morsel (mouthful) of bread to refresh and sustain your hearts before you go on further--for that is why you have come to your servant. And they replied, Do as you have said. 
 
 
 
@@ -217,7 +217,7 @@ And they said to him, Where is Sarah your wife? And he said, [She is here] in th
 
 
 
-[The Lord] said, I will surely return to you when the season comes round, and behold, Sarah your wife will have a son. And Sarah was listening _and_ heard it at the tent door which was behind Him. 
+[The Lord] said, I will surely return to you when the season comes round, and behold, Sarah your wife will have a son. And Sarah was listening and heard it at the tent door which was behind Him. 
 
 
 
@@ -259,7 +259,7 @@ Now Abraham and Sarah were old, well advanced in years; it had ceased to be with
 
 
 
-Therefore Sarah laughed to herself, saying, After I have become aged shall I have pleasure _and_ delight, my lord (husband), being old also? 
+Therefore Sarah laughed to herself, saying, After I have become aged shall I have pleasure and delight, my lord (husband), being old also? 
 
 
 
@@ -301,7 +301,7 @@ And the Lord asked Abraham, Why did Sarah laugh, saying, Shall I really bear a c
 
 
 
-Is anything too hard _or_ too wonderful for the Lord? At the appointed time, when the season [for her delivery] comes around, I will return to you and Sarah shall have borne a son. 
+Is anything too hard or too wonderful for the Lord? At the appointed time, when the season [for her delivery] comes around, I will return to you and Sarah shall have borne a son. 
 
 
 
@@ -385,7 +385,7 @@ And the Lord said, Shall I hide from Abraham [My friend and servant] what I am g
 
 
 
-Since Abraham shall surely become a great and mighty nation, and all the nations of the earth shall be blessed through him _and_ shall bless themselves by him? 
+Since Abraham shall surely become a great and mighty nation, and all the nations of the earth shall be blessed through him and shall bless themselves by him? 
 
 
 
@@ -406,7 +406,7 @@ Since Abraham shall surely become a great and mighty nation, and all the nations
 
 
 
-For I have known (chosen, acknowledged) him [as My own], so that he may teach _and_ command his children and the sons of his house after him to keep the way of the Lord and to do what is just and righteous, so that the Lord may bring Abraham what He has promised him. 
+For I have known (chosen, acknowledged) him [as My own], so that he may teach and command his children and the sons of his house after him to keep the way of the Lord and to do what is just and righteous, so that the Lord may bring Abraham what He has promised him. 
 
 
 
@@ -532,7 +532,7 @@ Suppose there are in the city fifty righteous; will You destroy the place and no
 
 
 
-Far be it from You to do such a thing--to slay the righteous with the wicked, so that the righteous fare as do the wicked! Far be it from You! Shall not the Judge of all the earth execute judgment _and_ do righteously? 
+Far be it from You to do such a thing--to slay the righteous with the wicked, so that the righteous fare as do the wicked! Far be it from You! Shall not the Judge of all the earth execute judgment and do righteously? 
 
 
 

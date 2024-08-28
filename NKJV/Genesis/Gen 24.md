@@ -37,25 +37,25 @@ And if the woman is not willing to follow you, then you will be released from th
 So the servant put his hand under the thigh of Abraham his master, and swore to him concerning this matter. 
 
 ###### 10 
-Then the servant took ten of his master's camels and departed, for all his master's goods _were in_ his hand. And he arose and went to Mesopotamia, to the city of Nahor. 
+Then the servant took ten of his master's camels and departed, for all his master's goods were in his hand. And he arose and went to Mesopotamia, to the city of Nahor. 
 
 ###### 11 
-And he made his camels kneel down outside the city by a well of water at evening time, the time when women go out to draw _water._ 
+And he made his camels kneel down outside the city by a well of water at evening time, the time when women go out to draw water. 
 
 ###### 12 
 Then he said, "O Lord God of my master Abraham, please give me success this day, and show kindness to my master Abraham. 
 
 ###### 13 
-Behold, _here_ I stand by the well of water, and the daughters of the men of the city are coming out to draw water. 
+Behold, here I stand by the well of water, and the daughters of the men of the city are coming out to draw water. 
 
 ###### 14 
-Now let it be that the young woman to whom I say, 'Please let down your pitcher that I may drink,' and she says, 'Drink, and I will also give your camels a drink'--_let_ her _be the one_ You have appointed for Your servant Isaac. And by this I will know that You have shown kindness to my master." 
+Now let it be that the young woman to whom I say, 'Please let down your pitcher that I may drink,' and she says, 'Drink, and I will also give your camels a drink'--let her be the one You have appointed for Your servant Isaac. And by this I will know that You have shown kindness to my master." 
 
 ###### 15 
 And it happened, before he had finished speaking, that behold, Rebekah, who was born to Bethuel, son of Milcah, the wife of Nahor, Abraham's brother, came out with her pitcher on her shoulder. 
 
 ###### 16 
-Now the young woman _was_ very beautiful to behold, a virgin; no man had known her. And she went down to the well, filled her pitcher, and came up. 
+Now the young woman was very beautiful to behold, a virgin; no man had known her. And she went down to the well, filled her pitcher, and came up. 
 
 ###### 17 
 And the servant ran to meet her and said, "Please let me drink a little water from your pitcher." 
@@ -64,22 +64,22 @@ And the servant ran to meet her and said, "Please let me drink a little water fr
 So she said, "Drink, my lord." Then she quickly let her pitcher down to her hand, and gave him a drink. 
 
 ###### 19 
-And when she had finished giving him a drink, she said, "I will draw _water_ for your camels also, until they have finished drinking." 
+And when she had finished giving him a drink, she said, "I will draw water for your camels also, until they have finished drinking." 
 
 ###### 20 
-Then she quickly emptied her pitcher into the trough, ran back to the well to draw _water,_ and drew for all his camels. 
+Then she quickly emptied her pitcher into the trough, ran back to the well to draw water, and drew for all his camels. 
 
 ###### 21 
 And the man, wondering at her, remained silent so as to know whether the Lord had made his journey prosperous or not. 
 
 ###### 22 
-So it was, when the camels had finished drinking, that the man took a golden nose ring weighing half a shekel, and two bracelets for her wrists weighing ten _shekels_ of gold, 
+So it was, when the camels had finished drinking, that the man took a golden nose ring weighing half a shekel, and two bracelets for her wrists weighing ten shekels of gold, 
 
 ###### 23 
-and said, "Whose daughter _are_ you? Tell me, please, is there room _in_ your father's house for us to lodge?" 
+and said, "Whose daughter are you? Tell me, please, is there room in your father's house for us to lodge?" 
 
 ###### 24 
-So she said to him, "I _am_ the daughter of Bethuel, Milcah's son, whom she bore to Nahor." 
+So she said to him, "I am the daughter of Bethuel, Milcah's son, whom she bore to Nahor." 
 
 ###### 25 
 Moreover she said to him, "We have both straw and feed enough, and room to lodge." 
@@ -88,13 +88,13 @@ Moreover she said to him, "We have both straw and feed enough, and room to lodge
 Then the man bowed down his head and worshiped the Lord. 
 
 ###### 27 
-And he said, "Blessed _be_ the Lord God of my master Abraham, who has not forsaken His mercy and His truth toward my master. As for me, being on the way, the Lord led me to the house of my master's brethren." 
+And he said, "Blessed be the Lord God of my master Abraham, who has not forsaken His mercy and His truth toward my master. As for me, being on the way, the Lord led me to the house of my master's brethren." 
 
 ###### 28 
 So the young woman ran and told her mother's household these things. 
 
 ###### 29 
-Now Rebekah had a brother whose name _was_ Laban, and Laban ran out to the man by the well. 
+Now Rebekah had a brother whose name was Laban, and Laban ran out to the man by the well. 
 
 ###### 30 
 So it came to pass, when he saw the nose ring, and the bracelets on his sister's wrists, and when he heard the words of his sister Rebekah, saying, "Thus the man spoke to me," that he went to the man. And there he stood by the camels at the well. 
@@ -103,13 +103,13 @@ So it came to pass, when he saw the nose ring, and the bracelets on his sister's
 And he said, "Come in, O blessed of the Lord! Why do you stand outside? For I have prepared the house, and a place for the camels." 
 
 ###### 32 
-Then the man came to the house. And he unloaded the camels, and provided straw and feed for the camels, and water to wash his feet and the feet of the men who _were_ with him. 
+Then the man came to the house. And he unloaded the camels, and provided straw and feed for the camels, and water to wash his feet and the feet of the men who were with him. 
 
 ###### 33 
-_Food_ was set before him to eat, but he said, "I will not eat until I have told about my errand." And he said, "Speak on." 
+Food was set before him to eat, but he said, "I will not eat until I have told about my errand." And he said, "Speak on." 
 
 ###### 34 
-So he said, "I _am_ Abraham's servant. 
+So he said, "I am Abraham's servant. 
 
 ###### 35 
 The Lord has blessed my master greatly, and he has become great; and He has given him flocks and herds, silver and gold, male and female servants, and camels and donkeys. 
@@ -130,25 +130,25 @@ And I said to my master, 'Perhaps the woman will not follow me.'
 But he said to me, 'The Lord, before whom I walk, will send His angel with you and prosper your way; and you shall take a wife for my son from my family and from my father's house. 
 
 ###### 41 
-You will be clear from this oath when you arrive among my family; for if they will not give _her_ to you, then you will be released from my oath.' 
+You will be clear from this oath when you arrive among my family; for if they will not give her to you, then you will be released from my oath.' 
 
 ###### 42 
 "And this day I came to the well and said, 'O Lord God of my master Abraham, if You will now prosper the way in which I go, 
 
 ###### 43 
-behold, I stand by the well of water; and it shall come to pass that when the virgin comes out to draw _water,_ and I say to her, "Please give me a little water from your pitcher to drink," 
+behold, I stand by the well of water; and it shall come to pass that when the virgin comes out to draw water, and I say to her, "Please give me a little water from your pitcher to drink," 
 
 ###### 44 
-and she says to me, "Drink, and I will draw for your camels also,"--_let_ her _be_ the woman whom the Lord has appointed for my master's son.' 
+and she says to me, "Drink, and I will draw for your camels also,"--let her be the woman whom the Lord has appointed for my master's son.' 
 
 ###### 45 
-"But before I had finished speaking in my heart, there was Rebekah, coming out with her pitcher on her shoulder; and she went down to the well and drew _water._ And I said to her, 'Please let me drink.' 
+"But before I had finished speaking in my heart, there was Rebekah, coming out with her pitcher on her shoulder; and she went down to the well and drew water. And I said to her, 'Please let me drink.' 
 
 ###### 46 
-And she made haste and let her pitcher down from her _shoulder,_ and said, 'Drink, and I will give your camels a drink also.' So I drank, and she gave the camels a drink also. 
+And she made haste and let her pitcher down from her shoulder, and said, 'Drink, and I will give your camels a drink also.' So I drank, and she gave the camels a drink also. 
 
 ###### 47 
-Then I asked her, and said, 'Whose daughter _are_ you?' And she said, 'The daughter of Bethuel, Nahor's son, whom Milcah bore to him.' So I put the nose ring on her nose and the bracelets on her wrists. 
+Then I asked her, and said, 'Whose daughter are you?' And she said, 'The daughter of Bethuel, Nahor's son, whom Milcah bore to him.' So I put the nose ring on her nose and the bracelets on her wrists. 
 
 ###### 48 
 And I bowed my head and worshiped the Lord, and blessed the Lord God of my master Abraham, who had led me in the way of truth to take the daughter of my master's brother for his son. 
@@ -160,19 +160,19 @@ Now if you will deal kindly and truly with my master, tell me. And if not, tell 
 Then Laban and Bethuel answered and said, "The thing comes from the Lord; we cannot speak to you either bad or good. 
 
 ###### 51 
-Here _is_ Rebekah before you; take _her_ and go, and let her be your master's son's wife, as the Lord has spoken." 
+Here is Rebekah before you; take her and go, and let her be your master's son's wife, as the Lord has spoken." 
 
 ###### 52 
-And it came to pass, when Abraham's servant heard their words, that he worshiped the Lord, _bowing himself_ to the earth. 
+And it came to pass, when Abraham's servant heard their words, that he worshiped the Lord, bowing himself to the earth. 
 
 ###### 53 
-Then the servant brought out jewelry of silver, jewelry of gold, and clothing, and gave _them_ to Rebekah. He also gave precious things to her brother and to her mother. 
+Then the servant brought out jewelry of silver, jewelry of gold, and clothing, and gave them to Rebekah. He also gave precious things to her brother and to her mother. 
 
 ###### 54 
-And he and the men who _were_ with him ate and drank and stayed all night. Then they arose in the morning, and he said, "Send me away to my master." 
+And he and the men who were with him ate and drank and stayed all night. Then they arose in the morning, and he said, "Send me away to my master." 
 
 ###### 55 
-But her brother and her mother said, "Let the young woman stay with us _a few_ days, at least ten; after that she may go." 
+But her brother and her mother said, "Let the young woman stay with us a few days, at least ten; after that she may go." 
 
 ###### 56 
 And he said to them, "Do not hinder me, since the Lord has prospered my way; send me away so that I may go to my master." 
@@ -187,7 +187,7 @@ Then they called Rebekah and said to her, "Will you go with this man?" And she s
 So they sent away Rebekah their sister and her nurse, and Abraham's servant and his men. 
 
 ###### 60 
-And they blessed Rebekah and said to her: "Our sister, _may_ you _become_ _The mother of_ thousands of ten thousands; And may your descendants possess The gates of those who hate them." 
+And they blessed Rebekah and said to her: "Our sister, may you become The mother of thousands of ten thousands; And may your descendants possess The gates of those who hate them." 
 
 ###### 61 
 Then Rebekah and her maids arose, and they rode on the camels and followed the man. So the servant took Rebekah and departed. 
@@ -196,16 +196,16 @@ Then Rebekah and her maids arose, and they rode on the camels and followed the m
 Now Isaac came from the way of Beer Lahai Roi, for he dwelt in the South. 
 
 ###### 63 
-And Isaac went out to meditate in the field in the evening; and he lifted his eyes and looked, and there, the camels _were_ coming. 
+And Isaac went out to meditate in the field in the evening; and he lifted his eyes and looked, and there, the camels were coming. 
 
 ###### 64 
 Then Rebekah lifted her eyes, and when she saw Isaac she dismounted from her camel; 
 
 ###### 65 
-for she had said to the servant, "Who _is_ this man walking in the field to meet us?" The servant said, "It _is_ my master." So she took a veil and covered herself. 
+for she had said to the servant, "Who is this man walking in the field to meet us?" The servant said, "It is my master." So she took a veil and covered herself. 
 
 ###### 66 
 And the servant told Isaac all the things that he had done. 
 
 ###### 67 
-Then Isaac brought her into his mother Sarah's tent; and he took Rebekah and she became his wife, and he loved her. So Isaac was comforted after his mother's _death._
+Then Isaac brought her into his mother Sarah's tent; and he took Rebekah and she became his wife, and he loved her. So Isaac was comforted after his mother's death.

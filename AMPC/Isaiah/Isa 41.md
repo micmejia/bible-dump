@@ -28,7 +28,7 @@ next: ['Isa 42']
 
 
 
-Listen in silence before Me, O islands _and_ regions bordering on the sea! And let the people gather _and_ renew their strength [for the argument; let them offer their strongest arguments]! Let them come near, then let them speak; let us come near together for judgment [and decide the point at issue between us concerning the enemy advancing from the east]. 
+Listen in silence before Me, O islands and regions bordering on the sea! And let the people gather and renew their strength [for the argument; let them offer their strongest arguments]! Let them come near, then let them speak; let us come near together for judgment [and decide the point at issue between us concerning the enemy advancing from the east]. 
 
 
 
@@ -49,7 +49,7 @@ Listen in silence before Me, O islands _and_ regions bordering on the sea! And l
 
 
 
-Who has roused up one [Cyrus] from the east, whom He calls in righteousness to His service _and_ whom victory meets at every step? He [the Lord] subdues nations before him and makes him ruler over kings. He turns them to dust with the sword [of Cyrus], and to driven straw _and_ chaff with his bow. 
+Who has roused up one [Cyrus] from the east, whom He calls in righteousness to His service and whom victory meets at every step? He [the Lord] subdues nations before him and makes him ruler over kings. He turns them to dust with the sword [of Cyrus], and to driven straw and chaff with his bow. 
 
 
 
@@ -70,7 +70,7 @@ Who has roused up one [Cyrus] from the east, whom He calls in righteousness to H
 
 
 
-He [Cyrus] pursues them and passes safely _and_ unhindered, even by a way his feet had not trod _and_ so swiftly that his feet do not touch the ground. 
+He [Cyrus] pursues them and passes safely and unhindered, even by a way his feet had not trod and so swiftly that his feet do not touch the ground. 
 
 
 
@@ -91,7 +91,7 @@ He [Cyrus] pursues them and passes safely _and_ unhindered, even by a way his fe
 
 
 
-Who has prepared and done this, calling forth _and_ guiding the destinies of the generations [of the nations] from the beginning? I, the Lord--the first [existing before history began] and with the last [an ever-present, unchanging God]--I am He. 
+Who has prepared and done this, calling forth and guiding the destinies of the generations [of the nations] from the beginning? I, the Lord--the first [existing before history began] and with the last [an ever-present, unchanging God]--I am He. 
 
 
 
@@ -112,7 +112,7 @@ Who has prepared and done this, calling forth _and_ guiding the destinies of the
 
 
 
-The islands _and_ coastlands have seen and fear; the ends of the earth tremble. They draw near and come; 
+The islands and coastlands have seen and fear; the ends of the earth tremble. They draw near and come; 
 
 
 
@@ -154,7 +154,7 @@ They help every one his neighbor and say to his brother [in his tiresome idol ma
 
 
 
-So the carpenter encourages the goldsmith, _and_ he who smooths [the metal] with the hammer [encourages] him who smites the anvil, saying of the soldering, That is good! And he fastens it with nails so that it cannot be moved. 
+So the carpenter encourages the goldsmith, and he who smooths [the metal] with the hammer [encourages] him who smites the anvil, saying of the soldering, That is good! And he fastens it with nails so that it cannot be moved. 
 
 
 
@@ -217,7 +217,7 @@ You whom I [the Lord] have taken from the ends of the earth and have called from
 
 
 
-Fear not [there is nothing to fear], for I am with you; do not look around you in terror _and_ be dismayed, for I am your God. I will strengthen _and_ harden you to difficulties, yes, I will help you; yes, I will hold you up _and_ retain you with My [victorious] right hand of rightness _and_ justice. 
+Fear not [there is nothing to fear], for I am with you; do not look around you in terror and be dismayed, for I am your God. I will strengthen and harden you to difficulties, yes, I will help you; yes, I will hold you up and retain you with My [victorious] right hand of rightness and justice. 
 
 
 
@@ -238,7 +238,7 @@ Fear not [there is nothing to fear], for I am with you; do not look around you i
 
 
 
-Behold, all they who are enraged _and_ inflamed against you shall be put to shame and confounded; they who strive against you shall be as nothing and shall perish. 
+Behold, all they who are enraged and inflamed against you shall be put to shame and confounded; they who strive against you shall be as nothing and shall perish. 
 
 
 
@@ -343,7 +343,7 @@ Behold, I will make you to be a new, sharp, threshing instrument which has teeth
 
 
 
-You shall winnow them, and the wind shall carry them away, and the tempest _or_ whirlwind shall scatter them. And you shall rejoice in the Lord, you shall glory in the Holy One of Israel. 
+You shall winnow them, and the wind shall carry them away, and the tempest or whirlwind shall scatter them. And you shall rejoice in the Lord, you shall glory in the Holy One of Israel. 
 
 
 
@@ -490,7 +490,7 @@ Let them bring them forth and tell us what is to happen. Let them tell us the fo
 
 
 
-Tell us the things that are to come hereafter, that we may know that you are gods; yes, do good or do evil [something or other], that we may stare in astonishment _and_ be dismayed as we behold [the miracle] together! 
+Tell us the things that are to come hereafter, that we may know that you are gods; yes, do good or do evil [something or other], that we may stare in astonishment and be dismayed as we behold [the miracle] together! 
 
 
 
@@ -532,7 +532,7 @@ Behold, you [idols] are nothing, and your work is nothing! The worshiper who cho
 
 
 
-I have raised up _and_ impelled to action one from the north [Cyrus], and he comes; from the rising of the sun he calls upon My name [recognizing that his victories have been granted to him by Me]. And he shall tread upon rulers _and_ deputies as upon mortar and as the potter treads clay. [He comes with the suddenness of a comet, but none of the idol oracles of the nations has anticipated it.] 
+I have raised up and impelled to action one from the north [Cyrus], and he comes; from the rising of the sun he calls upon My name [recognizing that his victories have been granted to him by Me]. And he shall tread upon rulers and deputies as upon mortar and as the potter treads clay. [He comes with the suddenness of a comet, but none of the idol oracles of the nations has anticipated it.] 
 
 
 

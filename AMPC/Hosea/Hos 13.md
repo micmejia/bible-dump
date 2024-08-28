@@ -28,7 +28,7 @@ next: ['Hos 14']
 
 
 
-When Ephraim spoke with trembling, he exalted himself in Israel; but when he offended _and_ became guilty in Baal worship, he died [spiritually, and then outward ruin came also, sealing Israel's doom as a nation]. 
+When Ephraim spoke with trembling, he exalted himself in Israel; but when he offended and became guilty in Baal worship, he died [spiritually, and then outward ruin came also, sealing Israel's doom as a nation]. 
 
 
 
@@ -49,7 +49,7 @@ When Ephraim spoke with trembling, he exalted himself in Israel; but when he off
 
 
 
-And now they sin more and more and have made for themselves molten images of their silver, even idols according to their own understanding [as it pleased them], all of them the work of the craftsmen. To these [very works of their hands] they speak _or_ pray who sacrifice to them; they kiss _and_ show homage to the calves [as if they were alive]! 
+And now they sin more and more and have made for themselves molten images of their silver, even idols according to their own understanding [as it pleased them], all of them the work of the craftsmen. To these [very works of their hands] they speak or pray who sacrifice to them; they kiss and show homage to the calves [as if they were alive]! 
 
 
 
@@ -70,7 +70,7 @@ And now they sin more and more and have made for themselves molten images of the
 
 
 
-Therefore they shall be like the morning mist or like the dew that passes early away, like the chaff that swirls with the whirlwind from the threshing floor and as the smoke out of the chimney _or_ through the window. 
+Therefore they shall be like the morning mist or like the dew that passes early away, like the chaff that swirls with the whirlwind from the threshing floor and as the smoke out of the chimney or through the window. 
 
 
 
@@ -91,7 +91,7 @@ Therefore they shall be like the morning mist or like the dew that passes early 
 
 
 
-Yet I am the Lord your God from [the time you became a nation in] the land of Egypt, and you shall know _or_ recognize no God but Me, for there is no Savior besides Me. 
+Yet I am the Lord your God from [the time you became a nation in] the land of Egypt, and you shall know or recognize no God but Me, for there is no Savior besides Me. 
 
 
 
@@ -154,7 +154,7 @@ According to their pasture, so were they filled [when they fed, they grew full],
 
 
 
-Therefore I have become to them like a lion; like a leopard I will lurk by the way [to Assyria] _and_ watch them. 
+Therefore I have become to them like a lion; like a leopard I will lurk by the way [to Assyria] and watch them. 
 
 
 
@@ -301,7 +301,7 @@ The pains of a woman in childbirth are coming on for him [to be born]; but he is
 
 
 
-Should I ransom them from the power of Sheol (the place of the dead)? Should I redeem them from death? O death, where are your plagues? O Sheol, where is your destruction? Relenting _and_ compassion are hidden from My eyes. 
+Should I ransom them from the power of Sheol (the place of the dead)? Should I redeem them from death? O death, where are your plagues? O Sheol, where is your destruction? Relenting and compassion are hidden from My eyes. 
 
 
 
@@ -343,4 +343,4 @@ For though among his brethren [his fellow tribes] he may be fruitful, an east wi
 
 
 
-Samaria shall bear her guilt _and_ become desolate, for she rebelled against her God; they shall fall by the sword, their infants shall be dashed in pieces, and their pregnant women shall be ripped up.
+Samaria shall bear her guilt and become desolate, for she rebelled against her God; they shall fall by the sword, their infants shall be dashed in pieces, and their pregnant women shall be ripped up.

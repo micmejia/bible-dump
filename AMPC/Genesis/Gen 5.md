@@ -616,7 +616,7 @@ When Lamech was 182 years old, a son was born.
 
 
 
-He named him Noah, saying, This one shall bring us relief _and_ comfort from our work and the [grievous] toil of our hands due to the ground being cursed by the Lord. 
+He named him Noah, saying, This one shall bring us relief and comfort from our work and the [grievous] toil of our hands due to the ground being cursed by the Lord. 
 
 
 

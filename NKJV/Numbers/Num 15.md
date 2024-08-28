@@ -19,13 +19,13 @@ And the Lord spoke to Moses, saying,
 and you make an offering by fire to the Lord, a burnt offering or a sacrifice, to fulfill a vow or as a freewill offering or in your appointed feasts, to make a sweet aroma to the Lord, from the herd or the flock, 
 
 ###### 4 
-then he who presents his offering to the Lord shall bring a grain offering of one-tenth _of an ephah_ of fine flour mixed with one-fourth of a hin of oil; 
+then he who presents his offering to the Lord shall bring a grain offering of one-tenth of an ephah of fine flour mixed with one-fourth of a hin of oil; 
 
 ###### 5 
 and one-fourth of a hin of wine as a drink offering you shall prepare with the burnt offering or the sacrifice, for each lamb. 
 
 ###### 6 
-Or for a ram you shall prepare as a grain offering two-tenths _of an ephah_ of fine flour mixed with one-third of a hin of oil; 
+Or for a ram you shall prepare as a grain offering two-tenths of an ephah of fine flour mixed with one-third of a hin of oil; 
 
 ###### 7 
 and as a drink offering you shall offer one-third of a hin of wine as a sweet aroma to the Lord. 
@@ -34,7 +34,7 @@ and as a drink offering you shall offer one-third of a hin of wine as a sweet ar
 And when you prepare a young bull as a burnt offering, or as a sacrifice to fulfill a vow, or as a peace offering to the Lord, 
 
 ###### 9 
-then shall be offered with the young bull a grain offering of three-tenths _of an ephah_ of fine flour mixed with half a hin of oil; 
+then shall be offered with the young bull a grain offering of three-tenths of an ephah of fine flour mixed with half a hin of oil; 
 
 ###### 10 
 and you shall bring as the drink offering half a hin of wine as an offering made by fire, a sweet aroma to the Lord. 
@@ -49,10 +49,10 @@ According to the number that you prepare, so you shall do with everyone accordin
 All who are native-born shall do these things in this manner, in presenting an offering made by fire, a sweet aroma to the Lord. 
 
 ###### 14 
-And if a stranger dwells with you, or whoever _is_ among you throughout your generations, and would present an offering made by fire, a sweet aroma to the Lord, just as you do, so shall he do. 
+And if a stranger dwells with you, or whoever is among you throughout your generations, and would present an offering made by fire, a sweet aroma to the Lord, just as you do, so shall he do. 
 
 ###### 15 
-One ordinance _shall be_ for you of the assembly and for the stranger who dwells _with you,_ an ordinance forever throughout your generations; as you are, so shall the stranger be before the Lord. 
+One ordinance shall be for you of the assembly and for the stranger who dwells with you, an ordinance forever throughout your generations; as you are, so shall the stranger be before the Lord. 
 
 ###### 16 
 One law and one custom shall be for you and for the stranger who dwells with you.' " 
@@ -67,7 +67,7 @@ Again the Lord spoke to Moses, saying,
 then it will be, when you eat of the bread of the land, that you shall offer up a heave offering to the Lord. 
 
 ###### 20 
-You shall offer up a cake of the first of your ground meal _as_ a heave offering; as a heave offering of the threshing floor, so shall you offer it up. 
+You shall offer up a cake of the first of your ground meal as a heave offering; as a heave offering of the threshing floor, so shall you offer it up. 
 
 ###### 21 
 Of the first of your ground meal you shall give to the Lord a heave offering throughout your generations.
@@ -87,7 +87,7 @@ then it will be, if it is unintentionally committed, without the knowledge of th
 So the priest shall make atonement for the whole congregation of the children of Israel, and it shall be forgiven them, for it was unintentional; they shall bring their offering, an offering made by fire to the Lord, and their sin offering before the Lord, for their unintended sin. 
 
 ###### 26 
-It shall be forgiven the whole congregation of the children of Israel and the stranger who dwells among them, because all the people _did it_ unintentionally. 
+It shall be forgiven the whole congregation of the children of Israel and the stranger who dwells among them, because all the people did it unintentionally. 
 
 ###### 27 
 'And if a person sins unintentionally, then he shall bring a female goat in its first year as a sin offering. 
@@ -96,15 +96,15 @@ It shall be forgiven the whole congregation of the children of Israel and the st
 So the priest shall make atonement for the person who sins unintentionally, when he sins unintentionally before the Lord, to make atonement for him; and it shall be forgiven him. 
 
 ###### 29 
-You shall have one law for him who sins unintentionally, _for_ him who is native-born among the children of Israel and for the stranger who dwells among them.
+You shall have one law for him who sins unintentionally, for him who is native-born among the children of Israel and for the stranger who dwells among them.
 
 ## Law Concerning Presumptuous Sin 
 
 ###### 30 
-'But the person who does _anything_ presumptuously, _whether he is_ native-born or a stranger, that one brings reproach on the Lord, and he shall be cut off from among his people. 
+'But the person who does anything presumptuously, whether he is native-born or a stranger, that one brings reproach on the Lord, and he shall be cut off from among his people. 
 
 ###### 31 
-Because he has despised the word of the Lord, and has broken His commandment, that person shall be completely cut off; his guilt _shall be_ upon him.' " 
+Because he has despised the word of the Lord, and has broken His commandment, that person shall be completely cut off; his guilt shall be upon him.' " 
 
 ## Penalty for Violating the Sabbath 
 
@@ -132,10 +132,10 @@ Again the Lord spoke to Moses, saying,
 "Speak to the children of Israel: Tell them to make tassels on the corners of their garments throughout their generations, and to put a blue thread in the tassels of the corners. 
 
 ###### 39 
-And you shall have the tassel, that you may look upon it and remember all the commandments of the Lord and do them, and that you _may_ not follow the harlotry to which your own heart and your own eyes are inclined, 
+And you shall have the tassel, that you may look upon it and remember all the commandments of the Lord and do them, and that you may not follow the harlotry to which your own heart and your own eyes are inclined, 
 
 ###### 40 
 and that you may remember and do all My commandments, and be holy for your God. 
 
 ###### 41 
-I _am_ the Lord your God, who brought you out of the land of Egypt, to be your God: I _am_ the Lord your God."
+I am the Lord your God, who brought you out of the land of Egypt, to be your God: I am the Lord your God."

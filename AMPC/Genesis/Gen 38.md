@@ -49,7 +49,7 @@ At that time Judah withdrew from his brothers and went to [lodge with] a certain
 
 
 
-There Judah saw _and_ met a daughter of Shuah, a Canaanite; he took her as wife and lived with her. 
+There Judah saw and met a daughter of Shuah, a Canaanite; he took her as wife and lived with her. 
 
 
 
@@ -322,7 +322,7 @@ So she put off her widow's garments and covered herself with a veil, wrapped her
 
 
 
-When Judah saw her, he thought she was a harlot _or_ devoted prostitute [under a vow to her goddess], for she had covered her face [as such women did]. 
+When Judah saw her, he thought she was a harlot or devoted prostitute [under a vow to her goddess], for she had covered her face [as such women did]. 
 
 
 
@@ -448,7 +448,7 @@ And Judah sent the kid by the hand of his friend the Adullamite, to receive his 
 
 
 
-He asked the men of that place, Where is the harlot _or_ cult prostitute who was openly by the roadside? They said, There was no harlot _or_ temple prostitute here. 
+He asked the men of that place, Where is the harlot or cult prostitute who was openly by the roadside? They said, There was no harlot or temple prostitute here. 
 
 
 
@@ -469,7 +469,7 @@ He asked the men of that place, Where is the harlot _or_ cult prostitute who was
 
 
 
-So he returned to Judah and said, I cannot find her; and also the local men said, There was no harlot _or_ temple prostitute around here. 
+So he returned to Judah and said, I cannot find her; and also the local men said, There was no harlot or temple prostitute around here. 
 
 
 
@@ -553,7 +553,7 @@ When she was brought forth, she [took the things he had given her in pledge and]
 
 
 
-And Judah acknowledged them and said, She has been more righteous _and_ just than I, because I did not give her to Shelah my son. And he did not cohabit with her again. 
+And Judah acknowledged them and said, She has been more righteous and just than I, because I did not give her to Shelah my son. And he did not cohabit with her again. 
 
 
 

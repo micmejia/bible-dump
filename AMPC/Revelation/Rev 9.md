@@ -42,7 +42,7 @@ They were not permitted to kill them, but to torment (distress, vex) them for fi
 ###### 6 
 
 
-And in those days people will seek death and will not find it; and they will yearn to die, but death evades _and_ flees from them. 
+And in those days people will seek death and will not find it; and they will yearn to die, but death evades and flees from them. 
 
 
 ###### 7 

@@ -49,7 +49,7 @@ But now they who are younger than I have me in derision, whose fathers I disdain
 
 
 
-Yes, how could the strength of their hands profit me? They were men whose ripe age _and_ vigor had perished. 
+Yes, how could the strength of their hands profit me? They were men whose ripe age and vigor had perished. 
 
 
 
@@ -70,7 +70,7 @@ Yes, how could the strength of their hands profit me? They were men whose ripe a
 
 
 
-They are gaunt with want and famine; they gnaw the dry _and_ barren ground _or_ flee into the wilderness, into the gloom of wasteness and desolation. 
+They are gaunt with want and famine; they gnaw the dry and barren ground or flee into the wilderness, into the gloom of wasteness and desolation. 
 
 
 
@@ -91,7 +91,7 @@ They are gaunt with want and famine; they gnaw the dry _and_ barren ground _or_ 
 
 
 
-They pluck saltwort _or_ mallows among the bushes, and roots of the broom for their food _or_ to warm them. 
+They pluck saltwort or mallows among the bushes, and roots of the broom for their food or to warm them. 
 
 
 
@@ -154,7 +154,7 @@ They must dwell in the clefts of frightful valleys (gullies made by torrents) an
 
 
 
-Among the bushes they bray _and_ howl [like wild animals]; beneath the prickly scrub they fling themselves _and_ huddle together. 
+Among the bushes they bray and howl [like wild animals]; beneath the prickly scrub they fling themselves and huddle together. 
 
 
 
@@ -175,7 +175,7 @@ Among the bushes they bray _and_ howl [like wild animals]; beneath the prickly s
 
 
 
-Sons of the worthless and nameless, they have been scourged _and_ crushed out of the land. 
+Sons of the worthless and nameless, they have been scourged and crushed out of the land. 
 
 
 
@@ -217,7 +217,7 @@ And now I have become their song; yes, I am a byword to them.
 
 
 
-They abhor me, they stand aloof from me, and do not refrain from spitting in my face _or_ at the sight of me. 
+They abhor me, they stand aloof from me, and do not refrain from spitting in my face or at the sight of me. 
 
 
 
@@ -238,7 +238,7 @@ They abhor me, they stand aloof from me, and do not refrain from spitting in my 
 
 
 
-For God has loosed my bowstring and afflicted _and_ humbled me; they have cast off the bridle [of restraint] before me. 
+For God has loosed my bowstring and afflicted and humbled me; they have cast off the bridle [of restraint] before me. 
 
 
 
@@ -259,7 +259,7 @@ For God has loosed my bowstring and afflicted _and_ humbled me; they have cast o
 
 
 
-On my right hand rises the rabble brood; they jostle me _and_ push away my feet, and they cast up against me their ways of destruction [like an advancing army]. 
+On my right hand rises the rabble brood; they jostle me and push away my feet, and they cast up against me their ways of destruction [like an advancing army]. 
 
 
 
@@ -280,7 +280,7 @@ On my right hand rises the rabble brood; they jostle me _and_ push away my feet,
 
 
 
-They break up _and_ clutter my path [embarrassing my plans]; they urge on my calamity, even though they have no helper [and are themselves helpless]. 
+They break up and clutter my path [embarrassing my plans]; they urge on my calamity, even though they have no helper [and are themselves helpless]. 
 
 
 
@@ -322,7 +322,7 @@ As through a wide breach they come in; amid the crash [of falling walls] they ro
 
 
 
-Terrors are turned upon me; my honor _and_ reputation they chase away like the wind, and my welfare has passed away as a cloud. 
+Terrors are turned upon me; my honor and reputation they chase away like the wind, and my welfare has passed away as a cloud. 
 
 
 
@@ -385,7 +385,7 @@ My bones are pierced [with aching] in the night season, and the pains that gnaw 
 
 
 
-By the great force [of my disease] my garment is disguised _and_ disfigured; it binds me about like the collar of my coat. 
+By the great force [of my disease] my garment is disguised and disfigured; it binds me about like the collar of my coat. 
 
 
 
@@ -448,7 +448,7 @@ I cry to You, [Lord,] and You do not answer me; I stand up, but You [only] gaze 
 
 
 
-You have become harsh _and_ cruel to me; with the might of Your hand You [keep me alive only to] persecute me. 
+You have become harsh and cruel to me; with the might of Your hand You [keep me alive only to] persecute me. 
 
 
 
@@ -532,7 +532,7 @@ However, does not one falling in a heap of ruins stretch out his hand? Or in his
 
 
 
-Did not I weep for him who was in trouble? Was not my heart grieved for the poor _and_ needy? 
+Did not I weep for him who was in trouble? Was not my heart grieved for the poor and needy? 
 
 
 

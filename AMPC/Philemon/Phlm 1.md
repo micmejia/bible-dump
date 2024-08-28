@@ -40,25 +40,25 @@ Because I continue to hear of your love and of your loyal faith which you have t
 ###### 6 
 
 
-[And I pray] that the participation in _and_ sharing of your faith may produce _and_ promote full recognition _and_ appreciation _and_ understanding _and_ precise knowledge of every good [thing] that is ours in [our identification with] Christ _Jesus_ [and unto His glory]. 
+[And I pray] that the participation in and sharing of your faith may produce and promote full recognition and appreciation and understanding and precise knowledge of every good [thing] that is ours in [our identification with] Christ Jesus [and unto His glory]. 
 
 
 ###### 7 
 
 
-For I have derived great joy and comfort _and_ encouragement from your love, because the hearts of the saints [who are your fellow Christians] have been cheered _and_ refreshed through you, [my] brother. 
+For I have derived great joy and comfort and encouragement from your love, because the hearts of the saints [who are your fellow Christians] have been cheered and refreshed through you, [my] brother. 
 
 
 ###### 8 
 
 
-Therefore, though I have abundant boldness in Christ to charge you to do what is fitting _and_ required _and_ your duty to do, 
+Therefore, though I have abundant boldness in Christ to charge you to do what is fitting and required and your duty to do, 
 
 
 ###### 9 
 
 
-Yet for love's sake I prefer to appeal to you just for what I am--I, Paul, an ambassador [of Christ Jesus] _and_ an old man and now a prisoner for His sake also-- 
+Yet for love's sake I prefer to appeal to you just for what I am--I, Paul, an ambassador [of Christ Jesus] and an old man and now a prisoner for His sake also-- 
 
 
 ###### 10 
@@ -88,7 +88,7 @@ I would have chosen to keep him with me, in order that he might minister to my n
 ###### 14 
 
 
-But it has been my wish to do nothing about it without first consulting you _and_ getting your consent, in order that your benevolence might not seem to be the result of compulsion _or_ of pressure but might be voluntary [on your part]. 
+But it has been my wish to do nothing about it without first consulting you and getting your consent, in order that your benevolence might not seem to be the result of compulsion or of pressure but might be voluntary [on your part]. 
 
 
 ###### 15 
@@ -106,7 +106,7 @@ Not as a slave any longer but as [something] more than a slave, as a brother [Ch
 ###### 17 
 
 
-If then you consider me a partner _and_ a comrade in fellowship, welcome _and_ receive him as you would [welcome and receive] me. 
+If then you consider me a partner and a comrade in fellowship, welcome and receive him as you would [welcome and receive] me. 
 
 
 ###### 18 
@@ -124,7 +124,7 @@ I, Paul, write it with my own hand, I promise to repay it [in full]--and that is
 ###### 20 
 
 
-Yes, brother, let me have some profit from you in the Lord. Cheer _and_ refresh my heart in Christ. 
+Yes, brother, let me have some profit from you in the Lord. Cheer and refresh my heart in Christ. 
 
 
 ###### 21 
@@ -154,4 +154,4 @@ And [from] Mark, Aristarchus, Demas, and Luke, my fellow workers.
 ###### 25 
 
 
-The grace (blessing and favor) of the Lord Jesus Christ (the Messiah) be with your spirit. _Amen (so be it)._
+The grace (blessing and favor) of the Lord Jesus Christ (the Messiah) be with your spirit. Amen (so be it).

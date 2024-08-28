@@ -70,7 +70,7 @@ Say to Aaron and his sons that they shall stay away from the holy things which t
 
 
 
-Tell them, Any one of your offspring throughout your generations who goes to the holy things which the Israelites dedicate to the Lord when he is unclean, that [priest] shall be cut off from My presence _and_ excluded from the sanctuary; I am the Lord. 
+Tell them, Any one of your offspring throughout your generations who goes to the holy things which the Israelites dedicate to the Lord when he is unclean, that [priest] shall be cut off from My presence and excluded from the sanctuary; I am the Lord. 
 
 
 
@@ -91,7 +91,7 @@ Tell them, Any one of your offspring throughout your generations who goes to the
 
 
 
-No man of the offspring of Aaron who is a leper or has a discharge shall eat of the holy things [the offerings and the showbread] until he is clean. And whoever touches any person _or_ thing made unclean by contact with a corpse or a man who has had a discharge of semen, 
+No man of the offspring of Aaron who is a leper or has a discharge shall eat of the holy things [the offerings and the showbread] until he is clean. And whoever touches any person or thing made unclean by contact with a corpse or a man who has had a discharge of semen, 
 
 
 
@@ -469,7 +469,7 @@ And whoever offers a sacrifice of peace offering to the Lord to make a special v
 
 
 
-Animals blind or made infirm _and_ weak or maimed, or having sores _or_ a wen or an itch or scabs, you shall not offer to the Lord or make an offering of them by fire upon the altar to the Lord. 
+Animals blind or made infirm and weak or maimed, or having sores or a wen or an itch or scabs, you shall not offer to the Lord or make an offering of them by fire upon the altar to the Lord. 
 
 
 
@@ -658,7 +658,7 @@ It shall be eaten on the same day; you shall leave none of it until the next day
 
 
 
-So shall you heartily accept My commandments _and_ conform your life and conduct to them. I am the Lord. 
+So shall you heartily accept My commandments and conform your life and conduct to them. I am the Lord. 
 
 
 
@@ -679,7 +679,7 @@ So shall you heartily accept My commandments _and_ conform your life and conduct
 
 
 
-Neither shall you profane My holy name [applying it to an idol, or treating it with irreverence or contempt or as a byword]; but I will be hallowed among the Israelites. I am the Lord, Who consecrates _and_ makes you holy, 
+Neither shall you profane My holy name [applying it to an idol, or treating it with irreverence or contempt or as a byword]; but I will be hallowed among the Israelites. I am the Lord, Who consecrates and makes you holy, 
 
 
 

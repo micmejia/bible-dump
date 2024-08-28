@@ -13,19 +13,19 @@ next: ['Deut 12']
 "Therefore you shall love the Lord your God, and keep His charge, His statutes, His judgments, and His commandments always. 
 
 ###### 2 
-Know today that _I do_ not _speak_ with your children, who have not known and who have not seen the chastening of the Lord your God, His greatness and His mighty hand and His outstretched arm-- 
+Know today that I do not speak with your children, who have not known and who have not seen the chastening of the Lord your God, His greatness and His mighty hand and His outstretched arm-- 
 
 ###### 3 
 His signs and His acts which He did in the midst of Egypt, to Pharaoh king of Egypt, and to all his land; 
 
 ###### 4 
-what He did to the army of Egypt, to their horses and their chariots: how He made the waters of the Red Sea overflow them as they pursued you, and _how_ the Lord has destroyed them to this day; 
+what He did to the army of Egypt, to their horses and their chariots: how He made the waters of the Red Sea overflow them as they pursued you, and how the Lord has destroyed them to this day; 
 
 ###### 5 
 what He did for you in the wilderness until you came to this place; 
 
 ###### 6 
-and what He did to Dathan and Abiram the sons of Eliab, the son of Reuben: how the earth opened its mouth and swallowed them up, their households, their tents, and all the substance that _was_ in their possession, in the midst of all Israel-- 
+and what He did to Dathan and Abiram the sons of Eliab, the son of Reuben: how the earth opened its mouth and swallowed them up, their households, their tents, and all the substance that was in their possession, in the midst of all Israel-- 
 
 ###### 7 
 but your eyes have seen every great act of the Lord which He did. 
@@ -34,22 +34,22 @@ but your eyes have seen every great act of the Lord which He did.
 "Therefore you shall keep every commandment which I command you today, that you may be strong, and go in and possess the land which you cross over to possess, 
 
 ###### 9 
-and that you may prolong _your_ days in the land which the Lord swore to give your fathers, to them and their descendants, 'a land flowing with milk and honey.' 
+and that you may prolong your days in the land which the Lord swore to give your fathers, to them and their descendants, 'a land flowing with milk and honey.' 
 
 ###### 10 
-For the land which you go to possess _is_ not like the land of Egypt from which you have come, where you sowed your seed and watered _it_ by foot, as a vegetable garden; 
+For the land which you go to possess is not like the land of Egypt from which you have come, where you sowed your seed and watered it by foot, as a vegetable garden; 
 
 ###### 11 
-but the land which you cross over to possess _is_ a land of hills and valleys, which drinks water from the rain of heaven, 
+but the land which you cross over to possess is a land of hills and valleys, which drinks water from the rain of heaven, 
 
 ###### 12 
-a land for which the Lord your God cares; the eyes of the Lord your God _are_ always on it, from the beginning of the year to the very end of the year. 
+a land for which the Lord your God cares; the eyes of the Lord your God are always on it, from the beginning of the year to the very end of the year. 
 
 ###### 13 
 'And it shall be that if you earnestly obey My commandments which I command you today, to love the Lord your God and serve Him with all your heart and with all your soul, 
 
 ###### 14 
-then I will give _you_ the rain for your land in its season, the early rain and the latter rain, that you may gather in your grain, your new wine, and your oil. 
+then I will give you the rain for your land in its season, the early rain and the latter rain, that you may gather in your grain, your new wine, and your oil. 
 
 ###### 15 
 And I will send grass in your fields for your livestock, that you may eat and be filled.' 
@@ -97,7 +97,7 @@ and the curse, if you do not obey the commandments of the Lord your God, but tur
 Now it shall be, when the Lord your God has brought you into the land which you go to possess, that you shall put the blessing on Mount Gerizim and the curse on Mount Ebal. 
 
 ###### 30 
-_Are_ they not on the other side of the Jordan, toward the setting sun, in the land of the Canaanites who dwell in the plain opposite Gilgal, beside the terebinth trees of Moreh? 
+Are they not on the other side of the Jordan, toward the setting sun, in the land of the Canaanites who dwell in the plain opposite Gilgal, beside the terebinth trees of Moreh? 
 
 ###### 31 
 For you will cross over the Jordan and go in to possess the land which the Lord your God is giving you, and you will possess it and dwell in it. 

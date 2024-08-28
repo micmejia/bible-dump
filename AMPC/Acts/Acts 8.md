@@ -28,7 +28,7 @@ next: ['Acts 9']
 
 
 
-And Saul was [not only] consenting to [Stephen's] death [he was pleased and entirely approving]. On that day a great _and_ severe persecution broke out against the church which was in Jerusalem; and they were all scattered throughout the regions of Judea and Samaria, except the apostles (special messengers). 
+And Saul was [not only] consenting to [Stephen's] death [he was pleased and entirely approving]. On that day a great and severe persecution broke out against the church which was in Jerusalem; and they were all scattered throughout the regions of Judea and Samaria, except the apostles (special messengers). 
 
 
 
@@ -49,7 +49,7 @@ And Saul was [not only] consenting to [Stephen's] death [he was pleased and enti
 
 
 
-[A party of] devout men with others helped to carry out _and_ bury Stephen and made great lamentation over him. 
+[A party of] devout men with others helped to carry out and bury Stephen and made great lamentation over him. 
 
 
 
@@ -70,7 +70,7 @@ And Saul was [not only] consenting to [Stephen's] death [he was pleased and enti
 
 
 
-But Saul shamefully treated _and_ laid waste the church continuously [with cruelty and violence]; and entering house after house, he dragged out men and women and committed them to prison. 
+But Saul shamefully treated and laid waste the church continuously [with cruelty and violence]; and entering house after house, he dragged out men and women and committed them to prison. 
 
 
 
@@ -133,7 +133,7 @@ Philip [the deacon, not the apostle] went down to the city of Samaria and procla
 
 
 
-And great crowds of people with one accord listened to _and_ heeded what was said by Philip, as they heard him _and_ watched the miracles _and_ wonders which he kept performing [from time to time]. 
+And great crowds of people with one accord listened to and heeded what was said by Philip, as they heard him and watched the miracles and wonders which he kept performing [from time to time]. 
 
 
 
@@ -154,7 +154,7 @@ And great crowds of people with one accord listened to _and_ heeded what was sai
 
 
 
-For foul spirits came out of many who were possessed by them, screaming _and_ shouting with a loud voice, and many who were suffering from palsy or were crippled were restored to health. 
+For foul spirits came out of many who were possessed by them, screaming and shouting with a loud voice, and many who were suffering from palsy or were crippled were restored to health. 
 
 
 
@@ -196,7 +196,7 @@ And there was great rejoicing in that city.
 
 
 
-But there was a man named Simon, who had formerly practiced magic arts in the city to the utter amazement of the Samaritan nation, claiming that he himself was an extraordinary _and_ distinguished person. 
+But there was a man named Simon, who had formerly practiced magic arts in the city to the utter amazement of the Samaritan nation, claiming that he himself was an extraordinary and distinguished person. 
 
 
 
@@ -238,7 +238,7 @@ They all paid earnest attention to him, from the least to the greatest, saying, 
 
 
 
-And they were attentive _and_ made much of him, because for a long time he had amazed _and_ bewildered _and_ dazzled them with his skill in magic arts. 
+And they were attentive and made much of him, because for a long time he had amazed and bewildered and dazzled them with his skill in magic arts. 
 
 
 
@@ -280,7 +280,7 @@ But when they believed the good news (the Gospel) about the kingdom of God and t
 
 
 
-Even Simon himself believed [he adhered to, trusted in, and relied on the teaching of Philip], and after being baptized, devoted himself constantly to him. And seeing signs _and_ miracles of great power which were being performed, he was utterly amazed. 
+Even Simon himself believed [he adhered to, trusted in, and relied on the teaching of Philip], and after being baptized, devoted himself constantly to him. And seeing signs and miracles of great power which were being performed, he was utterly amazed. 
 
 
 
@@ -301,7 +301,7 @@ Even Simon himself believed [he adhered to, trusted in, and relied on the teachi
 
 
 
-Now when the apostles (special messengers) at Jerusalem heard that [the country of] Samaria had accepted _and_ welcomed the Word of God, they sent Peter and John to them, 
+Now when the apostles (special messengers) at Jerusalem heard that [the country of] Samaria had accepted and welcomed the Word of God, they sent Peter and John to them, 
 
 
 
@@ -385,7 +385,7 @@ Then [the apostles] laid their hands on them one by one, and they received the H
 
 
 
-However, when Simon saw that the [Holy] Spirit was imparted through the laying on of the apostles' hands, he brought money _and_ offered it to them, 
+However, when Simon saw that the [Holy] Spirit was imparted through the laying on of the apostles' hands, he brought money and offered it to them, 
 
 
 
@@ -406,7 +406,7 @@ However, when Simon saw that the [Holy] Spirit was imparted through the laying o
 
 
 
-Saying, Grant me also this power _and_ authority, in order that anyone on whom I place my hands may receive the Holy Spirit. 
+Saying, Grant me also this power and authority, in order that anyone on whom I place my hands may receive the Holy Spirit. 
 
 
 
@@ -469,7 +469,7 @@ You have neither part nor lot in this matter, for your heart is all wrong in God
 
 
 
-So repent of this depravity _and_ wickedness of yours and pray to the Lord that, if possible, this contriving thought _and_ purpose of your heart may be removed _and_ disregarded _and_ forgiven you. 
+So repent of this depravity and wickedness of yours and pray to the Lord that, if possible, this contriving thought and purpose of your heart may be removed and disregarded and forgiven you. 
 
 
 
@@ -553,7 +553,7 @@ Now when [the apostles] had borne their testimony and preached the message of th
 
 
 
-But an angel of the Lord said to Philip, Rise and proceed southward _or_ at midday on the road that runs from Jerusalem down to Gaza. This is the desert [route]. 
+But an angel of the Lord said to Philip, Rise and proceed southward or at midday on the road that runs from Jerusalem down to Gaza. This is the desert [route]. 
 
 
 
@@ -658,7 +658,7 @@ Accordingly Philip, running up to him, heard [the man] reading the prophet Isaia
 
 
 
-And he said, How is it possible for me to do so unless someone explains it to me _and_ guides me [in the right way]? And he earnestly requested Philip to come up and sit beside him. 
+And he said, How is it possible for me to do so unless someone explains it to me and guides me [in the right way]? And he earnestly requested Philip to come up and sit beside him. 
 
 
 
@@ -700,7 +700,7 @@ Now this was the passage of Scripture which he was reading: Like a sheep He was 
 
 
 
-In His humiliation  He was taken away by distressing _and_ oppressive judgment _and_ justice was denied Him [caused to cease]. Who can describe _or_ relate in full the wickedness of His contemporaries (generation)? For His life is taken from the earth _and_ a bloody death inflicted upon Him. 
+In His humiliation  He was taken away by distressing and oppressive judgment and justice was denied Him [caused to cease]. Who can describe or relate in full the wickedness of His contemporaries (generation)? For His life is taken from the earth and a bloody death inflicted upon Him. 
 
 
 
@@ -742,7 +742,7 @@ And the eunuch said to Philip, I beg of you, tell me about whom does the prophet
 
 
 
-Then Philip opened his mouth, and beginning with this portion of Scripture he announced to him the glad tidings (Gospel) of Jesus _and_ about Him. 
+Then Philip opened his mouth, and beginning with this portion of Scripture he announced to him the glad tidings (Gospel) of Jesus and about Him. 
 
 
 
@@ -784,7 +784,7 @@ And as they continued along on the way, they came to some water, and the eunuch 
 
 
 
-_And Philip said, If you believe with all your heart [if you have_ _a conviction, full of joyful trust, that Jesus is the Messiah and accept Him as the Author of your salvation in the kingdom of God, giving Him your obedience, then] you may. And he replied, I do believe that Jesus Christ is the Son of God._ 
+And Philip said, If you believe with all your heart [if you have a conviction, full of joyful trust, that Jesus is the Messiah and accept Him as the Author of your salvation in the kingdom of God, giving Him your obedience, then] you may. And he replied, I do believe that Jesus Christ is the Son of God. 
 
 
 

@@ -133,7 +133,7 @@ And the Hittites replied to Abraham,
 
 
 
-Listen to us, my lord; you are a mighty prince among us. Bury your dead in any tomb _or_ grave of ours that you choose; none of us will withhold from you his tomb or hinder you from burying your dead. 
+Listen to us, my lord; you are a mighty prince among us. Bury your dead in any tomb or grave of ours that you choose; none of us will withhold from you his tomb or hinder you from burying your dead. 
 
 
 
@@ -343,7 +343,7 @@ My lord, listen to me. The land is worth 400 shekels of silver; what is that bet
 
 
 
-So Abraham listened to what Ephron said _and_ acted upon it. He weighed to Ephron the silver which he had named in the hearing of the Hittites: 400 shekels of silver, according to the weights current among the merchants. 
+So Abraham listened to what Ephron said and acted upon it. He weighed to Ephron the silver which he had named in the hearing of the Hittites: 400 shekels of silver, according to the weights current among the merchants. 
 
 
 

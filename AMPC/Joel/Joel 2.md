@@ -49,7 +49,7 @@ Blow the trumpet in Zion; sound an alarm on My holy Mount [Zion]. Let all the in
 
 
 
-A day of darkness and gloom, a day of clouds and of thick mists _and_ darkness, like the morning dawn spread upon the mountains; so there comes a [heathen, hostile] people numerous and mighty, the like of which has never been before and shall not be again even to the years of many generations. 
+A day of darkness and gloom, a day of clouds and of thick mists and darkness, like the morning dawn spread upon the mountains; so there comes a [heathen, hostile] people numerous and mighty, the like of which has never been before and shall not be again even to the years of many generations. 
 
 
 
@@ -91,7 +91,7 @@ A fire devours before them, and behind them a flame burns; the land is as the ga
 
 
 
-Their appearance is like the appearance of horses, and like war horses _and_ horsemen, so do they run. 
+Their appearance is like the appearance of horses, and like war horses and horsemen, so do they run. 
 
 
 
@@ -175,7 +175,7 @@ They run like mighty men; they climb the wall like men of war. They march each o
 
 
 
-Neither does one thrust upon another; they walk every one in his path. And they burst through _and_ upon the weapons, yet they are not wounded _and_ do not change their course. 
+Neither does one thrust upon another; they walk every one in his path. And they burst through and upon the weapons, yet they are not wounded and do not change their course. 
 
 
 
@@ -196,7 +196,7 @@ Neither does one thrust upon another; they walk every one in his path. And they 
 
 
 
-They leap upon the city; they run upon the wall; they climb up on _and_ into the houses; they enter in at the windows like a thief. 
+They leap upon the city; they run upon the wall; they climb up on and into the houses; they enter in at the windows like a thief. 
 
 
 
@@ -238,7 +238,7 @@ The earth quakes before them; the heavens tremble. The sun and the moon are dark
 
 
 
-And the Lord utters His voice before His army, for His host is very great, and [they are] strong _and_ powerful who execute [God's] word. For the day of the Lord is great and very terrible, and who can endure it? 
+And the Lord utters His voice before His army, for His host is very great, and [they are] strong and powerful who execute [God's] word. For the day of the Lord is great and very terrible, and who can endure it? 
 
 
 
@@ -259,7 +259,7 @@ And the Lord utters His voice before His army, for His host is very great, and [
 
 
 
-Therefore also now, says the Lord, turn _and_ keep on coming to Me with all your heart, with fasting, with weeping, and with mourning [until every hindrance is removed and the broken fellowship is restored]. 
+Therefore also now, says the Lord, turn and keep on coming to Me with all your heart, with fasting, with weeping, and with mourning [until every hindrance is removed and the broken fellowship is restored]. 
 
 
 
@@ -301,7 +301,7 @@ Rend your hearts and not your garments and return to the Lord, your God, for He 
 
 
 
-Who knows but what He will turn, revoke your sentence [of evil], and leave a blessing behind Him [giving you the means with which to serve Him], even a cereal _or_ meal offering and a drink offering for the Lord, your God? 
+Who knows but what He will turn, revoke your sentence [of evil], and leave a blessing behind Him [giving you the means with which to serve Him], even a cereal or meal offering and a drink offering for the Lord, your God? 
 
 
 
@@ -364,7 +364,7 @@ Gather the people, sanctify the congregation; assemble the elderly people, gathe
 
 
 
-Let the priests, the ministers of the Lord, weep between the porch and the altar; and let them say, Have pity _and_ spare Your people, O Lord, and give not Your heritage to reproach, that the [heathen] nations should rule over them _or_ use a byword against them. Why should they say among the peoples, Where is their God? 
+Let the priests, the ministers of the Lord, weep between the porch and the altar; and let them say, Have pity and spare Your people, O Lord, and give not Your heritage to reproach, that the [heathen] nations should rule over them or use a byword against them. Why should they say among the peoples, Where is their God? 
 
 
 
@@ -469,7 +469,7 @@ Fear not, O land; be glad and rejoice, for the Lord has done great things!
 
 
 
-Be not afraid, you wild beasts of the field, for the pastures of the wilderness have sprung up _and_ are green; the tree bears its fruit, and the fig tree and the vine yield their [full] strength. 
+Be not afraid, you wild beasts of the field, for the pastures of the wilderness have sprung up and are green; the tree bears its fruit, and the fig tree and the vine yield their [full] strength. 
 
 
 
@@ -490,7 +490,7 @@ Be not afraid, you wild beasts of the field, for the pastures of the wilderness 
 
 
 
-Be glad then, you children of Zion, and rejoice in the Lord, your God; for He gives you the former _or_ early rain in just measure _and_ in righteousness, and He causes to come down for you the rain, the former rain and the latter rain, as before. 
+Be glad then, you children of Zion, and rejoice in the Lord, your God; for He gives you the former or early rain in just measure and in righteousness, and He causes to come down for you the rain, the former rain and the latter rain, as before. 
 
 
 
@@ -532,7 +532,7 @@ And the [threshing] floors shall be full of grain and the vats shall overflow wi
 
 
 
-And I will restore _or_ replace for you the years that the locust has eaten--the hopping locust, the stripping locust, and the crawling locust, My great army which I sent among you. 
+And I will restore or replace for you the years that the locust has eaten--the hopping locust, the stripping locust, and the crawling locust, My great army which I sent among you. 
 
 
 
@@ -574,7 +574,7 @@ And you shall eat in plenty and be satisfied and praise the name of the Lord, yo
 
 
 
-And you shall know, understand, _and_ realize that I am in the midst of Israel and that I the Lord am your God and there is none else. My people shall never be put to shame. 
+And you shall know, understand, and realize that I am in the midst of Israel and that I the Lord am your God and there is none else. My people shall never be put to shame. 
 
 
 
@@ -637,7 +637,7 @@ Even upon the menservants and upon the maidservants in those days will I pour ou
 
 
 
-And I will show signs _and_ wonders in the heavens, and on the earth, blood and fire and columns of smoke. 
+And I will show signs and wonders in the heavens, and on the earth, blood and fire and columns of smoke. 
 
 
 
@@ -679,4 +679,4 @@ The sun shall be turned to darkness and the moon to blood before the great and t
 
 
 
-And whoever shall call on the name of the Lord shall be delivered _and_ saved, for in Mount Zion and in Jerusalem there shall be those who escape, as the Lord has said, and among the remnant [of survivors] shall be those whom the Lord calls.
+And whoever shall call on the name of the Lord shall be delivered and saved, for in Mount Zion and in Jerusalem there shall be those who escape, as the Lord has said, and among the remnant [of survivors] shall be those whom the Lord calls.

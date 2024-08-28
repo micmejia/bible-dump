@@ -112,7 +112,7 @@ And command the Israelites, You are to pass through the territory of your kinsme
 
 
 
-Do not provoke _or_ stir them up, for I will not give you of their land, no, not enough for the sole of your foot to tread on, for I have given Mount Seir to Esau for a possession. 
+Do not provoke or stir them up, for I will not give you of their land, no, not enough for the sole of your foot to tread on, for I have given Mount Seir to Esau for a possession. 
 
 
 
@@ -196,7 +196,7 @@ So we passed on from our brethren the sons of Esau, who dwelt in Seir, away from
 
 
 
-And the Lord said to me, Do not trouble _or_ assault Moab or contend with them in battle, for I will not give you any of their land for a possession, because I have given Ar to the sons of Lot for a possession. 
+And the Lord said to me, Do not trouble or assault Moab or contend with them in battle, for I will not give you any of their land for a possession, because I have given Ar to the sons of Lot for a possession. 
 
 
 
@@ -406,7 +406,7 @@ You are this day to pass through Ar, the border of Moab.
 
 
 
-But when you come near the territory of the sons of Ammon, do not trouble _or_ assault them or provoke _or_ stir them up, for I will not give you any of the land of the Ammonites for a possession, because I have given it to the sons of Lot for a possession. 
+But when you come near the territory of the sons of Ammon, do not trouble or assault them or provoke or stir them up, for I will not give you any of the land of the Ammonites for a possession, because I have given it to the sons of Lot for a possession. 
 
 
 
@@ -658,7 +658,7 @@ But Sihon king of Heshbon would not let us pass by him; for the Lord your God ha
 
 
 
-And the Lord said to me [Moses], Behold, I have begun to give Sihon and his land over to you. Begin to take possession, that you may succeed him _and_ occupy his land. 
+And the Lord said to me [Moses], Behold, I have begun to give Sihon and his land over to you. Begin to take possession, that you may succeed him and occupy his land. 
 
 
 
@@ -763,7 +763,7 @@ Only the cattle we took as booty for ourselves and the spoil of the cities which
 
 
 
-From Aroer, which is on the edge of the Arnon Valley, and from the city that is in the valley, as far as Gilead, there was no city too high _and_ strong for us; the Lord our God delivered all to us. 
+From Aroer, which is on the edge of the Arnon Valley, and from the city that is in the valley, as far as Gilead, there was no city too high and strong for us; the Lord our God delivered all to us. 
 
 
 

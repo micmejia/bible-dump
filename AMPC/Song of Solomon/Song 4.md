@@ -196,7 +196,7 @@ Come away with me from Lebanon, my [promised] bride, come with me from Lebanon. 
 
 
 
-You have ravished my heart _and_ given me courage, my sister, my [promised] bride; you have ravished my heart _and_ given me courage with one look from your eyes, with one jewel of your necklace. 
+You have ravished my heart and given me courage, my sister, my [promised] bride; you have ravished my heart and given me courage with one look from your eyes, with one jewel of your necklace. 
 
 
 
@@ -259,7 +259,7 @@ Your lips, O my [promised] bride, drop honey as the honeycomb; honey and milk ar
 
 
 
-A garden enclosed _and_ barred is my sister, my [promised] bride--a spring shut up, a fountain sealed. 
+A garden enclosed and barred is my sister, my [promised] bride--a spring shut up, a fountain sealed. 
 
 
 
@@ -280,7 +280,7 @@ A garden enclosed _and_ barred is my sister, my [promised] bride--a spring shut 
 
 
 
-Your shoots are an orchard of pomegranates _or_ a paradise with precious fruits, henna with spikenard plants, 
+Your shoots are an orchard of pomegranates or a paradise with precious fruits, henna with spikenard plants, 
 
 
 

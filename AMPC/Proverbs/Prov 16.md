@@ -28,7 +28,7 @@ next: ['Prov 17']
 
 
 
-The plans of the mind _and_ orderly thinking belong to man, but from the Lord comes the [wise] answer of the tongue. 
+The plans of the mind and orderly thinking belong to man, but from the Lord comes the [wise] answer of the tongue. 
 
 
 
@@ -70,7 +70,7 @@ All the ways of a man are pure in his own eyes, but the Lord weighs the spirits 
 
 
 
-Roll your works upon the Lord [commit and trust them wholly to Him; He will cause your thoughts to become agreeable to His will, and] so shall your plans be established _and_ succeed. 
+Roll your works upon the Lord [commit and trust them wholly to Him; He will cause your thoughts to become agreeable to His will, and] so shall your plans be established and succeed. 
 
 
 
@@ -91,7 +91,7 @@ Roll your works upon the Lord [commit and trust them wholly to Him; He will caus
 
 
 
-The Lord has made everything [to accommodate itself and contribute] to its own end _and_ His own purpose--even the wicked [are fitted for their role] for the day of calamity _and_ evil. 
+The Lord has made everything [to accommodate itself and contribute] to its own end and His own purpose--even the wicked [are fitted for their role] for the day of calamity and evil. 
 
 
 
@@ -112,7 +112,7 @@ The Lord has made everything [to accommodate itself and contribute] to its own e
 
 
 
-Everyone proud _and_ arrogant in heart is disgusting, hateful, _and_ exceedingly offensive to the Lord; be assured [I pledge it] they will not go unpunished. 
+Everyone proud and arrogant in heart is disgusting, hateful, and exceedingly offensive to the Lord; be assured [I pledge it] they will not go unpunished. 
 
 
 
@@ -133,7 +133,7 @@ Everyone proud _and_ arrogant in heart is disgusting, hateful, _and_ exceedingly
 
 
 
-By mercy _and_ love, truth _and_ fidelity [to God and man--not by sacrificial offerings], iniquity is purged out of the heart, and by the reverent, worshipful fear of the Lord men depart from _and_ avoid evil. 
+By mercy and love, truth and fidelity [to God and man--not by sacrificial offerings], iniquity is purged out of the heart, and by the reverent, worshipful fear of the Lord men depart from and avoid evil. 
 
 
 
@@ -196,7 +196,7 @@ Better is a little with righteousness (uprightness in every area and relation an
 
 
 
-A man's mind plans his way, but the Lord directs his steps _and_ makes them sure. 
+A man's mind plans his way, but the Lord directs his steps and makes them sure. 
 
 
 
@@ -238,7 +238,7 @@ Divinely directed decisions are on the lips of the king; his mouth should not tr
 
 
 
-A just balance _and_ scales are the Lord's; all the weights of the bag are His work [established on His eternal principles]. 
+A just balance and scales are the Lord's; all the weights of the bag are His work [established on His eternal principles]. 
 
 
 
@@ -259,7 +259,7 @@ A just balance _and_ scales are the Lord's; all the weights of the bag are His w
 
 
 
-It is an abomination [to God and men] for kings to commit wickedness, for a throne is established _and_ made secure by righteousness (moral and spiritual rectitude in every area and relation). 
+It is an abomination [to God and men] for kings to commit wickedness, for a throne is established and made secure by righteousness (moral and spiritual rectitude in every area and relation). 
 
 
 
@@ -280,7 +280,7 @@ It is an abomination [to God and men] for kings to commit wickedness, for a thro
 
 
 
-Right _and_ just lips are the delight of a king, and he loves him who speaks what is right. 
+Right and just lips are the delight of a king, and he loves him who speaks what is right. 
 
 
 
@@ -343,7 +343,7 @@ In the light of the king's countenance is life, and his favor is as a cloud brin
 
 
 
-How much better it is to get skillful _and_ godly Wisdom than gold! And to get understanding is to be chosen rather than silver. 
+How much better it is to get skillful and godly Wisdom than gold! And to get understanding is to be chosen rather than silver. 
 
 
 
@@ -406,7 +406,7 @@ Pride goes before destruction, and a haughty spirit before a fall.
 
 
 
-Better it is to be of a humble spirit with the meek _and_ poor than to divide the spoil with the proud. 
+Better it is to be of a humble spirit with the meek and poor than to divide the spoil with the proud. 
 
 
 
@@ -427,7 +427,7 @@ Better it is to be of a humble spirit with the meek _and_ poor than to divide th
 
 
 
-He who deals wisely _and_ heeds [God's] word _and_ counsel shall find good, and whoever leans on, trusts in, _and_ is confident in the Lord--happy, blessed, _and_ fortunate is he. 
+He who deals wisely and heeds [God's] word and counsel shall find good, and whoever leans on, trusts in, and is confident in the Lord--happy, blessed, and fortunate is he. 
 
 
 
@@ -448,7 +448,7 @@ He who deals wisely _and_ heeds [God's] word _and_ counsel shall find good, and 
 
 
 
-The wise in heart are called prudent, understanding, _and_ knowing, and winsome speech increases learning [in both speaker and listener]. 
+The wise in heart are called prudent, understanding, and knowing, and winsome speech increases learning [in both speaker and listener]. 
 
 
 
@@ -490,7 +490,7 @@ Understanding is a wellspring of life to those who have it, but to give instruct
 
 
 
-The mind of the wise instructs his mouth, and adds learning _and_ persuasiveness to his lips. 
+The mind of the wise instructs his mouth, and adds learning and persuasiveness to his lips. 
 
 
 
@@ -532,7 +532,7 @@ Pleasant words are as a honeycomb, sweet to the mind and healing to the body.
 
 
 
-There is a way that seems right to a man _and_ appears straight before him, but at the end of it is the way of death. 
+There is a way that seems right to a man and appears straight before him, but at the end of it is the way of death. 
 
 
 
@@ -574,7 +574,7 @@ The appetite of the laborer works for him, for [the need of] his mouth urges him
 
 
 
-A worthless man devises _and_ digs up mischief, and in his lips there is as a scorching fire. 
+A worthless man devises and digs up mischief, and in his lips there is as a scorching fire. 
 
 
 
@@ -616,7 +616,7 @@ A perverse man sows strife, and a whisperer separates close friends.
 
 
 
-The exceedingly grasping, covetous, _and_ violent man entices his neighbor, leading him in a way that is not good. 
+The exceedingly grasping, covetous, and violent man entices his neighbor, leading him in a way that is not good. 
 
 
 
@@ -658,7 +658,7 @@ He who shuts his eyes to devise perverse things and who compresses his lips [as 
 
 
 
-The hoary head is a crown of beauty _and_ glory if it is found in the way of righteousness (moral and spiritual rectitude in every area and relation). 
+The hoary head is a crown of beauty and glory if it is found in the way of righteousness (moral and spiritual rectitude in every area and relation). 
 
 
 

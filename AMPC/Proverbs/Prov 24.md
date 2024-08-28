@@ -49,7 +49,7 @@ Be not envious of evil men, nor desire to be with them;
 
 
 
-For their minds plot oppression _and_ devise violence, and their lips talk of causing trouble _and_ vexation. 
+For their minds plot oppression and devise violence, and their lips talk of causing trouble and vexation. 
 
 
 
@@ -70,7 +70,7 @@ For their minds plot oppression _and_ devise violence, and their lips talk of ca
 
 
 
-Through skillful _and_ godly Wisdom is a house (a life, a home, a family) built, and by understanding it is established [on a sound and good foundation], 
+Through skillful and godly Wisdom is a house (a life, a home, a family) built, and by understanding it is established [on a sound and good foundation], 
 
 
 
@@ -112,7 +112,7 @@ And by knowledge shall its chambers [of every area] be filled with all precious 
 
 
 
-A wise man is strong _and_ _is better than a strong man_, and a man of knowledge increases _and_ strengthens his power; 
+A wise man is strong and is better than a strong man, and a man of knowledge increases and strengthens his power; 
 
 
 
@@ -133,7 +133,7 @@ A wise man is strong _and_ _is better than a strong man_, and a man of knowledge
 
 
 
-For by wise counsel you can wage your war, and in an abundance of counselors there is victory _and_ safety. 
+For by wise counsel you can wage your war, and in an abundance of counselors there is victory and safety. 
 
 
 
@@ -196,7 +196,7 @@ He who plans to do evil will be called a mischief-maker.
 
 
 
-The plans of the foolish _and_ the thought of foolishness are sin, and the scoffer is an abomination to men. 
+The plans of the foolish and the thought of foolishness are sin, and the scoffer is an abomination to men. 
 
 
 
@@ -259,7 +259,7 @@ Deliver those who are drawn away to death, and those who totter to the slaughter
 
 
 
-If you [profess ignorance and] say, Behold, we did not know this, does not He Who weighs _and_ ponders the heart perceive _and_ consider it? And He Who guards your life, does not He know it? And shall not He render to [you and] every man according to his works? 
+If you [profess ignorance and] say, Behold, we did not know this, does not He Who weighs and ponders the heart perceive and consider it? And He Who guards your life, does not He know it? And shall not He render to [you and] every man according to his works? 
 
 
 
@@ -301,7 +301,7 @@ My son, eat honey, because it is good, and the drippings of the honeycomb are sw
 
 
 
-So shall you know skillful _and_ godly Wisdom to be thus to your life; if you find it, then shall there be a future _and_ a reward, and your hope _and_ expectation shall not be cut off. 
+So shall you know skillful and godly Wisdom to be thus to your life; if you find it, then shall there be a future and a reward, and your hope and expectation shall not be cut off. 
 
 
 
@@ -364,7 +364,7 @@ For a righteous man falls seven times and rises again, but the wicked are overth
 
 
 
-Rejoice not when your enemy falls, and let not your heart be glad when he stumbles _or_ is overthrown, 
+Rejoice not when your enemy falls, and let not your heart be glad when he stumbles or is overthrown, 
 
 
 
@@ -385,7 +385,7 @@ Rejoice not when your enemy falls, and let not your heart be glad when he stumbl
 
 
 
-Lest the Lord see it and it be evil in His eyes _and_ displease Him, and He turn away His wrath from him [to expend it upon you, the worse offender]. 
+Lest the Lord see it and it be evil in His eyes and displease Him, and He turn away His wrath from him [to expend it upon you, the worse offender]. 
 
 
 
@@ -469,7 +469,7 @@ My son, [reverently] fear the Lord and the king, and do not associate with those
 
 
 
-For their calamity shall rise suddenly, and who knows the punishment _and_ ruin which both [the Lord and the king] will bring upon [the rebellious]? 
+For their calamity shall rise suddenly, and who knows the punishment and ruin which both [the Lord and the king] will bring upon [the rebellious]? 
 
 
 
@@ -490,7 +490,7 @@ For their calamity shall rise suddenly, and who knows the punishment _and_ ruin 
 
 
 
-These also are sayings of the wise: To discriminate _and_ show partiality, having respect of persons in judging, is not good. 
+These also are sayings of the wise: To discriminate and show partiality, having respect of persons in judging, is not good. 
 
 
 
@@ -511,7 +511,7 @@ These also are sayings of the wise: To discriminate _and_ show partiality, havin
 
 
 
-He who says to the wicked, You are righteous _and_ innocent--peoples will curse him, nations will defy _and_ abhor him. 
+He who says to the wicked, You are righteous and innocent--peoples will curse him, nations will defy and abhor him. 
 
 
 
@@ -532,7 +532,7 @@ He who says to the wicked, You are righteous _and_ innocent--peoples will curse 
 
 
 
-But to those [upright judges] who rebuke the wicked, it will go well with them _and_ they will find delight, and a good blessing will be upon them. 
+But to those [upright judges] who rebuke the wicked, it will go well with them and they will find delight, and a good blessing will be upon them. 
 
 
 
@@ -574,7 +574,7 @@ He kisses the lips [and wins the hearts of men] who give a right answer.
 
 
 
-[Put first things first.] Prepare your work outside and get it ready for yourself in the field; and afterward build your house _and_ establish a home. 
+[Put first things first.] Prepare your work outside and get it ready for yourself in the field; and afterward build your house and establish a home. 
 
 
 
@@ -679,7 +679,7 @@ And, behold, it was all grown over with thorns, and nettles were covering its fa
 
 
 
-Then I beheld _and_ considered it well; I looked _and_ received instruction. 
+Then I beheld and considered it well; I looked and received instruction. 
 
 
 

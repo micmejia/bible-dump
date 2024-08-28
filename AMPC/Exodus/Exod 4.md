@@ -28,7 +28,7 @@ next: ['Exod 5']
 
 
 
-And Moses answered, But behold, they will not believe me or listen to _and_ obey my voice; for they will say, The Lord has not appeared to you. 
+And Moses answered, But behold, they will not believe me or listen to and obey my voice; for they will say, The Lord has not appeared to you. 
 
 
 
@@ -175,7 +175,7 @@ The Lord said also to him, Put your hand into your bosom. He put his hand into h
 
 
 
-[Then God said] If they will not believe you or heed the voice _or_ the testimony of the first sign, they may believe the voice _or_ the witness of the second sign. 
+[Then God said] If they will not believe you or heed the voice or the testimony of the first sign, they may believe the voice or the witness of the second sign. 
 
 
 
@@ -217,7 +217,7 @@ But if they will also not believe these two signs or heed your voice, you shall 
 
 
 
-And Moses said to the Lord, O Lord, I am not eloquent _or_ a man of words, neither before nor since You have spoken to Your servant; for I am slow of speech and have a heavy _and_ awkward tongue. 
+And Moses said to the Lord, O Lord, I am not eloquent or a man of words, neither before nor since You have spoken to Your servant; for I am slow of speech and have a heavy and awkward tongue. 
 
 
 
@@ -448,7 +448,7 @@ And Moses took his wife and his sons and set them on donkeys, and he returned to
 
 
 
-And the Lord said to Moses, When you return into Egypt, see that you do before Pharaoh all those miracles _and_ wonders which I have put in your hand; but I will make him stubborn _and_ harden his heart, so that he will not let the people go. 
+And the Lord said to Moses, When you return into Egypt, see that you do before Pharaoh all those miracles and wonders which I have put in your hand; but I will make him stubborn and harden his heart, so that he will not let the people go. 
 
 
 

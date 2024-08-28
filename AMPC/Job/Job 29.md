@@ -70,7 +70,7 @@ Oh, that I were as in the months of old, as in the days when God watched over me
 
 
 
-When His lamp shone above _and_ upon my head and by His light I walked through darkness; 
+When His lamp shone above and upon my head and by His light I walked through darkness; 
 
 
 
@@ -91,7 +91,7 @@ When His lamp shone above _and_ upon my head and by His light I walked through d
 
 
 
-As I was in the [prime] ripeness of my days, when the friendship _and_ counsel of God were over my tent, 
+As I was in the [prime] ripeness of my days, when the friendship and counsel of God were over my tent, 
 
 
 
@@ -175,7 +175,7 @@ When I went out to the gate of the city, when I prepared my seat in the street [
 
 
 
-The young men saw me and hid themselves; the aged rose up _and_ stood; 
+The young men saw me and hid themselves; the aged rose up and stood; 
 
 
 
@@ -238,7 +238,7 @@ The voices of the nobles were hushed, and their tongues cleaved to the roof of t
 
 
 
-For when the ear heard, it called me happy _and_ blessed me; and when the eye saw, it testified for me [approvingly], 
+For when the ear heard, it called me happy and blessed me; and when the eye saw, it testified for me [approvingly], 
 
 
 
@@ -301,7 +301,7 @@ The blessing of him who was about to perish came upon me, and I caused the widow
 
 
 
-I put on righteousness, and it clothed me _or_ clothed itself with me; my justice was like a robe and a turban _or_ a diadem _or_ a crown! 
+I put on righteousness, and it clothed me or clothed itself with me; my justice was like a robe and a turban or a diadem or a crown! 
 
 
 
@@ -343,7 +343,7 @@ I was eyes to the blind, and feet was I to the lame.
 
 
 
-I was a father to the poor _and_ needy; the cause of him I did not know I searched out. 
+I was a father to the poor and needy; the cause of him I did not know I searched out. 
 
 
 
@@ -364,7 +364,7 @@ I was a father to the poor _and_ needy; the cause of him I did not know I search
 
 
 
-And I broke the jaws _or_ the big teeth of the unrighteous and plucked the prey out of his teeth. 
+And I broke the jaws or the big teeth of the unrighteous and plucked the prey out of his teeth. 
 
 
 
@@ -385,7 +385,7 @@ And I broke the jaws _or_ the big teeth of the unrighteous and plucked the prey 
 
 
 
-Then I said, I shall die in _or_ beside my nest, and I shall multiply my days as the sand. 
+Then I said, I shall die in or beside my nest, and I shall multiply my days as the sand. 
 
 
 
@@ -406,7 +406,7 @@ Then I said, I shall die in _or_ beside my nest, and I shall multiply my days as
 
 
 
-My root is spread out _and_ open to the waters, and the dew lies all night upon my branch. 
+My root is spread out and open to the waters, and the dew lies all night upon my branch. 
 
 
 
@@ -427,7 +427,7 @@ My root is spread out _and_ open to the waters, and the dew lies all night upon 
 
 
 
-My glory _and_ honor are fresh in me [being constantly renewed], and my bow gains [ever] new strength in my hand. 
+My glory and honor are fresh in me [being constantly renewed], and my bow gains [ever] new strength in my hand. 
 
 
 

@@ -49,7 +49,7 @@ And all the congregation cried out with a loud voice, and [they] wept that night
 
 
 
-All the Israelites grumbled _and_ deplored their situation, accusing Moses and Aaron, to whom the whole congregation said, Would that we had died in Egypt! Or that we had died in this wilderness! 
+All the Israelites grumbled and deplored their situation, accusing Moses and Aaron, to whom the whole congregation said, Would that we had died in Egypt! Or that we had died in this wilderness! 
 
 
 
@@ -196,7 +196,7 @@ If the Lord delights in us, then He will bring us into this land and give it to 
 
 
 
-Only do not rebel against the Lord, neither fear the people of the land, for they are bread for us. Their defense _and_ the shadow [of protection] is removed from over them, but the Lord is with us. Fear them not. 
+Only do not rebel against the Lord, neither fear the people of the land, for they are bread for us. Their defense and the shadow [of protection] is removed from over them, but the Lord is with us. Fear them not. 
 
 
 
@@ -385,7 +385,7 @@ And now, I pray You, let the power of my Lord be great, as You have promised, sa
 
 
 
-The Lord is long-suffering _and_ slow to anger, and abundant in mercy _and_ loving-kindness, forgiving iniquity and transgression; but He will by no means clear the guilty, visiting the iniquity of the fathers upon the children, upon the third and fourth generation. 
+The Lord is long-suffering and slow to anger, and abundant in mercy and loving-kindness, forgiving iniquity and transgression; but He will by no means clear the guilty, visiting the iniquity of the fathers upon the children, upon the third and fourth generation. 
 
 
 
@@ -406,7 +406,7 @@ The Lord is long-suffering _and_ slow to anger, and abundant in mercy _and_ lovi
 
 
 
-Pardon, I pray You, the iniquity of this people according to the greatness of Your mercy _and_ loving-kindness, just as You have forgiven [them] from Egypt until now. 
+Pardon, I pray You, the iniquity of this people according to the greatness of Your mercy and loving-kindness, just as You have forgiven [them] from Egypt until now. 
 
 
 
@@ -469,7 +469,7 @@ But truly as I live and as all the earth shall be filled with the glory of the L
 
 
 
-Because all those men who have seen My glory and My [miraculous] signs which I performed in Egypt and in the wilderness, yet have tested _and_ proved Me these ten times and have not heeded My voice, 
+Because all those men who have seen My glory and My [miraculous] signs which I performed in Egypt and in the wilderness, yet have tested and proved Me these ten times and have not heeded My voice, 
 
 
 
@@ -658,7 +658,7 @@ Surely none shall come into the land in which I swore to make you dwell, except 
 
 
 
-But your little ones whom you said would be a prey, them will I bring in and they shall know the land which you have despised _and_ rejected. 
+But your little ones whom you said would be a prey, them will I bring in and they shall know the land which you have despised and rejected. 
 
 
 
@@ -700,7 +700,7 @@ But as for you, your dead bodies shall fall in this wilderness.
 
 
 
-And your children shall be wanderers _and_ shepherds in the wilderness for forty years and shall suffer for your whoredoms (your infidelity to your espoused God), until your corpses are consumed in the wilderness. 
+And your children shall be wanderers and shepherds in the wilderness for forty years and shall suffer for your whoredoms (your infidelity to your espoused God), until your corpses are consumed in the wilderness. 
 
 
 
@@ -721,7 +721,7 @@ And your children shall be wanderers _and_ shepherds in the wilderness for forty
 
 
 
-After the number of the days in which you spied out the land [of Canaan], even forty days, for each day a year shall you bear _and_ suffer for your iniquities, even for forty years, and you shall know My displeasure [the revoking of My promise and My estrangement]. 
+After the number of the days in which you spied out the land [of Canaan], even forty days, for each day a year shall you bear and suffer for your iniquities, even for forty years, and you shall know My displeasure [the revoking of My promise and My estrangement]. 
 
 
 
@@ -763,7 +763,7 @@ I the Lord have spoken; surely this will I do to all this evil congregation who 
 
 
 
-And the men whom Moses sent to search the land, who returned and made all the congregation grumble _and_ complain against him by bringing back a slanderous report of the land, 
+And the men whom Moses sent to search the land, who returned and made all the congregation grumble and complain against him by bringing back a slanderous report of the land, 
 
 
 

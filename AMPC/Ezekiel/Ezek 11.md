@@ -217,7 +217,7 @@ And I will bring you forth out of the midst of it and deliver you into the hands
 
 
 
-You shall fall by the sword; I will judge _and_ punish you [before your neighbors] at the border _or_ outside the land of Israel, and you shall know (understand and realize) that I am the Lord. 
+You shall fall by the sword; I will judge and punish you [before your neighbors] at the border or outside the land of Israel, and you shall know (understand and realize) that I am the Lord. 
 
 
 
@@ -238,7 +238,7 @@ You shall fall by the sword; I will judge _and_ punish you [before your neighbor
 
 
 
-This city shall not be your boiling pot, neither shall you be the flesh in the midst of it; I will judge you at the border _or_ outside of Israel; 
+This city shall not be your boiling pot, neither shall you be the flesh in the midst of it; I will judge you at the border or outside of Israel; 
 
 
 
@@ -448,7 +448,7 @@ That they may walk in My statutes and keep My ordinances, and do them. And they 
 
 
 
-But as for those whose heart yearns for _and_ goes after their detestable things and their loathsome abominations [associated with idolatry], I will repay their deeds upon their own heads, says the Lord God. 
+But as for those whose heart yearns for and goes after their detestable things and their loathsome abominations [associated with idolatry], I will repay their deeds upon their own heads, says the Lord God. 
 
 
 

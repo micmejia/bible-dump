@@ -91,7 +91,7 @@ And I will encamp against you round about; and I will hem you in with siege work
 
 
 
-And you shall be laid low [Jerusalem], speaking from beneath the ground, and your speech shall come humbly from the dust. And your voice shall be like that of a ghost [produced by a medium] coming from the earth, and your speech shall whisper _and_ squeak as it chatters from the dust. 
+And you shall be laid low [Jerusalem], speaking from beneath the ground, and your speech shall come humbly from the dust. And your voice shall be like that of a ghost [produced by a medium] coming from the earth, and your speech shall whisper and squeak as it chatters from the dust. 
 
 
 
@@ -112,7 +112,7 @@ And you shall be laid low [Jerusalem], speaking from beneath the ground, and you
 
 
 
-But the multitude of your [enemy] strangers that assail you shall be like small dust, and the multitude of the ruthless _and_ terrible ones like chaff that blows away. And in an instant, suddenly, 
+But the multitude of your [enemy] strangers that assail you shall be like small dust, and the multitude of the ruthless and terrible ones like chaff that blows away. And in an instant, suddenly, 
 
 
 
@@ -133,7 +133,7 @@ But the multitude of your [enemy] strangers that assail you shall be like small 
 
 
 
-You shall be visited _and_ delivered by the Lord of hosts with thunder and earthquake and great noise, with whirlwind and tempest and the flame of a devouring fire. 
+You shall be visited and delivered by the Lord of hosts with thunder and earthquake and great noise, with whirlwind and tempest and the flame of a devouring fire. 
 
 
 
@@ -217,7 +217,7 @@ Stop and wonder [at this prophecy, if you choose, whether you understand it or n
 
 
 
-For the Lord has poured out on you the spirit of deep sleep. And He has closed your eyes, the prophets; and your heads, the seers, He has covered _and_ muffled. 
+For the Lord has poured out on you the spirit of deep sleep. And He has closed your eyes, the prophets; and your heads, the seers, He has covered and muffled. 
 
 
 
@@ -280,7 +280,7 @@ And when the book is given to him who is not learned, saying, Read this, I pray 
 
 
 
-And the Lord said, Forasmuch as this people draw near Me with their mouth and honor Me with their lips but remove their hearts _and_ minds far from Me, and their fear _and_ reverence for Me are a commandment of men that is learned by repetition [without any thought as to the meaning], 
+And the Lord said, Forasmuch as this people draw near Me with their mouth and honor Me with their lips but remove their hearts and minds far from Me, and their fear and reverence for Me are a commandment of men that is learned by repetition [without any thought as to the meaning], 
 
 
 
@@ -301,7 +301,7 @@ And the Lord said, Forasmuch as this people draw near Me with their mouth and ho
 
 
 
-Therefore, behold! I will again do marvelous things with this people, marvelous and astonishing things; and the wisdom of their wise men will perish, and the understanding of their discerning men will vanish _or_ be hidden. 
+Therefore, behold! I will again do marvelous things with this people, marvelous and astonishing things; and the wisdom of their wise men will perish, and the understanding of their discerning men will vanish or be hidden. 
 
 
 
@@ -385,7 +385,7 @@ Is it not yet a very little while until Lebanon shall be turned into a fruitful 
 
 
 
-And in that day shall the deaf hear the words of the book, and out of obscurity _and_ gloom and darkness the eyes of the blind shall see. 
+And in that day shall the deaf hear the words of the book, and out of obscurity and gloom and darkness the eyes of the blind shall see. 
 
 
 
@@ -406,7 +406,7 @@ And in that day shall the deaf hear the words of the book, and out of obscurity 
 
 
 
-The meek also shall increase their joy in the Lord, and the poor among men shall rejoice _and_ exult in the Holy One of Israel. 
+The meek also shall increase their joy in the Lord, and the poor among men shall rejoice and exult in the Holy One of Israel. 
 
 
 
@@ -448,7 +448,7 @@ For the terrible one [the Assyrian enemy] shall come to nought, and the scoffer 
 
 
 
-Those who make a man an offender _and_ bring condemnation upon him with a word, and lay a trap for him who upholds justice at the city gate, and thrust aside the innocent _and_ truly righteous with an empty plea. 
+Those who make a man an offender and bring condemnation upon him with a word, and lay a trap for him who upholds justice at the city gate, and thrust aside the innocent and truly righteous with an empty plea. 
 
 
 

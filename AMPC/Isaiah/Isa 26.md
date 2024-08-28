@@ -49,7 +49,7 @@ In that day shall this song be sung in the land of Judah: We have a strong city;
 
 
 
-Open the gates, that the [uncompromisingly] righteous nation which keeps her faith _and_ her troth [with God] may enter in. 
+Open the gates, that the [uncompromisingly] righteous nation which keeps her faith and her troth [with God] may enter in. 
 
 
 
@@ -70,7 +70,7 @@ Open the gates, that the [uncompromisingly] righteous nation which keeps her fai
 
 
 
-You will guard him _and_ keep him in perfect _and_ constant peace whose mind [both its inclination and its character] is stayed on You, because he commits himself to You, leans on You, _and_ hopes confidently in You. 
+You will guard him and keep him in perfect and constant peace whose mind [both its inclination and its character] is stayed on You, because he commits himself to You, leans on You, and hopes confidently in You. 
 
 
 
@@ -154,7 +154,7 @@ The foot has trampled it down--even the feet of the poor, and the steps of the n
 
 
 
-The way of the [consistently] righteous (those living in moral and spiritual rectitude in every area and relationship of their lives) is level _and_ straight; You, O [Lord], Who are upright, direct aright _and_ make level the path of the [uncompromisingly] just _and_ righteous. 
+The way of the [consistently] righteous (those living in moral and spiritual rectitude in every area and relationship of their lives) is level and straight; You, O [Lord], Who are upright, direct aright and make level the path of the [uncompromisingly] just and righteous. 
 
 
 
@@ -259,7 +259,7 @@ Though Your hand is lifted high to strike, Lord, they do not see it. Let them se
 
 
 
-Lord, You will ordain peace (God's favor and blessings, both temporal and spiritual) for us, for You have also wrought in us _and_ for us all our works. 
+Lord, You will ordain peace (God's favor and blessings, both temporal and spiritual) for us, for You have also wrought in us and for us all our works. 
 
 
 
@@ -280,7 +280,7 @@ Lord, You will ordain peace (God's favor and blessings, both temporal and spirit
 
 
 
-O Lord, our God, other masters besides You have ruled over us, but we will acknowledge _and_ mention Your name only. 
+O Lord, our God, other masters besides You have ruled over us, but we will acknowledge and mention Your name only. 
 
 
 
@@ -301,7 +301,7 @@ O Lord, our God, other masters besides You have ruled over us, but we will ackno
 
 
 
-They [the former tyrant masters] are dead, they shall not live _and_ reappear; they are powerless ghosts, they shall not rise _and_ come back. Therefore You have visited and made an end of them and caused every memory of them [every trace of their supremacy] to perish. 
+They [the former tyrant masters] are dead, they shall not live and reappear; they are powerless ghosts, they shall not rise and come back. Therefore You have visited and made an end of them and caused every memory of them [every trace of their supremacy] to perish. 
 
 
 
@@ -343,7 +343,7 @@ You have increased the nation, O Lord; You have increased the nation. You are gl
 
 
 
-Lord, when they were in trouble _and_ distress, they sought _and_ visited You; they poured out a prayerful whisper when Your chastening was upon them. 
+Lord, when they were in trouble and distress, they sought and visited You; they poured out a prayerful whisper when Your chastening was upon them. 
 
 
 
@@ -364,7 +364,7 @@ Lord, when they were in trouble _and_ distress, they sought _and_ visited You; t
 
 
 
-As a woman with child drawing near the time of her delivery is in pain _and_ writhes and cries out in her pangs, so we have been before You (at Your presence), O Lord. 
+As a woman with child drawing near the time of her delivery is in pain and writhes and cries out in her pangs, so we have been before You (at Your presence), O Lord. 
 
 
 
@@ -385,7 +385,7 @@ As a woman with child drawing near the time of her delivery is in pain _and_ wri
 
 
 
-We have been with child, we have been writhing _and_ in pain; we have, as it were, brought forth [only] wind. We have not wrought any deliverance in the earth, and the inhabitants of the world [of Israel] have not yet been born. 
+We have been with child, we have been writhing and in pain; we have, as it were, brought forth [only] wind. We have not wrought any deliverance in the earth, and the inhabitants of the world [of Israel] have not yet been born. 
 
 
 
@@ -448,4 +448,4 @@ Come, my people, enter your chambers and shut your doors behind you; hide yourse
 
 
 
-For behold, the Lord is coming out of His place [heaven] to punish the inhabitants of the earth for their iniquity; the earth also will disclose the blood shed upon her and will no longer cover her slain _and_ conceal her guilt.
+For behold, the Lord is coming out of His place [heaven] to punish the inhabitants of the earth for their iniquity; the earth also will disclose the blood shed upon her and will no longer cover her slain and conceal her guilt.

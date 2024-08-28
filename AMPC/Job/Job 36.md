@@ -49,7 +49,7 @@ Elihu proceeded and said,
 
 
 
-Bear with me _and_ wait a little longer, and I will show you, for I have something still to say on God's behalf. 
+Bear with me and wait a little longer, and I will show you, for I have something still to say on God's behalf. 
 
 
 
@@ -112,7 +112,7 @@ For truly my words shall not be false; He Who is perfect in knowledge is with yo
 
 
 
-Behold! God is mighty, and yet despises no one nor regards anything as trivial; He is mighty in power of understanding _and_ heart. 
+Behold! God is mighty, and yet despises no one nor regards anything as trivial; He is mighty in power of understanding and heart. 
 
 
 
@@ -133,7 +133,7 @@ Behold! God is mighty, and yet despises no one nor regards anything as trivial; 
 
 
 
-He does not prolong the life of the wicked, but gives the needy _and_ afflicted their right. 
+He does not prolong the life of the wicked, but gives the needy and afflicted their right. 
 
 
 
@@ -217,7 +217,7 @@ Then He shows to them [the true character of] their deeds and their transgressio
 
 
 
-He also opens their ears to instruction _and_ discipline, and commands that they return from iniquity. 
+He also opens their ears to instruction and discipline, and commands that they return from iniquity. 
 
 
 
@@ -238,7 +238,7 @@ He also opens their ears to instruction _and_ discipline, and commands that they
 
 
 
-If they obey and serve Him, they shall spend their days in prosperity and their years in pleasantness _and_ joy. 
+If they obey and serve Him, they shall spend their days in prosperity and their years in pleasantness and joy. 
 
 
 
@@ -280,7 +280,7 @@ But if they obey not, they shall perish by the sword [of God's destructive judgm
 
 
 
-But the godless _and_ profane in heart heap up anger [at the divine discipline]; they do not cry to Him when He binds them [with cords of affliction]. 
+But the godless and profane in heart heap up anger [at the divine discipline]; they do not cry to Him when He binds them [with cords of affliction]. 
 
 
 
@@ -343,7 +343,7 @@ He delivers the afflicted in their affliction and opens their ears [to His voice
 
 
 
-Indeed, God would have allured you out of the mouth of distress into a broad place where there is no situation of perplexity _or_ privation; and that which would be set on your table would be full of fatness. 
+Indeed, God would have allured you out of the mouth of distress into a broad place where there is no situation of perplexity or privation; and that which would be set on your table would be full of fatness. 
 
 
 
@@ -469,7 +469,7 @@ Take heed, turn not to iniquity, for this [the iniquity of complaining against G
 
 
 
-Behold, God exalts _and_ does loftily in His power; who is a ruler _or_ a teacher like Him? 
+Behold, God exalts and does loftily in His power; who is a ruler or a teacher like Him? 
 
 
 
@@ -616,7 +616,7 @@ Which the skies pour down and drop abundantly upon [the multitudes of] mankind.
 
 
 
-Not only that, but can anyone understand the spreadings of the clouds _or_ the thunderings of His pavilion? 
+Not only that, but can anyone understand the spreadings of the clouds or the thunderings of His pavilion? 
 
 
 

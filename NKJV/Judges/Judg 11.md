@@ -10,13 +10,13 @@ next: ['Judg 12']
 
 
 ###### 1 
-Now Jephthah the Gileadite was a mighty man of valor, but he _was_ the son of a harlot; and Gilead begot Jephthah. 
+Now Jephthah the Gileadite was a mighty man of valor, but he was the son of a harlot; and Gilead begot Jephthah. 
 
 ###### 2 
-Gilead's wife bore sons; and when his wife's sons grew up, they drove Jephthah out, and said to him, "You shall have no inheritance in our father's house, for you _are_ the son of another woman." 
+Gilead's wife bore sons; and when his wife's sons grew up, they drove Jephthah out, and said to him, "You shall have no inheritance in our father's house, for you are the son of another woman." 
 
 ###### 3 
-Then Jephthah fled from his brothers and dwelt in the land of Tob; and worthless men banded together with Jephthah and went out _raiding_ with him. 
+Then Jephthah fled from his brothers and dwelt in the land of Tob; and worthless men banded together with Jephthah and went out raiding with him. 
 
 ###### 4 
 It came to pass after a time that the people of Ammon made war against Israel. 
@@ -46,7 +46,7 @@ Then Jephthah went with the elders of Gilead, and the people made him head and c
 Now Jephthah sent messengers to the king of the people of Ammon, saying, "What do you have against me, that you have come to fight against me in my land?" 
 
 ###### 13 
-And the king of the people of Ammon answered the messengers of Jephthah, "Because Israel took away my land when they came up out of Egypt, from the Arnon as far as the Jabbok, and to the Jordan. Now therefore, restore those _lands_ peaceably." 
+And the king of the people of Ammon answered the messengers of Jephthah, "Because Israel took away my land when they came up out of Egypt, from the Arnon as far as the Jabbok, and to the Jordan. Now therefore, restore those lands peaceably." 
 
 ###### 14 
 So Jephthah again sent messengers to the king of the people of Ammon, 
@@ -58,10 +58,10 @@ and said to him, "Thus says Jephthah: 'Israel did not take away the land of Moab
 for when Israel came up from Egypt, they walked through the wilderness as far as the Red Sea and came to Kadesh. 
 
 ###### 17 
-Then Israel sent messengers to the king of Edom, saying, "Please let me pass through your land." But the king of Edom would not heed. And in like manner they sent to the king of Moab, but he would not _consent._ So Israel remained in Kadesh. 
+Then Israel sent messengers to the king of Edom, saying, "Please let me pass through your land." But the king of Edom would not heed. And in like manner they sent to the king of Moab, but he would not consent. So Israel remained in Kadesh. 
 
 ###### 18 
-And they went along through the wilderness and bypassed the land of Edom and the land of Moab, came to the east side of the land of Moab, and encamped on the other side of the Arnon. But they did not enter the border of Moab, for the Arnon _was_ the border of Moab. 
+And they went along through the wilderness and bypassed the land of Edom and the land of Moab, came to the east side of the land of Moab, and encamped on the other side of the Arnon. But they did not enter the border of Moab, for the Arnon was the border of Moab. 
 
 ###### 19 
 Then Israel sent messengers to Sihon king of the Amorites, king of Heshbon; and Israel said to him, "Please let us pass through your land into our place." 
@@ -82,10 +82,10 @@ They took possession of all the territory of the Amorites, from the Arnon to the
 Will you not possess whatever Chemosh your god gives you to possess? So whatever the Lord our God takes possession of before us, we will possess. 
 
 ###### 25 
-And now, _are_ you any better than Balak the son of Zippor, king of Moab? Did he ever strive against Israel? Did he ever fight against them? 
+And now, are you any better than Balak the son of Zippor, king of Moab? Did he ever strive against Israel? Did he ever fight against them? 
 
 ###### 26 
-While Israel dwelt in Heshbon and its villages, in Aroer and its villages, and in all the cities along the banks of the Arnon, for three hundred years, why did you not recover _them_ within that time? 
+While Israel dwelt in Heshbon and its villages, in Aroer and its villages, and in all the cities along the banks of the Arnon, for three hundred years, why did you not recover them within that time? 
 
 ###### 27 
 Therefore I have not sinned against you, but you wronged me by fighting against me. May the Lord, the Judge, render judgment this day between the children of Israel and the people of Ammon.' " 
@@ -96,7 +96,7 @@ However, the king of the people of Ammon did not heed the words which Jephthah s
 ## Jephthah's Vow and Victory 
 
 ###### 29 
-Then the Spirit of the Lord came upon Jephthah, and he passed through Gilead and Manasseh, and passed through Mizpah of Gilead; and from Mizpah of Gilead he advanced _toward_ the people of Ammon. 
+Then the Spirit of the Lord came upon Jephthah, and he passed through Gilead and Manasseh, and passed through Mizpah of Gilead; and from Mizpah of Gilead he advanced toward the people of Ammon. 
 
 ###### 30 
 And Jephthah made a vow to the Lord, and said, "If You will indeed deliver the people of Ammon into my hands, 
@@ -113,22 +113,22 @@ And he defeated them from Aroer as far as Minnith--twenty cities--and to Abel Ke
 ## Jephthah's Daughter 
 
 ###### 34 
-When Jephthah came to his house at Mizpah, there was his daughter, coming out to meet him with timbrels and dancing; and she _was his_ only child. Besides her he had neither son nor daughter. 
+When Jephthah came to his house at Mizpah, there was his daughter, coming out to meet him with timbrels and dancing; and she was his only child. Besides her he had neither son nor daughter. 
 
 ###### 35 
 And it came to pass, when he saw her, that he tore his clothes, and said, "Alas, my daughter! You have brought me very low! You are among those who trouble me! For I have given my word to the Lord, and I cannot go back on it." 
 
 ###### 36 
-So she said to him, "My father, _if_ you have given your word to the Lord, do to me according to what has gone out of your mouth, because the Lord has avenged you of your enemies, the people of Ammon." 
+So she said to him, "My father, if you have given your word to the Lord, do to me according to what has gone out of your mouth, because the Lord has avenged you of your enemies, the people of Ammon." 
 
 ###### 37 
 Then she said to her father, "Let this thing be done for me: let me alone for two months, that I may go and wander on the mountains and bewail my virginity, my friends and I." 
 
 ###### 38 
-So he said, "Go." And he sent her away _for_ two months; and she went with her friends, and bewailed her virginity on the mountains. 
+So he said, "Go." And he sent her away for two months; and she went with her friends, and bewailed her virginity on the mountains. 
 
 ###### 39 
 And it was so at the end of two months that she returned to her father, and he carried out his vow with her which he had vowed. She knew no man. And it became a custom in Israel 
 
 ###### 40 
-_that_ the daughters of Israel went four days each year to lament the daughter of Jephthah the Gileadite.
+that the daughters of Israel went four days each year to lament the daughter of Jephthah the Gileadite.

@@ -13,7 +13,7 @@ next: ['Job 9']
 Then Bildad the Shuhite answered and said: 
 
 ###### 2 
-"How long will you speak these _things,_ And the words of your mouth _be like_ a strong wind? 
+"How long will you speak these things, And the words of your mouth be like a strong wind? 
 
 ###### 3 
 Does God subvert judgment? Or does the Almighty pervert justice? 
@@ -25,7 +25,7 @@ If your sons have sinned against Him, He has cast them away for their transgress
 If you would earnestly seek God And make your supplication to the Almighty, 
 
 ###### 6 
-If you _were_ pure and upright, Surely now He would awake for you, And prosper your rightful dwelling place. 
+If you were pure and upright, Surely now He would awake for you, And prosper your rightful dwelling place. 
 
 ###### 7 
 Though your beginning was small, Yet your latter end would increase abundantly. 
@@ -34,7 +34,7 @@ Though your beginning was small, Yet your latter end would increase abundantly.
 "For inquire, please, of the former age, And consider the things discovered by their fathers; 
 
 ###### 9 
-For we _were born_ yesterday, and know nothing, Because our days on earth _are_ a shadow. 
+For we were born yesterday, and know nothing, Because our days on earth are a shadow. 
 
 ###### 10 
 Will they not teach you and tell you, And utter words from their heart? 
@@ -43,13 +43,13 @@ Will they not teach you and tell you, And utter words from their heart?
 "Can the papyrus grow up without a marsh? Can the reeds flourish without water? 
 
 ###### 12 
-While it _is_ yet green _and_ not cut down, It withers before any _other_ plant. 
+While it is yet green and not cut down, It withers before any other plant. 
 
 ###### 13 
-So _are_ the paths of all who forget God; And the hope of the hypocrite shall perish, 
+So are the paths of all who forget God; And the hope of the hypocrite shall perish, 
 
 ###### 14 
-Whose confidence shall be cut off, And whose trust _is_ a spider's web. 
+Whose confidence shall be cut off, And whose trust is a spider's web. 
 
 ###### 15 
 He leans on his house, but it does not stand. He holds it fast, but it does not endure. 
@@ -58,10 +58,10 @@ He leans on his house, but it does not stand. He holds it fast, but it does not 
 He grows green in the sun, And his branches spread out in his garden. 
 
 ###### 17 
-His roots wrap around the rock heap, _And_ look for a place in the stones. 
+His roots wrap around the rock heap, And look for a place in the stones. 
 
 ###### 18 
-If he is destroyed from his place, Then _it_ will deny him, _saying,_ 'I have not seen you.' 
+If he is destroyed from his place, Then it will deny him, saying, 'I have not seen you.' 
 
 ###### 19 
 "Behold, this is the joy of His way, And out of the earth others will grow. 

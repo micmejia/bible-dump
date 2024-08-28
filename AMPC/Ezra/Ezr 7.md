@@ -217,7 +217,7 @@ On the first of the first month he started out from Babylon, and on the first of
 
 
 
-For Ezra had prepared _and_ set his heart to seek the Law of the Lord [to inquire for it and of it, to require and yearn for it], and to do and teach in Israel its statutes and its ordinances. 
+For Ezra had prepared and set his heart to seek the Law of the Lord [to inquire for it and of it, to require and yearn for it], and to do and teach in Israel its statutes and its ordinances. 
 
 
 
@@ -364,7 +364,7 @@ And all the silver and gold that you may find in all the province of Babylonia, 
 
 
 
-Therefore you shall with all speed _and_ exactness buy with this money young bulls, rams, lambs, with their cereal offerings and drink offerings, and offer them on the altar of the house of your God in Jerusalem. 
+Therefore you shall with all speed and exactness buy with this money young bulls, rams, lambs, with their cereal offerings and drink offerings, and offer them on the altar of the house of your God in Jerusalem. 
 
 
 
@@ -448,7 +448,7 @@ And whatever more shall be needful for the house of your God which you shall hav
 
 
 
-And I, Artaxerxes the king, make a decree to all the treasurers in the province beyond the [Euphrates] River that whatever Ezra the priest, the scribe of the instructions of the God of heaven, shall require of you, it shall be done exactly _and_ at once-- 
+And I, Artaxerxes the king, make a decree to all the treasurers in the province beyond the [Euphrates] River that whatever Ezra the priest, the scribe of the instructions of the God of heaven, shall require of you, it shall be done exactly and at once-- 
 
 
 
@@ -490,7 +490,7 @@ Up to 100 talents of silver, 100 measures of wheat, 100 baths of wine, 100 baths
 
 
 
-Whatever is commanded by the God of heaven, let it be done diligently _and_ honorably for the house of the God of heaven, lest His wrath be against the realm of the king and his sons. 
+Whatever is commanded by the God of heaven, let it be done diligently and honorably for the house of the God of heaven, lest His wrath be against the realm of the king and his sons. 
 
 
 
@@ -553,7 +553,7 @@ You, Ezra, after the wisdom of your God, which is [in His instructions] in your 
 
 
 
-And whoever will not do the law of your God and the law of the king, let judgment be executed upon him exactly _and_ speedily, whether it be unto death or banishment or confiscation of goods or imprisonment. 
+And whoever will not do the law of your God and the law of the king, let judgment be executed upon him exactly and speedily, whether it be unto death or banishment or confiscation of goods or imprisonment. 
 
 
 
@@ -595,4 +595,4 @@ Blessed be the Lord, the God of our fathers [said Ezra], Who put such a thing as
 
 
 
-And Who has extended His mercy _and_ steadfast love to me before the king, his counselors, and all the king's mighty officers. I was strengthened and encouraged, for the hand of the Lord my God was upon me, and I gathered together outstanding men of Israel to go with me to Jerusalem.
+And Who has extended His mercy and steadfast love to me before the king, his counselors, and all the king's mighty officers. I was strengthened and encouraged, for the hand of the Lord my God was upon me, and I gathered together outstanding men of Israel to go with me to Jerusalem.

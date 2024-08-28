@@ -10,10 +10,10 @@ next: ['Lev 27']
 
 
 ###### 1 
-'You shall not make idols for yourselves; neither a carved image nor a _sacred_ pillar shall you rear up for yourselves; nor shall you set up an engraved stone in your land, to bow down to it; for I _am_ the Lord your God. 
+'You shall not make idols for yourselves; neither a carved image nor a sacred pillar shall you rear up for yourselves; nor shall you set up an engraved stone in your land, to bow down to it; for I am the Lord your God. 
 
 ###### 2 
-You shall keep My Sabbaths and reverence My sanctuary: I _am_ the Lord. 
+You shall keep My Sabbaths and reverence My sanctuary: I am the Lord. 
 
 ###### 3 
 'If you walk in My statutes and keep My commandments, and perform them, 
@@ -25,7 +25,7 @@ then I will give you rain in its season, the land shall yield its produce, and t
 Your threshing shall last till the time of vintage, and the vintage shall last till the time of sowing; you shall eat your bread to the full, and dwell in your land safely. 
 
 ###### 6 
-I will give peace in the land, and you shall lie down, and none will make _you_ afraid; I will rid the land of evil beasts, and the sword will not go through your land. 
+I will give peace in the land, and you shall lie down, and none will make you afraid; I will rid the land of evil beasts, and the sword will not go through your land. 
 
 ###### 7 
 You will chase your enemies, and they shall fall by the sword before you. 
@@ -46,13 +46,13 @@ I will set My tabernacle among you, and My soul shall not abhor you.
 I will walk among you and be your God, and you shall be My people. 
 
 ###### 13 
-I _am_ the Lord your God, who brought you out of the land of Egypt, that _you_ should not be their slaves; I have broken the bands of your yoke and made you walk upright. 
+I am the Lord your God, who brought you out of the land of Egypt, that you should not be their slaves; I have broken the bands of your yoke and made you walk upright. 
 
 ###### 14 
 'But if you do not obey Me, and do not observe all these commandments, 
 
 ###### 15 
-and if you despise My statutes, or if your soul abhors My judgments, so that you do not perform all My commandments, _but_ break My covenant, 
+and if you despise My statutes, or if your soul abhors My judgments, so that you do not perform all My commandments, but break My covenant, 
 
 ###### 16 
 I also will do this to you: I will even appoint terror over you, wasting disease and fever which shall consume the eyes and cause sorrow of heart. And you shall sow your seed in vain, for your enemies shall eat it. 
@@ -109,16 +109,16 @@ I will bring the land to desolation, and your enemies who dwell in it shall be a
 I will scatter you among the nations and draw out a sword after you; your land shall be desolate and your cities waste. 
 
 ###### 34 
-Then the land shall enjoy its sabbaths as long as it lies desolate and you _are_ in your enemies' land; then the land shall rest and enjoy its sabbaths. 
+Then the land shall enjoy its sabbaths as long as it lies desolate and you are in your enemies' land; then the land shall rest and enjoy its sabbaths. 
 
 ###### 35 
-As long as _it_ lies desolate it shall rest-- for the time it did not rest on your sabbaths when you dwelt in it. 
+As long as it lies desolate it shall rest-- for the time it did not rest on your sabbaths when you dwelt in it. 
 
 ###### 36 
 'And as for those of you who are left, I will send faintness into their hearts in the lands of their enemies; the sound of a shaken leaf shall cause them to flee; they shall flee as though fleeing from a sword, and they shall fall when no one pursues. 
 
 ###### 37 
-They shall stumble over one another, as it were before a sword, when no one pursues; and you shall have no _power_ to stand before your enemies. 
+They shall stumble over one another, as it were before a sword, when no one pursues; and you shall have no power to stand before your enemies. 
 
 ###### 38 
 You shall perish among the nations, and the land of your enemies shall eat you up. 
@@ -127,10 +127,10 @@ You shall perish among the nations, and the land of your enemies shall eat you u
 And those of you who are left shall waste away in their iniquity in your enemies' lands; also in their fathers' iniquities, which are with them, they shall waste away. 
 
 ###### 40 
-'_But_ if they confess their iniquity and the iniquity of their fathers, with their unfaithfulness in which they were unfaithful to Me, and that they also have walked contrary to Me, 
+'But if they confess their iniquity and the iniquity of their fathers, with their unfaithfulness in which they were unfaithful to Me, and that they also have walked contrary to Me, 
 
 ###### 41 
-and _that_ I also have walked contrary to them and have brought them into the land of their enemies; if their uncircumcised hearts are humbled, and they accept their guilt-- 
+and that I also have walked contrary to them and have brought them into the land of their enemies; if their uncircumcised hearts are humbled, and they accept their guilt-- 
 
 ###### 42 
 then I will remember My covenant with Jacob, and My covenant with Isaac and My covenant with Abraham I will remember; I will remember the land. 
@@ -139,10 +139,10 @@ then I will remember My covenant with Jacob, and My covenant with Isaac and My c
 The land also shall be left empty by them, and will enjoy its sabbaths while it lies desolate without them; they will accept their guilt, because they despised My judgments and because their soul abhorred My statutes. 
 
 ###### 44 
-Yet for all that, when they are in the land of their enemies, I will not cast them away, nor shall I abhor them, to utterly destroy them and break My covenant with them; for I _am_ the Lord their God. 
+Yet for all that, when they are in the land of their enemies, I will not cast them away, nor shall I abhor them, to utterly destroy them and break My covenant with them; for I am the Lord their God. 
 
 ###### 45 
-But for their sake I will remember the covenant of their ancestors, whom I brought out of the land of Egypt in the sight of the nations, that I might be their God: I _am_ the Lord.' " 
+But for their sake I will remember the covenant of their ancestors, whom I brought out of the land of Egypt in the sight of the nations, that I might be their God: I am the Lord.' " 
 
 ###### 46 
-These _are_ the statutes and judgments and laws which the Lord made between Himself and the children of Israel on Mount Sinai by the hand of Moses.
+These are the statutes and judgments and laws which the Lord made between Himself and the children of Israel on Mount Sinai by the hand of Moses.

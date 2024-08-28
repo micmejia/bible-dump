@@ -70,7 +70,7 @@ Thus says the Lord, the God of Israel, unto you, O Baruch:
 
 
 
-You said, Woe is me now! For the Lord has added sorrow to my pain; I am weary with my groaning _and_ sighing and I find no rest. 
+You said, Woe is me now! For the Lord has added sorrow to my pain; I am weary with my groaning and sighing and I find no rest. 
 
 
 

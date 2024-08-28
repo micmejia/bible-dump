@@ -49,7 +49,7 @@ And the word of the Lord came to me [Jeremiah], saying,
 
 
 
-Go and cry in the ears of Jerusalem, saying, Thus says the Lord: I [earnestly] remember the kindness _and_ devotion of your youth, your love after your betrothal [in Egypt] _and_ marriage [at Sinai] when you followed Me in the wilderness, in a land not sown. 
+Go and cry in the ears of Jerusalem, saying, Thus says the Lord: I [earnestly] remember the kindness and devotion of your youth, your love after your betrothal [in Egypt] and marriage [at Sinai] when you followed Me in the wilderness, in a land not sown. 
 
 
 
@@ -70,7 +70,7 @@ Go and cry in the ears of Jerusalem, saying, Thus says the Lord: I [earnestly] r
 
 
 
-Israel was holiness [something set apart from ordinary purposes, dedicated] to the Lord, the firstfruits of His harvest [of which no stranger was allowed to partake]; all who ate of it [injuring Israel] offended _and_ became guilty; evil came upon them, says the Lord. 
+Israel was holiness [something set apart from ordinary purposes, dedicated] to the Lord, the firstfruits of His harvest [of which no stranger was allowed to partake]; all who ate of it [injuring Israel] offended and became guilty; evil came upon them, says the Lord. 
 
 
 
@@ -112,7 +112,7 @@ Hear the word of the Lord, O house of Jacob, and all the families of the house o
 
 
 
-Thus says the Lord: What unrighteousness did your fathers find in Me, that they went far from Me and [habitually] went after emptiness, falseness, _and_ futility and themselves became fruitless _and_ worthless? 
+Thus says the Lord: What unrighteousness did your fathers find in Me, that they went far from Me and [habitually] went after emptiness, falseness, and futility and themselves became fruitless and worthless? 
 
 
 
@@ -133,7 +133,7 @@ Thus says the Lord: What unrighteousness did your fathers find in Me, that they 
 
 
 
-Nor did they say, Where is the Lord, Who brought us up out of the land of Egypt, Who led us through the wilderness, through a land of deserts and pits, through a land of drought and of the shadow of death _and_ deep darkness, through a land that no man passes through and where no man dwells? 
+Nor did they say, Where is the Lord, Who brought us up out of the land of Egypt, Who led us through the wilderness, through a land of deserts and pits, through a land of drought and of the shadow of death and deep darkness, through a land that no man passes through and where no man dwells? 
 
 
 
@@ -175,7 +175,7 @@ And I brought you into a plentiful land to enjoy its fruits and good things. But
 
 
 
-[Even] the priests did not say, Where is the Lord? And those who handle the law [given by God to Moses] knew Me not. The rulers _and_ secular shepherds also transgressed against Me, and the prophets prophesied by [the authority and in the name of] Baal and followed after things that do not profit. 
+[Even] the priests did not say, Where is the Lord? And those who handle the law [given by God to Moses] knew Me not. The rulers and secular shepherds also transgressed against Me, and the prophets prophesied by [the authority and in the name of] Baal and followed after things that do not profit. 
 
 
 
@@ -259,7 +259,7 @@ Has a nation [ever] changed its gods, even though they are not gods? But My peop
 
 
 
-Be astonished _and_ appalled, O heavens, at this; be shocked _and_ shrivel up with horror, says the Lord [at the behavior of the people]. 
+Be astonished and appalled, O heavens, at this; be shocked and shrivel up with horror, says the Lord [at the behavior of the people]. 
 
 
 
@@ -280,7 +280,7 @@ Be astonished _and_ appalled, O heavens, at this; be shocked _and_ shrivel up wi
 
 
 
-For My people have committed two evils: they have forsaken Me, the Fountain of living waters, _and_ they have hewn for themselves cisterns, broken cisterns which cannot hold water. 
+For My people have committed two evils: they have forsaken Me, the Fountain of living waters, and they have hewn for themselves cisterns, broken cisterns which cannot hold water. 
 
 
 
@@ -301,7 +301,7 @@ For My people have committed two evils: they have forsaken Me, the Fountain of l
 
 
 
-Is Israel a servant? Is he a homeborn slave? Why has he become a captive _and_ a prey? 
+Is Israel a servant? Is he a homeborn slave? Why has he become a captive and a prey? 
 
 
 
@@ -322,7 +322,7 @@ Is Israel a servant? Is he a homeborn slave? Why has he become a captive _and_ a
 
 
 
-The young lions have roared over him _and_ made their voices heard. And they have made his land a waste; his cities are burned ruins without inhabitant. 
+The young lions have roared over him and made their voices heard. And they have made his land a waste; his cities are burned ruins without inhabitant. 
 
 
 
@@ -343,7 +343,7 @@ The young lions have roared over him _and_ made their voices heard. And they hav
 
 
 
-Moreover, the children of Memphis and Tahpanhes (Egypt) [have in times past shown their power as a foe; they] have broken _and_ fed on the crown of your head [Israel]--so do not rely on them as an ally now. 
+Moreover, the children of Memphis and Tahpanhes (Egypt) [have in times past shown their power as a foe; they] have broken and fed on the crown of your head [Israel]--so do not rely on them as an ally now. 
 
 
 
@@ -385,7 +385,7 @@ Have you not brought this upon yourself by forsaking the Lord your God when He l
 
 
 
-And now what have you to gain by allying yourself with Egypt _and_ going her way, to drink the [black and roiled] waters of the Nile? Or what have you to gain in going the way of Assyria, to drink the waters of the Euphrates? 
+And now what have you to gain by allying yourself with Egypt and going her way, to drink the [black and roiled] waters of the Nile? Or what have you to gain in going the way of Assyria, to drink the waters of the Euphrates? 
 
 
 
@@ -406,7 +406,7 @@ And now what have you to gain by allying yourself with Egypt _and_ going her way
 
 
 
-Your own wickedness shall chasten _and_ correct you, and your backslidings _and_ desertion of faith shall reprove you. Know therefore _and_ recognize that this is an evil and bitter thing: [first,] you have forsaken the Lord your God; [second,] you are indifferent to Me _and_ the fear of Me is not in you, says the Lord of hosts. 
+Your own wickedness shall chasten and correct you, and your backslidings and desertion of faith shall reprove you. Know therefore and recognize that this is an evil and bitter thing: [first,] you have forsaken the Lord your God; [second,] you are indifferent to Me and the fear of Me is not in you, says the Lord of hosts. 
 
 
 
@@ -427,7 +427,7 @@ Your own wickedness shall chasten _and_ correct you, and your backslidings _and_
 
 
 
-For long ago [in Egypt] I broke your yoke and burst your bonds [not that you might be free, but that you might serve Me] _and_ long ago you shattered the yoke and snapped the bonds [of My law which I put upon you]; you said, I will not serve _and_ obey You! For upon every high hill and under every green tree you [eagerly] prostrated yourself [in idolatrous worship], playing the harlot. 
+For long ago [in Egypt] I broke your yoke and burst your bonds [not that you might be free, but that you might serve Me] and long ago you shattered the yoke and snapped the bonds [of My law which I put upon you]; you said, I will not serve and obey You! For upon every high hill and under every green tree you [eagerly] prostrated yourself [in idolatrous worship], playing the harlot. 
 
 
 
@@ -469,7 +469,7 @@ Yet I had planted you [O house of Israel] a choice vine, wholly of pure seed. Ho
 
 
 
-For though you wash yourself with lye and use much soap, yet your iniquity _and_ guilt are still [upon you; you are] spotted, dirty, _and_ stained before Me, says the Lord. 
+For though you wash yourself with lye and use much soap, yet your iniquity and guilt are still [upon you; you are] spotted, dirty, and stained before Me, says the Lord. 
 
 
 
@@ -532,7 +532,7 @@ Or [you have the untamed and reckless nature of] a wild donkey used to the deser
 
 
 
-[Cease from your mad running after idols, from which you get nothing but bitter injury.] Keep your feet from being unshod and your throat from thirst. But you said, It is hopeless! For I have loved strangers _and_ foreigners, and after them I will go. 
+[Cease from your mad running after idols, from which you get nothing but bitter injury.] Keep your feet from being unshod and your throat from thirst. But you said, It is hopeless! For I have loved strangers and foreigners, and after them I will go. 
 
 
 
@@ -616,7 +616,7 @@ But where are your gods that you made for yourself? Let them arise if they can s
 
 
 
-Why do you complain _and_ remonstrate against My wrath? You all have rebelled _and_ revolted against Me, says the Lord. 
+Why do you complain and remonstrate against My wrath? You all have rebelled and revolted against Me, says the Lord. 
 
 
 
@@ -658,7 +658,7 @@ In vain have I stricken your children (your people); they received no discipline
 
 
 
-O generation [that you are]! Behold, consider, _and_ regard the word of the Lord: Have I been a wilderness to Israel [like a land without food]? A land of deep darkness [like a way without light]? Why do My people say, We have broken loose [we are free and will roam at large]; we will come no more to You? 
+O generation [that you are]! Behold, consider, and regard the word of the Lord: Have I been a wilderness to Israel [like a land without food]? A land of deep darkness [like a way without light]? Why do My people say, We have broken loose [we are free and will roam at large]; we will come no more to You? 
 
 
 
@@ -679,7 +679,7 @@ O generation [that you are]! Behold, consider, _and_ regard the word of the Lord
 
 
 
-Can a maid forget _and_ neglect [to wear] her ornaments, or a bride her [marriage] girdle [with its significance like that of a wedding ring]? Yet My people have forgotten Me, days without number. 
+Can a maid forget and neglect [to wear] her ornaments, or a bride her [marriage] girdle [with its significance like that of a wedding ring]? Yet My people have forgotten Me, days without number. 
 
 
 
@@ -700,7 +700,7 @@ Can a maid forget _and_ neglect [to wear] her ornaments, or a bride her [marriag
 
 
 
-How you deck yourself _and_ direct your way to procure [adulterous] love! Because of it even wicked women have learned [indecent] ways from you. 
+How you deck yourself and direct your way to procure [adulterous] love! Because of it even wicked women have learned [indecent] ways from you. 
 
 
 
@@ -721,7 +721,7 @@ How you deck yourself _and_ direct your way to procure [adulterous] love! Becaus
 
 
 
-Also on your skirts is found the lifeblood of the persons of the innocent poor; you did not find them housebreaking, _nor_ have I found it out by secret search. But it is because of [your lust for idolatry that you have done] all these things--[that is everywhere evident.] 
+Also on your skirts is found the lifeblood of the persons of the innocent poor; you did not find them housebreaking, nor have I found it out by secret search. But it is because of [your lust for idolatry that you have done] all these things--[that is everywhere evident.] 
 
 
 
@@ -742,7 +742,7 @@ Also on your skirts is found the lifeblood of the persons of the innocent poor; 
 
 
 
-Yet you keep saying, I am innocent; surely His anger has turned away from Me. Behold, I will bring you to judgment _and_ will plead against you because you say, I have not sinned. 
+Yet you keep saying, I am innocent; surely His anger has turned away from Me. Behold, I will bring you to judgment and will plead against you because you say, I have not sinned. 
 
 
 
@@ -763,7 +763,7 @@ Yet you keep saying, I am innocent; surely His anger has turned away from Me. Be
 
 
 
-Why do you gad _or_ wander about so much to change your way? You shall be put to shame by Egypt as you were put to shame by Assyria. 
+Why do you gad or wander about so much to change your way? You shall be put to shame by Egypt as you were put to shame by Assyria. 
 
 
 

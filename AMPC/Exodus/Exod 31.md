@@ -70,7 +70,7 @@ See, I have called by name Bezalel son of Uri, the son of Hur, of the tribe of J
 
 
 
-And I have filled him with the Spirit of God, in wisdom _and_ ability, in understanding _and_ intelligence, and in knowledge, and in all kinds of craftsmanship, 
+And I have filled him with the Spirit of God, in wisdom and ability, in understanding and intelligence, and in knowledge, and in all kinds of craftsmanship, 
 
 
 
@@ -133,7 +133,7 @@ And in cutting of stones for setting, and in carving of wood, to work in all kin
 
 
 
-And behold, I have appointed with him Aholiab son of Ahisamach, of the tribe of Dan; and to all who are wisehearted I have given wisdom _and_ ability to make all that I have commanded you: 
+And behold, I have appointed with him Aholiab son of Ahisamach, of the tribe of Dan; and to all who are wisehearted I have given wisdom and ability to make all that I have commanded you: 
 
 
 

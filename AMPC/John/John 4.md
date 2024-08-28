@@ -217,7 +217,7 @@ The Samaritan woman said to Him, How is it that You, being a Jew, ask me, a Sama
 
 
 
-Jesus answered her, If you had only known _and_ had recognized God's gift and Who this is that is saying to you, Give Me a drink, you would have asked Him [instead] and He would have given you living water. 
+Jesus answered her, If you had only known and had recognized God's gift and Who this is that is saying to you, Give Me a drink, you would have asked Him [instead] and He would have given you living water. 
 
 
 
@@ -259,7 +259,7 @@ She said to Him, Sir, You have nothing to draw with [no drawing bucket] and the 
 
 
 
-Are You greater than _and_ superior to our ancestor Jacob, who gave us this well and who used to drink from it himself, and his sons and his cattle also? 
+Are You greater than and superior to our ancestor Jacob, who gave us this well and who used to drink from it himself, and his sons and his cattle also? 
 
 
 
@@ -406,7 +406,7 @@ For you have had five husbands, and the man you are now living with is not your 
 
 
 
-The woman said to Him, Sir, I see _and_ understand that You are a prophet. 
+The woman said to Him, Sir, I see and understand that You are a prophet. 
 
 
 
@@ -427,7 +427,7 @@ The woman said to Him, Sir, I see _and_ understand that You are a prophet.
 
 
 
-Our forefathers worshiped on this mountain, but you [Jews] say that Jerusalem is the place where it is necessary _and_ proper to worship. 
+Our forefathers worshiped on this mountain, but you [Jews] say that Jerusalem is the place where it is necessary and proper to worship. 
 
 
 
@@ -511,7 +511,7 @@ A time will come, however, indeed it is already here, when the true (genuine) wo
 
 
 
-God is a Spirit (a spiritual Being) and those who worship Him must worship _Him_ in spirit and in truth (reality). 
+God is a Spirit (a spiritual Being) and those who worship Him must worship Him in spirit and in truth (reality). 
 
 
 
@@ -532,7 +532,7 @@ God is a Spirit (a spiritual Being) and those who worship Him must worship _Him_
 
 
 
-The woman said to Him, I know that Messiah is coming, He Who is called the Christ (the Anointed One); and when He arrives, He will tell us everything we need to know _and_ make it clear to us. 
+The woman said to Him, I know that Messiah is coming, He Who is called the Christ (the Anointed One); and when He arrives, He will tell us everything we need to know and make it clear to us. 
 
 
 
@@ -574,7 +574,7 @@ Jesus said to her, I Who now speak with you am He.
 
 
 
-Just then His disciples came and they wondered (were surprised, astonished) to find Him talking with a woman [a married woman]. However, not one of them asked Him, What are You inquiring about? _or_ What do You want? or, Why do You speak with her? 
+Just then His disciples came and they wondered (were surprised, astonished) to find Him talking with a woman [a married woman]. However, not one of them asked Him, What are You inquiring about? or What do You want? or, Why do You speak with her? 
 
 
 
@@ -679,7 +679,7 @@ Meanwhile, the disciples urged Him saying, Rabbi, eat something.
 
 
 
-But He assured them, I have food (nourishment) to eat of which you know nothing _and_ have no idea. 
+But He assured them, I have food (nourishment) to eat of which you know nothing and have no idea. 
 
 
 
@@ -721,7 +721,7 @@ So the disciples said one to another, Has someone brought Him something to eat?
 
 
 
-Jesus said to them, My food (nourishment) is to do the will (pleasure) of Him Who sent Me and to accomplish _and_ completely finish His work. 
+Jesus said to them, My food (nourishment) is to do the will (pleasure) of Him Who sent Me and to accomplish and completely finish His work. 
 
 
 
@@ -742,7 +742,7 @@ Jesus said to them, My food (nourishment) is to do the will (pleasure) of Him Wh
 
 
 
-Do you not say, It is still four months until harvest time comes? Look! I tell you, raise your eyes and observe the fields _and_ see how they are already white for harvesting. 
+Do you not say, It is still four months until harvest time comes? Look! I tell you, raise your eyes and observe the fields and see how they are already white for harvesting. 
 
 
 
@@ -826,7 +826,7 @@ I sent you to reap a crop for which you have not toiled. Other men have labored 
 
 
 
-Now numerous Samaritans from that town believed in _and_ trusted in Him because of what the woman said when she declared _and_ testified, He told me everything that I ever did. 
+Now numerous Samaritans from that town believed in and trusted in Him because of what the woman said when she declared and testified, He told me everything that I ever did. 
 
 
 
@@ -868,7 +868,7 @@ So when the Samaritans arrived, they asked Him to remain with them, and He did s
 
 
 
-Then many more believed in _and_ adhered to _and_ relied on Him because of His personal message [what He Himself said]. 
+Then many more believed in and adhered to and relied on Him because of His personal message [what He Himself said]. 
 
 
 
@@ -889,7 +889,7 @@ Then many more believed in _and_ adhered to _and_ relied on Him because of His p
 
 
 
-And they told the woman, Now we no longer believe (trust, have faith) just because of what you said; for we have heard Him ourselves [personally], and we know that He truly is the Savior of the world, _the Christ_. 
+And they told the woman, Now we no longer believe (trust, have faith) just because of what you said; for we have heard Him ourselves [personally], and we know that He truly is the Savior of the world, the Christ. 
 
 
 
@@ -952,7 +952,7 @@ Although He Himself declared that a prophet has no honor in his own country.
 
 
 
-However, when He came into Galilee, the Galileans also welcomed Him _and_ took Him to their hearts eagerly, for they had seen everything that He did in Jerusalem during the Feast; for they too had attended the Feast. 
+However, when He came into Galilee, the Galileans also welcomed Him and took Him to their hearts eagerly, for they had seen everything that He did in Jerusalem during the Feast; for they too had attended the Feast. 
 
 
 

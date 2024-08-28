@@ -10,22 +10,22 @@ next: ['Exod 20']
 
 
 ###### 1 
-In the third month after the children of Israel had gone out of the land of Egypt, on the same day, they came _to_ the Wilderness of Sinai. 
+In the third month after the children of Israel had gone out of the land of Egypt, on the same day, they came to the Wilderness of Sinai. 
 
 ###### 2 
-For they had departed from Rephidim, had come _to_ the Wilderness of Sinai, and camped in the wilderness. So Israel camped there before the mountain. 
+For they had departed from Rephidim, had come to the Wilderness of Sinai, and camped in the wilderness. So Israel camped there before the mountain. 
 
 ###### 3 
 And Moses went up to God, and the Lord called to him from the mountain, saying, "Thus you shall say to the house of Jacob, and tell the children of Israel: 
 
 ###### 4 
-'You have seen what I did to the Egyptians, and _how_ I bore you on eagles' wings and brought you to Myself. 
+'You have seen what I did to the Egyptians, and how I bore you on eagles' wings and brought you to Myself. 
 
 ###### 5 
-Now therefore, if you will indeed obey My voice and keep My covenant, then you shall be a special treasure to Me above all people; for all the earth _is_ Mine. 
+Now therefore, if you will indeed obey My voice and keep My covenant, then you shall be a special treasure to Me above all people; for all the earth is Mine. 
 
 ###### 6 
-And you shall be to Me a kingdom of priests and a holy nation.' These _are_ the words which you shall speak to the children of Israel." 
+And you shall be to Me a kingdom of priests and a holy nation.' These are the words which you shall speak to the children of Israel." 
 
 ###### 7 
 So Moses came and called for the elders of the people, and laid before them all these words which the Lord commanded him. 
@@ -43,25 +43,25 @@ Then the Lord said to Moses, "Go to the people and consecrate them today and tom
 And let them be ready for the third day. For on the third day the Lord will come down upon Mount Sinai in the sight of all the people. 
 
 ###### 12 
-You shall set bounds for the people all around, saying, 'Take heed to yourselves _that_ you do _not_ go up to the mountain or touch its base. Whoever touches the mountain shall surely be put to death. 
+You shall set bounds for the people all around, saying, 'Take heed to yourselves that you do not go up to the mountain or touch its base. Whoever touches the mountain shall surely be put to death. 
 
 ###### 13 
-Not a hand shall touch him, but he shall surely be stoned or shot _with an arrow;_ whether man or beast, he shall not live.' When the trumpet sounds long, they shall come near the mountain." 
+Not a hand shall touch him, but he shall surely be stoned or shot with an arrow; whether man or beast, he shall not live.' When the trumpet sounds long, they shall come near the mountain." 
 
 ###### 14 
 So Moses went down from the mountain to the people and sanctified the people, and they washed their clothes. 
 
 ###### 15 
-And he said to the people, "Be ready for the third day; do not come near _your_ wives." 
+And he said to the people, "Be ready for the third day; do not come near your wives." 
 
 ###### 16 
-Then it came to pass on the third day, in the morning, that there were thunderings and lightnings, and a thick cloud on the mountain; and the sound of the trumpet was very loud, so that all the people who _were_ in the camp trembled. 
+Then it came to pass on the third day, in the morning, that there were thunderings and lightnings, and a thick cloud on the mountain; and the sound of the trumpet was very loud, so that all the people who were in the camp trembled. 
 
 ###### 17 
 And Moses brought the people out of the camp to meet with God, and they stood at the foot of the mountain. 
 
 ###### 18 
-Now Mount Sinai _was_ completely in smoke, because the Lord descended upon it in fire. Its smoke ascended like the smoke of a furnace, and the whole mountain quaked greatly. 
+Now Mount Sinai was completely in smoke, because the Lord descended upon it in fire. Its smoke ascended like the smoke of a furnace, and the whole mountain quaked greatly. 
 
 ###### 19 
 And when the blast of the trumpet sounded long and became louder and louder, Moses spoke, and God answered him by voice. 

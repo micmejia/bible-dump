@@ -28,7 +28,7 @@ next: ['Prov 11']
 
 
 
-The proverbs of Solomon: A wise son makes a glad father, but a foolish _and_ self-confident son is the grief of his mother. 
+The proverbs of Solomon: A wise son makes a glad father, but a foolish and self-confident son is the grief of his mother. 
 
 
 
@@ -91,7 +91,7 @@ The Lord will not allow the [uncompromisingly] righteous to famish, but He thwar
 
 
 
-He becomes poor who works with a slack _and_ idle hand, but the hand of the diligent makes rich. 
+He becomes poor who works with a slack and idle hand, but the hand of the diligent makes rich. 
 
 
 
@@ -175,7 +175,7 @@ The memory of the [uncompromisingly] righteous is a blessing, but the name of th
 
 
 
-The wise in heart will accept _and_ obey commandments, but the foolish of lips will fall headlong. 
+The wise in heart will accept and obey commandments, but the foolish of lips will fall headlong. 
 
 
 
@@ -196,7 +196,7 @@ The wise in heart will accept _and_ obey commandments, but the foolish of lips w
 
 
 
-He who walks uprightly walks securely, but he who takes a crooked way shall be found out _and_ punished. 
+He who walks uprightly walks securely, but he who takes a crooked way shall be found out and punished. 
 
 
 
@@ -217,7 +217,7 @@ He who walks uprightly walks securely, but he who takes a crooked way shall be f
 
 
 
-He who winks with the eye [craftily and with malice] causes sorrow; the foolish of lips will fall headlong _but_ _he who boldly reproves makes peace_. 
+He who winks with the eye [craftily and with malice] causes sorrow; the foolish of lips will fall headlong but he who boldly reproves makes peace. 
 
 
 
@@ -280,7 +280,7 @@ Hatred stirs up contentions, but love covers all transgressions.
 
 
 
-On the lips of him who has discernment skillful _and_ godly Wisdom is found, but discipline _and_ the rod are for the back of him who is without sense _and_ understanding. 
+On the lips of him who has discernment skillful and godly Wisdom is found, but discipline and the rod are for the back of him who is without sense and understanding. 
 
 
 
@@ -364,7 +364,7 @@ The earnings of the righteous (the upright, in right standing with God) lead to 
 
 
 
-He who heeds instruction _and_ correction is [not only himself] in the way of life [but also] is a way of life for others. And he who neglects _or_ refuses reproof [not only himself] goes astray [but also] causes to err _and_ is a path toward ruin for others. 
+He who heeds instruction and correction is [not only himself] in the way of life [but also] is a way of life for others. And he who neglects or refuses reproof [not only himself] goes astray [but also] causes to err and is a path toward ruin for others. 
 
 
 
@@ -427,7 +427,7 @@ In a multitude of words transgression is not lacking, but he who restrains his l
 
 
 
-The tongues of those who are upright _and_ in right standing with God are as choice silver; the minds of those who are wicked _and_ out of harmony with God are of little value. 
+The tongues of those who are upright and in right standing with God are as choice silver; the minds of those who are wicked and out of harmony with God are of little value. 
 
 
 
@@ -448,7 +448,7 @@ The tongues of those who are upright _and_ in right standing with God are as cho
 
 
 
-The lips of the [uncompromisingly] righteous feed _and_ guide many, but fools die for want of understanding _and_ heart. 
+The lips of the [uncompromisingly] righteous feed and guide many, but fools die for want of understanding and heart. 
 
 
 
@@ -490,7 +490,7 @@ The blessing of the Lord--it makes [truly] rich, and He adds no sorrow with it [
 
 
 
-It is as sport to a [self-confident] fool to do wickedness, but to have skillful _and_ godly Wisdom is pleasure _and_ relaxation to a man of understanding. 
+It is as sport to a [self-confident] fool to do wickedness, but to have skillful and godly Wisdom is pleasure and relaxation to a man of understanding. 
 
 
 
@@ -553,7 +553,7 @@ When the whirlwind passes, the wicked are no more, but the [uncompromisingly] ri
 
 
 
-As vinegar to the teeth and as smoke to the eyes, so is the sluggard to those who employ _and_ send him. 
+As vinegar to the teeth and as smoke to the eyes, so is the sluggard to those who employ and send him. 
 
 
 
@@ -574,7 +574,7 @@ As vinegar to the teeth and as smoke to the eyes, so is the sluggard to those wh
 
 
 
-The reverent _and_ worshipful fear of the Lord prolongs one's days, but the years of the wicked shall be made short. 
+The reverent and worshipful fear of the Lord prolongs one's days, but the years of the wicked shall be made short. 
 
 
 
@@ -616,7 +616,7 @@ The hope of the [uncompromisingly] righteous (the upright, in right standing wit
 
 
 
-The way of the Lord is strength _and_ a stronghold to the upright, but it is destruction to the workers of iniquity. 
+The way of the Lord is strength and a stronghold to the upright, but it is destruction to the workers of iniquity. 
 
 
 
@@ -658,7 +658,7 @@ The [consistently] righteous shall never be removed, but the wicked shall not in
 
 
 
-The mouths of the righteous (those harmonious with God) bring forth skillful _and_ godly Wisdom, but the perverse tongue shall be cut down [like a barren and rotten tree]. 
+The mouths of the righteous (those harmonious with God) bring forth skillful and godly Wisdom, but the perverse tongue shall be cut down [like a barren and rotten tree]. 
 
 
 
@@ -679,4 +679,4 @@ The mouths of the righteous (those harmonious with God) bring forth skillful _an
 
 
 
-The lips of the [uncompromisingly] righteous know [and therefore utter] what is acceptable, but the mouth of the wicked knows [and therefore speaks only] what is obstinately willful _and_ contrary.
+The lips of the [uncompromisingly] righteous know [and therefore utter] what is acceptable, but the mouth of the wicked knows [and therefore speaks only] what is obstinately willful and contrary.

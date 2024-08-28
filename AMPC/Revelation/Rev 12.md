@@ -30,7 +30,7 @@ Then another ominous sign (wonder) was seen in heaven: Behold, a huge, fiery-red
 ###### 4 
 
 
-His tail swept [across the sky] _and_ dragged down a third of the stars and flung them to the earth. And the dragon stationed himself in front of the woman who was about to be delivered, so that he might devour her child as soon as she brought it forth. 
+His tail swept [across the sky] and dragged down a third of the stars and flung them to the earth. And the dragon stationed himself in front of the woman who was about to be delivered, so that he might devour her child as soon as she brought it forth. 
 
 
 ###### 5 
@@ -42,7 +42,7 @@ And she brought forth a male Child, One Who is destined to shepherd (rule) all t
 ###### 6 
 
 
-And the woman [herself] fled into the desert (wilderness), where she has a retreat prepared [for her] by God, in which she is to be fed _and_ kept safe for 1,260 days (42 months; three and one-half years). 
+And the woman [herself] fled into the desert (wilderness), where she has a retreat prepared [for her] by God, in which she is to be fed and kept safe for 1,260 days (42 months; three and one-half years). 
 
 
 ###### 7 
@@ -60,7 +60,7 @@ But they were defeated, and there was no room found for them in heaven any longe
 ###### 9 
 
 
-And the huge dragon was cast down _and_ out--that age-old serpent, who is called the Devil and Satan, he who is the seducer (deceiver) of all humanity the world over; he was forced out _and_ down to the earth, and his angels were flung out along with him. 
+And the huge dragon was cast down and out--that age-old serpent, who is called the Devil and Satan, he who is the seducer (deceiver) of all humanity the world over; he was forced out and down to the earth, and his angels were flung out along with him. 
 
 
 ###### 10 
@@ -72,7 +72,7 @@ Then I heard a strong (loud) voice in heaven, saying, Now it has come--the salva
 ###### 11 
 
 
-And they have overcome (conquered) him by means of the blood of the Lamb and by the utterance of their testimony, for they did not love _and_ cling to life even when faced with death [holding their lives cheap till they had to die for their witnessing]. 
+And they have overcome (conquered) him by means of the blood of the Lamb and by the utterance of their testimony, for they did not love and cling to life even when faced with death [holding their lives cheap till they had to die for their witnessing]. 
 
 
 ###### 12 
@@ -90,7 +90,7 @@ And when the dragon saw that he was cast down to the earth, he went in pursuit o
 ###### 14 
 
 
-But the woman was supplied with the two wings of a giant eagle, so that she might fly from the presence of the serpent into the desert (wilderness), to the retreat where she is to be kept safe _and_ fed for a time, and times, and half a time (three and one-half years, or 1,260 days). 
+But the woman was supplied with the two wings of a giant eagle, so that she might fly from the presence of the serpent into the desert (wilderness), to the retreat where she is to be kept safe and fed for a time, and times, and half a time (three and one-half years, or 1,260 days). 
 
 
 ###### 15 
@@ -108,4 +108,4 @@ But the earth came to the rescue of the woman, and the ground opened its mouth a
 ###### 17 
 
 
-So then the dragon was furious (enraged) at the woman, and he went away to wage war on the remainder of her descendants--[on those] who obey God's commandments and who have the testimony of Jesus _Christ_ [and adhere to it and bear witness to Him].
+So then the dragon was furious (enraged) at the woman, and he went away to wage war on the remainder of her descendants--[on those] who obey God's commandments and who have the testimony of Jesus Christ [and adhere to it and bear witness to Him].

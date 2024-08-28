@@ -133,7 +133,7 @@ And they both dreamed a dream in the same night, each man according to [the pers
 
 
 
-When Joseph came to them in the morning and looked at them, he saw that they were sad _and_ depressed. 
+When Joseph came to them in the morning and looked at them, he saw that they were sad and depressed. 
 
 
 
@@ -154,7 +154,7 @@ When Joseph came to them in the morning and looked at them, he saw that they wer
 
 
 
-So he asked Pharaoh's officers who were in custody with him in his master's house, Why do you look so dejected _and_ sad today? 
+So he asked Pharaoh's officers who were in custody with him in his master's house, Why do you look so dejected and sad today? 
 
 
 

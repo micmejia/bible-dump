@@ -49,7 +49,7 @@ Come down, and sit in the dust, O Virgin Daughter of Babylon; sit on the ground 
 
 
 
-Take the millstones [like the poorest female slave of the household does] and grind meal; take off your veil _and_ uncover your hair. Remove your skirt, bare your leg, wade through the rivers [at the command of your captors]. 
+Take the millstones [like the poorest female slave of the household does] and grind meal; take off your veil and uncover your hair. Remove your skirt, bare your leg, wade through the rivers [at the command of your captors]. 
 
 
 
@@ -112,7 +112,7 @@ Your nakedness shall be exposed, and your shame shall be seen. I will take venge
 
 
 
-Sit in silence and go into darkness, O Daughter of the Chaldeans; for you shall no more be called the lady _and_ mistress of kingdoms. 
+Sit in silence and go into darkness, O Daughter of the Chaldeans; for you shall no more be called the lady and mistress of kingdoms. 
 
 
 
@@ -175,7 +175,7 @@ And you said, I shall be the mistress forever! So you did not lay these things t
 
 
 
-Therefore now, hear this, you who love pleasures _and_ are given over to them, you who dwell safely _and_ sit securely, who say in your mind, I am [the mistress] and there is no one else besides me. I shall not sit as a widow, nor shall I know the loss of children. 
+Therefore now, hear this, you who love pleasures and are given over to them, you who dwell safely and sit securely, who say in your mind, I am [the mistress] and there is no one else besides me. I shall not sit as a widow, nor shall I know the loss of children. 
 
 
 
@@ -217,7 +217,7 @@ But these two things shall come to you in a moment, in one day: loss of children
 
 
 
-For you [Babylon] have trusted in your wickedness; you have said, No one sees me. Your wisdom and your knowledge led you astray, and you said in your heart _and_ mind, I am, and there is no one besides me. 
+For you [Babylon] have trusted in your wickedness; you have said, No one sees me. Your wisdom and your knowledge led you astray, and you said in your heart and mind, I am, and there is no one besides me. 
 
 
 
@@ -238,7 +238,7 @@ For you [Babylon] have trusted in your wickedness; you have said, No one sees me
 
 
 
-Therefore shall evil come upon you; you shall not know the dawning of it _or_ how to charm it away. And a disaster _and_ evil shall fall upon you that you shall not be able to atone for [with all your offerings to your gods]; and desolation shall come upon you suddenly, about which you shall know nothing _or_ how to avert it. 
+Therefore shall evil come upon you; you shall not know the dawning of it or how to charm it away. And a disaster and evil shall fall upon you that you shall not be able to atone for [with all your offerings to your gods]; and desolation shall come upon you suddenly, about which you shall know nothing or how to avert it. 
 
 
 
@@ -259,7 +259,7 @@ Therefore shall evil come upon you; you shall not know the dawning of it _or_ ho
 
 
 
-Persist, then, with your enchantments and the multitude of your sorceries [Babylon], in which you have labored from your youth; and see if perhaps you will be able to profit, if you will prevail _and_ strike terror! 
+Persist, then, with your enchantments and the multitude of your sorceries [Babylon], in which you have labored from your youth; and see if perhaps you will be able to profit, if you will prevail and strike terror! 
 
 
 
@@ -280,7 +280,7 @@ Persist, then, with your enchantments and the multitude of your sorceries [Babyl
 
 
 
-You are wearied with your many counsels _and_ plans. Let now the astrologers, the stargazers, and the monthly prognosticators stand up and make known to you _and_ save you from the things that shall come upon you [Babylon]. 
+You are wearied with your many counsels and plans. Let now the astrologers, the stargazers, and the monthly prognosticators stand up and make known to you and save you from the things that shall come upon you [Babylon]. 
 
 
 
@@ -301,7 +301,7 @@ You are wearied with your many counsels _and_ plans. Let now the astrologers, th
 
 
 
-Behold, they are like stubble; the fire consumes them. They cannot even deliver themselves from the power of the flame [much less deliver the nation]. There is no coal for warming _or_ fire before which to sit! 
+Behold, they are like stubble; the fire consumes them. They cannot even deliver themselves from the power of the flame [much less deliver the nation]. There is no coal for warming or fire before which to sit! 
 
 
 
@@ -322,4 +322,4 @@ Behold, they are like stubble; the fire consumes them. They cannot even deliver 
 
 
 
-Such to you shall they [the astrologers and their kind] be, those with whom you have labored _and_ such their fate, those who have done business with you from your youth; they will wander, every one to his own quarter _and_ in his own direction. No one will save you.
+Such to you shall they [the astrologers and their kind] be, those with whom you have labored and such their fate, those who have done business with you from your youth; they will wander, every one to his own quarter and in his own direction. No one will save you.

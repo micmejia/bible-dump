@@ -174,7 +174,7 @@ Our fathers sinned and are no more, and we have borne their iniquities.
 
 
 
-Servants _and_ slaves rule over us; there is none to deliver us out of their hands. 
+Servants and slaves rule over us; there is none to deliver us out of their hands. 
 
 
 
@@ -216,7 +216,7 @@ We get our bread at the peril of our lives because of the sword of the wildernes
 
 
 
-Our skin glows _and_ is parched as from [the heat of] an oven because of the burning heat of [the fever of] famine. 
+Our skin glows and is parched as from [the heat of] an oven because of the burning heat of [the fever of] famine. 
 
 
 
@@ -363,7 +363,7 @@ The crown has fallen from our head [our honor is brought to the dust]! Woe to us
 
 
 
-Because of this our hearts are faint _and_ sick; because of these things our eyes are dim _and_ see darkly. 
+Because of this our hearts are faint and sick; because of these things our eyes are dim and see darkly. 
 
 
 
@@ -405,7 +405,7 @@ As for Mount Zion, which lies desolate, the jackals prowl over it!
 
 
 
-But You, O Lord, remain _and_ reign forever; Your throne endures from generation to [all] generations. 
+But You, O Lord, remain and reign forever; Your throne endures from generation to [all] generations. 
 
 
 
@@ -447,7 +447,7 @@ Why do You forget us forever? Why do You forsake us so long?
 
 
 
-Turn us to Yourself, O Lord, and we shall be turned _and_ restored! Renew our days as of old!-- 
+Turn us to Yourself, O Lord, and we shall be turned and restored! Renew our days as of old!-- 
 
 
 

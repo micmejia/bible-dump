@@ -10,31 +10,31 @@ next: ['Job 33']
 
 
 ###### 1 
-So these three men ceased answering Job, because he _was_ righteous in his own eyes. 
+So these three men ceased answering Job, because he was righteous in his own eyes. 
 
 ###### 2 
 Then the wrath of Elihu, the son of Barachel the Buzite, of the family of Ram, was aroused against Job; his wrath was aroused because he justified himself rather than God. 
 
 ###### 3 
-Also against his three friends his wrath was aroused, because they had found no answer, and _yet_ had condemned Job. 
+Also against his three friends his wrath was aroused, because they had found no answer, and yet had condemned Job. 
 
 ###### 4 
-Now because they _were_ years older than he, Elihu had waited to speak to Job. 
+Now because they were years older than he, Elihu had waited to speak to Job. 
 
 ###### 5 
-When Elihu saw that _there was_ no answer in the mouth of these three men, his wrath was aroused. 
+When Elihu saw that there was no answer in the mouth of these three men, his wrath was aroused. 
 
 ###### 6 
-So Elihu, the son of Barachel the Buzite, answered and said: "I _am_ young in years, and you _are_ very old; Therefore I was afraid, And dared not declare my opinion to you. 
+So Elihu, the son of Barachel the Buzite, answered and said: "I am young in years, and you are very old; Therefore I was afraid, And dared not declare my opinion to you. 
 
 ###### 7 
 I said, 'Age should speak, And multitude of years should teach wisdom.' 
 
 ###### 8 
-But _there is_ a spirit in man, And the breath of the Almighty gives him understanding. 
+But there is a spirit in man, And the breath of the Almighty gives him understanding. 
 
 ###### 9 
-Great men are not _always_ wise, Nor do the aged _always_ understand justice. 
+Great men are not always wise, Nor do the aged always understand justice. 
 
 ###### 10 
 "Therefore I say, 'Listen to me, I also will declare my opinion.' 
@@ -43,19 +43,19 @@ Great men are not _always_ wise, Nor do the aged _always_ understand justice.
 Indeed I waited for your words, I listened to your reasonings, while you searched out what to say. 
 
 ###### 12 
-I paid close attention to you; And surely not one of you convinced Job, _Or_ answered his words-- 
+I paid close attention to you; And surely not one of you convinced Job, Or answered his words-- 
 
 ###### 13 
 Lest you say, 'We have found wisdom'; God will vanquish him, not man. 
 
 ###### 14 
-Now he has not directed _his_ words against me; So I will not answer him with your words. 
+Now he has not directed his words against me; So I will not answer him with your words. 
 
 ###### 15 
 "They are dismayed and answer no more; Words escape them. 
 
 ###### 16 
-And I have waited, because they did not speak, Because they stood still _and_ answered no more. 
+And I have waited, because they did not speak, Because they stood still and answered no more. 
 
 ###### 17 
 I also will answer my part, I too will declare my opinion. 
@@ -64,7 +64,7 @@ I also will answer my part, I too will declare my opinion.
 For I am full of words; The spirit within me compels me. 
 
 ###### 19 
-Indeed my belly _is_ like wine _that_ has no vent; It is ready to burst like new wineskins. 
+Indeed my belly is like wine that has no vent; It is ready to burst like new wineskins. 
 
 ###### 20 
 I will speak, that I may find relief; I must open my lips and answer. 
@@ -73,4 +73,4 @@ I will speak, that I may find relief; I must open my lips and answer.
 Let me not, I pray, show partiality to anyone; Nor let me flatter any man. 
 
 ###### 22 
-For I do not know how to flatter, _Else_ my Maker would soon take me away.
+For I do not know how to flatter, Else my Maker would soon take me away.

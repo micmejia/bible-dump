@@ -22,25 +22,25 @@ And Solomon went to Hamath Zobah and seized it.
 He also built Tadmor in the wilderness, and all the storage cities which he built in Hamath. 
 
 ###### 5 
-He built Upper Beth Horon and Lower Beth Horon, fortified cities _with_ walls, gates, and bars, 
+He built Upper Beth Horon and Lower Beth Horon, fortified cities with walls, gates, and bars, 
 
 ###### 6 
 also Baalath and all the storage cities that Solomon had, and all the chariot cities and the cities of the cavalry, and all that Solomon desired to build in Jerusalem, in Lebanon, and in all the land of his dominion. 
 
 ###### 7 
-All the people _who were_ left of the Hittites, Amorites, Perizzites, Hivites, and Jebusites, who _were_ not of Israel-- 
+All the people who were left of the Hittites, Amorites, Perizzites, Hivites, and Jebusites, who were not of Israel-- 
 
 ###### 8 
 that is, their descendants who were left in the land after them, whom the children of Israel did not destroy--from these Solomon raised forced labor, as it is to this day. 
 
 ###### 9 
-But Solomon did not make the children of Israel servants for his work. Some _were_ men of war, captains of his officers, captains of his chariots, and his cavalry. 
+But Solomon did not make the children of Israel servants for his work. Some were men of war, captains of his officers, captains of his chariots, and his cavalry. 
 
 ###### 10 
-And others _were_ chiefs of the officials of King Solomon: two hundred and fifty, who ruled over the people. 
+And others were chiefs of the officials of King Solomon: two hundred and fifty, who ruled over the people. 
 
 ###### 11 
-Now Solomon brought the daughter of Pharaoh up from the City of David to the house he had built for her, for he said, "My wife shall not dwell in the house of David king of Israel, because _the places_ to which the ark of the Lord has come are holy." 
+Now Solomon brought the daughter of Pharaoh up from the City of David to the house he had built for her, for he said, "My wife shall not dwell in the house of David king of Israel, because the places to which the ark of the Lord has come are holy." 
 
 ###### 12 
 Then Solomon offered burnt offerings to the Lord on the altar of the Lord which he had built before the vestibule, 

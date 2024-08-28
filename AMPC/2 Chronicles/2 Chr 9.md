@@ -112,7 +112,7 @@ The food of his table, the seating of his officials, the [standing at] attention
 
 
 
-She said to the king, The report which I heard in my own land of your acts _and_ sayings and of your wisdom was true, 
+She said to the king, The report which I heard in my own land of your acts and sayings and of your wisdom was true, 
 
 
 
@@ -154,7 +154,7 @@ But I did not believe their words until I came and my eyes had seen it. Behold, 
 
 
 
-Happy are your wives _and_ men, and happy are these your servants who stand continually before you and hear your wisdom! 
+Happy are your wives and men, and happy are these your servants who stand continually before you and hear your wisdom! 
 
 
 
@@ -238,7 +238,7 @@ The servants of Huram and [those] of Solomon, who brought gold from Ophir, also 
 
 
 
-The king made of the algum trees terraces _or_ walks to the house of the Lord and to the king's palace, and lyres and harps for the singers; none such had ever been seen before in the land of Judah. 
+The king made of the algum trees terraces or walks to the house of the Lord and to the king's palace, and lyres and harps for the singers; none such had ever been seen before in the land of Judah. 
 
 
 
@@ -322,7 +322,7 @@ Besides what traders and merchants brought; and all the kings of Arabia and gove
 
 
 
-And King Solomon made 200 large shields _or_ bucklers of beaten gold; 600 shekels of beaten gold went into each shield. 
+And King Solomon made 200 large shields or bucklers of beaten gold; 600 shekels of beaten gold went into each shield. 
 
 
 

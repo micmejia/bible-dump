@@ -28,7 +28,7 @@ next: ['Num 31']
 
 
 
-And Moses said to the heads _or_ leaders of the tribes of Israel, This is the thing which the Lord has commanded: 
+And Moses said to the heads or leaders of the tribes of Israel, This is the thing which the Lord has commanded: 
 
 
 
@@ -49,7 +49,7 @@ And Moses said to the heads _or_ leaders of the tribes of Israel, This is the th
 
 
 
-If a man vows a vow to the Lord or swears an oath to bind himself by a pledge, he shall not break _and_ profane his word; he shall do according to all that proceeds out of his mouth. 
+If a man vows a vow to the Lord or swears an oath to bind himself by a pledge, he shall not break and profane his word; he shall do according to all that proceeds out of his mouth. 
 
 
 
@@ -175,7 +175,7 @@ And her husband hears of it and holds his peace concerning it on the day that he
 
 
 
-But if her husband refuses to allow her [to keep her vow or pledge] on the day that he hears of it, then he shall make void _and_ annul her vow which is upon her and the rash utterance of her lips by which she bound herself, and the Lord will forgive her. 
+But if her husband refuses to allow her [to keep her vow or pledge] on the day that he hears of it, then he shall make void and annul her vow which is upon her and the rash utterance of her lips by which she bound herself, and the Lord will forgive her. 
 
 
 
@@ -280,7 +280,7 @@ But if her husband positively made them void on the day he heard them, then what
 
 
 
-Every vow and every binding oath to humble _or_ afflict herself, her husband may establish it or her husband may annul it. 
+Every vow and every binding oath to humble or afflict herself, her husband may establish it or her husband may annul it. 
 
 
 
@@ -301,7 +301,7 @@ Every vow and every binding oath to humble _or_ afflict herself, her husband may
 
 
 
-But if her husband altogether holds his peace [concerning the matter] with her from day to day, then he establishes _and_ confirms all her vows or all her pledges which are upon her. He establishes them because he said nothing to [restrain] her on the day he heard of them. 
+But if her husband altogether holds his peace [concerning the matter] with her from day to day, then he establishes and confirms all her vows or all her pledges which are upon her. He establishes them because he said nothing to [restrain] her on the day he heard of them. 
 
 
 
@@ -322,7 +322,7 @@ But if her husband altogether holds his peace [concerning the matter] with her f
 
 
 
-But if he shall nullify them after he hears of them, then he shall be responsible for _and_ bear her iniquity. 
+But if he shall nullify them after he hears of them, then he shall be responsible for and bear her iniquity. 
 
 
 

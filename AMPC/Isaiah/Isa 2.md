@@ -70,7 +70,7 @@ It shall come to pass in the latter days that the mountain of the Lord's house s
 
 
 
-And many people shall come and say, Come, let us go up to the mountain of the Lord, to the house of the God of Jacob, that He may teach us His ways and that we may walk in His paths. For out of Zion shall go forth the law _and_ instruction, and the word of the Lord from Jerusalem. 
+And many people shall come and say, Come, let us go up to the mountain of the Lord, to the house of the God of Jacob, that He may teach us His ways and that we may walk in His paths. For out of Zion shall go forth the law and instruction, and the word of the Lord from Jerusalem. 
 
 
 
@@ -133,7 +133,7 @@ O house of Jacob, come, let us walk in the light of the Lord.
 
 
 
-Surely [Lord] You have rejected _and_ forsaken your people, the house of Jacob, because they are filled [with customs] from the east and with soothsayers [who foretell] like the Philistines; also they strike hands _and_ make pledges _and_ agreements with the children of aliens. 
+Surely [Lord] You have rejected and forsaken your people, the house of Jacob, because they are filled [with customs] from the east and with soothsayers [who foretell] like the Philistines; also they strike hands and make pledges and agreements with the children of aliens. 
 
 
 
@@ -196,7 +196,7 @@ Their land also is full of idols; they worship the work of their own hands, what
 
 
 
-And the common man is bowed down [before idols], also the great man is brought low _and_ humbles himself--therefore forgive them not [O Lord]. 
+And the common man is bowed down [before idols], also the great man is brought low and humbles himself--therefore forgive them not [O Lord]. 
 
 
 
@@ -343,7 +343,7 @@ And against every high tower and every fenced wall,
 
 
 
-And against all the ships of Tarshish and all the picturesque _and_ desirable imagery [designed for mere ornament and luxury]. 
+And against all the ships of Tarshish and all the picturesque and desirable imagery [designed for mere ornament and luxury]. 
 
 
 
@@ -406,7 +406,7 @@ And the idols shall utterly pass away (be abolished).
 
 
 
-Then shall [the stricken, deprived of all in which they had trusted] go into the caves of the rocks and into the holes of the earth from before the terror _and_ dread of the Lord and from before the glory of His majesty, when He arises to shake mightily _and_ terribly the earth. 
+Then shall [the stricken, deprived of all in which they had trusted] go into the caves of the rocks and into the holes of the earth from before the terror and dread of the Lord and from before the glory of His majesty, when He arises to shake mightily and terribly the earth. 
 
 
 
@@ -448,7 +448,7 @@ In that day men shall cast away to the moles and to the bats their idols of silv
 
 
 
-To go into the caverns of the rocks and into the clefts of the ragged rocks from before the terror _and_ dread of the Lord and from before the glory of His majesty, when He rises to shake mightily _and_ terribly the earth. 
+To go into the caverns of the rocks and into the clefts of the ragged rocks from before the terror and dread of the Lord and from before the glory of His majesty, when He rises to shake mightily and terribly the earth. 
 
 
 

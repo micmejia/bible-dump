@@ -28,7 +28,7 @@ next: ['Prov 10']
 
 
 
-Wisdom has built her house; she has hewn out _and_ set up her seven [perfect number of] pillars. 
+Wisdom has built her house; she has hewn out and set up her seven [perfect number of] pillars. 
 
 
 
@@ -133,7 +133,7 @@ Come, eat of my bread and drink of the [spiritual] wine which I have mixed.
 
 
 
-Leave off, simple ones [forsake the foolish and simpleminded] and live! And walk in the way of insight _and_ understanding. 
+Leave off, simple ones [forsake the foolish and simpleminded] and live! And walk in the way of insight and understanding. 
 
 
 
@@ -217,7 +217,7 @@ Give instruction to a wise man and he will be yet wiser; teach a righteous man (
 
 
 
-The reverent _and_ worshipful fear of the Lord is the beginning (the chief and choice part) of Wisdom, and the knowledge of the Holy One is insight _and_ understanding. 
+The reverent and worshipful fear of the Lord is the beginning (the chief and choice part) of Wisdom, and the knowledge of the Holy One is insight and understanding. 
 
 
 
@@ -259,7 +259,7 @@ For by me [Wisdom from God] your days shall be multiplied, and the years of your
 
 
 
-If you are wise, you are wise for yourself; if you scorn, you alone will bear it _and_ pay the penalty. 
+If you are wise, you are wise for yourself; if you scorn, you alone will bear it and pay the penalty. 
 
 
 
@@ -280,7 +280,7 @@ If you are wise, you are wise for yourself; if you scorn, you alone will bear it
 
 
 
-The foolish woman is noisy; she is simple _and_ open to all forms of evil, she [willfully and recklessly] knows nothing whatever [of eternal value]. 
+The foolish woman is noisy; she is simple and open to all forms of evil, she [willfully and recklessly] knows nothing whatever [of eternal value]. 
 
 
 
@@ -301,7 +301,7 @@ The foolish woman is noisy; she is simple _and_ open to all forms of evil, she [
 
 
 
-For she sits at the door of her house _or_ on a seat in the conspicuous places of the town, 
+For she sits at the door of her house or on a seat in the conspicuous places of the town, 
 
 
 

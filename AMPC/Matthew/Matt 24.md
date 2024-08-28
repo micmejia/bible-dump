@@ -28,7 +28,7 @@ next: ['Matt 25']
 
 
 
-Jesus departed from the temple area and was going on His way when His disciples came up to Him to call His attention to the buildings of the temple _and_ point them out to Him. 
+Jesus departed from the temple area and was going on His way when His disciples came up to Him to call His attention to the buildings of the temple and point them out to Him. 
 
 
 
@@ -133,7 +133,7 @@ For many will come in (on the strength of) My name [appropriating the name which
 
 
 
-And you will hear of wars and rumors of wars; see that you are not frightened _or_ troubled, for this must take place, but the end is not yet. 
+And you will hear of wars and rumors of wars; see that you are not frightened or troubled, for this must take place, but the end is not yet. 
 
 
 
@@ -196,7 +196,7 @@ All this is but the beginning [the early pains] of the birth pangs [of the intol
 
 
 
-Then they will hand you over to suffer affliction _and_ tribulation and put you to death, and you will be hated by all nations for My name's sake. 
+Then they will hand you over to suffer affliction and tribulation and put you to death, and you will be hated by all nations for My name's sake. 
 
 
 
@@ -217,7 +217,7 @@ Then they will hand you over to suffer affliction _and_ tribulation and put you 
 
 
 
-And then many will be offended _and_ repelled _and_ will begin to distrust _and_ desert [Him Whom they ought to trust and obey] _and_ will stumble and fall away and betray one another _and_ pursue one another with hatred. 
+And then many will be offended and repelled and will begin to distrust and desert [Him Whom they ought to trust and obey] and will stumble and fall away and betray one another and pursue one another with hatred. 
 
 
 
@@ -238,7 +238,7 @@ And then many will be offended _and_ repelled _and_ will begin to distrust _and_
 
 
 
-And many false prophets will rise up and deceive _and_ lead many into error. 
+And many false prophets will rise up and deceive and lead many into error. 
 
 
 
@@ -259,7 +259,7 @@ And many false prophets will rise up and deceive _and_ lead many into error.
 
 
 
-And the love of the great body of people will grow cold because of the multiplied lawlessness _and_ iniquity, 
+And the love of the great body of people will grow cold because of the multiplied lawlessness and iniquity, 
 
 
 
@@ -322,7 +322,7 @@ And this good news of the kingdom (the Gospel) will be preached throughout the w
 
 
 
-So when you see the appalling sacrilege [the abomination that astonishes and makes desolate], spoken of by the prophet Daniel, standing in the Holy Place--let the reader take notice _and_ ponder _and_ consider _and_ heed [this]-- 
+So when you see the appalling sacrilege [the abomination that astonishes and makes desolate], spoken of by the prophet Daniel, standing in the Holy Place--let the reader take notice and ponder and consider and heed [this]-- 
 
 
 
@@ -364,7 +364,7 @@ Then let those who are in Judea flee to the mountains;
 
 
 
-Let him who is on the housetop not come down _and_ go into the house to take anything; 
+Let him who is on the housetop not come down and go into the house to take anything; 
 
 
 
@@ -469,7 +469,7 @@ For then there will be great tribulation (affliction, distress, and oppression) 
 
 
 
-And if those days had not been shortened, no human being would endure _and_ survive, but for the sake of the elect (God's chosen ones) those days will be shortened. 
+And if those days had not been shortened, no human being would endure and survive, but for the sake of the elect (God's chosen ones) those days will be shortened. 
 
 
 
@@ -511,7 +511,7 @@ If anyone says to you then, Behold, here is the Christ (the Messiah)! or, There 
 
 
 
-For false Christs and false prophets will arise, and they will show great signs and wonders so as to deceive _and_ lead astray, if possible, even the elect (God's chosen ones). 
+For false Christs and false prophets will arise, and they will show great signs and wonders so as to deceive and lead astray, if possible, even the elect (God's chosen ones). 
 
 
 
@@ -553,7 +553,7 @@ See, I have warned you beforehand.
 
 
 
-So if they say to you, Behold, He is in the wilderness (desert)--do not go out there; if they tell you, Behold, He is in the secret places _or_ inner rooms--do not believe it. 
+So if they say to you, Behold, He is in the wilderness (desert)--do not go out there; if they tell you, Behold, He is in the secret places or inner rooms--do not believe it. 
 
 
 
@@ -574,7 +574,7 @@ So if they say to you, Behold, He is in the wilderness (desert)--do not go out t
 
 
 
-For just as the lightning flashes from the east and shines _and_ is seen as far as the west, so will the coming of the Son of Man be. 
+For just as the lightning flashes from the east and shines and is seen as far as the west, so will the coming of the Son of Man be. 
 
 
 
@@ -637,7 +637,7 @@ Immediately after the tribulation of those days the sun will be darkened, and th
 
 
 
-Then the sign of the Son of Man will appear in the sky, and then all the tribes of the earth will mourn _and_ beat their breasts _and_ lament in anguish, and they will see the Son of Man coming on the clouds of heaven with power and great glory [in brilliancy and splendor]. 
+Then the sign of the Son of Man will appear in the sky, and then all the tribes of the earth will mourn and beat their breasts and lament in anguish, and they will see the Son of Man coming on the clouds of heaven with power and great glory [in brilliancy and splendor]. 
 
 
 
@@ -826,7 +826,7 @@ For just as in those days before the flood they were eating and drinking, [men] 
 
 
 
-And they did not know _or_ understand until the flood came and swept them all away--so will be the coming of the Son of Man. 
+And they did not know or understand until the flood came and swept them all away--so will be the coming of the Son of Man. 
 
 
 
@@ -910,7 +910,7 @@ Watch therefore [give strict attention, be cautious and active], for you do not 
 
 
 
-But understand this: had the householder known in what [part of the night, whether in a night or a morning] watch the thief was coming, he would have watched and would not have allowed his house to be undermined _and_ broken into. 
+But understand this: had the householder known in what [part of the night, whether in a night or a morning] watch the thief was coming, he would have watched and would not have allowed his house to be undermined and broken into. 
 
 
 
@@ -952,7 +952,7 @@ You also must be ready therefore, for the Son of Man is coming at an hour when y
 
 
 
-Who then is the faithful, thoughtful, _and_ wise servant, whom his master has put in charge of his household to give to the others the food _and_ supplies at the proper time? 
+Who then is the faithful, thoughtful, and wise servant, whom his master has put in charge of his household to give to the others the food and supplies at the proper time? 
 
 
 
@@ -1015,7 +1015,7 @@ I solemnly declare to you, he will set him over all his possessions.
 
 
 
-But if that servant is wicked and says to himself, My master is delayed _and_ is going to be gone a long time, 
+But if that servant is wicked and says to himself, My master is delayed and is going to be gone a long time, 
 
 
 

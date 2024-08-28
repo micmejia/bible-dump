@@ -49,7 +49,7 @@ The mournful, inspired prediction (a burden to be lifted up) concerning the Dese
 
 
 
-A hard _and_ grievous vision is declared to me: the treacherous dealer deals treacherously, and the destroyer destroys. Go up, O Elam! Besiege, O Media! All the sighing [caused by Babylon's ruthless oppressions] I will cause to cease [says the Lord]. 
+A hard and grievous vision is declared to me: the treacherous dealer deals treacherously, and the destroyer destroys. Go up, O Elam! Besiege, O Media! All the sighing [caused by Babylon's ruthless oppressions] I will cause to cease [says the Lord]. 
 
 
 
@@ -70,7 +70,7 @@ A hard _and_ grievous vision is declared to me: the treacherous dealer deals tre
 
 
 
-Therefore are my [Isaiah's] loins filled with anguish, pangs have seized me like the pangs of a woman in childbirth; I am bent _and_ pained so that I cannot hear, I am dismayed so that I cannot see. 
+Therefore are my [Isaiah's] loins filled with anguish, pangs have seized me like the pangs of a woman in childbirth; I am bent and pained so that I cannot hear, I am dismayed so that I cannot see. 
 
 
 
@@ -91,7 +91,7 @@ Therefore are my [Isaiah's] loins filled with anguish, pangs have seized me like
 
 
 
-My mind reels _and_ wanders, horror terrifies me. [In my mind's eye I am at the feast of Belshazzar. I see the defilement of the golden vessels taken from God's temple, I watch the handwriting appear on the wall--I know that Babylon's great king is to be slain.] The twilight I looked forward to with pleasure has been turned into fear _and_ trembling for me. 
+My mind reels and wanders, horror terrifies me. [In my mind's eye I am at the feast of Belshazzar. I see the defilement of the golden vessels taken from God's temple, I watch the handwriting appear on the wall--I know that Babylon's great king is to be slain.] The twilight I looked forward to with pleasure has been turned into fear and trembling for me. 
 
 
 
@@ -196,7 +196,7 @@ And [the watchman] cried like a lion, O Lord, I stand continually on the watchto
 
 
 
-And see! Here comes a troop of men _and_ chariots, horsemen in pairs! And he [the watchman] tells [what it foretells]: Babylon has fallen, has fallen! And all the graven images of her gods lie shattered on the ground [in my vision]! 
+And see! Here comes a troop of men and chariots, horsemen in pairs! And he [the watchman] tells [what it foretells]: Babylon has fallen, has fallen! And all the graven images of her gods lie shattered on the ground [in my vision]! 
 
 
 
@@ -280,7 +280,7 @@ The watchman said, The morning comes, but also the night. [Another time, if Edom
 
 
 
-The mournful, inspired prediction (a burden to be lifted up) concerning Arabia: In the forests _and_ thickets of Arabia you shall lodge, O you caravans of Dedanites [from northern Arabia]. 
+The mournful, inspired prediction (a burden to be lifted up) concerning Arabia: In the forests and thickets of Arabia you shall lodge, O you caravans of Dedanites [from northern Arabia]. 
 
 
 
@@ -364,4 +364,4 @@ For the Lord has said this to me, Within a year, according to the years of a hir
 
 
 
-And the remainder of the number of archers _and_ their bows, the mighty men of the sons of Kedar, will be diminished _and_ few; for the Lord, the God of Israel, has spoken it.
+And the remainder of the number of archers and their bows, the mighty men of the sons of Kedar, will be diminished and few; for the Lord, the God of Israel, has spoken it.

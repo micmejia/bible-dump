@@ -91,7 +91,7 @@ Israel has rejected the good [with loathing]; the enemy shall pursue him.
 
 
 
-They set up kings, but not from Me [therefore without My blessing]; they have made princes or removed them [without consulting Me; therefore], I knew _and_ recognized [them] not. With their silver and their gold they made idols for themselves, that they [the silver and the gold] may be destroyed. 
+They set up kings, but not from Me [therefore without My blessing]; they have made princes or removed them [without consulting Me; therefore], I knew and recognized [them] not. With their silver and their gold they made idols for themselves, that they [the silver and the gold] may be destroyed. 
 
 
 
@@ -112,7 +112,7 @@ They set up kings, but not from Me [therefore without My blessing]; they have ma
 
 
 
-Your calf [idol], O Samaria, is loathsome _and_ I have spurned it. My wrath burns against them. How long will it be before they attain purity? 
+Your calf [idol], O Samaria, is loathsome and I have spurned it. My wrath burns against them. How long will it be before they attain purity? 
 
 
 
@@ -133,7 +133,7 @@ Your calf [idol], O Samaria, is loathsome _and_ I have spurned it. My wrath burn
 
 
 
-For this [calf] too is from Israel; a craftsman made it; therefore it is not God. The calf of Samaria shall be broken to shivers _and_ go up in flames. 
+For this [calf] too is from Israel; a craftsman made it; therefore it is not God. The calf of Samaria shall be broken to shivers and go up in flames. 
 
 
 
@@ -154,7 +154,7 @@ For this [calf] too is from Israel; a craftsman made it; therefore it is not God
 
 
 
-For they sow the wind and they shall reap the whirlwind. The standing grain has no heads; it shall yield no meal; if it were to yield, strangers _and_ aliens would eat it up. 
+For they sow the wind and they shall reap the whirlwind. The standing grain has no heads; it shall yield no meal; if it were to yield, strangers and aliens would eat it up. 
 
 
 
@@ -217,7 +217,7 @@ For they are gone up to Assyria, a wild ass taking her own way by herself; Ephra
 
 
 
-Yes, though with presents they hire [allies] among the nations, now will I gather them up, and in a little while they will sorrow _and_ begin to diminish [their gifts] because of the burden (tribute) imposed by the king of princes [the king of Assyria]. 
+Yes, though with presents they hire [allies] among the nations, now will I gather them up, and in a little while they will sorrow and begin to diminish [their gifts] because of the burden (tribute) imposed by the king of princes [the king of Assyria]. 
 
 
 
@@ -280,7 +280,7 @@ I wrote for him the ten thousand things of My law, but they are counted as a str
 
 
 
-My sacrificial gifts they sacrifice [as a mere form]; yes, they sacrifice flesh and eat it, but the Lord does not accept them. Now He will [earnestly] remember their guilt _and_ iniquity and will punish their sins. They shall return to [another] Egypt [Assyria]. 
+My sacrificial gifts they sacrifice [as a mere form]; yes, they sacrifice flesh and eat it, but the Lord does not accept them. Now He will [earnestly] remember their guilt and iniquity and will punish their sins. They shall return to [another] Egypt [Assyria]. 
 
 
 
@@ -301,4 +301,4 @@ My sacrificial gifts they sacrifice [as a mere form]; yes, they sacrifice flesh 
 
 
 
-For Israel has forgotten his Maker and built palaces _and_ idol temples, and Judah has multiplied fortified cities; but I will send a fire upon his cities and it shall devour his palaces _and_ fortified buildings.
+For Israel has forgotten his Maker and built palaces and idol temples, and Judah has multiplied fortified cities; but I will send a fire upon his cities and it shall devour his palaces and fortified buildings.

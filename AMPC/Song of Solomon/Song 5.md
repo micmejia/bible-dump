@@ -28,7 +28,7 @@ next: ['Song 6']
 
 
 
-I have come into my garden, my sister, my [promised] bride; I have gathered my myrrh with my balsam _and_ spice [from your sweet words I have gathered the richest perfumes and spices]. I have eaten my honeycomb with my honey; I have drunk my wine with my milk. Eat, O friends [feast on, O revelers of the palace; you can never make my lover disloyal to me]! Drink, yes, drink abundantly of love, O precious one [for now I know you are mine, irrevocably mine! With his confident words still thrilling her heart, through the lattice she saw her shepherd turn away and disappear into the night]. 
+I have come into my garden, my sister, my [promised] bride; I have gathered my myrrh with my balsam and spice [from your sweet words I have gathered the richest perfumes and spices]. I have eaten my honeycomb with my honey; I have drunk my wine with my milk. Eat, O friends [feast on, O revelers of the palace; you can never make my lover disloyal to me]! Drink, yes, drink abundantly of love, O precious one [for now I know you are mine, irrevocably mine! With his confident words still thrilling her heart, through the lattice she saw her shepherd turn away and disappear into the night]. 
 
 
 
@@ -133,7 +133,7 @@ I rose up to open for my beloved, and my hands dripped with myrrh, and my finger
 
 
 
-I opened for my beloved, but my beloved had turned away _and_ withdrawn himself, and was gone! My soul went forth [to him] when he spoke, but it failed me [and now he was gone]! I sought him, but I could not find him; I called him, but he gave me no answer. 
+I opened for my beloved, but my beloved had turned away and withdrawn himself, and was gone! My soul went forth [to him] when he spoke, but it failed me [and now he was gone]! I sought him, but I could not find him; I called him, but he gave me no answer. 
 
 
 
@@ -154,7 +154,7 @@ I opened for my beloved, but my beloved had turned away _and_ withdrawn himself,
 
 
 
-The watchmen who go about the city found me. They struck me, they wounded me; the keepers of the walls took my veil _and_ my mantle from me. 
+The watchmen who go about the city found me. They struck me, they wounded me; the keepers of the walls took my veil and my mantle from me. 
 
 
 
@@ -238,7 +238,7 @@ What is your beloved more than another beloved, O you fairest among women [taunt
 
 
 
-His head is [as precious as] the finest gold; his locks are curly _and_ bushy and black as a raven. 
+His head is [as precious as] the finest gold; his locks are curly and bushy and black as a raven. 
 
 
 
@@ -259,7 +259,7 @@ His head is [as precious as] the finest gold; his locks are curly _and_ bushy an
 
 
 
-His eyes are like doves beside the water brooks, bathed in milk _and_ fitly set. 
+His eyes are like doves beside the water brooks, bathed in milk and fitly set. 
 
 
 
@@ -280,7 +280,7 @@ His eyes are like doves beside the water brooks, bathed in milk _and_ fitly set.
 
 
 
-His cheeks are like a bed of spices _or_ balsam, like banks of sweet herbs yielding fragrance. His lips are like bloodred anemones or lilies distilling liquid [sweet-scented] myrrh. 
+His cheeks are like a bed of spices or balsam, like banks of sweet herbs yielding fragrance. His lips are like bloodred anemones or lilies distilling liquid [sweet-scented] myrrh. 
 
 
 
@@ -301,7 +301,7 @@ His cheeks are like a bed of spices _or_ balsam, like banks of sweet herbs yield
 
 
 
-His hands are like rods of gold set with [nails of] beryl _or_ topaz. His body is a figure of bright ivory overlaid with [veins of] sapphires. 
+His hands are like rods of gold set with [nails of] beryl or topaz. His body is a figure of bright ivory overlaid with [veins of] sapphires. 
 
 
 
@@ -322,7 +322,7 @@ His hands are like rods of gold set with [nails of] beryl _or_ topaz. His body i
 
 
 
-His legs are like strong and steady pillars of marble set upon bases of fine gold. His appearance is like Lebanon, excellent, stately, _and_ majestic as the cedars. 
+His legs are like strong and steady pillars of marble set upon bases of fine gold. His appearance is like Lebanon, excellent, stately, and majestic as the cedars. 
 
 
 
@@ -343,4 +343,4 @@ His legs are like strong and steady pillars of marble set upon bases of fine gol
 
 
 
-His voice _and_ speech are exceedingly sweet; yes, he is altogether lovely [the whole of him delights and is precious]. This is my beloved, and this is my friend, O daughters of Jerusalem!
+His voice and speech are exceedingly sweet; yes, he is altogether lovely [the whole of him delights and is precious]. This is my beloved, and this is my friend, O daughters of Jerusalem!

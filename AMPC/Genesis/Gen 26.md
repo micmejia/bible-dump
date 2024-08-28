@@ -91,7 +91,7 @@ Dwell temporarily in this land, and I will be with you and will favor you with b
 
 
 
-And I will make your descendants to multiply as the stars of the heavens, and will give to your posterity all these lands (kingdoms); and by your Offspring shall all the nations of the earth be blessed, _or_ by Him bless themselves, 
+And I will make your descendants to multiply as the stars of the heavens, and will give to your posterity all these lands (kingdoms); and by your Offspring shall all the nations of the earth be blessed, or by Him bless themselves, 
 
 
 
@@ -112,7 +112,7 @@ And I will make your descendants to multiply as the stars of the heavens, and wi
 
 
 
-For Abraham listened to _and_ obeyed My voice and kept My charge, My commands, My statutes, and My laws. 
+For Abraham listened to and obeyed My voice and kept My charge, My commands, My statutes, and My laws. 
 
 
 
@@ -154,7 +154,7 @@ So Isaac stayed in Gerar.
 
 
 
-And the men of the place asked him about his wife, and he said, She is my sister; for he was afraid to say, She is my wife--[thinking], Lest the men of the place should kill me for Rebekah, because she is attractive _and_ is beautiful to look upon. 
+And the men of the place asked him about his wife, and he said, She is my sister; for he was afraid to say, She is my wife--[thinking], Lest the men of the place should kill me for Rebekah, because she is attractive and is beautiful to look upon. 
 
 
 
@@ -217,7 +217,7 @@ And Abimelech called Isaac and said, See here, she is certainly your wife! How d
 
 
 
-And Abimelech said, What is this you have done to us? One of the men might easily have lain with your wife, and you would have brought guilt _and_ sin upon us. 
+And Abimelech said, What is this you have done to us? One of the men might easily have lain with your wife, and you would have brought guilt and sin upon us. 
 
 
 
@@ -280,7 +280,7 @@ Then Isaac sowed seed in that land and received in the same year a hundred times
 
 
 
-And the man became great and gained more and more until he became very wealthy _and_ distinguished; 
+And the man became great and gained more and more until he became very wealthy and distinguished; 
 
 
 
@@ -616,7 +616,7 @@ They said, We saw that the Lord was certainly with you; so we said, Let there be
 
 
 
-That you will do us no harm, inasmuch as we have not touched you and have done to you nothing but good and have sent you away in peace. You are now the blessed _or_ favored of the Lord! 
+That you will do us no harm, inasmuch as we have not touched you and have done to you nothing but good and have sent you away in peace. You are now the blessed or favored of the Lord! 
 
 
 
@@ -742,4 +742,4 @@ Now Esau was 40 years old when he took as wife Judith the daughter of Beeri the 
 
 
 
-And they made life bitter _and_ a grief of mind _and_ spirit for Isaac and Rebekah [their parents-in-law].
+And they made life bitter and a grief of mind and spirit for Isaac and Rebekah [their parents-in-law].

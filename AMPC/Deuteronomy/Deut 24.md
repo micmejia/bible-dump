@@ -154,7 +154,7 @@ No man shall take a mill or an upper millstone in pledge, for he would be taking
 
 
 
-If a man is found kidnapping any of his brethren of the Israelites and treats him as a slave _or_ a servant or sells him, then that thief shall die. So you shall put evil from among you. 
+If a man is found kidnapping any of his brethren of the Israelites and treats him as a slave or a servant or sells him, then that thief shall die. So you shall put evil from among you. 
 
 
 
@@ -301,7 +301,7 @@ You shall surely restore to him the pledge at sunset, that he may sleep in his g
 
 
 
-You shall not oppress _or_ extort from a hired servant who is poor and needy, whether he is of your brethren or of your strangers _and_ sojourners who are in your land inside your towns. 
+You shall not oppress or extort from a hired servant who is poor and needy, whether he is of your brethren or of your strangers and sojourners who are in your land inside your towns. 
 
 
 
@@ -364,7 +364,7 @@ The fathers shall not be put to death for the children, neither shall the childr
 
 
 
-You shall not pervert the justice due the stranger _or_ the sojourner or the fatherless, or take a widow's garment in pledge. 
+You shall not pervert the justice due the stranger or the sojourner or the fatherless, or take a widow's garment in pledge. 
 
 
 
@@ -406,7 +406,7 @@ But you shall [earnestly] remember that you were a slave in Egypt and the Lord y
 
 
 
-When you reap your harvest in your field and have forgotten a sheaf in the field, you shall not go back to get it; it shall be for the stranger _and_ the sojourner, the fatherless, and the widow, that the Lord your God may bless you in all the work of your hands. 
+When you reap your harvest in your field and have forgotten a sheaf in the field, you shall not go back to get it; it shall be for the stranger and the sojourner, the fatherless, and the widow, that the Lord your God may bless you in all the work of your hands. 
 
 
 
@@ -427,7 +427,7 @@ When you reap your harvest in your field and have forgotten a sheaf in the field
 
 
 
-When you beat your olive tree, do not go over the boughs again; the leavings shall be for the stranger _and_ the sojourner, the fatherless, and the widow. 
+When you beat your olive tree, do not go over the boughs again; the leavings shall be for the stranger and the sojourner, the fatherless, and the widow. 
 
 
 
@@ -448,7 +448,7 @@ When you beat your olive tree, do not go over the boughs again; the leavings sha
 
 
 
-When you gather the grapes of your vineyard, you shall not glean it afterward; it shall be for the stranger _and_ the sojourner, the fatherless, and the widow. 
+When you gather the grapes of your vineyard, you shall not glean it afterward; it shall be for the stranger and the sojourner, the fatherless, and the widow. 
 
 
 

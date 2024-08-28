@@ -27,7 +27,7 @@ up: ['Romans']
 
 
 
-Now I introduce _and_ commend to you our sister Phoebe, a deaconess of the church at Cenchreae, 
+Now I introduce and commend to you our sister Phoebe, a deaconess of the church at Cenchreae, 
 
 
 
@@ -216,7 +216,7 @@ Salute Urbanus, our fellow worker in Christ, and my dear Stachys.
 
 
 
-Greet Apelles, that one tried _and_ approved in Christ (the Messiah). Remember me to those who belong to the household of Aristobulus. 
+Greet Apelles, that one tried and approved in Christ (the Messiah). Remember me to those who belong to the household of Aristobulus. 
 
 
 
@@ -363,7 +363,7 @@ Greet one another with a holy (consecrated) kiss. All the churches of Christ (th
 
 
 
-I appeal to you, brethren, to be on your guard concerning those who create dissensions and difficulties _and_ cause divisions, in opposition to the doctrine (the teaching) which you have been taught. [I warn you to turn aside from them, to] avoid them. 
+I appeal to you, brethren, to be on your guard concerning those who create dissensions and difficulties and cause divisions, in opposition to the doctrine (the teaching) which you have been taught. [I warn you to turn aside from them, to] avoid them. 
 
 
 
@@ -384,7 +384,7 @@ I appeal to you, brethren, to be on your guard concerning those who create disse
 
 
 
-For such persons do not serve our Lord Christ but their own appetites _and_ base desires, and by ingratiating and flattering speech, they beguile the hearts of the unsuspecting _and_ simpleminded [people]. 
+For such persons do not serve our Lord Christ but their own appetites and base desires, and by ingratiating and flattering speech, they beguile the hearts of the unsuspecting and simpleminded [people]. 
 
 
 
@@ -405,7 +405,7 @@ For such persons do not serve our Lord Christ but their own appetites _and_ base
 
 
 
-For while your loyalty _and_ obedience is known to all, so that I rejoice over you, I would have you well versed _and_ wise as to what is good and innocent _and_ guileless as to what is evil. 
+For while your loyalty and obedience is known to all, so that I rejoice over you, I would have you well versed and wise as to what is good and innocent and guileless as to what is evil. 
 
 
 
@@ -510,7 +510,7 @@ Gaius, who is host to me and to the whole church here, greets you. So do Erastus
 
 
 
-_The grace of our Lord Jesus Christ (the Messiah) be with you all. Amen (so be it)._ 
+The grace of our Lord Jesus Christ (the Messiah) be with you all. Amen (so be it). 
 
 
 
@@ -531,7 +531,7 @@ _The grace of our Lord Jesus Christ (the Messiah) be with you all. Amen (so be i
 
 
 
-Now to Him Who is able to strengthen you in the faith which is in accordance with my Gospel and the preaching of (concerning) Jesus Christ (the Messiah), according to the revelation (the unveiling) of the mystery of the plan of redemption which was kept in silence _and_ secret for long ages, 
+Now to Him Who is able to strengthen you in the faith which is in accordance with my Gospel and the preaching of (concerning) Jesus Christ (the Messiah), according to the revelation (the unveiling) of the mystery of the plan of redemption which was kept in silence and secret for long ages, 
 
 
 

@@ -196,7 +196,7 @@ How can I curse those God has not cursed? Or how can I [violently] denounce thos
 
 
 
-For from the top of the rocks I see Israel, and from the hills I behold him. Behold, the people [of Israel] shall dwell alone and shall not be reckoned _and_ esteemed among the nations. 
+For from the top of the rocks I see Israel, and from the hills I behold him. Behold, the people [of Israel] shall dwell alone and shall not be reckoned and esteemed among the nations. 
 
 
 
@@ -259,7 +259,7 @@ And Balak said to Balaam, What have you done to me? I brought you to curse my en
 
 
 
-And Balaam answered, Must I not be obedient _and_ speak what the Lord has put in my mouth? 
+And Balaam answered, Must I not be obedient and speak what the Lord has put in my mouth? 
 
 
 
@@ -406,7 +406,7 @@ Balaam took up his [figurative] discourse and said: Rise up, Balak, and hear; li
 
 
 
-God is not a man, that He should tell _or_ act a lie, neither the son of man, that He should feel repentance _or_ compunction [for what He has promised]. Has He said and shall He not do it? Or has He spoken and shall He not make it good? 
+God is not a man, that He should tell or act a lie, neither the son of man, that He should feel repentance or compunction [for what He has promised]. Has He said and shall He not do it? Or has He spoken and shall He not make it good? 
 
 
 
@@ -427,7 +427,7 @@ God is not a man, that He should tell _or_ act a lie, neither the son of man, th
 
 
 
-You see, I have received His command to bless Israel. He has blessed, and I cannot reverse _or_ qualify it. 
+You see, I have received His command to bless Israel. He has blessed, and I cannot reverse or qualify it. 
 
 
 
@@ -448,7 +448,7 @@ You see, I have received His command to bless Israel. He has blessed, and I cann
 
 
 
-[God] has not beheld iniquity in Jacob [for he is forgiven], neither has He seen mischief _or_ perverseness in Israel [for the same reason]. The Lord their God is with Israel, and the shout of praise to their King is among the people. 
+[God] has not beheld iniquity in Jacob [for he is forgiven], neither has He seen mischief or perverseness in Israel [for the same reason]. The Lord their God is with Israel, and the shout of praise to their King is among the people. 
 
 
 
@@ -490,7 +490,7 @@ God brought them forth out of Egypt; they have as it were the strength of a wild
 
 
 
-Surely there is no enchantment with _or_ against Jacob, neither is there any divination with _or_ against Israel. [In due season and even] now it shall be said of Jacob and of Israel, What has God wrought! 
+Surely there is no enchantment with or against Jacob, neither is there any divination with or against Israel. [In due season and even] now it shall be said of Jacob and of Israel, What has God wrought! 
 
 
 

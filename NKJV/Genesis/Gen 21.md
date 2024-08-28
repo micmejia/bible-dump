@@ -25,10 +25,10 @@ Then Abraham circumcised his son Isaac when he was eight days old, as God had co
 Now Abraham was one hundred years old when his son Isaac was born to him. 
 
 ###### 6 
-And Sarah said, "God has made me laugh, _and_ all who hear will laugh with me." 
+And Sarah said, "God has made me laugh, and all who hear will laugh with me." 
 
 ###### 7 
-She also said, "Who would have said to Abraham that Sarah would nurse children? For I have borne _him_ a son in his old age." 
+She also said, "Who would have said to Abraham that Sarah would nurse children? For I have borne him a son in his old age." 
 
 ## Hagar and Ishmael Depart 
 
@@ -39,7 +39,7 @@ So the child grew and was weaned. And Abraham made a great feast on the same day
 And Sarah saw the son of Hagar the Egyptian, whom she had borne to Abraham, scoffing. 
 
 ###### 10 
-Therefore she said to Abraham, "Cast out this bondwoman and her son; for the son of this bondwoman shall not be heir with my son, _namely_ with Isaac." 
+Therefore she said to Abraham, "Cast out this bondwoman and her son; for the son of this bondwoman shall not be heir with my son, namely with Isaac." 
 
 ###### 11 
 And the matter was very displeasing in Abraham's sight because of his son. 
@@ -48,19 +48,19 @@ And the matter was very displeasing in Abraham's sight because of his son.
 But God said to Abraham, "Do not let it be displeasing in your sight because of the lad or because of your bondwoman. Whatever Sarah has said to you, listen to her voice; for in Isaac your seed shall be called. 
 
 ###### 13 
-Yet I will also make a nation of the son of the bondwoman, because he _is_ your seed." 
+Yet I will also make a nation of the son of the bondwoman, because he is your seed." 
 
 ###### 14 
-So Abraham rose early in the morning, and took bread and a skin of water; and putting _it_ on her shoulder, he gave _it_ and the boy to Hagar, and sent her away. Then she departed and wandered in the Wilderness of Beersheba. 
+So Abraham rose early in the morning, and took bread and a skin of water; and putting it on her shoulder, he gave it and the boy to Hagar, and sent her away. Then she departed and wandered in the Wilderness of Beersheba. 
 
 ###### 15 
 And the water in the skin was used up, and she placed the boy under one of the shrubs. 
 
 ###### 16 
-Then she went and sat down across from _him_ at a distance of about a bowshot; for she said to herself, "Let me not see the death of the boy." So she sat opposite _him,_ and lifted her voice and wept. 
+Then she went and sat down across from him at a distance of about a bowshot; for she said to herself, "Let me not see the death of the boy." So she sat opposite him, and lifted her voice and wept. 
 
 ###### 17 
-And God heard the voice of the lad. Then the angel of God called to Hagar out of heaven, and said to her, "What ails you, Hagar? Fear not, for God has heard the voice of the lad where he _is._ 
+And God heard the voice of the lad. Then the angel of God called to Hagar out of heaven, and said to her, "What ails you, Hagar? Fear not, for God has heard the voice of the lad where he is. 
 
 ###### 18 
 Arise, lift up the lad and hold him with your hand, for I will make him a great nation." 
@@ -77,7 +77,7 @@ He dwelt in the Wilderness of Paran; and his mother took a wife for him from the
 ## A Covenant with Abimelech 
 
 ###### 22 
-And it came to pass at that time that Abimelech and Phichol, the commander of his army, spoke to Abraham, saying, "God _is_ with you in all that you do. 
+And it came to pass at that time that Abimelech and Phichol, the commander of his army, spoke to Abraham, saying, "God is with you in all that you do. 
 
 ###### 23 
 Now therefore, swear to me by God that you will not deal falsely with me, with my offspring, or with my posterity; but that according to the kindness that I have done to you, you will do to me and to the land in which you have dwelt." 
@@ -89,7 +89,7 @@ And Abraham said, "I will swear."
 Then Abraham rebuked Abimelech because of a well of water which Abimelech's servants had seized. 
 
 ###### 26 
-And Abimelech said, "I do not know who has done this thing; you did not tell me, nor had I heard _of it_ until today." 
+And Abimelech said, "I do not know who has done this thing; you did not tell me, nor had I heard of it until today." 
 
 ###### 27 
 So Abraham took sheep and oxen and gave them to Abimelech, and the two of them made a covenant. 
@@ -98,10 +98,10 @@ So Abraham took sheep and oxen and gave them to Abimelech, and the two of them m
 And Abraham set seven ewe lambs of the flock by themselves. 
 
 ###### 29 
-Then Abimelech asked Abraham, "What _is the meaning of_ these seven ewe lambs which you have set by themselves?" 
+Then Abimelech asked Abraham, "What is the meaning of these seven ewe lambs which you have set by themselves?" 
 
 ###### 30 
-And he said, "You will take _these_ seven ewe lambs from my hand, that they may be my witness that I have dug this well." 
+And he said, "You will take these seven ewe lambs from my hand, that they may be my witness that I have dug this well." 
 
 ###### 31 
 Therefore he called that place Beersheba, because the two of them swore an oath there. 
@@ -110,7 +110,7 @@ Therefore he called that place Beersheba, because the two of them swore an oath 
 Thus they made a covenant at Beersheba. So Abimelech rose with Phichol, the commander of his army, and they returned to the land of the Philistines. 
 
 ###### 33 
-Then _Abraham_ planted a tamarisk tree in Beersheba, and there called on the name of the Lord, the Everlasting God. 
+Then Abraham planted a tamarisk tree in Beersheba, and there called on the name of the Lord, the Everlasting God. 
 
 ###### 34 
 And Abraham stayed in the land of the Philistines many days.

@@ -28,7 +28,7 @@ next: ['Mark 10']
 
 
 
-And Jesus said to them, Truly _and_ solemnly I say to you, there are some standing here who will in no way taste death before they see the kingdom of God come in [its] power. 
+And Jesus said to them, Truly and solemnly I say to you, there are some standing here who will in no way taste death before they see the kingdom of God come in [its] power. 
 
 
 
@@ -49,7 +49,7 @@ And Jesus said to them, Truly _and_ solemnly I say to you, there are some standi
 
 
 
-Six days after this, Jesus took with Him Peter and James and John and led them up on a high mountain apart by themselves. And He was transfigured before them _and_ became resplendent with divine brightness. 
+Six days after this, Jesus took with Him Peter and James and John and led them up on a high mountain apart by themselves. And He was transfigured before them and became resplendent with divine brightness. 
 
 
 
@@ -112,7 +112,7 @@ And Elijah appeared [there] to them, accompanied by Moses, and they were holding
 
 
 
-And Peter took up the conversation, saying, Master, it is good _and_ suitable _and_ beautiful for us to be here. Let us make three booths (tents)--one for You and one for Moses and one for Elijah. 
+And Peter took up the conversation, saying, Master, it is good and suitable and beautiful for us to be here. Let us make three booths (tents)--one for You and one for Moses and one for Elijah. 
 
 
 
@@ -154,7 +154,7 @@ For he did not [really] know what to say, for they were in a violent fright (agh
 
 
 
-And a cloud threw a shadow upon them, and a voice came out of the cloud, saying, This is My Son, the [most dearworthy] Beloved One. Be constantly listening to _and_ obeying Him! 
+And a cloud threw a shadow upon them, and a voice came out of the cloud, saying, This is My Son, the [most dearworthy] Beloved One. Be constantly listening to and obeying Him! 
 
 
 
@@ -196,7 +196,7 @@ And looking around, they suddenly no longer saw anyone with them except Jesus on
 
 
 
-And as they were coming back down the mountain, He admonished _and_ expressly ordered them to tell no one what they had seen until the Son of Man should rise from among the dead. 
+And as they were coming back down the mountain, He admonished and expressly ordered them to tell no one what they had seen until the Son of Man should rise from among the dead. 
 
 
 
@@ -217,7 +217,7 @@ And as they were coming back down the mountain, He admonished _and_ expressly or
 
 
 
-So they carefully _and_ faithfully kept the matter to themselves, questioning _and_ disputing with one another about what rising from among the dead meant. 
+So they carefully and faithfully kept the matter to themselves, questioning and disputing with one another about what rising from among the dead meant. 
 
 
 
@@ -259,7 +259,7 @@ And they asked Him, Why do the scribes say that it is necessary for Elijah to co
 
 
 
-And He said to them, Elijah, it is true, does come first to restore all things _and_ set them to rights. And how is it written of the Son of Man that He will suffer many things _and_ be utterly despised _and_ be treated with contempt _and_ rejected? 
+And He said to them, Elijah, it is true, does come first to restore all things and set them to rights. And how is it written of the Son of Man that He will suffer many things and be utterly despised and be treated with contempt and rejected? 
 
 
 
@@ -301,7 +301,7 @@ But I tell you that Elijah has already come, and [people] did to him whatever th
 
 
 
-And when they came to the [nine] disciples, they saw a great crowd around them and scribes questioning _and_ disputing with them. 
+And when they came to the [nine] disciples, they saw a great crowd around them and scribes questioning and disputing with them. 
 
 
 
@@ -343,7 +343,7 @@ And immediately all the crowd, when they saw Jesus [returning from the holy moun
 
 
 
-And He asked them, About what are you questioning _and_ discussing with them? 
+And He asked them, About what are you questioning and discussing with them? 
 
 
 
@@ -385,7 +385,7 @@ And one of the throng replied to Him, Teacher, I brought my son to You, for he h
 
 
 
-And wherever it lays hold of him [so as to make him its own], it dashes him down _and_ convulses him, and he foams [at the mouth] and grinds his teeth, _and_ he [falls into a motionless stupor and] is wasting away. And I asked Your disciples to drive it out, and they were not able [to do it]. 
+And wherever it lays hold of him [so as to make him its own], it dashes him down and convulses him, and he foams [at the mouth] and grinds his teeth, and he [falls into a motionless stupor and] is wasting away. And I asked Your disciples to drive it out, and they were not able [to do it]. 
 
 
 
@@ -511,7 +511,7 @@ And Jesus said, [You say to Me], If You can do anything? [Why,] all things can b
 
 
 
-At once the father of the boy gave [an eager, piercing, inarticulate] cry _with tears_, and he said, Lord, I believe! [Constantly] help my weakness of faith! 
+At once the father of the boy gave [an eager, piercing, inarticulate] cry with tears, and he said, Lord, I believe! [Constantly] help my weakness of faith! 
 
 
 
@@ -616,7 +616,7 @@ And when He had gone indoors, His disciples asked Him privately, Why could not w
 
 
 
-And He replied to them, This kind cannot be driven out by anything but prayer _and fasting_. 
+And He replied to them, This kind cannot be driven out by anything but prayer and fasting. 
 
 
 
@@ -700,7 +700,7 @@ But they did not comprehend what He was saying, and they were afraid to ask Him 
 
 
 
-And they arrived at Capernaum; and when [they were] in the house, He asked them, What were you discussing _and_ arguing about on the road? 
+And they arrived at Capernaum; and when [they were] in the house, He asked them, What were you discussing and arguing about on the road? 
 
 
 
@@ -721,7 +721,7 @@ And they arrived at Capernaum; and when [they were] in the house, He asked them,
 
 
 
-But they kept still, for on the road they had discussed _and_ disputed with one another as to who was the greatest. 
+But they kept still, for on the road they had discussed and disputed with one another as to who was the greatest. 
 
 
 
@@ -784,7 +784,7 @@ And He took a little child and put him in the center of their group; and taking 
 
 
 
-Whoever in My name _and_ for My sake accepts _and_ receives _and_ welcomes one such child also accepts _and_ receives _and_ welcomes Me; and whoever so receives Me receives not only Me but Him Who sent Me. 
+Whoever in My name and for My sake accepts and receives and welcomes one such child also accepts and receives and welcomes Me; and whoever so receives Me receives not only Me but Him Who sent Me. 
 
 
 
@@ -826,7 +826,7 @@ John said to Him, Teacher, we saw a man who does not follow along with us drivin
 
 
 
-But Jesus said, Do not restrain _or_ hinder _or_ forbid him; for no one who does a mighty work in My name will soon afterward be able to speak evil of Me. 
+But Jesus said, Do not restrain or hinder or forbid him; for no one who does a mighty work in My name will soon afterward be able to speak evil of Me. 
 
 
 
@@ -868,7 +868,7 @@ For he who is not against us is for us.
 
 
 
-For I tell you truly, whoever gives you a cup of water to drink because you belong to _and_ bear the name of Christ will by no means fail to get his reward. 
+For I tell you truly, whoever gives you a cup of water to drink because you belong to and bear the name of Christ will by no means fail to get his reward. 
 
 
 
@@ -889,7 +889,7 @@ For I tell you truly, whoever gives you a cup of water to drink because you belo
 
 
 
-And whoever causes one of these little ones (these believers) who acknowledge _and_ cleave to Me to stumble _and_ sin, it would be better (more profitable and wholesome) for him if a [huge] millstone were hung about his neck, and he were thrown into the sea. 
+And whoever causes one of these little ones (these believers) who acknowledge and cleave to Me to stumble and sin, it would be better (more profitable and wholesome) for him if a [huge] millstone were hung about his neck, and he were thrown into the sea. 
 
 
 
@@ -910,7 +910,7 @@ And whoever causes one of these little ones (these believers) who acknowledge _a
 
 
 
-And if your hand puts a stumbling block before you _and_ causes you to sin, cut it off! It is more profitable _and_ wholesome for you to go into life [that is really worthwhile] maimed than with two hands to go to hell (Gehenna), into the fire that cannot be put out. 
+And if your hand puts a stumbling block before you and causes you to sin, cut it off! It is more profitable and wholesome for you to go into life [that is really worthwhile] maimed than with two hands to go to hell (Gehenna), into the fire that cannot be put out. 
 
 
 
@@ -931,7 +931,7 @@ And if your hand puts a stumbling block before you _and_ causes you to sin, cut 
 
 
 
-And if your foot is a cause of stumbling _and_ sin to you, cut it off! It is more profitable _and_ wholesome for you to enter into life [that is really worthwhile] crippled than, having two feet, to be cast into hell (Gehenna). 
+And if your foot is a cause of stumbling and sin to you, cut it off! It is more profitable and wholesome for you to enter into life [that is really worthwhile] crippled than, having two feet, to be cast into hell (Gehenna). 
 
 
 
@@ -952,7 +952,7 @@ And if your foot is a cause of stumbling _and_ sin to you, cut it off! It is mor
 
 
 
-And if your eye causes you to stumble _and_ sin, pluck it out! It is more profitable _and_ wholesome for you to enter the kingdom of God with one eye than with two eyes to be thrown into hell (Gehenna), 
+And if your eye causes you to stumble and sin, pluck it out! It is more profitable and wholesome for you to enter the kingdom of God with one eye than with two eyes to be thrown into hell (Gehenna), 
 
 
 
@@ -1015,4 +1015,4 @@ For everyone shall be salted with fire.
 
 
 
-Salt is good (beneficial), but if salt has lost its saltness, how will you restore [the saltness to] it? Have salt within yourselves, and be at peace _and_ live in harmony with one another.
+Salt is good (beneficial), but if salt has lost its saltness, how will you restore [the saltness to] it? Have salt within yourselves, and be at peace and live in harmony with one another.

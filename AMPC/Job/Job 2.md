@@ -70,7 +70,7 @@ And the Lord said to Satan, From where do you come? And Satan (the adversary and
 
 
 
-And the Lord said to Satan, Have you considered My servant Job, that there is none like him on the earth, a blameless and upright man, one who [reverently] fears God and abstains from _and_ shuns all evil [because it is wrong]? And still he holds fast his integrity, although you moved Me against him to destroy him without cause. 
+And the Lord said to Satan, Have you considered My servant Job, that there is none like him on the earth, a blameless and upright man, one who [reverently] fears God and abstains from and shuns all evil [because it is wrong]? And still he holds fast his integrity, although you moved Me against him to destroy him without cause. 
 
 
 
@@ -112,7 +112,7 @@ Then Satan answered the Lord, Skin for skin! Yes, all that a man has will he giv
 
 
 
-But put forth Your hand now, and touch his bone and his flesh, and he will curse _and_ renounce You to Your face. 
+But put forth Your hand now, and touch his bone and his flesh, and he will curse and renounce You to Your face. 
 
 
 
@@ -154,7 +154,7 @@ And the Lord said to Satan, Behold, he is in your hand; only spare his life.
 
 
 
-So Satan went forth from the presence of the Lord and smote Job with loathsome _and_ painful sores from the sole of his foot to the crown of his head. 
+So Satan went forth from the presence of the Lord and smote Job with loathsome and painful sores from the sole of his foot to the crown of his head. 
 
 
 
@@ -217,7 +217,7 @@ Then his wife said to him, Do you still hold fast your blameless uprightness? Re
 
 
 
-But he said to her, You speak as one of the impious _and_ foolish women would speak. What? Shall we accept [only] good at the hand of God and shall we not accept [also] misfortune _and_ what is of a bad nature? In [spite of] all this, Job did not sin with his lips. 
+But he said to her, You speak as one of the impious and foolish women would speak. What? Shall we accept [only] good at the hand of God and shall we not accept [also] misfortune and what is of a bad nature? In [spite of] all this, Job did not sin with his lips. 
 
 
 
@@ -280,4 +280,4 @@ And when they looked from afar off and saw him [disfigured] beyond recognition, 
 
 
 
-So they sat down with [Job] on the ground for seven days and seven nights, and none spoke a word to him, for they saw that his grief _and_ pain were very great.
+So they sat down with [Job] on the ground for seven days and seven nights, and none spoke a word to him, for they saw that his grief and pain were very great.

@@ -28,7 +28,7 @@ next: ['Job 11']
 
 
 
-I am weary of my life _and_ loathe it! I will give free expression to my complaint; I will speak in the bitterness of my soul. 
+I am weary of my life and loathe it! I will give free expression to my complaint; I will speak in the bitterness of my soul. 
 
 
 
@@ -70,7 +70,7 @@ I will say to God, Do not condemn me [do not make me guilty]! Show me why You co
 
 
 
-Does it seem good to You that You should oppress, that You should despise _and_ reject the work of Your hands, and favor the schemes of the wicked? 
+Does it seem good to You that You should oppress, that You should despise and reject the work of Your hands, and favor the schemes of the wicked? 
 
 
 
@@ -154,7 +154,7 @@ That You inquire after my iniquity and search for my sin--
 
 
 
-Although You know that I am not wicked _or_ guilty and that there is none who can deliver me out of Your hand? 
+Although You know that I am not wicked or guilty and that there is none who can deliver me out of Your hand? 
 
 
 
@@ -301,7 +301,7 @@ Yet these [the present evils] have You hid in Your heart [for me since my creati
 
 
 
-If I sin, then You observe me, and You will not acquit me from my iniquity _and_ guilt. 
+If I sin, then You observe me, and You will not acquit me from my iniquity and guilt. 
 
 
 
@@ -427,7 +427,7 @@ I should have been as though I had not existed; I should have been carried from 
 
 
 
-Are not my days few? Cease then and let me alone, that I may take a little comfort _and_ cheer up 
+Are not my days few? Cease then and let me alone, that I may take a little comfort and cheer up 
 
 
 

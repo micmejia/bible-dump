@@ -48,7 +48,7 @@ The words of Lemuel king of Massa, which his mother taught him:
 
 
 
-What, my son? What, son of my womb? What [shall I advise you], son of my vows _and_ dedication to God? 
+What, my son? What, son of my womb? What [shall I advise you], son of my vows and dedication to God? 
 
 
 
@@ -69,7 +69,7 @@ What, my son? What, son of my womb? What [shall I advise you], son of my vows _a
 
 
 
-Give not your strength to [loose] women, nor your ways to those who _and_ that which ruin _and_ destroy kings. 
+Give not your strength to [loose] women, nor your ways to those who and that which ruin and destroy kings. 
 
 
 
@@ -111,7 +111,7 @@ It is not for kings, O Lemuel, it is not for kings to drink wine, or for rulers 
 
 
 
-Lest they drink and forget the law _and_ what it decrees, and pervert the justice due any of the afflicted. 
+Lest they drink and forget the law and what it decrees, and pervert the justice due any of the afflicted. 
 
 
 
@@ -153,7 +153,7 @@ Give strong drink [as medicine] to him who is ready to pass away, and wine to hi
 
 
 
-Let him drink and forget his poverty and [seriously] remember his want _and_ misery no more. 
+Let him drink and forget his poverty and [seriously] remember his want and misery no more. 
 
 
 
@@ -174,7 +174,7 @@ Let him drink and forget his poverty and [seriously] remember his want _and_ mis
 
 
 
-Open your mouth for the dumb [those unable to speak for themselves], for the rights of all who are left desolate _and_ defenseless; 
+Open your mouth for the dumb [those unable to speak for themselves], for the rights of all who are left desolate and defenseless; 
 
 
 
@@ -216,7 +216,7 @@ Open your mouth, judge righteously, and administer justice for the poor and need
 
 
 
-A capable, intelligent, _and_ virtuous woman--who is he who can find her? She is far more precious than jewels _and_ her value is far above rubies _or_ pearls. 
+A capable, intelligent, and virtuous woman--who is he who can find her? She is far more precious than jewels and her value is far above rubies or pearls. 
 
 
 
@@ -237,7 +237,7 @@ A capable, intelligent, _and_ virtuous woman--who is he who can find her? She is
 
 
 
-The heart of her husband trusts in her confidently _and_ relies on and believes in her securely, so that he has no lack of [honest] gain or need of [dishonest] spoil. 
+The heart of her husband trusts in her confidently and relies on and believes in her securely, so that he has no lack of [honest] gain or need of [dishonest] spoil. 
 
 
 
@@ -258,7 +258,7 @@ The heart of her husband trusts in her confidently _and_ relies on and believes 
 
 
 
-She comforts, encourages, _and_ does him only good as long as there is life within her. 
+She comforts, encourages, and does him only good as long as there is life within her. 
 
 
 
@@ -342,7 +342,7 @@ She rises while it is yet night and gets [spiritual] food for her household and 
 
 
 
-She considers a [new] field before she buys _or_ accepts it [expanding prudently and not courting neglect of her present duties by assuming other duties]; with her savings [of time and strength] she plants fruitful vines in her vineyard. 
+She considers a [new] field before she buys or accepts it [expanding prudently and not courting neglect of her present duties by assuming other duties]; with her savings [of time and strength] she plants fruitful vines in her vineyard. 
 
 
 
@@ -363,7 +363,7 @@ She considers a [new] field before she buys _or_ accepts it [expanding prudently
 
 
 
-She girds herself with strength [spiritual, mental, and physical fitness for her God-given task] and makes her arms strong _and_ firm. 
+She girds herself with strength [spiritual, mental, and physical fitness for her God-given task] and makes her arms strong and firm. 
 
 
 
@@ -384,7 +384,7 @@ She girds herself with strength [spiritual, mental, and physical fitness for her
 
 
 
-She tastes _and_ sees that her gain from work [with and for God] is good; her lamp goes not out, but it burns on continually through the night [of trouble, privation, or sorrow, warning away fear, doubt, and distrust]. 
+She tastes and sees that her gain from work [with and for God] is good; her lamp goes not out, but it burns on continually through the night [of trouble, privation, or sorrow, warning away fear, doubt, and distrust]. 
 
 
 
@@ -468,7 +468,7 @@ She fears not the snow for her family, for all her household are doubly clothed 
 
 
 
-She makes for herself coverlets, cushions, _and_ rugs of tapestry. Her clothing is of linen, pure _and_ fine, and of purple [such as that of which the clothing of the priests and the hallowed cloths of the temple were made]. 
+She makes for herself coverlets, cushions, and rugs of tapestry. Her clothing is of linen, pure and fine, and of purple [such as that of which the clothing of the priests and the hallowed cloths of the temple were made]. 
 
 
 
@@ -510,7 +510,7 @@ Her husband is known in the [city's] gates, when he sits among the elders of the
 
 
 
-She makes fine linen garments _and_ leads others to buy them; she delivers to the merchants girdles [or sashes that free one up for service]. 
+She makes fine linen garments and leads others to buy them; she delivers to the merchants girdles [or sashes that free one up for service]. 
 
 
 
@@ -531,7 +531,7 @@ She makes fine linen garments _and_ leads others to buy them; she delivers to th
 
 
 
-Strength and dignity are her clothing _and_ her position is strong and secure; she rejoices over the future [the latter day or time to come, knowing that she and her family are in readiness for it]! 
+Strength and dignity are her clothing and her position is strong and secure; she rejoices over the future [the latter day or time to come, knowing that she and her family are in readiness for it]! 
 
 
 
@@ -594,7 +594,7 @@ She looks well to how things go in her household, and the bread of idleness (gos
 
 
 
-Her children rise up and call her blessed (happy, fortunate, and to be envied); and her husband boasts of _and_ praises her, [saying], 
+Her children rise up and call her blessed (happy, fortunate, and to be envied); and her husband boasts of and praises her, [saying], 
 
 
 
@@ -615,7 +615,7 @@ Her children rise up and call her blessed (happy, fortunate, and to be envied); 
 
 
 
-Many daughters have done virtuously, nobly, _and_ well [with the strength of character that is steadfast in goodness], but you excel them all. 
+Many daughters have done virtuously, nobly, and well [with the strength of character that is steadfast in goodness], but you excel them all. 
 
 
 
@@ -636,7 +636,7 @@ Many daughters have done virtuously, nobly, _and_ well [with the strength of cha
 
 
 
-Charm _and_ grace are deceptive, and beauty is vain [because it is not lasting], but a woman who reverently _and_ worshipfully fears the Lord, she shall be praised! 
+Charm and grace are deceptive, and beauty is vain [because it is not lasting], but a woman who reverently and worshipfully fears the Lord, she shall be praised! 
 
 
 

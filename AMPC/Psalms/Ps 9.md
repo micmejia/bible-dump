@@ -28,7 +28,7 @@ next: ['Ps 10']
 
 
 
-I will praise You, O Lord, with my whole heart; I will show forth (recount and tell aloud) all Your marvelous works _and_ wonderful deeds! 
+I will praise You, O Lord, with my whole heart; I will show forth (recount and tell aloud) all Your marvelous works and wonderful deeds! 
 
 
 
@@ -133,7 +133,7 @@ You have rebuked the nations, You have destroyed the wicked; You have blotted ou
 
 
 
-The enemy have been cut off _and_ have vanished in everlasting ruins, You have plucked up _and_ overthrown their cities; the very memory of them has perished _and_ vanished. 
+The enemy have been cut off and have vanished in everlasting ruins, You have plucked up and overthrown their cities; the very memory of them has perished and vanished. 
 
 
 
@@ -154,7 +154,7 @@ The enemy have been cut off _and_ have vanished in everlasting ruins, You have p
 
 
 
-But the Lord shall remain _and_ continue forever; He has prepared _and_ established His throne for judgment. 
+But the Lord shall remain and continue forever; He has prepared and established His throne for judgment. 
 
 
 
@@ -196,7 +196,7 @@ And He will judge the world in righteousness (rightness and equity); He will min
 
 
 
-The Lord also will be a refuge _and_ a high tower for the oppressed, a refuge _and_ a stronghold in times of trouble (high cost, destitution, and desperation). 
+The Lord also will be a refuge and a high tower for the oppressed, a refuge and a stronghold in times of trouble (high cost, destitution, and desperation). 
 
 
 
@@ -217,7 +217,7 @@ The Lord also will be a refuge _and_ a high tower for the oppressed, a refuge _a
 
 
 
-And they who know Your name [who have experience and acquaintance with Your mercy] will lean on _and_ confidently put their trust in You, for You, Lord, have not forsaken those who seek (inquire of and for) You [on the authority of God's Word and the right of their necessity]. 
+And they who know Your name [who have experience and acquaintance with Your mercy] will lean on and confidently put their trust in You, for You, Lord, have not forsaken those who seek (inquire of and for) You [on the authority of God's Word and the right of their necessity]. 
 
 
 
@@ -280,7 +280,7 @@ For He Who avenges the blood [of His people shed unjustly] remembers them; He do
 
 
 
-Have mercy upon me _and_ be gracious _to me_, O Lord; consider how I am afflicted by those who hate me, You Who lift me up from the gates of death, 
+Have mercy upon me and be gracious to me, O Lord; consider how I am afflicted by those who hate me, You Who lift me up from the gates of death, 
 
 
 
@@ -301,7 +301,7 @@ Have mercy upon me _and_ be gracious _to me_, O Lord; consider how I am afflicte
 
 
 
-That I may show forth (recount and tell aloud) all Your praises! In the gates of the Daughter of Zion I will rejoice in Your salvation _and_ Your saving help. 
+That I may show forth (recount and tell aloud) all Your praises! In the gates of the Daughter of Zion I will rejoice in Your salvation and Your saving help. 
 
 
 
@@ -364,7 +364,7 @@ The Lord has made Himself known; He executes judgment; the wicked are snared in 
 
 
 
-The wicked shall be turned back [headlong into premature death] into Sheol (the place of the departed spirits of the wicked), even all the nations that forget _or_ are forgetful of God. 
+The wicked shall be turned back [headlong into premature death] into Sheol (the place of the departed spirits of the wicked), even all the nations that forget or are forgetful of God. 
 
 
 
@@ -385,7 +385,7 @@ The wicked shall be turned back [headlong into premature death] into Sheol (the 
 
 
 
-For the needy shall not always be forgotten, and the expectation _and_ hope of the meek _and_ the poor shall not perish forever. 
+For the needy shall not always be forgotten, and the expectation and hope of the meek and the poor shall not perish forever. 
 
 
 

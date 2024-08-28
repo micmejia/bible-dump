@@ -28,19 +28,19 @@ because Abraham obeyed My voice and kept My charge, My commandments, My statutes
 So Isaac dwelt in Gerar. 
 
 ###### 7 
-And the men of the place asked about his wife. And he said, "She _is_ my sister"; for he was afraid to say, "_She is_ my wife," _because he thought,_ "lest the men of the place kill me for Rebekah, because she _is_ beautiful to behold." 
+And the men of the place asked about his wife. And he said, "She is my sister"; for he was afraid to say, "She is my wife," because he thought, "lest the men of the place kill me for Rebekah, because she is beautiful to behold." 
 
 ###### 8 
 Now it came to pass, when he had been there a long time, that Abimelech king of the Philistines looked through a window, and saw, and there was Isaac, showing endearment to Rebekah his wife. 
 
 ###### 9 
-Then Abimelech called Isaac and said, "Quite obviously she _is_ your wife; so how could you say, 'She _is_ my sister'?" Isaac said to him, "Because I said, 'Lest I die on account of her.' " 
+Then Abimelech called Isaac and said, "Quite obviously she is your wife; so how could you say, 'She is my sister'?" Isaac said to him, "Because I said, 'Lest I die on account of her.' " 
 
 ###### 10 
-And Abimelech said, "What _is_ this you have done to us? One of the people might soon have lain with your wife, and you would have brought guilt on us." 
+And Abimelech said, "What is this you have done to us? One of the people might soon have lain with your wife, and you would have brought guilt on us." 
 
 ###### 11 
-So Abimelech charged all _his_ people, saying, "He who touches this man or his wife shall surely be put to death." 
+So Abimelech charged all his people, saying, "He who touches this man or his wife shall surely be put to death." 
 
 ###### 12 
 Then Isaac sowed in that land, and reaped in the same year a hundredfold; and the Lord blessed him. 
@@ -67,10 +67,10 @@ And Isaac dug again the wells of water which they had dug in the days of Abraham
 Also Isaac's servants dug in the valley, and found a well of running water there. 
 
 ###### 20 
-But the herdsmen of Gerar quarreled with Isaac's herdsmen, saying, "The water _is_ ours." So he called the name of the well Esek, because they quarreled with him. 
+But the herdsmen of Gerar quarreled with Isaac's herdsmen, saying, "The water is ours." So he called the name of the well Esek, because they quarreled with him. 
 
 ###### 21 
-Then they dug another well, and they quarreled over that _one_ also. So he called its name Sitnah. 
+Then they dug another well, and they quarreled over that one also. So he called its name Sitnah. 
 
 ###### 22 
 And he moved from there and dug another well, and they did not quarrel over it. So he called its name Rehoboth, because he said, "For now the Lord has made room for us, and we shall be fruitful in the land." 
@@ -79,7 +79,7 @@ And he moved from there and dug another well, and they did not quarrel over it. 
 Then he went up from there to Beersheba. 
 
 ###### 24 
-And the Lord appeared to him the same night and said, "I _am_ the God of your father Abraham; do not fear, for I _am_ with you. I will bless you and multiply your descendants for My servant Abraham's sake." 
+And the Lord appeared to him the same night and said, "I am the God of your father Abraham; do not fear, for I am with you. I will bless you and multiply your descendants for My servant Abraham's sake." 
 
 ###### 25 
 So he built an altar there and called on the name of the Lord, and he pitched his tent there; and there Isaac's servants dug a well. 
@@ -94,7 +94,7 @@ And Isaac said to them, "Why have you come to me, since you hate me and have sen
 But they said, "We have certainly seen that the Lord is with you. So we said, 'Let there now be an oath between us, between you and us; and let us make a covenant with you, 
 
 ###### 29 
-that you will do us no harm, since we have not touched you, and since we have done nothing to you but good and have sent you away in peace. You _are_ now the blessed of the Lord.' " 
+that you will do us no harm, since we have not touched you, and since we have done nothing to you but good and have sent you away in peace. You are now the blessed of the Lord.' " 
 
 ###### 30 
 So he made them a feast, and they ate and drank. 
@@ -106,7 +106,7 @@ Then they arose early in the morning and swore an oath with one another; and Isa
 It came to pass the same day that Isaac's servants came and told him about the well which they had dug, and said to him, "We have found water." 
 
 ###### 33 
-So he called it Shebah. Therefore the name of the city _is_ Beersheba to this day. 
+So he called it Shebah. Therefore the name of the city is Beersheba to this day. 
 
 ###### 34 
 When Esau was forty years old, he took as wives Judith the daughter of Beeri the Hittite, and Basemath the daughter of Elon the Hittite. 

@@ -12,13 +12,13 @@ next: ['Eccl 2']
 The words of the Preacher, the son of David, king in Jerusalem. 
 
 ###### 2 
-"Vanity of vanities," says the Preacher; "Vanity of vanities, all _is_ vanity." 
+"Vanity of vanities," says the Preacher; "Vanity of vanities, all is vanity." 
 
 ###### 3 
 What profit has a man from all his labor In which he toils under the sun? 
 
 ###### 4 
-_One_ generation passes away, and _another_ generation comes; But the earth abides forever. 
+One generation passes away, and another generation comes; But the earth abides forever. 
 
 ###### 5 
 The sun also rises, and the sun goes down, And hastens to the place where it arose. 
@@ -27,19 +27,19 @@ The sun also rises, and the sun goes down, And hastens to the place where it aro
 The wind goes toward the south, And turns around to the north; The wind whirls about continually, And comes again on its circuit. 
 
 ###### 7 
-All the rivers run into the sea, Yet the sea _is_ not full; To the place from which the rivers come, There they return again. 
+All the rivers run into the sea, Yet the sea is not full; To the place from which the rivers come, There they return again. 
 
 ###### 8 
-All things _are_ full of labor; Man cannot express _it._ The eye is not satisfied with seeing, Nor the ear filled with hearing. 
+All things are full of labor; Man cannot express it. The eye is not satisfied with seeing, Nor the ear filled with hearing. 
 
 ###### 9 
-That which has been _is_ what will be, That which _is_ done is what will be done, And _there is_ nothing new under the sun. 
+That which has been is what will be, That which is done is what will be done, And there is nothing new under the sun. 
 
 ###### 10 
-Is there anything of which it may be said, "See, this _is_ new"? It has already been in ancient times before us. 
+Is there anything of which it may be said, "See, this is new"? It has already been in ancient times before us. 
 
 ###### 11 
-_There is_ no remembrance of former _things,_ Nor will there be any remembrance of _things_ that are to come By _those_ who will come after.
+There is no remembrance of former things, Nor will there be any remembrance of things that are to come By those who will come after.
 
 ## The Grief of Wisdom 
 
@@ -50,10 +50,10 @@ I, the Preacher, was king over Israel in Jerusalem.
 And I set my heart to seek and search out by wisdom concerning all that is done under heaven; this burdensome task God has given to the sons of man, by which they may be exercised. 
 
 ###### 14 
-I have seen all the works that are done under the sun; and indeed, all _is_ vanity and grasping for the wind. 
+I have seen all the works that are done under the sun; and indeed, all is vanity and grasping for the wind. 
 
 ###### 15 
-_What is_ crooked cannot be made straight, And what is lacking cannot be numbered. 
+What is crooked cannot be made straight, And what is lacking cannot be numbered. 
 
 ###### 16 
 I communed with my heart, saying, "Look, I have attained greatness, and have gained more wisdom than all who were before me in Jerusalem. My heart has understood great wisdom and knowledge." 
@@ -62,4 +62,4 @@ I communed with my heart, saying, "Look, I have attained greatness, and have gai
 And I set my heart to know wisdom and to know madness and folly. I perceived that this also is grasping for the wind. 
 
 ###### 18 
-For in much wisdom _is_ much grief, And he who increases knowledge increases sorrow.
+For in much wisdom is much grief, And he who increases knowledge increases sorrow.

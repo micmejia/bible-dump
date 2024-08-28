@@ -27,7 +27,7 @@ next: ['1 Cor 2']
 
 
 
-Paul, summoned by the will _and_ purpose of God to be an apostle (special messenger) of Christ Jesus, and our brother Sosthenes, 
+Paul, summoned by the will and purpose of God to be an apostle (special messenger) of Christ Jesus, and our brother Sosthenes, 
 
 
 
@@ -48,7 +48,7 @@ Paul, summoned by the will _and_ purpose of God to be an apostle (special messen
 
 
 
-To the church (assembly) of God which is in Corinth, to those consecrated _and_ purified _and_ made holy in Christ Jesus, [who are] selected _and_ called to be saints (God's people), together with all those who in any place call upon _and_ give honor to the name of our Lord Jesus Christ, both their Lord and ours: 
+To the church (assembly) of God which is in Corinth, to those consecrated and purified and made holy in Christ Jesus, [who are] selected and called to be saints (God's people), together with all those who in any place call upon and give honor to the name of our Lord Jesus Christ, both their Lord and ours: 
 
 
 
@@ -111,7 +111,7 @@ I thank my God at all times for you because of the grace (the favor and spiritua
 
 
 
-[So] that in Him in every respect you were enriched, in full power _and_ readiness of speech [to speak of your faith] and complete knowledge _and_ illumination [to give you full insight into its meaning]. 
+[So] that in Him in every respect you were enriched, in full power and readiness of speech [to speak of your faith] and complete knowledge and illumination [to give you full insight into its meaning]. 
 
 
 
@@ -132,7 +132,7 @@ I thank my God at all times for you because of the grace (the favor and spiritua
 
 
 
-In this way [our] witnessing concerning Christ (the Messiah) was so confirmed _and_ established _and_ made sure in you 
+In this way [our] witnessing concerning Christ (the Messiah) was so confirmed and established and made sure in you 
 
 
 
@@ -153,7 +153,7 @@ In this way [our] witnessing concerning Christ (the Messiah) was so confirmed _a
 
 
 
-That you are not [consciously] falling behind _or_ lacking in any special spiritual endowment _or_ Christian grace [the reception of which is due to the power of divine grace operating in your souls by the Holy Spirit], while you wait _and_ watch [constantly living in hope] for the coming of our Lord Jesus Christ _and_ [His] being made visible to all. 
+That you are not [consciously] falling behind or lacking in any special spiritual endowment or Christian grace [the reception of which is due to the power of divine grace operating in your souls by the Holy Spirit], while you wait and watch [constantly living in hope] for the coming of our Lord Jesus Christ and [His] being made visible to all. 
 
 
 
@@ -174,7 +174,7 @@ That you are not [consciously] falling behind _or_ lacking in any special spirit
 
 
 
-And He will establish you to the end [keep you steadfast, give you strength, and guarantee your vindication; He will be your warrant against all accusation or indictment so that you will be] guiltless _and_ irreproachable in the day of our Lord Jesus Christ (the Messiah). 
+And He will establish you to the end [keep you steadfast, give you strength, and guarantee your vindication; He will be your warrant against all accusation or indictment so that you will be] guiltless and irreproachable in the day of our Lord Jesus Christ (the Messiah). 
 
 
 
@@ -195,7 +195,7 @@ And He will establish you to the end [keep you steadfast, give you strength, and
 
 
 
-God is faithful (reliable, trustworthy, and therefore ever true to His promise, and He can be depended on); by Him you were called into companionship _and_ participation with His Son, Jesus Christ our Lord. 
+God is faithful (reliable, trustworthy, and therefore ever true to His promise, and He can be depended on); by Him you were called into companionship and participation with His Son, Jesus Christ our Lord. 
 
 
 
@@ -216,7 +216,7 @@ God is faithful (reliable, trustworthy, and therefore ever true to His promise, 
 
 
 
-But I urge _and_ entreat you, brethren, by the name of our Lord Jesus Christ, that all of you be in perfect harmony _and_ full agreement in what you say, and that there be no dissensions _or_ factions _or_ divisions among you, but that you be perfectly united in your common understanding and in your opinions _and_ judgments. 
+But I urge and entreat you, brethren, by the name of our Lord Jesus Christ, that all of you be in perfect harmony and full agreement in what you say, and that there be no dissensions or factions or divisions among you, but that you be perfectly united in your common understanding and in your opinions and judgments. 
 
 
 
@@ -237,7 +237,7 @@ But I urge _and_ entreat you, brethren, by the name of our Lord Jesus Christ, th
 
 
 
-For it has been made clear to me, my brethren, by those of Chloe's household, that there are contentions _and_ wrangling _and_ factions among you. 
+For it has been made clear to me, my brethren, by those of Chloe's household, that there are contentions and wrangling and factions among you. 
 
 
 
@@ -363,7 +363,7 @@ Lest anyone should say that I baptized in my own name.
 
 
 
-For Christ (the Messiah) sent me out not to baptize but [to evangelize by] preaching the glad tidings (the Gospel), and that not with verbal eloquence, lest the cross of Christ should be deprived of force _and_ emptied of its power _and_ rendered vain (fruitless, void of value, and of no effect). 
+For Christ (the Messiah) sent me out not to baptize but [to evangelize by] preaching the glad tidings (the Gospel), and that not with verbal eloquence, lest the cross of Christ should be deprived of force and emptied of its power and rendered vain (fruitless, void of value, and of no effect). 
 
 
 
@@ -384,7 +384,7 @@ For Christ (the Messiah) sent me out not to baptize but [to evangelize by] preac
 
 
 
-For the story _and_ message of the cross is sheer absurdity _and_ folly to those who are perishing _and_ on their way to perdition, but to us who are being saved it is the [manifestation of] the power of God. 
+For the story and message of the cross is sheer absurdity and folly to those who are perishing and on their way to perdition, but to us who are being saved it is the [manifestation of] the power of God. 
 
 
 
@@ -405,7 +405,7 @@ For the story _and_ message of the cross is sheer absurdity _and_ folly to those
 
 
 
-For it is written, I will baffle _and_ render useless _and_ destroy the learning of the learned _and_ the philosophy of the philosophers and the cleverness of the clever _and_ the discernment of the discerning; I will frustrate _and_ nullify [them] _and_ bring [them] to nothing. 
+For it is written, I will baffle and render useless and destroy the learning of the learned and the philosophy of the philosophers and the cleverness of the clever and the discernment of the discerning; I will frustrate and nullify [them] and bring [them] to nothing. 
 
 
 
@@ -426,7 +426,7 @@ For it is written, I will baffle _and_ render useless _and_ destroy the learning
 
 
 
-Where is the wise man (the philosopher)? Where is the scribe (the scholar)? Where is the investigator (the logician, the debater) of this present time _and_ age? Has not God shown up the nonsense _and_ the folly of this world's wisdom? 
+Where is the wise man (the philosopher)? Where is the scribe (the scholar)? Where is the investigator (the logician, the debater) of this present time and age? Has not God shown up the nonsense and the folly of this world's wisdom? 
 
 
 
@@ -447,7 +447,7 @@ Where is the wise man (the philosopher)? Where is the scribe (the scholar)? Wher
 
 
 
-For when the world with all its earthly wisdom failed to perceive _and_ recognize _and_ know God by means of its own philosophy, God in His wisdom was pleased through the foolishness of preaching [salvation, procured by Christ and to be had through Him], to save those who believed (who clung to and trusted in and relied on Him). 
+For when the world with all its earthly wisdom failed to perceive and recognize and know God by means of its own philosophy, God in His wisdom was pleased through the foolishness of preaching [salvation, procured by Christ and to be had through Him], to save those who believed (who clung to and trusted in and relied on Him). 
 
 
 
@@ -468,7 +468,7 @@ For when the world with all its earthly wisdom failed to perceive _and_ recogniz
 
 
 
-For while Jews [demandingly] ask for signs _and_ miracles and Greeks pursue philosophy _and_ wisdom, 
+For while Jews [demandingly] ask for signs and miracles and Greeks pursue philosophy and wisdom, 
 
 
 
@@ -489,7 +489,7 @@ For while Jews [demandingly] ask for signs _and_ miracles and Greeks pursue phil
 
 
 
-We preach Christ (the Messiah) crucified, [preaching which] to the Jews is a scandal _and_ an offensive stumbling block [that springs a snare or trap], and to the Gentiles it is absurd _and_ utterly unphilosophical nonsense. 
+We preach Christ (the Messiah) crucified, [preaching which] to the Jews is a scandal and an offensive stumbling block [that springs a snare or trap], and to the Gentiles it is absurd and utterly unphilosophical nonsense. 
 
 
 
@@ -552,7 +552,7 @@ But to those who are called, whether Jew or Greek (Gentile), Christ [is] the Pow
 
 
 
-For [simply] consider your own call, brethren; not many [of you were considered to be] wise according to human estimates _and_ standards, not many influential _and_ powerful, not many of high _and_ noble birth. 
+For [simply] consider your own call, brethren; not many [of you were considered to be] wise according to human estimates and standards, not many influential and powerful, not many of high and noble birth. 
 
 
 
@@ -594,7 +594,7 @@ For [simply] consider your own call, brethren; not many [of you were considered 
 
 
 
-And God also selected (deliberately chose) what in the world is lowborn _and_ insignificant and branded _and_ treated with contempt, even the things that are nothing, that He might depose _and_ bring to nothing the things that are, 
+And God also selected (deliberately chose) what in the world is lowborn and insignificant and branded and treated with contempt, even the things that are nothing, that He might depose and bring to nothing the things that are, 
 
 
 
@@ -657,4 +657,4 @@ But it is from Him that you have your life in Christ Jesus, Whom God made our Wi
 
 
 
-So then, as it is written, Let him who boasts _and_ proudly rejoices _and_ glories, boast _and_ proudly rejoice _and_ glory in the Lord.
+So then, as it is written, Let him who boasts and proudly rejoices and glories, boast and proudly rejoice and glory in the Lord.

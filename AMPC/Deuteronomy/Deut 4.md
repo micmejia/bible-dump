@@ -28,7 +28,7 @@ next: ['Deut 5']
 
 
 
-Now listen _and_ give heed, O Israel, to the statutes and ordinances which I teach you, and do them, that you may live and go in and possess the land which the Lord, the God of your fathers, gives you. 
+Now listen and give heed, O Israel, to the statutes and ordinances which I teach you, and do them, that you may live and go in and possess the land which the Lord, the God of your fathers, gives you. 
 
 
 
@@ -175,7 +175,7 @@ For what great nation is there who has a god so near to them as the Lord our God
 
 
 
-And what large _and_ important nation has statutes and ordinances so upright _and_ just as all this law which I set before you today? 
+And what large and important nation has statutes and ordinances so upright and just as all this law which I set before you today? 
 
 
 
@@ -742,7 +742,7 @@ Or has God ever tried to go and take for Himself a nation from the midst of anot
 
 
 
-To you it was shown, that you might realize _and_ have personal knowledge that the Lord is God; there is no other besides Him. 
+To you it was shown, that you might realize and have personal knowledge that the Lord is God; there is no other besides Him. 
 
 
 
@@ -763,7 +763,7 @@ To you it was shown, that you might realize _and_ have personal knowledge that t
 
 
 
-Out of heaven He made you hear His voice, that He might correct, discipline, _and_ admonish you; and on earth He made you see His great fire, and you heard His words out of the midst of the fire. 
+Out of heaven He made you hear His voice, that He might correct, discipline, and admonish you; and on earth He made you see His great fire, and you heard His words out of the midst of the fire. 
 
 
 
@@ -826,7 +826,7 @@ Driving out nations from before you, greater and mightier than yourselves, to br
 
 
 
-Know, recognize, _and_ understand therefore this day and turn your [mind and] heart to it that the Lord is God in the heavens above and upon the earth beneath; there is no other. 
+Know, recognize, and understand therefore this day and turn your [mind and] heart to it that the Lord is God in the heavens above and upon the earth beneath; there is no other. 
 
 
 
@@ -1036,4 +1036,4 @@ From Aroer, which is on the edge of the Valley of the Arnon, as far as Mount Sir
 
 
 
-And all the Arabah (lowlands) beyond the Jordan eastward, as far as the Sea of the Arabah [the Dead Sea], under the slopes _and_ springs of Pisgah.
+And all the Arabah (lowlands) beyond the Jordan eastward, as far as the Sea of the Arabah [the Dead Sea], under the slopes and springs of Pisgah.

@@ -49,7 +49,7 @@ Now after [Paul and Silas] had passed through Amphipolis and Apollonia, they cam
 
 
 
-And Paul entered, as he usually did, and for three Sabbaths he reasoned _and_ argued with them from the Scriptures, 
+And Paul entered, as he usually did, and for three Sabbaths he reasoned and argued with them from the Scriptures, 
 
 
 
@@ -70,7 +70,7 @@ And Paul entered, as he usually did, and for three Sabbaths he reasoned _and_ ar
 
 
 
-Explaining [them] _and_ [quoting passages] setting forth _and_ proving that it was necessary for the Christ to suffer and to rise from the dead, and saying, This Jesus, Whom I proclaim to you, is the Christ (the Messiah). 
+Explaining [them] and [quoting passages] setting forth and proving that it was necessary for the Christ to suffer and to rise from the dead, and saying, This Jesus, Whom I proclaim to you, is the Christ (the Messiah). 
 
 
 
@@ -154,7 +154,7 @@ But when they failed to find them, they dragged Jason and some of the brethren b
 
 
 
-And Jason has received them to his house _and_ privately protected them! And they are all ignoring _and_ acting contrary to the decrees of Caesar, [actually] asserting that there is another king, one Jesus! 
+And Jason has received them to his house and privately protected them! And they are all ignoring and acting contrary to the decrees of Caesar, [actually] asserting that there is another king, one Jesus! 
 
 
 
@@ -238,7 +238,7 @@ Now the brethren at once sent Paul and Silas away by night to Beroea; and when t
 
 
 
-Now these [Jews] were better disposed _and_ more noble than those in Thessalonica, for they were entirely ready _and_ accepted _and_ welcomed the message [concerning the attainment through Christ of eternal salvation in the kingdom of God] with inclination of mind _and_ eagerness, searching _and_ examining the Scriptures daily to see if these things were so. 
+Now these [Jews] were better disposed and more noble than those in Thessalonica, for they were entirely ready and accepted and welcomed the message [concerning the attainment through Christ of eternal salvation in the kingdom of God] with inclination of mind and eagerness, searching and examining the Scriptures daily to see if these things were so. 
 
 
 
@@ -280,7 +280,7 @@ Many of them therefore became believers, together with not a few prominent Greek
 
 
 
-But when the Jews of Thessalonica learned that the Word of God [concerning the attainment through Christ of eternal salvation in the kingdom of God] was also preached by Paul at Beroea, they came there too, disturbing _and_ inciting the masses. 
+But when the Jews of Thessalonica learned that the Word of God [concerning the attainment through Christ of eternal salvation in the kingdom of God] was also preached by Paul at Beroea, they came there too, disturbing and inciting the masses. 
 
 
 
@@ -343,7 +343,7 @@ Those who escorted Paul brought him as far as Athens; and receiving instructions
 
 
 
-Now while Paul was awaiting them at Athens, his spirit was grieved _and_ roused to anger as he saw that the city was full of idols. 
+Now while Paul was awaiting them at Athens, his spirit was grieved and roused to anger as he saw that the city was full of idols. 
 
 
 
@@ -364,7 +364,7 @@ Now while Paul was awaiting them at Athens, his spirit was grieved _and_ roused 
 
 
 
-So he reasoned _and_ argued in the synagogue with the Jews and those who worshiped there, and in the marketplace [where assemblies are held] day after day with any who chanced to be there. 
+So he reasoned and argued in the synagogue with the Jews and those who worshiped there, and in the marketplace [where assemblies are held] day after day with any who chanced to be there. 
 
 
 
@@ -385,7 +385,7 @@ So he reasoned _and_ argued in the synagogue with the Jews and those who worship
 
 
 
-And some also of the Epicurean and Stoic philosophers encountered him _and_ began to engage in discussion. And some said, What is this babbler with his scrap-heap learning trying to say? Others said, He seems to be an announcer of foreign deities--because he preached Jesus and the resurrection. 
+And some also of the Epicurean and Stoic philosophers encountered him and began to engage in discussion. And some said, What is this babbler with his scrap-heap learning trying to say? Others said, He seems to be an announcer of foreign deities--because he preached Jesus and the resurrection. 
 
 
 
@@ -427,7 +427,7 @@ And they took hold of him and brought him to the Areopagus [Mars Hill meeting pl
 
 
 
-For you set forth some startling things, foreign _and_ strange to our ears; we wish to know therefore just what these things mean-- 
+For you set forth some startling things, foreign and strange to our ears; we wish to know therefore just what these things mean-- 
 
 
 
@@ -448,7 +448,7 @@ For you set forth some startling things, foreign _and_ strange to our ears; we w
 
 
 
-For the Athenians, all of them, and the foreign residents _and_ visitors among them spent all their leisure time in nothing except telling or hearing something newer than the last-- 
+For the Athenians, all of them, and the foreign residents and visitors among them spent all their leisure time in nothing except telling or hearing something newer than the last-- 
 
 
 
@@ -469,7 +469,7 @@ For the Athenians, all of them, and the foreign residents _and_ visitors among t
 
 
 
-So Paul, standing in the center of the Areopagus [Mars Hill meeting place], said: Men of Athens, I perceive in every way [on every hand and with every turn I make] that you are most religious _or_ very reverent to demons. 
+So Paul, standing in the center of the Areopagus [Mars Hill meeting place], said: Men of Athens, I perceive in every way [on every hand and with every turn I make] that you are most religious or very reverent to demons. 
 
 
 
@@ -511,7 +511,7 @@ For as I passed along and carefully observed your objects of worship, I came als
 
 
 
-The God Who produced _and_ formed the world and all things in it, being Lord of heaven and earth, does not dwell in handmade shrines. 
+The God Who produced and formed the world and all things in it, being Lord of heaven and earth, does not dwell in handmade shrines. 
 
 
 
@@ -616,7 +616,7 @@ For in Him we live and move and have our being; as even some of your [own] poets
 
 
 
-Since then we are God's offspring, we ought not to suppose that Deity (the Godhead) is like gold or silver or stone, [of the nature of] a representation by human art and imagination, _or_ anything constructed _or_ invented. 
+Since then we are God's offspring, we ought not to suppose that Deity (the Godhead) is like gold or silver or stone, [of the nature of] a representation by human art and imagination, or anything constructed or invented. 
 
 
 
@@ -637,7 +637,7 @@ Since then we are God's offspring, we ought not to suppose that Deity (the Godhe
 
 
 
-Such [former] ages of ignorance God, it is true, ignored _and_ allowed to pass unnoticed; but now He charges all people everywhere to repent (to change their minds for the better and heartily to amend their ways, with abhorrence of their past sins), 
+Such [former] ages of ignorance God, it is true, ignored and allowed to pass unnoticed; but now He charges all people everywhere to repent (to change their minds for the better and heartily to amend their ways, with abhorrence of their past sins), 
 
 
 
@@ -658,7 +658,7 @@ Such [former] ages of ignorance God, it is true, ignored _and_ allowed to pass u
 
 
 
-Because He has fixed a day when He will judge the world righteously (justly) by a Man Whom He has destined _and_ appointed for that task, and He has made this credible _and_ given conviction _and_ assurance _and_ evidence to everyone by raising Him from the dead. 
+Because He has fixed a day when He will judge the world righteously (justly) by a Man Whom He has destined and appointed for that task, and He has made this credible and given conviction and assurance and evidence to everyone by raising Him from the dead. 
 
 
 
@@ -721,4 +721,4 @@ So Paul went out from among them.
 
 
 
-But some men were on his side _and_ joined him and believed (became Christians); among them were Dionysius, a judge of the Areopagus, and a woman named Damaris, and some others with them.
+But some men were on his side and joined him and believed (became Christians); among them were Dionysius, a judge of the Areopagus, and a woman named Damaris, and some others with them.

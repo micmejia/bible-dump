@@ -70,7 +70,7 @@ And when [the locusts] had finished eating the plants of the land, then I said, 
 
 
 
-The Lord relented _and_ revoked this sentence: It shall not take place, said the Lord [and He was eased and comforted concerning it]. 
+The Lord relented and revoked this sentence: It shall not take place, said the Lord [and He was eased and comforted concerning it]. 
 
 
 
@@ -133,7 +133,7 @@ Then said I, O Lord God, cease, I pray You! How can Jacob stand? He is so little
 
 
 
-The Lord relented _and_ revoked this sentence: This also shall not be, said the Lord [and He was eased and comforted concerning it]. 
+The Lord relented and revoked this sentence: This also shall not be, said the Lord [and He was eased and comforted concerning it]. 
 
 
 
@@ -175,7 +175,7 @@ Thus He showed me, and behold, the Lord stood upon a wall with a plumb line, wit
 
 
 
-And the Lord said to me, Amos, what do you see? And I said, A plumb line. Then said the Lord, Behold, I am setting a plumb line as a standard in the midst of My people Israel. I will not pass by _and_ spare them any more [the door of mercy is shut]. 
+And the Lord said to me, Amos, what do you see? And I said, A plumb line. Then said the Lord, Behold, I am setting a plumb line as a standard in the midst of My people Israel. I will not pass by and spare them any more [the door of mercy is shut]. 
 
 
 
@@ -364,4 +364,4 @@ Now therefore listen to the word of the Lord: You say, Do not prophesy against I
 
 
 
-Therefore thus says the Lord: Your wife shall be a harlot in the city and your sons and your daughters shall fall by the sword, and your land shall be divided up by line; you yourself shall die in an unclean _and_ defiled land, and Israel shall surely go forth out of his land into exile.
+Therefore thus says the Lord: Your wife shall be a harlot in the city and your sons and your daughters shall fall by the sword, and your land shall be divided up by line; you yourself shall die in an unclean and defiled land, and Israel shall surely go forth out of his land into exile.

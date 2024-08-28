@@ -91,7 +91,7 @@ For the day is near, even the day of the Lord is near, a cloudy day; it shall be
 
 
 
-And a sword shall come upon Egypt, and anguish _and_ great sorrow shall be in Ethiopia (Cush), when the slain fall in Egypt and they [of Babylon] carry away her great mass of people _and_ of things and her foundations are broken down. 
+And a sword shall come upon Egypt, and anguish and great sorrow shall be in Ethiopia (Cush), when the slain fall in Egypt and they [of Babylon] carry away her great mass of people and of things and her foundations are broken down. 
 
 
 
@@ -133,7 +133,7 @@ Ethiopia (Cush) and Put, Lud and all the mingled people [foreigners living in Eg
 
 
 
-Thus says the Lord: They also who uphold _or_ lean upon _and_ are supported by Egypt shall fall, and the pride of her power shall come down; from Migdol [in the north] to Syene [in the south] they shall fall within her by the sword, says the Lord God. 
+Thus says the Lord: They also who uphold or lean upon and are supported by Egypt shall fall, and the pride of her power shall come down; from Migdol [in the north] to Syene [in the south] they shall fall within her by the sword, says the Lord God. 
 
 
 
@@ -175,7 +175,7 @@ And they shall be desolated in the midst of countries that are desolated, and he
 
 
 
-And they shall know (understand and realize) that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service], when I have set a fire in Egypt and all her helpers are broken _and_ destroyed. 
+And they shall know (understand and realize) that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service], when I have set a fire in Egypt and all her helpers are broken and destroyed. 
 
 
 
@@ -196,7 +196,7 @@ And they shall know (understand and realize) that I am the Lord [the Sovereign R
 
 
 
-In that day shall [swift] messengers go forth from Me in ships to terrify the careless _and_ unsuspecting Ethiopians, and there shall be anguish _and_ great sorrow upon them as in the day of Egypt's [doom], for behold, [their day] comes! 
+In that day shall [swift] messengers go forth from Me in ships to terrify the careless and unsuspecting Ethiopians, and there shall be anguish and great sorrow upon them as in the day of Egypt's [doom], for behold, [their day] comes! 
 
 
 
@@ -217,7 +217,7 @@ In that day shall [swift] messengers go forth from Me in ships to terrify the ca
 
 
 
-Thus says the Lord God: I will also make the tumult _and_ the wealth _and_ the large population of Egypt to cease by the hand of Nebuchadrezzar king of Babylon. 
+Thus says the Lord God: I will also make the tumult and the wealth and the large population of Egypt to cease by the hand of Nebuchadrezzar king of Babylon. 
 
 
 
@@ -280,7 +280,7 @@ And I will make the [artificial] streams [of the Nile delta] dry and will sell t
 
 
 
-Thus says the Lord God: I will also destroy the idols and I will put an end to the images in Noph _or_ Memphis, and there shall be no longer a prince of the land of Egypt. And I will put fear in the land of Egypt. 
+Thus says the Lord God: I will also destroy the idols and I will put an end to the images in Noph or Memphis, and there shall be no longer a prince of the land of Egypt. And I will put fear in the land of Egypt. 
 
 
 
@@ -301,7 +301,7 @@ Thus says the Lord God: I will also destroy the idols and I will put an end to t
 
 
 
-And I will make Pathros desolate and will set fire to Zoan and will execute judgments _and_ punishments upon No _or_ Thebes. 
+And I will make Pathros desolate and will set fire to Zoan and will execute judgments and punishments upon No or Thebes. 
 
 
 
@@ -322,7 +322,7 @@ And I will make Pathros desolate and will set fire to Zoan and will execute judg
 
 
 
-And I will pour My wrath upon Pelusium, the stronghold of Egypt, and I will cut off the tumult, the prosperity _and_ the population of No _or_ Thebes. 
+And I will pour My wrath upon Pelusium, the stronghold of Egypt, and I will cut off the tumult, the prosperity and the population of No or Thebes. 
 
 
 
@@ -343,7 +343,7 @@ And I will pour My wrath upon Pelusium, the stronghold of Egypt, and I will cut 
 
 
 
-And I will set fire to Egypt; Pelusium shall have great anguish and No _or_ Thebes shall be torn open and Noph _or_ Memphis shall have adversaries in the daytime _and_ all the day long. 
+And I will set fire to Egypt; Pelusium shall have great anguish and No or Thebes shall be torn open and Noph or Memphis shall have adversaries in the daytime and all the day long. 
 
 
 
@@ -364,7 +364,7 @@ And I will set fire to Egypt; Pelusium shall have great anguish and No _or_ Theb
 
 
 
-The young men of Aven _or_ On and of Pibeseth shall fall by the sword, and the [women and children] shall go into captivity. 
+The young men of Aven or On and of Pibeseth shall fall by the sword, and the [women and children] shall go into captivity. 
 
 
 
@@ -385,7 +385,7 @@ The young men of Aven _or_ On and of Pibeseth shall fall by the sword, and the [
 
 
 
-At Tehaphnehes also the day shall withdraw itself _and_ be dark when I break there the yokes _and_ dominion of Egypt, and the pride of her power shall come to an end. As for her, a cloud [of calamities] shall cover her and her daughters shall go into captivity. 
+At Tehaphnehes also the day shall withdraw itself and be dark when I break there the yokes and dominion of Egypt, and the pride of her power shall come to an end. As for her, a cloud [of calamities] shall cover her and her daughters shall go into captivity. 
 
 
 
@@ -406,7 +406,7 @@ At Tehaphnehes also the day shall withdraw itself _and_ be dark when I break the
 
 
 
-Thus will I execute judgments _and_ punishments upon Egypt. Then shall they know (understand and realize) that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
+Thus will I execute judgments and punishments upon Egypt. Then shall they know (understand and realize) that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
 
 
 
@@ -448,7 +448,7 @@ And in the eleventh year [after King Jehoiachin was taken to Babylon], in the fi
 
 
 
-Son of man, I have broken the arm of Pharaoh king of Egypt, and behold, it has not been bound up to heal it by binding it with a bandage, to make it strong to hold _and_ wield the sword. 
+Son of man, I have broken the arm of Pharaoh king of Egypt, and behold, it has not been bound up to heal it by binding it with a bandage, to make it strong to hold and wield the sword. 
 
 
 
@@ -532,7 +532,7 @@ And I will strengthen the arms of the king of Babylon and put My sword in his ha
 
 
 
-But I will strengthen _and_ hold up the arms of the king of Babylon and the arms of Pharaoh shall fall down, and they [of Egypt] shall know (understand and realize) that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service], when I put My sword into the hand of the king of Babylon and he shall stretch it out upon the land of Egypt. 
+But I will strengthen and hold up the arms of the king of Babylon and the arms of Pharaoh shall fall down, and they [of Egypt] shall know (understand and realize) that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service], when I put My sword into the hand of the king of Babylon and he shall stretch it out upon the land of Egypt. 
 
 
 

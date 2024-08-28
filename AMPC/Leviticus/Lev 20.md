@@ -91,7 +91,7 @@ I also will set My face against that man [opposing him, withdrawing My protectio
 
 
 
-And if the people of the land do at all hide their eyes from the man when he gives one of his children [as a burnt offering] to Molech [the fire god] _and_ they overlook it _or_ neglect to take legal action to punish him, winking at his sin, and do not kill him [as My law requires], 
+And if the people of the land do at all hide their eyes from the man when he gives one of his children [as a burnt offering] to Molech [the fire god] and they overlook it or neglect to take legal action to punish him, winking at his sin, and do not kill him [as My law requires], 
 
 
 
@@ -259,7 +259,7 @@ And the man who lies carnally with his father's wife has uncovered his father's 
 
 
 
-And if a man lies carnally with his daughter-in-law, both of them shall surely be put to death; they have wrought confusion, perversion, _and_ defilement; their blood shall be upon their own heads. 
+And if a man lies carnally with his daughter-in-law, both of them shall surely be put to death; they have wrought confusion, perversion, and defilement; their blood shall be upon their own heads. 
 
 
 
@@ -301,7 +301,7 @@ If a man lies with a male as if he were a woman, both men have committed an offe
 
 
 
-And if a man takes a wife and her mother, it is wickedness _and_ an outrageous offense; all three shall be burned with fire, both he and they [after being stoned to death], that there be no wickedness among you. 
+And if a man takes a wife and her mother, it is wickedness and an outrageous offense; all three shall be burned with fire, both he and they [after being stoned to death], that there be no wickedness among you. 
 
 
 
@@ -364,7 +364,7 @@ If a woman approaches any beast and lies carnally with it, you shall [stone] the
 
 
 
-If a man takes his sister, his father's or his mother's daughter, and sees her nakedness and she sees his nakedness, it is a wicked _and_ shameful thing; and they shall be cut off in the sight of their people; he has had sexual relations with his sister; he shall bear his iniquity. 
+If a man takes his sister, his father's or his mother's daughter, and sees her nakedness and she sees his nakedness, it is a wicked and shameful thing; and they shall be cut off in the sight of their people; he has had sexual relations with his sister; he shall bear his iniquity. 
 
 
 
@@ -490,7 +490,7 @@ You shall therefore keep all My statutes and all My ordinances and do them, that
 
 
 
-You shall not walk in the customs of the nation which I am casting out before you; for they did all these things, and therefore I was wearied _and_ grieved by them. 
+You shall not walk in the customs of the nation which I am casting out before you; for they did all these things, and therefore I was wearied and grieved by them. 
 
 
 
@@ -532,7 +532,7 @@ But I have said to you, You shall inherit their land, and I will give it to you 
 
 
 
-You shall therefore make a distinction between the clean beast and the unclean, and between the unclean fowl and the clean; and you shall not make yourselves detestable with beast or with bird or with anything with which the ground teems _or_ that creeps, which I have set apart from you as unclean. 
+You shall therefore make a distinction between the clean beast and the unclean, and between the unclean fowl and the clean; and you shall not make yourselves detestable with beast or with bird or with anything with which the ground teems or that creeps, which I have set apart from you as unclean. 
 
 
 
@@ -574,4 +574,4 @@ And you shall be holy to Me; for I the Lord am holy, and have separated you from
 
 
 
-A man or woman who is a medium _and_ has a familiar spirit or is a wizard shall surely be put to death, be stoned with stones; their blood shall be upon them.
+A man or woman who is a medium and has a familiar spirit or is a wizard shall surely be put to death, be stoned with stones; their blood shall be upon them.

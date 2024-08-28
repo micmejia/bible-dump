@@ -28,7 +28,7 @@ next: ['Prov 19']
 
 
 
-He who willfully separates _and_ estranges himself [from God and man] seeks his own desire _and_ pretext to break out against all wise _and_ sound judgment. 
+He who willfully separates and estranges himself [from God and man] seeks his own desire and pretext to break out against all wise and sound judgment. 
 
 
 
@@ -49,7 +49,7 @@ He who willfully separates _and_ estranges himself [from God and man] seeks his 
 
 
 
-A [self-confident] fool has no delight in understanding but only in revealing his personal opinions _and_ himself. 
+A [self-confident] fool has no delight in understanding but only in revealing his personal opinions and himself. 
 
 
 
@@ -70,7 +70,7 @@ A [self-confident] fool has no delight in understanding but only in revealing hi
 
 
 
-When the wicked comes in [to the depth of evil], he becomes a contemptuous despiser [of all that is pure and good], and with inner baseness comes outer shame _and_ reproach. 
+When the wicked comes in [to the depth of evil], he becomes a contemptuous despiser [of all that is pure and good], and with inner baseness comes outer shame and reproach. 
 
 
 
@@ -91,7 +91,7 @@ When the wicked comes in [to the depth of evil], he becomes a contemptuous despi
 
 
 
-The words of a [discreet and wise] man's mouth are like deep waters [plenteous and difficult to fathom], and the fountain of skillful _and_ godly Wisdom is like a gushing stream [sparkling, fresh, pure, and life-giving]. 
+The words of a [discreet and wise] man's mouth are like deep waters [plenteous and difficult to fathom], and the fountain of skillful and godly Wisdom is like a gushing stream [sparkling, fresh, pure, and life-giving]. 
 
 
 
@@ -112,7 +112,7 @@ The words of a [discreet and wise] man's mouth are like deep waters [plenteous a
 
 
 
-To respect the person of the wicked _and_ be partial to him, so as to deprive the [consistently] righteous of justice, is not good. 
+To respect the person of the wicked and be partial to him, so as to deprive the [consistently] righteous of justice, is not good. 
 
 
 
@@ -175,7 +175,7 @@ A [self-confident] fool's mouth is his ruin, and his lips are a snare to himself
 
 
 
-The words of a whisperer _or_ talebearer are as dainty morsels; they go down into the innermost parts of the body. 
+The words of a whisperer or talebearer are as dainty morsels; they go down into the innermost parts of the body. 
 
 
 
@@ -196,7 +196,7 @@ The words of a whisperer _or_ talebearer are as dainty morsels; they go down int
 
 
 
-He who is loose _and_ slack in his work is brother to him who is a destroyer _and_ _he who does not use his endeavors to heal himself is brother to him who commits suicide_. 
+He who is loose and slack in his work is brother to him who is a destroyer and he who does not use his endeavors to heal himself is brother to him who commits suicide. 
 
 
 
@@ -217,7 +217,7 @@ He who is loose _and_ slack in his work is brother to him who is a destroyer _an
 
 
 
-The name of the Lord is a strong tower; the [consistently] righteous man [upright and in right standing with God] runs into it and is safe, high [above evil] _and_ strong. 
+The name of the Lord is a strong tower; the [consistently] righteous man [upright and in right standing with God] runs into it and is safe, high [above evil] and strong. 
 
 
 
@@ -238,7 +238,7 @@ The name of the Lord is a strong tower; the [consistently] righteous man [uprigh
 
 
 
-The rich man's wealth is his strong city, and as a high protecting wall in his own imagination _and_ conceit. 
+The rich man's wealth is his strong city, and as a high protecting wall in his own imagination and conceit. 
 
 
 
@@ -301,7 +301,7 @@ He who answers a matter before he hears the facts--it is folly and shame to him.
 
 
 
-The strong spirit of a man sustains him in bodily pain _or_ trouble, but a weak _and_ broken spirit who can raise up _or_ bear? 
+The strong spirit of a man sustains him in bodily pain or trouble, but a weak and broken spirit who can raise up or bear? 
 
 
 

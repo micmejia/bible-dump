@@ -49,7 +49,7 @@ For the Lord will have mercy on Jacob [the captive Jews in Babylon] and will aga
 
 
 
-And the peoples [of Babylonia] shall take them and bring them to their own country [of Judea] _and_ help restore them. And the house of Israel will possess [the foreigners who prefer to stay with] them in the land of the Lord as male and female servants; and they will take captive [not by physical but by moral might] those whose captives they have been, and they will rule over their [former] oppressors. 
+And the peoples [of Babylonia] shall take them and bring them to their own country [of Judea] and help restore them. And the house of Israel will possess [the foreigners who prefer to stay with] them in the land of the Lord as male and female servants; and they will take captive [not by physical but by moral might] those whose captives they have been, and they will rule over their [former] oppressors. 
 
 
 
@@ -70,7 +70,7 @@ And the peoples [of Babylonia] shall take them and bring them to their own count
 
 
 
-When the Lord has given you rest from your sorrow _and_ pain and from your trouble _and_ unrest and from the hard service with which you were made to serve, 
+When the Lord has given you rest from your sorrow and pain and from your trouble and unrest and from the hard service with which you were made to serve, 
 
 
 
@@ -91,7 +91,7 @@ When the Lord has given you rest from your sorrow _and_ pain and from your troub
 
 
 
-You shall take up this [taunting] parable against the king of Babylon and say, How the oppressor has stilled [the restless insolence]! The golden _and_ exacting city has ceased! 
+You shall take up this [taunting] parable against the king of Babylon and say, How the oppressor has stilled [the restless insolence]! The golden and exacting city has ceased! 
 
 
 
@@ -133,7 +133,7 @@ The Lord has broken the staff of the wicked, the scepter of the [tyrant] rulers,
 
 
 
-Who smote the peoples in anger with incessant blows _and_ trod down the nations in wrath with unrelenting persecution--[until] he who smote is persecuted and no one hinders any more. 
+Who smote the peoples in anger with incessant blows and trod down the nations in wrath with unrelenting persecution--[until] he who smote is persecuted and no one hinders any more. 
 
 
 
@@ -175,7 +175,7 @@ The whole earth is at rest and is quiet; they break forth into singing.
 
 
 
-Yes, the fir trees _and_ cypresses rejoice at you [O kings of Babylon], even the cedars of Lebanon, saying, Since you have been laid low, no woodcutter comes up against us. 
+Yes, the fir trees and cypresses rejoice at you [O kings of Babylon], even the cedars of Lebanon, saying, Since you have been laid low, no woodcutter comes up against us. 
 
 
 
@@ -238,7 +238,7 @@ All of them will [tauntingly] say to you, Have you also become weak as we are? H
 
 
 
-Your pomp _and_ magnificence are brought down to Sheol (the underworld), along with the sound of your harps; the maggots [which prey upon dead bodies] are spread out under you and worms cover you [O Babylonian rulers]. 
+Your pomp and magnificence are brought down to Sheol (the underworld), along with the sound of your harps; the maggots [which prey upon dead bodies] are spread out under you and worms cover you [O Babylonian rulers]. 
 
 
 
@@ -259,7 +259,7 @@ Your pomp _and_ magnificence are brought down to Sheol (the underworld), along w
 
 
 
-How have you fallen from heaven, O light-bringer _and_ daystar, son of the morning! How you have been cut down to the ground, you who weakened _and_ laid low the nations [O blasphemous, satanic king of Babylon!] 
+How have you fallen from heaven, O light-bringer and daystar, son of the morning! How you have been cut down to the ground, you who weakened and laid low the nations [O blasphemous, satanic king of Babylon!] 
 
 
 
@@ -343,7 +343,7 @@ Yet you shall be brought down to Sheol (Hades), to the innermost recesses of the
 
 
 
-Those who see you will gaze at you _and_ consider you, saying, Is this the man who made the earth tremble, who shook kingdoms?-- 
+Those who see you will gaze at you and consider you, saying, Is this the man who made the earth tremble, who shook kingdoms?-- 
 
 
 
@@ -406,7 +406,7 @@ All the kings of the nations, all of them lie sleeping in glorious array, each o
 
 
 
-But you are cast away from your tomb like a loathed growth _or_ premature birth _or_ an abominable branch [of the family] _and_ like the raiment of the slain; and you are clothed with the slain, those thrust through with the sword, who go down to the stones of the pit [into which carcasses are thrown], like a dead body trodden underfoot. 
+But you are cast away from your tomb like a loathed growth or premature birth or an abominable branch [of the family] and like the raiment of the slain; and you are clothed with the slain, those thrust through with the sword, who go down to the stones of the pit [into which carcasses are thrown], like a dead body trodden underfoot. 
 
 
 
@@ -448,7 +448,7 @@ You shall not be joined with them in burial, because you have destroyed your lan
 
 
 
-Prepare a slaughtering place for his sons because of the guilt _and_ iniquity of their fathers, so that they may not rise, possess the earth, and fill the face of the world with cities. 
+Prepare a slaughtering place for his sons because of the guilt and iniquity of their fathers, so that they may not rise, possess the earth, and fill the face of the world with cities. 
 
 
 
@@ -490,7 +490,7 @@ And I will rise up against them, says the Lord of hosts, and cut off from Babylo
 
 
 
-I will also make it a possession of the hedgehog _and_ porcupine, and of marshes _and_ pools of water, and I will sweep it with the broom of destruction, says the Lord of hosts. 
+I will also make it a possession of the hedgehog and porcupine, and of marshes and pools of water, and I will sweep it with the broom of destruction, says the Lord of hosts. 
 
 
 
@@ -511,7 +511,7 @@ I will also make it a possession of the hedgehog _and_ porcupine, and of marshes
 
 
 
-The Lord of hosts has sworn, saying, Surely, as I have thought _and_ planned, so shall it come to pass, and as I have purposed, so shall it stand-- 
+The Lord of hosts has sworn, saying, Surely, as I have thought and planned, so shall it come to pass, and as I have purposed, so shall it stand-- 
 
 
 
@@ -637,7 +637,7 @@ Rejoice not, O Philistia, all of you, because the rod [of Judah] that smote you 
 
 
 
-And the firstborn of the poor _and_ the poorest of the poor [of Judah] shall feed on My meadows, and the needy will lie down in safety; but I will kill your root with famine, and your remnant shall be slain. 
+And the firstborn of the poor and the poorest of the poor [of Judah] shall feed on My meadows, and the needy will lie down in safety; but I will kill your root with famine, and your remnant shall be slain. 
 
 
 
@@ -658,7 +658,7 @@ And the firstborn of the poor _and_ the poorest of the poor [of Judah] shall fee
 
 
 
-Howl, O gate! Cry, O city! Melt away, O Philistia, all of you! For there is coming a smoke out of the north, and there is no straggler in his ranks _and_ none stands aloof [in Hezekiah's battalions]. 
+Howl, O gate! Cry, O city! Melt away, O Philistia, all of you! For there is coming a smoke out of the north, and there is no straggler in his ranks and none stands aloof [in Hezekiah's battalions]. 
 
 
 
@@ -679,4 +679,4 @@ Howl, O gate! Cry, O city! Melt away, O Philistia, all of you! For there is comi
 
 
 
-What then shall one answer the messengers of the [Philistine] nation? That the Lord has founded Zion, and in her shall the poor _and_ afflicted of His people trust _and_ find refuge.
+What then shall one answer the messengers of the [Philistine] nation? That the Lord has founded Zion, and in her shall the poor and afflicted of His people trust and find refuge.

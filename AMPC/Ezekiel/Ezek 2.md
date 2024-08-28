@@ -112,7 +112,7 @@ And the children are impudent and hard of heart. I send you to them and you shal
 
 
 
-And they, whether they will hear or refuse to hear--for they are a rebellious house--yet shall they know _and_ realize that there has been a prophet among them. 
+And they, whether they will hear or refuse to hear--for they are a rebellious house--yet shall they know and realize that there has been a prophet among them. 
 
 
 
@@ -133,7 +133,7 @@ And they, whether they will hear or refuse to hear--for they are a rebellious ho
 
 
 
-And you, son of man, be not afraid of them, neither be afraid of their words; though briers and thorns are all around you and you dwell _and_ sit among scorpions, be not afraid of their words nor be dismayed at their looks, for they are a rebellious house. 
+And you, son of man, be not afraid of them, neither be afraid of their words; though briers and thorns are all around you and you dwell and sit among scorpions, be not afraid of their words nor be dismayed at their looks, for they are a rebellious house. 
 
 
 

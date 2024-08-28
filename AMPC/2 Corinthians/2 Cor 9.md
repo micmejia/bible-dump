@@ -36,31 +36,31 @@ Lest, if [any] Macedonians should come with me and find you unprepared [for this
 ###### 5 
 
 
-That is why I thought it necessary to urge these brethren to go to you before I do and make arrangements in advance for this bountiful, promised gift of yours, so that it may be ready, not as an extortion [wrung out of you] but as a generous _and_ willing gift. 
+That is why I thought it necessary to urge these brethren to go to you before I do and make arrangements in advance for this bountiful, promised gift of yours, so that it may be ready, not as an extortion [wrung out of you] but as a generous and willing gift. 
 
 
 ###### 6 
 
 
-[Remember] this: he who sows sparingly _and_ grudgingly will also reap sparingly _and_ grudgingly, and he who sows generously [that blessings may come to someone] will also reap generously _and_ with blessings. 
+[Remember] this: he who sows sparingly and grudgingly will also reap sparingly and grudgingly, and he who sows generously [that blessings may come to someone] will also reap generously and with blessings. 
 
 
 ###### 7 
 
 
-Let each one [give] as he has made up his own mind _and_ purposed in his heart, not reluctantly _or_ sorrowfully or under compulsion, for God loves (He takes pleasure in, prizes above other things, and is unwilling to abandon or to do without) a cheerful (joyous, "prompt to do it") giver [whose heart is in his giving]. 
+Let each one [give] as he has made up his own mind and purposed in his heart, not reluctantly or sorrowfully or under compulsion, for God loves (He takes pleasure in, prizes above other things, and is unwilling to abandon or to do without) a cheerful (joyous, "prompt to do it") giver [whose heart is in his giving]. 
 
 
 ###### 8 
 
 
-And God is able to make all grace (every favor and earthly blessing) come to you in abundance, so that you may always _and_ under all circumstances _and_ whatever the need be self-sufficient [possessing enough to require no aid or support and furnished in abundance for every good work and charitable donation]. 
+And God is able to make all grace (every favor and earthly blessing) come to you in abundance, so that you may always and under all circumstances and whatever the need be self-sufficient [possessing enough to require no aid or support and furnished in abundance for every good work and charitable donation]. 
 
 
 ###### 9 
 
 
-As it is written, He [the benevolent person] scatters abroad; He gives to the poor; His deeds of justice _and_ goodness _and_ kindness _and_ benevolence will go on _and_ endure forever! 
+As it is written, He [the benevolent person] scatters abroad; He gives to the poor; His deeds of justice and goodness and kindness and benevolence will go on and endure forever! 
 
 
 ###### 10 
@@ -72,7 +72,7 @@ And [God] Who provides seed for the sower and bread for eating will also provide
 ###### 11 
 
 
-Thus you will be enriched in all things _and_ in every way, so that you can be generous, and [your generosity as it is] administered by us will bring forth thanksgiving to God. 
+Thus you will be enriched in all things and in every way, so that you can be generous, and [your generosity as it is] administered by us will bring forth thanksgiving to God. 
 
 
 ###### 12 
@@ -84,7 +84,7 @@ For the service that the ministering of this fund renders does not only fully su
 ###### 13 
 
 
-Because at [your] standing of the test of this ministry, they will glorify God for your loyalty _and_ obedience to the Gospel of Christ which you confess, as well as for your generous-hearted liberality to them and to all [the other needy ones]. 
+Because at [your] standing of the test of this ministry, they will glorify God for your loyalty and obedience to the Gospel of Christ which you confess, as well as for your generous-hearted liberality to them and to all [the other needy ones]. 
 
 
 ###### 14 

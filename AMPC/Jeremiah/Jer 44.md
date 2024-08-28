@@ -91,7 +91,7 @@ Because of the wickedness which they committed, provoking Me to anger in that th
 
 
 
-Yet I sent to you all My servants the prophets earnestly _and_ persistently, saying, Oh, do not do this loathsome _and_ shamefully vile thing that I hate _and_ abhor! 
+Yet I sent to you all My servants the prophets earnestly and persistently, saying, Oh, do not do this loathsome and shamefully vile thing that I hate and abhor! 
 
 
 
@@ -112,7 +112,7 @@ Yet I sent to you all My servants the prophets earnestly _and_ persistently, say
 
 
 
-But they did not listen _and_ obey or submit _and_ consent to turn from their wickedness and burn no incense to other gods. 
+But they did not listen and obey or submit and consent to turn from their wickedness and burn no incense to other gods. 
 
 
 
@@ -217,7 +217,7 @@ Have you forgotten the wickedness of your fathers, the wickedness of the kings o
 
 
 
-They are not humbled (contrite, penitent, and bruised for their guilt and iniquities) even to this day, neither have they feared _and_ revered [Me] nor walked in My law or My statutes which I set before you and before your fathers. 
+They are not humbled (contrite, penitent, and bruised for their guilt and iniquities) even to this day, neither have they feared and revered [Me] nor walked in My law or My statutes which I set before you and before your fathers. 
 
 
 
@@ -301,7 +301,7 @@ For I will punish all the inhabitants of the land of Egypt as I have punished Je
 
 
 
-So that none of the remnant of Judah who have come to the land of Egypt to dwell temporarily shall escape or survive or return to the land of Judah, to which they desire _and_ lift up their souls to return to dwell there; for none shall return except [a few] fugitives. 
+So that none of the remnant of Judah who have come to the land of Egypt to dwell temporarily shall escape or survive or return to the land of Judah, to which they desire and lift up their souls to return to dwell there; for none shall return except [a few] fugitives. 
 
 
 
@@ -343,7 +343,7 @@ Then all the men who knew that their wives were burning incense to other gods, a
 
 
 
-As for the word that you have spoken to us in the name of the Lord, we will not listen to _or_ obey you. 
+As for the word that you have spoken to us in the name of the Lord, we will not listen to or obey you. 
 
 
 
@@ -364,7 +364,7 @@ As for the word that you have spoken to us in the name of the Lord, we will not 
 
 
 
-But we will certainly perform every word of the vows we have made: to burn incense to the queen of heaven and to pour out drink offerings to her as we have done--we and our fathers, our kings and our princes--in the cities of Judah and in the streets of Jerusalem; for then we had plenty of food and were well off _and_ prosperous and saw no evil. 
+But we will certainly perform every word of the vows we have made: to burn incense to the queen of heaven and to pour out drink offerings to her as we have done--we and our fathers, our kings and our princes--in the cities of Judah and in the streets of Jerusalem; for then we had plenty of food and were well off and prosperous and saw no evil. 
 
 
 
@@ -406,7 +406,7 @@ But since we stopped burning incense to the queen of heaven and pouring out drin
 
 
 
-[And the wives said] When we burned incense to the queen of heaven and poured out drink offerings to her, did we make cakes [in the shape of a star] to represent _and_ honor her and pour out drink offerings to her without [the knowledge and approval of] our husbands? 
+[And the wives said] When we burned incense to the queen of heaven and poured out drink offerings to her, did we make cakes [in the shape of a star] to represent and honor her and pour out drink offerings to her without [the knowledge and approval of] our husbands? 
 
 
 
@@ -574,7 +574,7 @@ Therefore hear the word of the Lord, all [you people of] Judah who dwell in the 
 
 
 
-Behold, I am watching over them for evil and not for good; and all the men of Judah who are in the land of Egypt shall be consumed by the sword and by famine until there is an end of them _and_ they are all destroyed. 
+Behold, I am watching over them for evil and not for good; and all the men of Judah who are in the land of Egypt shall be consumed by the sword and by famine until there is an end of them and they are all destroyed. 
 
 
 

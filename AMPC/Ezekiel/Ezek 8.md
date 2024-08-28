@@ -343,7 +343,7 @@ Then said [the Spirit] to me, Have you seen this, O son of man? Yet again you sh
 
 
 
-And He brought me to the inner court of the Lord's house; and behold, at the door of the temple of the Lord, between the porch and the bronze altar, were about twenty-five men with their backs to the temple of the Lord and their faces toward the east, and they were bowing themselves toward the east _and_ worshiping the sun. 
+And He brought me to the inner court of the Lord's house; and behold, at the door of the temple of the Lord, between the porch and the bronze altar, were about twenty-five men with their backs to the temple of the Lord and their faces toward the east, and they were bowing themselves toward the east and worshiping the sun. 
 
 
 

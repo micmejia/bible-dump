@@ -70,7 +70,7 @@ And He replied by saying to them, Do you think that these Galileans were greater
 
 
 
-I tell you, No; but unless you repent (change your mind for the better and heartily amend your ways, with abhorrence of your past sins), you will all likewise perish _and_ be lost eternally. 
+I tell you, No; but unless you repent (change your mind for the better and heartily amend your ways, with abhorrence of your past sins), you will all likewise perish and be lost eternally. 
 
 
 
@@ -112,7 +112,7 @@ Or those eighteen on whom the tower in Siloam fell and killed them--do you think
 
 
 
-I tell you, No; but unless you repent (change your mind for the better and heartily amend your ways, with abhorrence of your past sins), you will all likewise perish _and_ be lost eternally. 
+I tell you, No; but unless you repent (change your mind for the better and heartily amend your ways, with abhorrence of your past sins), you will all likewise perish and be lost eternally. 
 
 
 
@@ -196,7 +196,7 @@ But he replied to him, Leave it alone, sir, [just] this one more year, till I di
 
 
 
-Then perhaps it will bear fruit after this; but if not, you can cut it down _and_ out. 
+Then perhaps it will bear fruit after this; but if not, you can cut it down and out. 
 
 
 
@@ -238,7 +238,7 @@ Now Jesus was teaching in one of the synagogues on the Sabbath.
 
 
 
-And there was a woman there who for eighteen years had had an infirmity caused by a spirit (a demon of sickness). She was bent completely forward and utterly unable to straighten herself up _or_ to look upward. 
+And there was a woman there who for eighteen years had had an infirmity caused by a spirit (a demon of sickness). She was bent completely forward and utterly unable to straighten herself up or to look upward. 
 
 
 
@@ -280,7 +280,7 @@ And when Jesus saw her, He called [her to Him] and said to her, Woman, you are r
 
 
 
-Then He laid [His] hands on her, and instantly she was made straight, and she recognized _and_ thanked _and_ praised God. 
+Then He laid [His] hands on her, and instantly she was made straight, and she recognized and thanked and praised God. 
 
 
 
@@ -406,7 +406,7 @@ This led Him to say, What is the kingdom of God like? And to what shall I compar
 
 
 
-It is like a grain of mustard seed, which a man took and planted in his own garden; and it grew and became a tree, and the wild birds found shelter _and_ roosted _and_ nested in its branches. 
+It is like a grain of mustard seed, which a man took and planted in his own garden; and it grew and became a tree, and the wild birds found shelter and roosted and nested in its branches. 
 
 
 
@@ -448,7 +448,7 @@ And again He said, To what shall I liken the kingdom of God?
 
 
 
-It is like leaven which a woman took and hid in three measures of wheat flour _or_ meal until it was all leavened (fermented). 
+It is like leaven which a woman took and hid in three measures of wheat flour or meal until it was all leavened (fermented). 
 
 
 
@@ -721,7 +721,7 @@ Nevertheless, I must continue on My way today and tomorrow and the day after tha
 
 
 
-O Jerusalem, Jerusalem, you who continue to kill the prophets and to stone those who are sent to you! How often I have desired _and_ yearned to gather your children together [around Me], as a hen [gathers] her young under her wings, but you would not! 
+O Jerusalem, Jerusalem, you who continue to kill the prophets and to stone those who are sent to you! How often I have desired and yearned to gather your children together [around Me], as a hen [gathers] her young under her wings, but you would not! 
 
 
 

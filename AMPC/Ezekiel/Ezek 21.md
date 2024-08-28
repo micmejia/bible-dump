@@ -112,7 +112,7 @@ Because I will cut off from you both the righteous and the wicked, therefore sha
 
 
 
-And all living shall know, understand, _and_ realize that I the Lord have drawn My sword out of its sheath; it shall not be sheathed any more. 
+And all living shall know, understand, and realize that I the Lord have drawn My sword out of its sheath; it shall not be sheathed any more. 
 
 
 
@@ -217,7 +217,7 @@ Son of man, prophesy and say, Thus says the Lord: Say, A sword, a sword is sharp
 
 
 
-It [the sword of Babylon] is sharpened that it may make a slaughter, polished that it may flash _and_ glitter like lightning! Shall we then rejoice _and_ make mirth [when such a calamity is impending]? But the rod _or_ scepter of My son [Judah] rejects _and_ views with contempt every tree [that is, since God's promise long ago to Judah is certain, he believes Judah's scepter must remain no matter what power arises against it]! 
+It [the sword of Babylon] is sharpened that it may make a slaughter, polished that it may flash and glitter like lightning! Shall we then rejoice and make mirth [when such a calamity is impending]? But the rod or scepter of My son [Judah] rejects and views with contempt every tree [that is, since God's promise long ago to Judah is certain, he believes Judah's scepter must remain no matter what power arises against it]! 
 
 
 
@@ -259,7 +259,7 @@ And the sword [of Babylon] is given to be polished that it may be put to use; th
 
 
 
-Cry and wail, son of man, for it is against My people; it is against all the princes of Israel; they are thrown to the sword along with My people, _and_ terrors by reason of the sword are upon My people. Therefore smite your thigh [in dismay]. 
+Cry and wail, son of man, for it is against My people; it is against all the princes of Israel; they are thrown to the sword along with My people, and terrors by reason of the sword are upon My people. Therefore smite your thigh [in dismay]. 
 
 
 
@@ -280,7 +280,7 @@ Cry and wail, son of man, for it is against My people; it is against all the pri
 
 
 
-For this sword has been tested _and_ proved [on others], and what if the rejecting _and_ despising rod _or_ scepter of Judah shall be no more but completely swept away? says the Lord God. 
+For this sword has been tested and proved [on others], and what if the rejecting and despising rod or scepter of Judah shall be no more but completely swept away? says the Lord God. 
 
 
 
@@ -301,7 +301,7 @@ For this sword has been tested _and_ proved [on others], and what if the rejecti
 
 
 
-Therefore, son of man, prophesy and smite your hands together and let the sword be doubled, yes, trebled in intensity--the sword for those to be overthrown _and_ pierced through; it is the sword of great slaughter which encompasses them [so that none can escape, even by entering into their inner chambers]. 
+Therefore, son of man, prophesy and smite your hands together and let the sword be doubled, yes, trebled in intensity--the sword for those to be overthrown and pierced through; it is the sword of great slaughter which encompasses them [so that none can escape, even by entering into their inner chambers]. 
 
 
 
@@ -322,7 +322,7 @@ Therefore, son of man, prophesy and smite your hands together and let the sword 
 
 
 
-I have set the threatening _and_ glittering sword against all their gates, that their hearts may melt and their stumblings be multiplied. Ah! It is made [to flash] like lightning; it is pointed _and_ sharpened for slaughter. 
+I have set the threatening and glittering sword against all their gates, that their hearts may melt and their stumblings be multiplied. Ah! It is made [to flash] like lightning; it is pointed and sharpened for slaughter. 
 
 
 
@@ -343,7 +343,7 @@ I have set the threatening _and_ glittering sword against all their gates, that 
 
 
 
-Turn [O sword] and cut right or cut left, whichever way your lust for blood _and_ your edge direct you. 
+Turn [O sword] and cut right or cut left, whichever way your lust for blood and your edge direct you. 
 
 
 
@@ -427,7 +427,7 @@ Also, son of man, mark out two ways by which the sword of the king of Babylon ma
 
 
 
-You shall point out a way for the [Babylonian] sword to come to Rabbah [the capital] of the sons of Ammon and to Judah with Jerusalem, the fortified _and_ inaccessible. 
+You shall point out a way for the [Babylonian] sword to come to Rabbah [the capital] of the sons of Ammon and to Judah with Jerusalem, the fortified and inaccessible. 
 
 
 
@@ -490,7 +490,7 @@ In his right hand is the lot marked for Jerusalem: to set battering rams, to ope
 
 
 
-And it shall seem like a lying divination to them who have sworn oaths [of allegiance to Nebuchadnezzar]. [Will he now fight against their homeland?] But he will remind them of their guilt _and_ iniquity [in violating those oaths], that they may be caught. 
+And it shall seem like a lying divination to them who have sworn oaths [of allegiance to Nebuchadnezzar]. [Will he now fight against their homeland?] But he will remind them of their guilt and iniquity [in violating those oaths], that they may be caught. 
 
 
 
@@ -511,7 +511,7 @@ And it shall seem like a lying divination to them who have sworn oaths [of alleg
 
 
 
-Therefore thus says the Lord God: Because you have made your guilt _and_ iniquity to be remembered, in that your transgressions are uncovered, so that in all your doings your sins appear--because, I say, you have come to remembrance, you shall be taken with the [enemy's] hand. 
+Therefore thus says the Lord God: Because you have made your guilt and iniquity to be remembered, in that your transgressions are uncovered, so that in all your doings your sins appear--because, I say, you have come to remembrance, you shall be taken with the [enemy's] hand. 
 
 
 
@@ -532,7 +532,7 @@ Therefore thus says the Lord God: Because you have made your guilt _and_ iniquit
 
 
 
-And you, O dishonored and wicked one [Zedekiah], the prince of Israel, whose day will come at the time of your final reckoning _and_ punishment, 
+And you, O dishonored and wicked one [Zedekiah], the prince of Israel, whose day will come at the time of your final reckoning and punishment, 
 
 
 
@@ -553,7 +553,7 @@ And you, O dishonored and wicked one [Zedekiah], the prince of Israel, whose day
 
 
 
-Thus says the Lord God: Remove the [high priest's] miter _or_ headband and take off the [king's] crown; things shall not remain as they have been; the low is to be exalted and the high is to be brought low. 
+Thus says the Lord God: Remove the [high priest's] miter or headband and take off the [king's] crown; things shall not remain as they have been; the low is to be exalted and the high is to be brought low. 
 
 
 
@@ -595,7 +595,7 @@ I will overthrow, overthrow, overthrow it; this also shall be no more until He c
 
 
 
-And you, son of man, prophesy and say, Thus says the Lord God concerning the sons of Ammon and concerning their reproach: Say, A sword, a sword is drawn for the slaughter; it is polished to cause it to devour to the uttermost _and_ to flash like lightning, 
+And you, son of man, prophesy and say, Thus says the Lord God concerning the sons of Ammon and concerning their reproach: Say, A sword, a sword is drawn for the slaughter; it is polished to cause it to devour to the uttermost and to flash like lightning, 
 
 
 
@@ -616,7 +616,7 @@ And you, son of man, prophesy and say, Thus says the Lord God concerning the son
 
 
 
-While they see for you false visions, while they divine lies for you to lay you [of Ammon] upon the headless trunks of those who are slain, of the wicked whose day is coming at the time of the final reckoning _and_ punishment. 
+While they see for you false visions, while they divine lies for you to lay you [of Ammon] upon the headless trunks of those who are slain, of the wicked whose day is coming at the time of the final reckoning and punishment. 
 
 
 
@@ -637,7 +637,7 @@ While they see for you false visions, while they divine lies for you to lay you 
 
 
 
-Return [the sword] to its sheath. In the place where you were created, in the land of your origin _and_ of your birth, I will judge you. 
+Return [the sword] to its sheath. In the place where you were created, in the land of your origin and of your birth, I will judge you. 
 
 
 

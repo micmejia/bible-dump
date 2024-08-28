@@ -19,10 +19,10 @@ Then he said, "Behold now, I am old. I do not know the day of my death.
 Now therefore, please take your weapons, your quiver and your bow, and go out to the field and hunt game for me. 
 
 ###### 4 
-And make me savory food, such as I love, and bring _it_ to me that I may eat, that my soul may bless you before I die." 
+And make me savory food, such as I love, and bring it to me that I may eat, that my soul may bless you before I die." 
 
 ###### 5 
-Now Rebekah was listening when Isaac spoke to Esau his son. And Esau went to the field to hunt game and to bring _it._ 
+Now Rebekah was listening when Isaac spoke to Esau his son. And Esau went to the field to hunt game and to bring it. 
 
 ###### 6 
 So Rebekah spoke to Jacob her son, saying, "Indeed I heard your father speak to Esau your brother, saying, 
@@ -37,22 +37,22 @@ Now therefore, my son, obey my voice according to what I command you.
 Go now to the flock and bring me from there two choice kids of the goats, and I will make savory food from them for your father, such as he loves. 
 
 ###### 10 
-Then you shall take _it_ to your father, that he may eat _it,_ and that he may bless you before his death." 
+Then you shall take it to your father, that he may eat it, and that he may bless you before his death." 
 
 ###### 11 
-And Jacob said to Rebekah his mother, "Look, Esau my brother _is_ a hairy man, and I _am_ a smooth-_skinned_ man. 
+And Jacob said to Rebekah his mother, "Look, Esau my brother is a hairy man, and I am a smooth-skinned man. 
 
 ###### 12 
 Perhaps my father will feel me, and I shall seem to be a deceiver to him; and I shall bring a curse on myself and not a blessing." 
 
 ###### 13 
-But his mother said to him, "_Let_ your curse _be_ on me, my son; only obey my voice, and go, get _them_ for me." 
+But his mother said to him, "Let your curse be on me, my son; only obey my voice, and go, get them for me." 
 
 ###### 14 
-And he went and got _them_ and brought _them_ to his mother, and his mother made savory food, such as his father loved. 
+And he went and got them and brought them to his mother, and his mother made savory food, such as his father loved. 
 
 ###### 15 
-Then Rebekah took the choice clothes of her elder son Esau, which _were_ with her in the house, and put them on Jacob her younger son. 
+Then Rebekah took the choice clothes of her elder son Esau, which were with her in the house, and put them on Jacob her younger son. 
 
 ###### 16 
 And she put the skins of the kids of the goats on his hands and on the smooth part of his neck. 
@@ -61,40 +61,40 @@ And she put the skins of the kids of the goats on his hands and on the smooth pa
 Then she gave the savory food and the bread, which she had prepared, into the hand of her son Jacob. 
 
 ###### 18 
-So he went to his father and said, "My father." And he said, "Here I am. Who _are_ you, my son?" 
+So he went to his father and said, "My father." And he said, "Here I am. Who are you, my son?" 
 
 ###### 19 
-Jacob said to his father, "I _am_ Esau your firstborn; I have done just as you told me; please arise, sit and eat of my game, that your soul may bless me." 
+Jacob said to his father, "I am Esau your firstborn; I have done just as you told me; please arise, sit and eat of my game, that your soul may bless me." 
 
 ###### 20 
-But Isaac said to his son, "How _is it_ that you have found _it_ so quickly, my son?" And he said, "Because the Lord your God brought _it_ to me." 
+But Isaac said to his son, "How is it that you have found it so quickly, my son?" And he said, "Because the Lord your God brought it to me." 
 
 ###### 21 
-Isaac said to Jacob, "Please come near, that I may feel you, my son, whether you _are_ really my son Esau or not." 
+Isaac said to Jacob, "Please come near, that I may feel you, my son, whether you are really my son Esau or not." 
 
 ###### 22 
-So Jacob went near to Isaac his father, and he felt him and said, "The voice _is_ Jacob's voice, but the hands _are_ the hands of Esau." 
+So Jacob went near to Isaac his father, and he felt him and said, "The voice is Jacob's voice, but the hands are the hands of Esau." 
 
 ###### 23 
 And he did not recognize him, because his hands were hairy like his brother Esau's hands; so he blessed him. 
 
 ###### 24 
-Then he said, "_Are_ you really my son Esau?" He said, "I _am._" 
+Then he said, "Are you really my son Esau?" He said, "I am." 
 
 ###### 25 
-He said, "Bring _it_ near to me, and I will eat of my son's game, so that my soul may bless you." So he brought _it_ near to him, and he ate; and he brought him wine, and he drank. 
+He said, "Bring it near to me, and I will eat of my son's game, so that my soul may bless you." So he brought it near to him, and he ate; and he brought him wine, and he drank. 
 
 ###### 26 
 Then his father Isaac said to him, "Come near now and kiss me, my son." 
 
 ###### 27 
-And he came near and kissed him; and he smelled the smell of his clothing, and blessed him and said: "Surely, the smell of my son _Is_ like the smell of a field Which the Lord has blessed. 
+And he came near and kissed him; and he smelled the smell of his clothing, and blessed him and said: "Surely, the smell of my son Is like the smell of a field Which the Lord has blessed. 
 
 ###### 28 
 Therefore may God give you Of the dew of heaven, Of the fatness of the earth, And plenty of grain and wine. 
 
 ###### 29 
-Let peoples serve you, And nations bow down to you. Be master over your brethren, And let your mother's sons bow down to you. Cursed _be_ everyone who curses you, And blessed _be_ those who bless you!" 
+Let peoples serve you, And nations bow down to you. Be master over your brethren, And let your mother's sons bow down to you. Cursed be everyone who curses you, And blessed be those who bless you!" 
 
 ## Esau's Lost Hope 
 
@@ -105,10 +105,10 @@ Now it happened, as soon as Isaac had finished blessing Jacob, and Jacob had sca
 He also had made savory food, and brought it to his father, and said to his father, "Let my father arise and eat of his son's game, that your soul may bless me." 
 
 ###### 32 
-And his father Isaac said to him, "Who _are_ you?" So he said, "I _am_ your son, your firstborn, Esau." 
+And his father Isaac said to him, "Who are you?" So he said, "I am your son, your firstborn, Esau." 
 
 ###### 33 
-Then Isaac trembled exceedingly, and said, "Who? Where _is_ the one who hunted game and brought _it_ to me? I ate all _of it_ before you came, and I have blessed him--_and_ indeed he shall be blessed." 
+Then Isaac trembled exceedingly, and said, "Who? Where is the one who hunted game and brought it to me? I ate all of it before you came, and I have blessed him--and indeed he shall be blessed." 
 
 ###### 34 
 When Esau heard the words of his father, he cried with an exceedingly great and bitter cry, and said to his father, "Bless me--me also, O my father!" 
@@ -117,7 +117,7 @@ When Esau heard the words of his father, he cried with an exceedingly great and 
 But he said, "Your brother came with deceit and has taken away your blessing." 
 
 ###### 36 
-And _Esau_ said, "Is he not rightly named Jacob? For he has supplanted me these two times. He took away my birthright, and now look, he has taken away my blessing!" And he said, "Have you not reserved a blessing for me?" 
+And Esau said, "Is he not rightly named Jacob? For he has supplanted me these two times. He took away my birthright, and now look, he has taken away my blessing!" And he said, "Have you not reserved a blessing for me?" 
 
 ###### 37 
 Then Isaac answered and said to Esau, "Indeed I have made him your master, and all his brethren I have given to him as servants; with grain and wine I have sustained him. What shall I do now for you, my son?" 
@@ -137,7 +137,7 @@ By your sword you shall live, And you shall serve your brother; And it shall com
 So Esau hated Jacob because of the blessing with which his father blessed him, and Esau said in his heart, "The days of mourning for my father are at hand; then I will kill my brother Jacob." 
 
 ###### 42 
-And the words of Esau her older son were told to Rebekah. So she sent and called Jacob her younger son, and said to him, "Surely your brother Esau comforts himself concerning you _by intending_ to kill you. 
+And the words of Esau her older son were told to Rebekah. So she sent and called Jacob her younger son, and said to him, "Surely your brother Esau comforts himself concerning you by intending to kill you. 
 
 ###### 43 
 Now therefore, my son, obey my voice: arise, flee to my brother Laban in Haran. 
@@ -149,4 +149,4 @@ And stay with him a few days, until your brother's fury turns away,
 until your brother's anger turns away from you, and he forgets what you have done to him; then I will send and bring you from there. Why should I be bereaved also of you both in one day?" 
 
 ###### 46 
-And Rebekah said to Isaac, "I am weary of my life because of the daughters of Heth; if Jacob takes a wife of the daughters of Heth, like these _who are_ the daughters of the land, what good will my life be to me?"
+And Rebekah said to Isaac, "I am weary of my life because of the daughters of Heth; if Jacob takes a wife of the daughters of Heth, like these who are the daughters of the land, what good will my life be to me?"

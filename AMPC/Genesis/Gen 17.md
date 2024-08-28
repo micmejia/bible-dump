@@ -28,7 +28,7 @@ next: ['Gen 18']
 
 
 
-When Abram was ninety-nine years old, the Lord appeared to him and said, I am the Almighty God; walk _and_ live habitually before Me and be perfect (blameless, wholehearted, complete). 
+When Abram was ninety-nine years old, the Lord appeared to him and said, I am the Almighty God; walk and live habitually before Me and be perfect (blameless, wholehearted, complete). 
 
 
 
@@ -238,7 +238,7 @@ This is My covenant, which you shall keep, between Me and you and your posterity
 
 
 
-And you shall circumcise the flesh of your foreskin, and it shall be a token _or_ sign of the covenant (the promise or pledge) between Me and you. 
+And you shall circumcise the flesh of your foreskin, and it shall be a token or sign of the covenant (the promise or pledge) between Me and you. 
 
 
 
@@ -406,7 +406,7 @@ And [he] said to God, Oh, that Ishmael might live before You!
 
 
 
-But God said, Sarah your wife shall bear you a son indeed, and you shall call his name Isaac [laughter]; and I will establish My covenant _or_ solemn pledge with him for an everlasting covenant and with his posterity after him. 
+But God said, Sarah your wife shall bear you a son indeed, and you shall call his name Isaac [laughter]; and I will establish My covenant or solemn pledge with him for an everlasting covenant and with his posterity after him. 
 
 
 
@@ -427,7 +427,7 @@ But God said, Sarah your wife shall bear you a son indeed, and you shall call hi
 
 
 
-And as for Ishmael, I have heard _and_ heeded you: behold, I will bless him and will make him fruitful and will multiply him exceedingly; He will be the father of twelve princes, and I will make him a great nation. [Fulfilled in Gen. 25:12-18.] 
+And as for Ishmael, I have heard and heeded you: behold, I will bless him and will make him fruitful and will multiply him exceedingly; He will be the father of twelve princes, and I will make him a great nation. [Fulfilled in Gen. 25:12-18.] 
 
 
 

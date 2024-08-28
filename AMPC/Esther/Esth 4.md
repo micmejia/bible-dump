@@ -49,7 +49,7 @@ Now when Mordecai learned all that was done, [he] rent his clothes and put on sa
 
 
 
-He came _and_ stood before the king's gate, for no one might enter the king's gate clothed with sackcloth. 
+He came and stood before the king's gate, for no one might enter the king's gate clothed with sackcloth. 
 
 
 
@@ -91,7 +91,7 @@ And in every province, wherever the king's commandment and his decree came, ther
 
 
 
-When Esther's maids and her attendants came and told it to her, the queen was exceedingly grieved _and_ distressed. She sent garments to clothe Mordecai, with orders to take his sackcloth from off him, but he would not receive them. 
+When Esther's maids and her attendants came and told it to her, the queen was exceedingly grieved and distressed. She sent garments to clothe Mordecai, with orders to take his sackcloth from off him, but he would not receive them. 
 
 
 
@@ -301,7 +301,7 @@ Then Mordecai told them to return this answer to Esther, Do not flatter yourself
 
 
 
-For if you keep silent at this time, relief and deliverance shall arise for the Jews from elsewhere, but you and your father's house will perish. And who knows but that you have come to the kingdom for such a time as this _and_ for this very occasion? 
+For if you keep silent at this time, relief and deliverance shall arise for the Jews from elsewhere, but you and your father's house will perish. And who knows but that you have come to the kingdom for such a time as this and for this very occasion? 
 
 
 

@@ -70,7 +70,7 @@ In those days I, Daniel, was mourning for three whole weeks.
 
 
 
-I ate no pleasant _or_ desirable food, nor did any meat or wine come into my mouth; and I did not anoint myself at all for the full three weeks. 
+I ate no pleasant or desirable food, nor did any meat or wine come into my mouth; and I did not anoint myself at all for the full three weeks. 
 
 
 
@@ -175,7 +175,7 @@ And I, Daniel, alone saw the vision [of this heavenly being], for the men who we
 
 
 
-So I was left alone and saw this great vision, and no strength was left in me, for my fresh appearance was turned to pallor; I grew weak _and_ faint [with fright]. 
+So I was left alone and saw this great vision, and no strength was left in me, for my fresh appearance was turned to pallor; I grew weak and faint [with fright]. 
 
 
 
@@ -259,7 +259,7 @@ And [the angel] said to me, O Daniel, you greatly beloved man, understand the wo
 
 
 
-Then he said to me, Fear not, Daniel, for from the first day that you set your mind _and_ heart to understand and to humble yourself before your God, your words were heard, and I have come as a consequence of [and in response to] your words. 
+Then he said to me, Fear not, Daniel, for from the first day that you set your mind and heart to understand and to humble yourself before your God, your words were heard, and I have come as a consequence of [and in response to] your words. 
 
 
 
@@ -343,7 +343,7 @@ When he had spoken to me according to these words, I turned my face toward the g
 
 
 
-And behold, one in the likeness of the sons of men touched my lips. Then I opened my mouth and spoke. I said to him who stood before me, O my lord, by reason of the vision sorrows _and_ pains have come upon me, and I retain no strength. 
+And behold, one in the likeness of the sons of men touched my lips. Then I opened my mouth and spoke. I said to him who stood before me, O my lord, by reason of the vision sorrows and pains have come upon me, and I retain no strength. 
 
 
 
@@ -448,4 +448,4 @@ Then he said, Do you know why I have come to you? And now I will return to fight
 
 
 
-But I will tell you what is inscribed in the writing of truth _or_ the Book of Truth. There is no one who holds with me _and_ strengthens himself against these [hostile spirit forces] except Michael, your prince [national guardian angel].
+But I will tell you what is inscribed in the writing of truth or the Book of Truth. There is no one who holds with me and strengthens himself against these [hostile spirit forces] except Michael, your prince [national guardian angel].

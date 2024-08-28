@@ -28,7 +28,7 @@ next: ['Num 19']
 
 
 
-And the Lord said to Aaron, You and your sons and your father's house with you shall bear _and_ remove the iniquity of the sanctuary [that is, the guilt for the offenses which the people unknowingly commit when brought into contact with the manifestations of God's presence]. And you and your sons with you shall bear _and_ remove the iniquity of your priesthood [your own unintentional offenses]. 
+And the Lord said to Aaron, You and your sons and your father's house with you shall bear and remove the iniquity of the sanctuary [that is, the guilt for the offenses which the people unknowingly commit when brought into contact with the manifestations of God's presence]. And you and your sons with you shall bear and remove the iniquity of your priesthood [your own unintentional offenses]. 
 
 
 
@@ -175,7 +175,7 @@ Therefore you and your sons with you shall attend to your priesthood for everyth
 
 
 
-And the Lord said to Aaron, And I, behold, I have given you the charge of My heave offerings [whatever is taken out and kept of the offerings made to Me], all the dedicated _and_ consecrated things of the Israelites; to you have I given them [as your portion] and to your sons as a continual allowance forever by reason of your anointing as priests. 
+And the Lord said to Aaron, And I, behold, I have given you the charge of My heave offerings [whatever is taken out and kept of the offerings made to Me], all the dedicated and consecrated things of the Israelites; to you have I given them [as your portion] and to your sons as a continual allowance forever by reason of your anointing as priests. 
 
 
 
@@ -217,7 +217,7 @@ This shall be yours of the most holy things, reserved from the fire: every offer
 
 
 
-As the most holy thing _and_ in a sacred place shall you eat of it; every male [of your house] shall eat of it. It shall be holy to you. 
+As the most holy thing and in a sacred place shall you eat of it; every male [of your house] shall eat of it. It shall be holy to you. 
 
 
 
@@ -364,7 +364,7 @@ And those that are to be redeemed of them, from a month old shall you redeem, ac
 
 
 
-But the firstling of a cow or of a sheep or of a goat you shall not redeem. They [as the firstborn of clean beasts belong to God and] are holy. You shall sprinkle their blood upon the altar and shall burn their fat for an offering made by fire, for a sweet _and_ soothing odor to the Lord. 
+But the firstling of a cow or of a sheep or of a goat you shall not redeem. They [as the firstborn of clean beasts belong to God and] are holy. You shall sprinkle their blood upon the altar and shall burn their fat for an offering made by fire, for a sweet and soothing odor to the Lord. 
 
 
 
@@ -616,7 +616,7 @@ Likewise you shall also present an offering to the Lord of all your tithes which
 
 
 
-Out of all the gifts to you, you shall present every offering due to the Lord, of all the best of it, even the hallowed part lifted out _and_ held back out of it [for the Levites]. 
+Out of all the gifts to you, you shall present every offering due to the Lord, of all the best of it, even the hallowed part lifted out and held back out of it [for the Levites]. 
 
 
 
@@ -637,7 +637,7 @@ Out of all the gifts to you, you shall present every offering due to the Lord, o
 
 
 
-Therefore you shall say to them, When you have lifted out _and_ held back the best from it [and presented it to the Lord by giving it to yourselves, the Levites], then it shall be counted to [you] the Levites just as if it were the increase of the threshing floor or of the winepress. 
+Therefore you shall say to them, When you have lifted out and held back the best from it [and presented it to the Lord by giving it to yourselves, the Levites], then it shall be counted to [you] the Levites just as if it were the increase of the threshing floor or of the winepress. 
 
 
 
@@ -679,4 +679,4 @@ And you may eat it in every place, you and your households, for it is your rewar
 
 
 
-And you shall be guilty of no sin by reason of it when you have lifted out _and_ held back the best of it; neither shall you have polluted the holy things of the Israelites, neither shall you die [because of it].
+And you shall be guilty of no sin by reason of it when you have lifted out and held back the best of it; neither shall you have polluted the holy things of the Israelites, neither shall you die [because of it].

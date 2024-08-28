@@ -28,7 +28,7 @@ next: ['Hos 5']
 
 
 
-Hear the word of the Lord, you children of Israel, for the Lord has a controversy (a pleading contention) with the inhabitants of the land, because there is no faithfulness, love, pity _and_ mercy, or knowledge of God [from personal experience with Him] in the land. 
+Hear the word of the Lord, you children of Israel, for the Lord has a controversy (a pleading contention) with the inhabitants of the land, because there is no faithfulness, love, pity and mercy, or knowledge of God [from personal experience with Him] in the land. 
 
 
 
@@ -70,7 +70,7 @@ There is nothing but [false] swearing and breaking faith and killing and stealin
 
 
 
-Therefore shall the land [continually] mourn, and all who dwell in it shall languish, together with the wild beasts of the open country and the birds of the heavens; yes, the fishes of the sea also shall [perish because of the drought] be collected _and_ taken away. 
+Therefore shall the land [continually] mourn, and all who dwell in it shall languish, together with the wild beasts of the open country and the birds of the heavens; yes, the fishes of the sea also shall [perish because of the drought] be collected and taken away. 
 
 
 
@@ -154,7 +154,7 @@ My people are destroyed for lack of knowledge; because you [the priestly nation]
 
 
 
-The more they increased _and_ multiplied [in prosperity and power], the more they sinned against Me; I will change their glory into shame. 
+The more they increased and multiplied [in prosperity and power], the more they sinned against Me; I will change their glory into shame. 
 
 
 
@@ -238,7 +238,7 @@ For they shall eat and not have enough; they shall play the harlot and beget no 
 
 
 
-Harlotry and wine and new wine take away the heart _and_ the mind _and_ the spiritual understanding. 
+Harlotry and wine and new wine take away the heart and the mind and the spiritual understanding. 
 
 
 
@@ -259,7 +259,7 @@ Harlotry and wine and new wine take away the heart _and_ the mind _and_ the spir
 
 
 
-My people [habitually] ask counsel of their [senseless] wood [idols], and their staff [of wood] gives them oracles _and_ instructs them. For the spirit of harlotry has led them astray and they have played the harlot, withdrawing themselves from subjection to their God. 
+My people [habitually] ask counsel of their [senseless] wood [idols], and their staff [of wood] gives them oracles and instructs them. For the spirit of harlotry has led them astray and they have played the harlot, withdrawing themselves from subjection to their God. 
 
 
 
@@ -301,7 +301,7 @@ They sacrifice on the tops of the mountains, and they burn incense upon the hill
 
 
 
-I will not punish your daughters when they play the harlot nor your daughters-in-law when they commit adultery, for [the fathers and husbands] themselves go aside in order to be alone with women who prostitute themselves for gain, and they sacrifice at the altar with dedicated harlots [who surrender their chastity in honor of the goddess]. Therefore the people without understanding shall stumble _and_ fall _and_ come to ruin. 
+I will not punish your daughters when they play the harlot nor your daughters-in-law when they commit adultery, for [the fathers and husbands] themselves go aside in order to be alone with women who prostitute themselves for gain, and they sacrifice at the altar with dedicated harlots [who surrender their chastity in honor of the goddess]. Therefore the people without understanding shall stumble and fall and come to ruin. 
 
 
 
@@ -322,7 +322,7 @@ I will not punish your daughters when they play the harlot nor your daughters-in
 
 
 
-Though you, Israel, play the harlot _and_ worship idols, let not Judah offend _and_ become guilty; come not to Gilgal, neither go up to Beth-aven [contemptuous reference to Bethel, then noted for idolatry], nor swear [in idolatrous service, saying], As the Lord lives. 
+Though you, Israel, play the harlot and worship idols, let not Judah offend and become guilty; come not to Gilgal, neither go up to Beth-aven [contemptuous reference to Bethel, then noted for idolatry], nor swear [in idolatrous service, saying], As the Lord lives. 
 
 
 
@@ -343,7 +343,7 @@ Though you, Israel, play the harlot _and_ worship idols, let not Judah offend _a
 
 
 
-For Israel has behaved stubbornly, like a stubborn heifer. How then should he expect to be fed _and_ treated by the Lord like a lamb in a large pasture? 
+For Israel has behaved stubbornly, like a stubborn heifer. How then should he expect to be fed and treated by the Lord like a lamb in a large pasture? 
 
 
 
@@ -406,4 +406,4 @@ Their drinking carousal over, they go habitually to play the harlot; [Ephraim's]
 
 
 
-The resistless wind [of God's wrath] has bound up [Israel] in its wings _or_ skirts, and [in captivity] they _and_ their altars shall be put to shame because of their sacrifices [to calves, to sun, moon, and stars, and to heathen gods].
+The resistless wind [of God's wrath] has bound up [Israel] in its wings or skirts, and [in captivity] they and their altars shall be put to shame because of their sacrifices [to calves, to sun, moon, and stars, and to heathen gods].

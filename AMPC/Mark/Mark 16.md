@@ -111,7 +111,7 @@ And when they looked up, they [distinctly] saw that the stone was already rolled
 
 
 
-And going into the tomb, they saw a young man sitting [there] on the right [side], clothed in a [long, stately, sweeping] robe of white, and they were utterly amazed _and_ struck with terror. 
+And going into the tomb, they saw a young man sitting [there] on the right [side], clothed in a [long, stately, sweeping] robe of white, and they were utterly amazed and struck with terror. 
 
 
 
@@ -132,7 +132,7 @@ And going into the tomb, they saw a young man sitting [there] on the right [side
 
 
 
-And he said to them, Do not be amazed _and_ terrified; you are looking for Jesus of Nazareth, Who was crucified. He has risen; He is not here. See the place where they laid Him. 
+And he said to them, Do not be amazed and terrified; you are looking for Jesus of Nazareth, Who was crucified. He has risen; He is not here. See the place where they laid Him. 
 
 
 
@@ -174,7 +174,7 @@ But be going; tell the disciples and Peter, He goes before you into Galilee; you
 
 
 
-Then they went out [and] fled from the tomb, for trembling and bewilderment _and_ consternation had seized them. And they said nothing about it to anyone, for they were held by alarm _and_ fear. 
+Then they went out [and] fled from the tomb, for trembling and bewilderment and consternation had seized them. And they said nothing about it to anyone, for they were held by alarm and fear. 
 
 
 
@@ -300,7 +300,7 @@ And they returned [to Jerusalem] and told the others, but they did not believe t
 
 
 
-Afterward He appeared to the Eleven [apostles themselves] as they reclined at table; and He reproved _and_ reproached them for their unbelief (their lack of faith) and their hardness of heart, because they had refused to believe those who had seen Him _and_ looked at Him attentively after He had risen [from death]. 
+Afterward He appeared to the Eleven [apostles themselves] as they reclined at table; and He reproved and reproached them for their unbelief (their lack of faith) and their hardness of heart, because they had refused to believe those who had seen Him and looked at Him attentively after He had risen [from death]. 
 
 
 
@@ -321,7 +321,7 @@ Afterward He appeared to the Eleven [apostles themselves] as they reclined at ta
 
 
 
-And He said to them, Go into all the world and preach _and_ publish openly the good news (the Gospel) to every creature [of the whole human race]. 
+And He said to them, Go into all the world and preach and publish openly the good news (the Gospel) to every creature [of the whole human race]. 
 
 
 
@@ -426,4 +426,4 @@ So then the Lord Jesus, after He had spoken to them, was taken up into heaven an
 
 
 
-And they went out and preached everywhere, while the Lord kept working with them and confirming the message by the attesting signs _and_ miracles that closely accompanied [it]. Amen (so be it).
+And they went out and preached everywhere, while the Lord kept working with them and confirming the message by the attesting signs and miracles that closely accompanied [it]. Amen (so be it).

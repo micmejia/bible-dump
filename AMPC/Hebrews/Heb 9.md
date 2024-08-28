@@ -12,19 +12,19 @@ next: ['Heb 10']
 ###### 1 
 
 
-Now even the first covenant had its own rules _and_ regulations for divine worship, and it had a sanctuary [but one] of this world. 
+Now even the first covenant had its own rules and regulations for divine worship, and it had a sanctuary [but one] of this world. 
 
 
 ###### 2 
 
 
-For a tabernacle (tent) was erected, in the outer division _or_ compartment of which were the lampstand and the table with [its loaves of] the showbread set forth. [This portion] is called the Holy Place. 
+For a tabernacle (tent) was erected, in the outer division or compartment of which were the lampstand and the table with [its loaves of] the showbread set forth. [This portion] is called the Holy Place. 
 
 
 ###### 3 
 
 
-But [inside] beyond the second curtain _or_ veil, [there stood another] tabernacle [division] known as the Holy of Holies. 
+But [inside] beyond the second curtain or veil, [there stood another] tabernacle [division] known as the Holy of Holies. 
 
 
 ###### 4 
@@ -48,73 +48,73 @@ These arrangements having thus been made, the priests enter [habitually] into th
 ###### 7 
 
 
-But into the second [division of the tabernacle] none but the high priest goes, and he only once a year, and never without taking a sacrifice of blood with him, which he offers for himself and for the errors _and_ sins of ignorance _and_ thoughtlessness which the people have committed. 
+But into the second [division of the tabernacle] none but the high priest goes, and he only once a year, and never without taking a sacrifice of blood with him, which he offers for himself and for the errors and sins of ignorance and thoughtlessness which the people have committed. 
 
 
 ###### 8 
 
 
-By this the Holy Spirit points out that the way into the [true Holy of] Holies is not yet thrown open as long as the former [the outer portion of the] tabernacle remains a recognized institution _and_ is still standing, 
+By this the Holy Spirit points out that the way into the [true Holy of] Holies is not yet thrown open as long as the former [the outer portion of the] tabernacle remains a recognized institution and is still standing, 
 
 
 ###### 9 
 
 
-Seeing that that first [outer portion of the] tabernacle was a parable (a visible symbol or type or picture of the present age). In it gifts and sacrifices are offered, and yet are incapable of perfecting the conscience _or_ of cleansing _and_ renewing the inner man of the worshiper. 
+Seeing that that first [outer portion of the] tabernacle was a parable (a visible symbol or type or picture of the present age). In it gifts and sacrifices are offered, and yet are incapable of perfecting the conscience or of cleansing and renewing the inner man of the worshiper. 
 
 
 ###### 10 
 
 
-For [the ceremonies] deal only with clean and unclean meats and drinks and different washings, [mere] external rules _and_ regulations for the body imposed to tide the worshipers over until the time of setting things straight [of reformation, of the complete new order when Christ, the Messiah, shall establish the reality of what these things foreshadow--a better covenant]. 
+For [the ceremonies] deal only with clean and unclean meats and drinks and different washings, [mere] external rules and regulations for the body imposed to tide the worshipers over until the time of setting things straight [of reformation, of the complete new order when Christ, the Messiah, shall establish the reality of what these things foreshadow--a better covenant]. 
 
 
 ###### 11 
 
 
-But [that appointed time came] when Christ (the Messiah) appeared as a High Priest of the better things that have come _and_ are to come. [Then] through the greater and more perfect tabernacle not made with [human] hands, that is, not a part of this material creation, 
+But [that appointed time came] when Christ (the Messiah) appeared as a High Priest of the better things that have come and are to come. [Then] through the greater and more perfect tabernacle not made with [human] hands, that is, not a part of this material creation, 
 
 
 ###### 12 
 
 
-He went once for all into the [Holy of] Holies [of heaven], not by virtue of the blood of goats and calves [by which to make reconciliation between God and man], but His own blood, having found _and_ secured a complete redemption (an everlasting release for us). 
+He went once for all into the [Holy of] Holies [of heaven], not by virtue of the blood of goats and calves [by which to make reconciliation between God and man], but His own blood, having found and secured a complete redemption (an everlasting release for us). 
 
 
 ###### 13 
 
 
-For if [the mere] sprinkling of unholy _and_ defiled persons with blood of goats and bulls and with the ashes of a burnt heifer is sufficient for the purification of the body, 
+For if [the mere] sprinkling of unholy and defiled persons with blood of goats and bulls and with the ashes of a burnt heifer is sufficient for the purification of the body, 
 
 
 ###### 14 
 
 
-How much more surely shall the blood of Christ, Who by virtue of [His] eternal Spirit [His own preexistent divine personality] has offered Himself as an unblemished sacrifice to God, purify our consciences from dead works _and_ lifeless observances to serve the [ever] living God? 
+How much more surely shall the blood of Christ, Who by virtue of [His] eternal Spirit [His own preexistent divine personality] has offered Himself as an unblemished sacrifice to God, purify our consciences from dead works and lifeless observances to serve the [ever] living God? 
 
 
 ###### 15 
 
 
-[Christ, the Messiah] is therefore the Negotiator _and_ Mediator of an [entirely] new agreement (testament, covenant), so that those who are called _and_ offered it may receive the fulfillment of the promised everlasting inheritance--since a death has taken place which rescues _and_ delivers _and_ redeems them from the transgressions committed under the [old] first agreement. 
+[Christ, the Messiah] is therefore the Negotiator and Mediator of an [entirely] new agreement (testament, covenant), so that those who are called and offered it may receive the fulfillment of the promised everlasting inheritance--since a death has taken place which rescues and delivers and redeems them from the transgressions committed under the [old] first agreement. 
 
 
 ###### 16 
 
 
-For where there is a [last] will _and_ testament involved, the death of the one who made it must be established, 
+For where there is a [last] will and testament involved, the death of the one who made it must be established, 
 
 
 ###### 17 
 
 
-For a will _and_ testament is valid and takes effect only at death, since it has no force _or_ legal power as long as the one who made it is alive. 
+For a will and testament is valid and takes effect only at death, since it has no force or legal power as long as the one who made it is alive. 
 
 
 ###### 18 
 
 
-So even the [old] first covenant (God's will) was not inaugurated _and_ ratified _and_ put in force without the shedding of blood. 
+So even the [old] first covenant (God's will) was not inaugurated and ratified and put in force without the shedding of blood. 
 
 
 ###### 19 
@@ -126,31 +126,31 @@ For when every command of the Law had been read out by Moses to all the people, 
 ###### 20 
 
 
-Saying these words: This is the blood that seals _and_ ratifies the agreement (the testament, the covenant) which God commanded [me to deliver to] you. 
+Saying these words: This is the blood that seals and ratifies the agreement (the testament, the covenant) which God commanded [me to deliver to] you. 
 
 
 ###### 21 
 
 
-And in the same way he sprinkled with the blood both the tabernacle and all the [sacred] vessels _and_ appliances used in [divine] worship. 
+And in the same way he sprinkled with the blood both the tabernacle and all the [sacred] vessels and appliances used in [divine] worship. 
 
 
 ###### 22 
 
 
-[In fact] under the Law almost everything is purified by means of blood, and without the shedding of blood there is neither release from sin _and_ its guilt _nor_ the remission of the due _and_ merited punishment for sins. 
+[In fact] under the Law almost everything is purified by means of blood, and without the shedding of blood there is neither release from sin and its guilt nor the remission of the due and merited punishment for sins. 
 
 
 ###### 23 
 
 
-By such means, therefore, it was necessary for the [earthly] copies of the heavenly things to be purified, but the actual heavenly things themselves [required far] better _and_ nobler sacrifices than these. 
+By such means, therefore, it was necessary for the [earthly] copies of the heavenly things to be purified, but the actual heavenly things themselves [required far] better and nobler sacrifices than these. 
 
 
 ###### 24 
 
 
-For Christ (the Messiah) has not entered into a sanctuary made with [human] hands, only a copy _and_ pattern _and_ type of the true one, but [He has entered] into heaven itself, now to appear in the [very] presence of God on our behalf. 
+For Christ (the Messiah) has not entered into a sanctuary made with [human] hands, only a copy and pattern and type of the true one, but [He has entered] into heaven itself, now to appear in the [very] presence of God on our behalf. 
 
 
 ###### 25 
@@ -162,7 +162,7 @@ Nor did He [enter into the heavenly sanctuary to] offer Himself regularly again 
 ###### 26 
 
 
-For then would He often have had to suffer [over and over again] since the foundation of the world. But as it now is, He has once for all at the consummation _and_ close of the ages appeared to put away _and_ abolish sin by His sacrifice [of Himself]. 
+For then would He often have had to suffer [over and over again] since the foundation of the world. But as it now is, He has once for all at the consummation and close of the ages appeared to put away and abolish sin by His sacrifice [of Himself]. 
 
 
 ###### 27 
@@ -174,4 +174,4 @@ And just as it is appointed for [all] men once to die, and after that the [certa
 ###### 28 
 
 
-Even so it is that Christ, having been offered to take upon Himself _and_ bear as a burden the sins of many once _and_ once for all, will appear a second time, not to carry any burden of sin _nor_ to deal with sin, but to bring to full salvation those who are [eagerly, constantly, and patiently] waiting for _and_ expecting Him.
+Even so it is that Christ, having been offered to take upon Himself and bear as a burden the sins of many once and once for all, will appear a second time, not to carry any burden of sin nor to deal with sin, but to bring to full salvation those who are [eagerly, constantly, and patiently] waiting for and expecting Him.

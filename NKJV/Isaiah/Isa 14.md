@@ -27,27 +27,27 @@ that you will take up this proverb against the king of Babylon, and say: "How th
 The Lord has broken the staff of the wicked, The scepter of the rulers; 
 
 ###### 6 
-He who struck the people in wrath with a continual stroke, He who ruled the nations in anger, Is persecuted _and_ no one hinders. 
+He who struck the people in wrath with a continual stroke, He who ruled the nations in anger, Is persecuted and no one hinders. 
 
 ###### 7 
-The whole earth is at rest _and_ quiet; They break forth into singing. 
+The whole earth is at rest and quiet; They break forth into singing. 
 
 ###### 8 
-Indeed the cypress trees rejoice over you, _And_ the cedars of Lebanon, _Saying,_ 'Since you were cut down, No woodsman has come up against us.' 
+Indeed the cypress trees rejoice over you, And the cedars of Lebanon, Saying, 'Since you were cut down, No woodsman has come up against us.' 
 
 ###### 9 
-"Hell from beneath is excited about you, To meet _you_ at your coming; It stirs up the dead for you, All the chief ones of the earth; It has raised up from their thrones All the kings of the nations. 
+"Hell from beneath is excited about you, To meet you at your coming; It stirs up the dead for you, All the chief ones of the earth; It has raised up from their thrones All the kings of the nations. 
 
 ###### 10 
 They all shall speak and say to you: 'Have you also become as weak as we? Have you become like us? 
 
 ###### 11 
-Your pomp is brought down to Sheol, _And_ the sound of your stringed instruments; The maggot is spread under you, And worms cover you.' 
+Your pomp is brought down to Sheol, And the sound of your stringed instruments; The maggot is spread under you, And worms cover you.' 
 
 ## The Fall of Lucifer 
 
 ###### 12 
-"How you are fallen from heaven, O Lucifer, son of the morning! _How_ you are cut down to the ground, You who weakened the nations! 
+"How you are fallen from heaven, O Lucifer, son of the morning! How you are cut down to the ground, You who weakened the nations! 
 
 ###### 13 
 For you have said in your heart: 'I will ascend into heaven, I will exalt my throne above the stars of God; I will also sit on the mount of the congregation On the farthest sides of the north; 
@@ -59,19 +59,19 @@ I will ascend above the heights of the clouds, I will be like the Most High.'
 Yet you shall be brought down to Sheol, To the lowest depths of the Pit. 
 
 ###### 16 
-"Those who see you will gaze at you, _And_ consider you, _saying:_ '_Is_ this the man who made the earth tremble, Who shook kingdoms, 
+"Those who see you will gaze at you, And consider you, saying: 'Is this the man who made the earth tremble, Who shook kingdoms, 
 
 ###### 17 
-Who made the world as a wilderness And destroyed its cities, _Who_ did not open the house of his prisoners?' 
+Who made the world as a wilderness And destroyed its cities, Who did not open the house of his prisoners?' 
 
 ###### 18 
 "All the kings of the nations, All of them, sleep in glory, Everyone in his own house; 
 
 ###### 19 
-But you are cast out of your grave Like an abominable branch, _Like_ the garment of those who are slain, Thrust through with a sword, Who go down to the stones of the pit, Like a corpse trodden underfoot. 
+But you are cast out of your grave Like an abominable branch, Like the garment of those who are slain, Thrust through with a sword, Who go down to the stones of the pit, Like a corpse trodden underfoot. 
 
 ###### 20 
-You will not be joined with them in burial, Because you have destroyed your land _And_ slain your people. The brood of evildoers shall never be named. 
+You will not be joined with them in burial, Because you have destroyed your land And slain your people. The brood of evildoers shall never be named. 
 
 ###### 21 
 Prepare slaughter for his children Because of the iniquity of their fathers, Lest they rise up and possess the land, And fill the face of the world with cities." 
@@ -87,16 +87,16 @@ Prepare slaughter for his children Because of the iniquity of their fathers, Les
 ## Assyria Destroyed 
 
 ###### 24 
-The Lord of hosts has sworn, saying, "Surely, as I have thought, so it shall come to pass, And as I have purposed, _so_ it shall stand: 
+The Lord of hosts has sworn, saying, "Surely, as I have thought, so it shall come to pass, And as I have purposed, so it shall stand: 
 
 ###### 25 
 That I will break the Assyrian in My land, And on My mountains tread him underfoot. Then his yoke shall be removed from them, And his burden removed from their shoulders. 
 
 ###### 26 
-This _is_ the purpose that is purposed against the whole earth, And this _is_ the hand that is stretched out over all the nations. 
+This is the purpose that is purposed against the whole earth, And this is the hand that is stretched out over all the nations. 
 
 ###### 27 
-For the Lord of hosts has purposed, And who will annul _it?_ His hand _is_ stretched out, And who will turn it back?" 
+For the Lord of hosts has purposed, And who will annul it? His hand is stretched out, And who will turn it back?" 
 
 ## Philistia Destroyed 
 
@@ -104,13 +104,13 @@ For the Lord of hosts has purposed, And who will annul _it?_ His hand _is_ stret
 This is the burden which came in the year that King Ahaz died. 
 
 ###### 29 
-"Do not rejoice, all you of Philistia, Because the rod that struck you is broken; For out of the serpent's roots will come forth a viper, And its offspring _will be_ a fiery flying serpent. 
+"Do not rejoice, all you of Philistia, Because the rod that struck you is broken; For out of the serpent's roots will come forth a viper, And its offspring will be a fiery flying serpent. 
 
 ###### 30 
 The firstborn of the poor will feed, And the needy will lie down in safety; I will kill your roots with famine, And it will slay your remnant. 
 
 ###### 31 
-Wail, O gate! Cry, O city! All you of Philistia _are_ dissolved; For smoke will come from the north, And no one _will be_ alone in his appointed times." 
+Wail, O gate! Cry, O city! All you of Philistia are dissolved; For smoke will come from the north, And no one will be alone in his appointed times." 
 
 ###### 32 
 What will they answer the messengers of the nation? That the Lord has founded Zion, And the poor of His people shall take refuge in it.

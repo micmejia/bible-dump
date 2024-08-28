@@ -10,7 +10,7 @@ next: ['Esth 9']
 
 
 ###### 1 
-On that day King Ahasuerus gave Queen Esther the house of Haman, the enemy of the Jews. And Mordecai came before the king, for Esther had told how he _was related_ to her. 
+On that day King Ahasuerus gave Queen Esther the house of Haman, the enemy of the Jews. And Mordecai came before the king, for Esther had told how he was related to her. 
 
 ###### 2 
 So the king took off his signet ring, which he had taken from Haman, and gave it to Mordecai; and Esther appointed Mordecai over the house of Haman. 
@@ -22,28 +22,28 @@ Now Esther spoke again to the king, fell down at his feet, and implored him with
 And the king held out the golden scepter toward Esther. So Esther arose and stood before the king, 
 
 ###### 5 
-and said, "If it pleases the king, and if I have found favor in his sight and the thing _seems_ right to the king and I am pleasing in his eyes, let it be written to revoke the letters devised by Haman, the son of Hammedatha the Agagite, which he wrote to annihilate the Jews who _are_ in all the king's provinces. 
+and said, "If it pleases the king, and if I have found favor in his sight and the thing seems right to the king and I am pleasing in his eyes, let it be written to revoke the letters devised by Haman, the son of Hammedatha the Agagite, which he wrote to annihilate the Jews who are in all the king's provinces. 
 
 ###### 6 
 For how can I endure to see the evil that will come to my people? Or how can I endure to see the destruction of my countrymen?" 
 
 ###### 7 
-Then King Ahasuerus said to Queen Esther and Mordecai the Jew, "Indeed, I have given Esther the house of Haman, and they have hanged him on the gallows because he _tried to_ lay his hand on the Jews. 
+Then King Ahasuerus said to Queen Esther and Mordecai the Jew, "Indeed, I have given Esther the house of Haman, and they have hanged him on the gallows because he tried to lay his hand on the Jews. 
 
 ###### 8 
-You yourselves write _a decree_ concerning the Jews, as you please, in the king's name, and seal _it_ with the king's signet ring; for whatever is written in the king's name and sealed with the king's signet ring no one can revoke." 
+You yourselves write a decree concerning the Jews, as you please, in the king's name, and seal it with the king's signet ring; for whatever is written in the king's name and sealed with the king's signet ring no one can revoke." 
 
 ###### 9 
-So the king's scribes were called at that time, in the third month, which _is_ the month of Sivan, on the twenty-third _day;_ and it was written, according to all that Mordecai commanded, to the Jews, the satraps, the governors, and the princes of the provinces from India to Ethiopia, one hundred and twenty-seven provinces _in all,_ to every province in its own script, to every people in their own language, and to the Jews in their own script and language. 
+So the king's scribes were called at that time, in the third month, which is the month of Sivan, on the twenty-third day; and it was written, according to all that Mordecai commanded, to the Jews, the satraps, the governors, and the princes of the provinces from India to Ethiopia, one hundred and twenty-seven provinces in all, to every province in its own script, to every people in their own language, and to the Jews in their own script and language. 
 
 ###### 10 
-And he wrote in the name of King Ahasuerus, sealed _it_ with the king's signet ring, and sent letters by couriers on horseback, riding on royal horses bred from swift steeds. 
+And he wrote in the name of King Ahasuerus, sealed it with the king's signet ring, and sent letters by couriers on horseback, riding on royal horses bred from swift steeds. 
 
 ###### 11 
-By these letters the king permitted the Jews who _were_ in every city to gather together and protect their lives--to destroy, kill, and annihilate all the forces of any people or province that would assault them, _both_ little children and women, and to plunder their possessions, 
+By these letters the king permitted the Jews who were in every city to gather together and protect their lives--to destroy, kill, and annihilate all the forces of any people or province that would assault them, both little children and women, and to plunder their possessions, 
 
 ###### 12 
-on one day in all the provinces of King Ahasuerus, on the thirteenth _day_ of the twelfth month, which _is_ the month of Adar. 
+on one day in all the provinces of King Ahasuerus, on the thirteenth day of the twelfth month, which is the month of Adar. 
 
 ###### 13 
 A copy of the document was to be issued as a decree in every province and published for all people, so that the Jews would be ready on that day to avenge themselves on their enemies. 

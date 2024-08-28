@@ -10,7 +10,7 @@ next: ['Exod 28']
 
 
 ###### 1 
-"You shall make an altar of acacia wood, five cubits long and five cubits wide--the altar shall be square--and its height _shall be_ three cubits. 
+"You shall make an altar of acacia wood, five cubits long and five cubits wide--the altar shall be square--and its height shall be three cubits. 
 
 ###### 2 
 You shall make its horns on its four corners; its horns shall be of one piece with it. And you shall overlay it with bronze. 
@@ -31,42 +31,42 @@ And you shall make poles for the altar, poles of acacia wood, and overlay them w
 The poles shall be put in the rings, and the poles shall be on the two sides of the altar to bear it. 
 
 ###### 8 
-You shall make it hollow with boards; as it was shown you on the mountain, so shall they make _it._
+You shall make it hollow with boards; as it was shown you on the mountain, so shall they make it.
 
 ## The Court of the Tabernacle 
 
 ###### 9 
-"You shall also make the court of the tabernacle. For the south side _there shall be_ hangings for the court _made of_ fine woven linen, one hundred cubits long for one side. 
+"You shall also make the court of the tabernacle. For the south side there shall be hangings for the court made of fine woven linen, one hundred cubits long for one side. 
 
 ###### 10 
-And its twenty pillars and their twenty sockets _shall be_ bronze. The hooks of the pillars and their bands _shall be_ silver. 
+And its twenty pillars and their twenty sockets shall be bronze. The hooks of the pillars and their bands shall be silver. 
 
 ###### 11 
-Likewise along the length of the north side _there shall be_ hangings one hundred _cubits_ long, with its twenty pillars and their twenty sockets of bronze, and the hooks of the pillars and their bands of silver. 
+Likewise along the length of the north side there shall be hangings one hundred cubits long, with its twenty pillars and their twenty sockets of bronze, and the hooks of the pillars and their bands of silver. 
 
 ###### 12 
-"And along the width of the court on the west side _shall be_ hangings of fifty cubits, with their ten pillars and their ten sockets. 
+"And along the width of the court on the west side shall be hangings of fifty cubits, with their ten pillars and their ten sockets. 
 
 ###### 13 
-The width of the court on the east side _shall be_ fifty cubits. 
+The width of the court on the east side shall be fifty cubits. 
 
 ###### 14 
-The hangings on _one_ side _of the gate shall be_ fifteen cubits, _with_ their three pillars and their three sockets. 
+The hangings on one side of the gate shall be fifteen cubits, with their three pillars and their three sockets. 
 
 ###### 15 
-And on the other side _shall be_ hangings of fifteen _cubits, with_ their three pillars and their three sockets. 
+And on the other side shall be hangings of fifteen cubits, with their three pillars and their three sockets. 
 
 ###### 16 
-"For the gate of the court _there shall be_ a screen twenty cubits long, _woven of_ blue, purple, and scarlet _thread,_ and fine woven linen, made by a weaver. It _shall have_ four pillars and four sockets. 
+"For the gate of the court there shall be a screen twenty cubits long, woven of blue, purple, and scarlet thread, and fine woven linen, made by a weaver. It shall have four pillars and four sockets. 
 
 ###### 17 
-All the pillars around the court shall have bands of silver; their hooks _shall be_ of silver and their sockets of bronze. 
+All the pillars around the court shall have bands of silver; their hooks shall be of silver and their sockets of bronze. 
 
 ###### 18 
-The length of the court _shall be_ one hundred cubits, the width fifty throughout, and the height five cubits, _made of_ fine woven linen, and its sockets of bronze. 
+The length of the court shall be one hundred cubits, the width fifty throughout, and the height five cubits, made of fine woven linen, and its sockets of bronze. 
 
 ###### 19 
-All the utensils of the tabernacle for all its service, all its pegs, and all the pegs of the court, _shall be_ of bronze.
+All the utensils of the tabernacle for all its service, all its pegs, and all the pegs of the court, shall be of bronze.
 
 ## The Care of the Lampstand 
 
@@ -74,4 +74,4 @@ All the utensils of the tabernacle for all its service, all its pegs, and all th
 "And you shall command the children of Israel that they bring you pure oil of pressed olives for the light, to cause the lamp to burn continually. 
 
 ###### 21 
-In the tabernacle of meeting, outside the veil which _is_ before the Testimony, Aaron and his sons shall tend it from evening until morning before the Lord. _It shall be_ a statute forever to their generations on behalf of the children of Israel.
+In the tabernacle of meeting, outside the veil which is before the Testimony, Aaron and his sons shall tend it from evening until morning before the Lord. It shall be a statute forever to their generations on behalf of the children of Israel.

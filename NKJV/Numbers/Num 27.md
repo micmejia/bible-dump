@@ -10,10 +10,10 @@ next: ['Num 28']
 
 
 ###### 1 
-Then came the daughters of Zelophehad the son of Hepher, the son of Gilead, the son of Machir, the son of Manasseh, from the families of Manasseh the son of Joseph; and these _were_ the names of his daughters: Mahlah, Noah, Hoglah, Milcah, and Tirzah. 
+Then came the daughters of Zelophehad the son of Hepher, the son of Gilead, the son of Machir, the son of Manasseh, from the families of Manasseh the son of Joseph; and these were the names of his daughters: Mahlah, Noah, Hoglah, Milcah, and Tirzah. 
 
 ###### 2 
-And they stood before Moses, before Eleazar the priest, and before the leaders and all the congregation, _by_ the doorway of the tabernacle of meeting, saying: 
+And they stood before Moses, before Eleazar the priest, and before the leaders and all the congregation, by the doorway of the tabernacle of meeting, saying: 
 
 ###### 3 
 "Our father died in the wilderness; but he was not in the company of those who gathered together against the Lord, in company with Korah, but he died in his own sin; and he had no sons. 
@@ -28,7 +28,7 @@ So Moses brought their case before the Lord.
 And the Lord spoke to Moses, saying: 
 
 ###### 7 
-"The daughters of Zelophehad speak _what is_ right; you shall surely give them a possession of inheritance among their father's brothers, and cause the inheritance of their father to pass to them. 
+"The daughters of Zelophehad speak what is right; you shall surely give them a possession of inheritance among their father's brothers, and cause the inheritance of their father to pass to them. 
 
 ###### 8 
 And you shall speak to the children of Israel, saying: 'If a man dies and has no son, then you shall cause his inheritance to pass to his daughter. 
@@ -51,7 +51,7 @@ Now the Lord said to Moses: "Go up into this Mount Abarim, and see the land whic
 And when you have seen it, you also shall be gathered to your people, as Aaron your brother was gathered. 
 
 ###### 14 
-For in the Wilderness of Zin, during the strife of the congregation, you rebelled against My command to hallow Me at the waters before their eyes." (These _are_ the waters of Meribah, at Kadesh in the Wilderness of Zin.) 
+For in the Wilderness of Zin, during the strife of the congregation, you rebelled against My command to hallow Me at the waters before their eyes." (These are the waters of Meribah, at Kadesh in the Wilderness of Zin.) 
 
 ###### 15 
 Then Moses spoke to the Lord, saying: 
@@ -63,13 +63,13 @@ Then Moses spoke to the Lord, saying:
 who may go out before them and go in before them, who may lead them out and bring them in, that the congregation of the Lord may not be like sheep which have no shepherd." 
 
 ###### 18 
-And the Lord said to Moses: "Take Joshua the son of Nun with you, a man in whom _is_ the Spirit, and lay your hand on him; 
+And the Lord said to Moses: "Take Joshua the son of Nun with you, a man in whom is the Spirit, and lay your hand on him; 
 
 ###### 19 
 set him before Eleazar the priest and before all the congregation, and inaugurate him in their sight. 
 
 ###### 20 
-And you shall give _some_ of your authority to him, that all the congregation of the children of Israel may be obedient. 
+And you shall give some of your authority to him, that all the congregation of the children of Israel may be obedient. 
 
 ###### 21 
 He shall stand before Eleazar the priest, who shall inquire before the Lord for him by the judgment of the Urim. At his word they shall go out, and at his word they shall come in, he and all the children of Israel with him--all the congregation." 

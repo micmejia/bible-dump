@@ -133,7 +133,7 @@ And when the Syrians of Damascus came to help Hadadezer king of Zobah, David sle
 
 
 
-David put garrisons in Syrian Damascus, and the Syrians became [his] servants and brought tribute. The Lord preserved _and_ gave victory to David wherever he went. 
+David put garrisons in Syrian Damascus, and the Syrians became [his] servants and brought tribute. The Lord preserved and gave victory to David wherever he went. 
 
 
 
@@ -217,7 +217,7 @@ When Toi king of Hamath heard about David's defeat of all the forces of Hadadeze
 
 
 
-[He] sent Joram his son to King David to salute _and_ congratulate him about his battle and defeat of Hadadezer. For Hadadezer had had wars with Toi. Joram brought vessels of silver, gold, and bronze. 
+[He] sent Joram his son to King David to salute and congratulate him about his battle and defeat of Hadadezer. For Hadadezer had had wars with Toi. Joram brought vessels of silver, gold, and bronze. 
 
 
 
@@ -301,7 +301,7 @@ David won renown. When he returned he slew 18,000 Edomites in the Valley of Salt
 
 
 
-He put garrisons throughout all Edom, and all the Edomites became his servants. And the Lord preserved _and_ gave victory to [him] wherever he went. 
+He put garrisons throughout all Edom, and all the Edomites became his servants. And the Lord preserved and gave victory to [him] wherever he went. 
 
 
 

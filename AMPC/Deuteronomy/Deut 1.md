@@ -258,7 +258,7 @@ May the Lord, the God of your fathers, make you a thousand times as many as you 
 
 
 
-How can I bear alone the weariness _and_ pressure and burden of you and your strife? 
+How can I bear alone the weariness and pressure and burden of you and your strife? 
 
 
 
@@ -279,7 +279,7 @@ How can I bear alone the weariness _and_ pressure and burden of you and your str
 
 
 
-Choose wise, understanding, experienced, _and_ respected men according to your tribes, and I will make them heads over you. 
+Choose wise, understanding, experienced, and respected men according to your tribes, and I will make them heads over you. 
 
 
 
@@ -321,7 +321,7 @@ And you answered me, The thing which you have spoken is good for us to do.
 
 
 
-So I took the heads of your tribes, wise, experienced, _and_ respected men, and made them heads over you, commanders of thousands, and hundreds, and fifties, and tens, and officers according to your tribes. 
+So I took the heads of your tribes, wise, experienced, and respected men, and made them heads over you, commanders of thousands, and hundreds, and fifties, and tens, and officers according to your tribes. 
 
 
 
@@ -342,7 +342,7 @@ So I took the heads of your tribes, wise, experienced, _and_ respected men, and 
 
 
 
-And I charged your judges at that time: Hear the cases between your brethren and judge righteously between a man and his brother or the stranger _or_ sojourner who is with him. 
+And I charged your judges at that time: Hear the cases between your brethren and judge righteously between a man and his brother or the stranger or sojourner who is with him. 
 
 
 
@@ -573,7 +573,7 @@ Yet you would not go up, but rebelled against the commandment of the Lord your G
 
 
 
-You were peevish _and_ discontented in your tents, and said, Because the Lord hated us, He brought us forth out of the land of Egypt to deliver us into the hand of the Amorites to destroy us. 
+You were peevish and discontented in your tents, and said, Because the Lord hated us, He brought us forth out of the land of Egypt to deliver us into the hand of the Amorites to destroy us. 
 
 
 

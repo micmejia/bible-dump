@@ -13,13 +13,13 @@ next: ['Job 39']
 Then the Lord answered Job out of the whirlwind, and said: 
 
 ###### 2 
-"Who _is_ this who darkens counsel By words without knowledge? 
+"Who is this who darkens counsel By words without knowledge? 
 
 ###### 3 
 Now prepare yourself like a man; I will question you, and you shall answer Me. 
 
 ###### 4 
-"Where were you when I laid the foundations of the earth? Tell _Me,_ if you have understanding. 
+"Where were you when I laid the foundations of the earth? Tell Me, if you have understanding. 
 
 ###### 5 
 Who determined its measurements? Surely you know! Or who stretched the line upon it? 
@@ -31,7 +31,7 @@ To what were its foundations fastened? Or who laid its cornerstone,
 When the morning stars sang together, And all the sons of God shouted for joy? 
 
 ###### 8 
-"Or _who_ shut in the sea with doors, When it burst forth _and_ issued from the womb; 
+"Or who shut in the sea with doors, When it burst forth and issued from the womb; 
 
 ###### 9 
 When I made the clouds its garment, And thick darkness its swaddling band; 
@@ -43,13 +43,13 @@ When I fixed My limit for it, And set bars and doors;
 When I said, 'This far you may come, but no farther, And here your proud waves must stop!' 
 
 ###### 12 
-"Have you commanded the morning since your days _began,_ _And_ caused the dawn to know its place, 
+"Have you commanded the morning since your days began, And caused the dawn to know its place, 
 
 ###### 13 
 That it might take hold of the ends of the earth, And the wicked be shaken out of it? 
 
 ###### 14 
-It takes on form like clay _under_ a seal, And stands out like a garment. 
+It takes on form like clay under a seal, And stands out like a garment. 
 
 ###### 15 
 From the wicked their light is withheld, And the upraised arm is broken. 
@@ -61,16 +61,16 @@ From the wicked their light is withheld, And the upraised arm is broken.
 Have the gates of death been revealed to you? Or have you seen the doors of the shadow of death? 
 
 ###### 18 
-Have you comprehended the breadth of the earth? Tell _Me,_ if you know all this. 
+Have you comprehended the breadth of the earth? Tell Me, if you know all this. 
 
 ###### 19 
-"Where _is_ the way _to_ the dwelling of light? And darkness, where _is_ its place, 
+"Where is the way to the dwelling of light? And darkness, where is its place, 
 
 ###### 20 
-That you may take it to its territory, That you may know the paths _to_ its home? 
+That you may take it to its territory, That you may know the paths to its home? 
 
 ###### 21 
-Do you know _it,_ because you were born then, Or _because_ the number of your days _is_ great? 
+Do you know it, because you were born then, Or because the number of your days is great? 
 
 ###### 22 
 "Have you entered the treasury of snow, Or have you seen the treasury of hail, 
@@ -79,13 +79,13 @@ Do you know _it,_ because you were born then, Or _because_ the number of your da
 Which I have reserved for the time of trouble, For the day of battle and war? 
 
 ###### 24 
-By what way is light diffused, _Or_ the east wind scattered over the earth? 
+By what way is light diffused, Or the east wind scattered over the earth? 
 
 ###### 25 
-"Who has divided a channel for the overflowing _water,_ Or a path for the thunderbolt, 
+"Who has divided a channel for the overflowing water, Or a path for the thunderbolt, 
 
 ###### 26 
-To cause it to rain on a land _where there is_ no one, A wilderness in which _there is_ no man; 
+To cause it to rain on a land where there is no one, A wilderness in which there is no man; 
 
 ###### 27 
 To satisfy the desolate waste, And cause to spring forth the growth of tender grass? 
@@ -112,7 +112,7 @@ Do you know the ordinances of the heavens? Can you set their dominion over the e
 "Can you lift up your voice to the clouds, That an abundance of water may cover you? 
 
 ###### 35 
-Can you send out lightnings, that they may go, And say to you, 'Here we _are!_'? 
+Can you send out lightnings, that they may go, And say to you, 'Here we are!'? 
 
 ###### 36 
 Who has put wisdom in the mind? Or who has given understanding to the heart? 
@@ -127,7 +127,7 @@ When the dust hardens in clumps, And the clods cling together?
 "Can you hunt the prey for the lion, Or satisfy the appetite of the young lions, 
 
 ###### 40 
-When they crouch in _their_ dens, _Or_ lurk in their lairs to lie in wait? 
+When they crouch in their dens, Or lurk in their lairs to lie in wait? 
 
 ###### 41 
 Who provides food for the raven, When its young ones cry to God, And wander about for lack of food?

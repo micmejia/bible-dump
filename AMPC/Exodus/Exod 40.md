@@ -90,7 +90,7 @@ And you shall put in it the ark of the Testimony and screen the ark [of God's Pr
 
 
 
-You shall bring in the [showbread] table and set in order the things that are to be upon it; and you shall bring in the lampstand and set up _and_ light its lamps. 
+You shall bring in the [showbread] table and set in order the things that are to be upon it; and you shall bring in the lampstand and set up and light its lamps. 
 
 
 
@@ -111,7 +111,7 @@ You shall bring in the [showbread] table and set in order the things that are to
 
 
 
-You shall set the golden altar for the incense before the ark of the Testimony [outside the veil] and put the hanging _or_ screen at the tabernacle door. 
+You shall set the golden altar for the incense before the ark of the Testimony [outside the veil] and put the hanging or screen at the tabernacle door. 
 
 
 
@@ -174,7 +174,7 @@ And you shall set the laver between the Tent of Meeting and the altar and put wa
 
 
 
-And you shall set up the court [curtains] round about and hang up the hanging _or_ screen at the court gate. 
+And you shall set up the court [curtains] round about and hang up the hanging or screen at the court gate. 
 
 
 
@@ -300,7 +300,7 @@ You shall put on Aaron the holy garments, and anoint and consecrate him, so he m
 
 
 
-And you shall bring his sons and put long _and_ sleeved tunics on them, 
+And you shall bring his sons and put long and sleeved tunics on them, 
 
 
 
@@ -531,7 +531,7 @@ And he put the lampstand in the Tent of Meeting opposite the table on the south 
 
 
 
-Moses set up _and_ lighted the lamps before the Lord, as the Lord commanded him. 
+Moses set up and lighted the lamps before the Lord, as the Lord commanded him. 
 
 
 
@@ -594,7 +594,7 @@ He burned sweet incense [symbol of prayer] upon it, as the Lord commanded him.
 
 
 
-And he set up the hanging _or_ screen at the door of the tabernacle. 
+And he set up the hanging or screen at the door of the tabernacle. 
 
 
 
@@ -699,7 +699,7 @@ When they went into the Tent of Meeting or came near the altar, they washed, as 
 
 
 
-And he erected the court round about the tabernacle and the altar and set up the hanging _or_ screen at the court gate. So Moses finished the work. 
+And he erected the court round about the tabernacle and the altar and set up the hanging or screen at the court gate. So Moses finished the work. 
 
 
 

@@ -48,7 +48,7 @@ The word of the Lord that came to Hosea son of Beeri in the days of Uzziah, Joth
 
 
 
-When the Lord first spoke with _and_ through Hosea, the Lord said to him, Go, take to yourself a wife of harlotry and have children of [her] harlotry, for the land commits great whoredom by departing from the Lord. 
+When the Lord first spoke with and through Hosea, the Lord said to him, Go, take to yourself a wife of harlotry and have children of [her] harlotry, for the land commits great whoredom by departing from the Lord. 
 
 
 
@@ -90,7 +90,7 @@ So he went and took Gomer the daughter of Diblaim, and she became pregnant and b
 
 
 
-And the Lord said to him, Call his name Jezreel _or_ God-sows, for yet a little while and I will avenge the blood of Jezreel _and_ visit the punishment for it upon the house of Jehu, and I will put an end to the kingdom of the house of Israel. 
+And the Lord said to him, Call his name Jezreel or God-sows, for yet a little while and I will avenge the blood of Jezreel and visit the punishment for it upon the house of Jehu, and I will put an end to the kingdom of the house of Israel. 
 
 
 
@@ -132,7 +132,7 @@ And on that day I will break the bow of Israel in the Valley of Jezreel.
 
 
 
-And [Gomer] conceived again and bore a daughter. And the Lord said to Hosea, Call her name Lo-Ruhamah _or_ Not-pitied, for I will no more have love, pity, _and_ mercy on the house of Israel, that I should in any way pardon them. 
+And [Gomer] conceived again and bore a daughter. And the Lord said to Hosea, Call her name Lo-Ruhamah or Not-pitied, for I will no more have love, pity, and mercy on the house of Israel, that I should in any way pardon them. 
 
 
 
@@ -153,7 +153,7 @@ And [Gomer] conceived again and bore a daughter. And the Lord said to Hosea, Cal
 
 
 
-But I will have love, pity, _and_ mercy on the house of Judah and will deliver them by the Lord their God and will not save them by bow, nor by sword, nor by equipment of war, nor by horses, nor by horsemen. 
+But I will have love, pity, and mercy on the house of Judah and will deliver them by the Lord their God and will not save them by bow, nor by sword, nor by equipment of war, nor by horses, nor by horsemen. 
 
 
 

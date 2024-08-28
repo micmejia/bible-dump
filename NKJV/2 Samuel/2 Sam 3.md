@@ -29,13 +29,13 @@ and the sixth, Ithream, by David's wife Eglah. These were born to David in Hebro
 ## Abner Joins Forces with David 
 
 ###### 6 
-Now it was so, while there was war between the house of Saul and the house of David, that Abner was strengthening _his hold_ on the house of Saul. 
+Now it was so, while there was war between the house of Saul and the house of David, that Abner was strengthening his hold on the house of Saul. 
 
 ###### 7 
-And Saul had a concubine, whose name _was_ Rizpah, the daughter of Aiah. So _Ishbosheth_ said to Abner, "Why have you gone in to my father's concubine?" 
+And Saul had a concubine, whose name was Rizpah, the daughter of Aiah. So Ishbosheth said to Abner, "Why have you gone in to my father's concubine?" 
 
 ###### 8 
-Then Abner became very angry at the words of Ishbosheth, and said, "_Am_ I a dog's head that belongs to Judah? Today I show loyalty to the house of Saul your father, to his brothers, and to his friends, and have not delivered you into the hand of David; and you charge me today with a fault concerning this woman? 
+Then Abner became very angry at the words of Ishbosheth, and said, "Am I a dog's head that belongs to Judah? Today I show loyalty to the house of Saul your father, to his brothers, and to his friends, and have not delivered you into the hand of David; and you charge me today with a fault concerning this woman? 
 
 ###### 9 
 May God do so to Abner, and more also, if I do not do for David as the Lord has sworn to him-- 
@@ -47,31 +47,31 @@ to transfer the kingdom from the house of Saul, and set up the throne of David o
 And he could not answer Abner another word, because he feared him. 
 
 ###### 12 
-Then Abner sent messengers on his behalf to David, saying, "Whose _is_ the land?" saying _also,_ "Make your covenant with me, and indeed my hand _shall be_ with you to bring all Israel to you." 
+Then Abner sent messengers on his behalf to David, saying, "Whose is the land?" saying also, "Make your covenant with me, and indeed my hand shall be with you to bring all Israel to you." 
 
 ###### 13 
-And _David_ said, "Good, I will make a covenant with you. But one thing I require of you: you shall not see my face unless you first bring Michal, Saul's daughter, when you come to see my face." 
+And David said, "Good, I will make a covenant with you. But one thing I require of you: you shall not see my face unless you first bring Michal, Saul's daughter, when you come to see my face." 
 
 ###### 14 
-So David sent messengers to Ishbosheth, Saul's son, saying, "Give _me_ my wife Michal, whom I betrothed to myself for a hundred foreskins of the Philistines." 
+So David sent messengers to Ishbosheth, Saul's son, saying, "Give me my wife Michal, whom I betrothed to myself for a hundred foreskins of the Philistines." 
 
 ###### 15 
-And Ishbosheth sent and took her from _her_ husband, from Paltiel the son of Laish. 
+And Ishbosheth sent and took her from her husband, from Paltiel the son of Laish. 
 
 ###### 16 
 Then her husband went along with her to Bahurim, weeping behind her. So Abner said to him, "Go, return!" And he returned. 
 
 ###### 17 
-Now Abner had communicated with the elders of Israel, saying, "In time past you were seeking for David _to be_ king over you. 
+Now Abner had communicated with the elders of Israel, saying, "In time past you were seeking for David to be king over you. 
 
 ###### 18 
-Now then, do _it!_ For the Lord has spoken of David, saying, 'By the hand of My servant David, I will save My people Israel from the hand of the Philistines and the hand of all their enemies.' " 
+Now then, do it! For the Lord has spoken of David, saying, 'By the hand of My servant David, I will save My people Israel from the hand of the Philistines and the hand of all their enemies.' " 
 
 ###### 19 
 And Abner also spoke in the hearing of Benjamin. Then Abner also went to speak in the hearing of David in Hebron all that seemed good to Israel and the whole house of Benjamin. 
 
 ###### 20 
-So Abner and twenty men with him came to David at Hebron. And David made a feast for Abner and the men who _were_ with him. 
+So Abner and twenty men with him came to David at Hebron. And David made a feast for Abner and the men who were with him. 
 
 ###### 21 
 Then Abner said to David, "I will arise and go, and gather all Israel to my lord the king, that they may make a covenant with you, and that you may reign over all that your heart desires." So David sent Abner away, and he went in peace.
@@ -79,25 +79,25 @@ Then Abner said to David, "I will arise and go, and gather all Israel to my lord
 ## Joab Murders Abner 
 
 ###### 22 
-At that moment the servants of David and Joab came from a raid and brought much spoil with them. But Abner _was_ not with David in Hebron, for he had sent him away, and he had gone in peace. 
+At that moment the servants of David and Joab came from a raid and brought much spoil with them. But Abner was not with David in Hebron, for he had sent him away, and he had gone in peace. 
 
 ###### 23 
-When Joab and all the troops that _were_ with him had come, they told Joab, saying, "Abner the son of Ner came to the king, and he sent him away, and he has gone in peace." 
+When Joab and all the troops that were with him had come, they told Joab, saying, "Abner the son of Ner came to the king, and he sent him away, and he has gone in peace." 
 
 ###### 24 
-Then Joab came to the king and said, "What have you done? Look, Abner came to you; why _is_ it _that_ you sent him away, and he has already gone? 
+Then Joab came to the king and said, "What have you done? Look, Abner came to you; why is it that you sent him away, and he has already gone? 
 
 ###### 25 
 Surely you realize that Abner the son of Ner came to deceive you, to know your going out and your coming in, and to know all that you are doing." 
 
 ###### 26 
-And when Joab had gone from David's presence, he sent messengers after Abner, who brought him back from the well of Sirah. But David did not know _it._ 
+And when Joab had gone from David's presence, he sent messengers after Abner, who brought him back from the well of Sirah. But David did not know it. 
 
 ###### 27 
 Now when Abner had returned to Hebron, Joab took him aside in the gate to speak with him privately, and there stabbed him in the stomach, so that he died for the blood of Asahel his brother. 
 
 ###### 28 
-Afterward, when David heard _it,_ he said, "My kingdom and I _are_ guiltless before the Lord forever of the blood of Abner the son of Ner. 
+Afterward, when David heard it, he said, "My kingdom and I are guiltless before the Lord forever of the blood of Abner the son of Ner. 
 
 ###### 29 
 Let it rest on the head of Joab and on all his father's house; and let there never fail to be in the house of Joab one who has a discharge or is a leper, who leans on a staff or falls by the sword, or who lacks bread." 
@@ -114,22 +114,22 @@ Then David said to Joab and to all the people who were with him, "Tear your clot
 So they buried Abner in Hebron; and the king lifted up his voice and wept at the grave of Abner, and all the people wept. 
 
 ###### 33 
-And the king sang _a lament_ over Abner and said: "Should Abner die as a fool dies? 
+And the king sang a lament over Abner and said: "Should Abner die as a fool dies? 
 
 ###### 34 
-Your hands were not bound Nor your feet put into fetters; As a man falls before wicked men, _so_ you fell." Then all the people wept over him again. 
+Your hands were not bound Nor your feet put into fetters; As a man falls before wicked men, so you fell." Then all the people wept over him again. 
 
 ###### 35 
 And when all the people came to persuade David to eat food while it was still day, David took an oath, saying, "God do so to me, and more also, if I taste bread or anything else till the sun goes down!" 
 
 ###### 36 
-Now all the people took note _of it,_ and it pleased them, since whatever the king did pleased all the people. 
+Now all the people took note of it, and it pleased them, since whatever the king did pleased all the people. 
 
 ###### 37 
-For all the people and all Israel understood that day that it had not been the king's _intent_ to kill Abner the son of Ner. 
+For all the people and all Israel understood that day that it had not been the king's intent to kill Abner the son of Ner. 
 
 ###### 38 
 Then the king said to his servants, "Do you not know that a prince and a great man has fallen this day in Israel? 
 
 ###### 39 
-And I _am_ weak today, though anointed king; and these men, the sons of Zeruiah, _are_ too harsh for me. The Lord shall repay the evildoer according to his wickedness."
+And I am weak today, though anointed king; and these men, the sons of Zeruiah, are too harsh for me. The Lord shall repay the evildoer according to his wickedness."

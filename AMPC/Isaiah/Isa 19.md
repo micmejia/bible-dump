@@ -70,7 +70,7 @@ And I will stir up Egyptians against Egyptians, and they will fight, every one a
 
 
 
-And the spirit of the Egyptians within them will become exhausted and emptied out _and_ will fail, and I will destroy their counsel _and_ confound their plans; and they will seek counsel from the idols and the sorcerers, and from those having familiar spirits (the mediums) and the wizards. 
+And the spirit of the Egyptians within them will become exhausted and emptied out and will fail, and I will destroy their counsel and confound their plans; and they will seek counsel from the idols and the sorcerers, and from those having familiar spirits (the mediums) and the wizards. 
 
 
 
@@ -91,7 +91,7 @@ And the spirit of the Egyptians within them will become exhausted and emptied ou
 
 
 
-And I will give over the Egyptians into the hand of a hard _and_ cruel master, and a fierce king will rule over them, says the Lord, the Lord of hosts. 
+And I will give over the Egyptians into the hand of a hard and cruel master, and a fierce king will rule over them, says the Lord, the Lord of hosts. 
 
 
 
@@ -133,7 +133,7 @@ And the waters shall fail from the Nile, and the river shall be wasted and becom
 
 
 
-And the rivers shall become foul, the streams _and_ canals of Egypt shall be diminished and dried up, the reeds and the rushes shall wither _and_ rot away. 
+And the rivers shall become foul, the streams and canals of Egypt shall be diminished and dried up, the reeds and the rushes shall wither and rot away. 
 
 
 
@@ -196,7 +196,7 @@ The fishermen will lament, and all who cast a hook into the Nile will mourn; and
 
 
 
-Moreover, they who work with combed flax and they who weave white [cotton] cloth will be confounded _and_ in despair. 
+Moreover, they who work with combed flax and they who weave white [cotton] cloth will be confounded and in despair. 
 
 
 
@@ -217,7 +217,7 @@ Moreover, they who work with combed flax and they who weave white [cotton] cloth
 
 
 
-[Those who are] the pillars _and_ foundations of Egypt will be crushed, and all those who work for hire _or_ who build dams will be grieved. 
+[Those who are] the pillars and foundations of Egypt will be crushed, and all those who work for hire or who build dams will be grieved. 
 
 
 
@@ -280,7 +280,7 @@ Where then are your wise men? Let them tell you now [if they are so wise], and l
 
 
 
-The princes of Zoan have become fools, and the princes of Memphis are confused _and_ deceived; those who are the cornerstones of her tribes have led Egypt astray. 
+The princes of Zoan have become fools, and the princes of Memphis are confused and deceived; those who are the cornerstones of her tribes have led Egypt astray. 
 
 
 
@@ -301,7 +301,7 @@ The princes of Zoan have become fools, and the princes of Memphis are confused _
 
 
 
-The Lord has mingled a spirit of perverseness, error, _and_ confusion within her; [her leaders] have caused Egypt to stagger in all her doings, as a drunken man staggers in his vomit. 
+The Lord has mingled a spirit of perverseness, error, and confusion within her; [her leaders] have caused Egypt to stagger in all her doings, as a drunken man staggers in his vomit. 
 
 
 
@@ -364,7 +364,7 @@ In that day will the Egyptians be like women [timid and helpless]; and they will
 
 
 
-And the land of Judah [allied to Assyria] shall become a terror to the Egyptians; everyone to whom mention of it is made will be afraid _and_ everyone who mentions it--to him will they turn in fear, because of the purpose of the Lord of hosts which He purposes against Egypt. 
+And the land of Judah [allied to Assyria] shall become a terror to the Egyptians; everyone to whom mention of it is made will be afraid and everyone who mentions it--to him will they turn in fear, because of the purpose of the Lord of hosts which He purposes against Egypt. 
 
 
 
@@ -385,7 +385,7 @@ And the land of Judah [allied to Assyria] shall become a terror to the Egyptians
 
 
 
-In that day there will be five cities in the land of Egypt that speak the language of [the Hebrews of] Canaan and swear allegiance to the Lord of hosts. One of them will be called the City of the Sun _or_ Destruction. 
+In that day there will be five cities in the land of Egypt that speak the language of [the Hebrews of] Canaan and swear allegiance to the Lord of hosts. One of them will be called the City of the Sun or Destruction. 
 
 
 
@@ -448,7 +448,7 @@ And it will be a sign and a witness to the Lord of hosts in the land of Egypt; f
 
 
 
-And the Lord will make Himself known to Egypt, and the Egyptians will know (have knowledge of, be acquainted with, give heed to, and cherish) the Lord in that day and will worship with sacrifices of animal _and_ vegetable offerings; they will vow a vow to the Lord and perform it. 
+And the Lord will make Himself known to Egypt, and the Egyptians will know (have knowledge of, be acquainted with, give heed to, and cherish) the Lord in that day and will worship with sacrifices of animal and vegetable offerings; they will vow a vow to the Lord and perform it. 
 
 
 

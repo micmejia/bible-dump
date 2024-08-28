@@ -49,7 +49,7 @@ In those days when [again] an immense crowd had gathered and they had nothing to
 
 
 
-I have pity _and_ sympathy for the people _and_ My heart goes out to them, for they have been with Me now three days and have nothing [left] to eat; 
+I have pity and sympathy for the people and My heart goes out to them, for they have been with Me now three days and have nothing [left] to eat; 
 
 
 
@@ -70,7 +70,7 @@ I have pity _and_ sympathy for the people _and_ My heart goes out to them, for t
 
 
 
-And if I send them away to their homes hungry, they will be feeble through exhaustion _and_ faint along the road; and some of them have come a long way. 
+And if I send them away to their homes hungry, they will be feeble through exhaustion and faint along the road; and some of them have come a long way. 
 
 
 
@@ -91,7 +91,7 @@ And if I send them away to their homes hungry, they will be feeble through exhau
 
 
 
-And His disciples replied to Him, How can anyone fill _and_ satisfy [these people] with loaves of bread here in [this] desolate _and_ uninhabited region? 
+And His disciples replied to Him, How can anyone fill and satisfy [these people] with loaves of bread here in [this] desolate and uninhabited region? 
 
 
 
@@ -154,7 +154,7 @@ And He commanded the multitude to recline upon the ground, and He [then] took th
 
 
 
-And they had a few small fish; and when He had praised God _and_ given thanks _and_ asked Him to bless them [to their use], He ordered that these also should be set before [them]. 
+And they had a few small fish; and when He had praised God and given thanks and asked Him to bless them [to their use], He ordered that these also should be set before [them]. 
 
 
 
@@ -238,7 +238,7 @@ And at once He got into the boat with His disciples and went to the district of 
 
 
 
-The Pharisees came and began to argue with _and_ question Him, demanding from Him a sign (an attesting miracle from heaven) [maliciously] to test Him. 
+The Pharisees came and began to argue with and question Him, demanding from Him a sign (an attesting miracle from heaven) [maliciously] to test Him. 
 
 
 
@@ -259,7 +259,7 @@ The Pharisees came and began to argue with _and_ question Him, demanding from Hi
 
 
 
-And He groaned _and_ sighed deeply in His spirit and said, Why does this generation demand a sign? Positively I say to you, no sign shall be given this generation. 
+And He groaned and sighed deeply in His spirit and said, Why does this generation demand a sign? Positively I say to you, no sign shall be given this generation. 
 
 
 
@@ -280,7 +280,7 @@ And He groaned _and_ sighed deeply in His spirit and said, Why does this generat
 
 
 
-And He went away _and_ left them and, getting into the boat again, He departed to the other side. 
+And He went away and left them and, getting into the boat again, He departed to the other side. 
 
 
 
@@ -322,7 +322,7 @@ Now they had [completely] forgotten to bring bread, and they had only one loaf w
 
 
 
-And Jesus [repeatedly and expressly] charged _and_ admonished them, saying, Look out; keep on your guard _and_ beware of the leaven of the Pharisees and the leaven of Herod _and the Herodians_. 
+And Jesus [repeatedly and expressly] charged and admonished them, saying, Look out; keep on your guard and beware of the leaven of the Pharisees and the leaven of Herod and the Herodians. 
 
 
 
@@ -343,7 +343,7 @@ And Jesus [repeatedly and expressly] charged _and_ admonished them, saying, Look
 
 
 
-And they discussed it _and_ reasoned with one another, It is because we have no bread. 
+And they discussed it and reasoned with one another, It is because we have no bread. 
 
 
 
@@ -364,7 +364,7 @@ And they discussed it _and_ reasoned with one another, It is because we have no 
 
 
 
-And being aware [of it], Jesus said to them, Why are you reasoning _and_ saying it is because you have no bread? Do you not yet discern or understand? Are your hearts in [a settled state of] hardness? 
+And being aware [of it], Jesus said to them, Why are you reasoning and saying it is because you have no bread? Do you not yet discern or understand? Are your hearts in [a settled state of] hardness? 
 
 
 
@@ -385,7 +385,7 @@ And being aware [of it], Jesus said to them, Why are you reasoning _and_ saying 
 
 
 
-Having eyes, do you not see [with them], and having ears, do you not hear _and_ perceive _and_ understand the sense of what is said? And do you not remember? 
+Having eyes, do you not see [with them], and having ears, do you not hear and perceive and understand the sense of what is said? And do you not remember? 
 
 
 
@@ -553,7 +553,7 @@ Then He put His hands on his eyes again; and the man looked intently [that is, f
 
 
 
-And He sent him away to his house, telling [him], Do not [even] enter the village _or tell anyone there_. 
+And He sent him away to his house, telling [him], Do not [even] enter the village or tell anyone there. 
 
 
 
@@ -658,7 +658,7 @@ And He charged them sharply to tell no one about Him.
 
 
 
-And He began to teach them that the Son of Man must of necessity suffer many things and be tested _and_ disapproved _and_ rejected by the elders and the chief priests and the scribes, and be put to death, and after three days rise again [from death]. 
+And He began to teach them that the Son of Man must of necessity suffer many things and be tested and disapproved and rejected by the elders and the chief priests and the scribes, and be put to death, and after three days rise again [from death]. 
 
 
 
@@ -679,7 +679,7 @@ And He began to teach them that the Son of Man must of necessity suffer many thi
 
 
 
-And He said this freely (frankly, plainly, and explicitly, making it unmistakable). And Peter took Him by the hand _and_ led Him aside and then [facing Him] began to rebuke Him. 
+And He said this freely (frankly, plainly, and explicitly, making it unmistakable). And Peter took Him by the hand and led Him aside and then [facing Him] began to rebuke Him. 
 
 
 

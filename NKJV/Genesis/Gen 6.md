@@ -13,16 +13,16 @@ next: ['Gen 7']
 Now it came to pass, when men began to multiply on the face of the earth, and daughters were born to them, 
 
 ###### 2 
-that the sons of God saw the daughters of men, that they _were_ beautiful; and they took wives for themselves of all whom they chose. 
+that the sons of God saw the daughters of men, that they were beautiful; and they took wives for themselves of all whom they chose. 
 
 ###### 3 
-And the Lord said, "My Spirit shall not strive with man forever, for he _is_ indeed flesh; yet his days shall be one hundred and twenty years." 
+And the Lord said, "My Spirit shall not strive with man forever, for he is indeed flesh; yet his days shall be one hundred and twenty years." 
 
 ###### 4 
-There were giants on the earth in those days, and also afterward, when the sons of God came in to the daughters of men and they bore _children_ to them. Those _were_ the mighty men who _were_ of old, men of renown. 
+There were giants on the earth in those days, and also afterward, when the sons of God came in to the daughters of men and they bore children to them. Those were the mighty men who were of old, men of renown. 
 
 ###### 5 
-Then the Lord saw that the wickedness of man _was_ great in the earth, and _that_ every intent of the thoughts of his heart _was_ only evil continually. 
+Then the Lord saw that the wickedness of man was great in the earth, and that every intent of the thoughts of his heart was only evil continually. 
 
 ###### 6 
 And the Lord was sorry that He had made man on the earth, and He was grieved in His heart. 
@@ -56,25 +56,25 @@ And God said to Noah, "The end of all flesh has come before Me, for the earth is
 Make yourself an ark of gopherwood; make rooms in the ark, and cover it inside and outside with pitch. 
 
 ###### 15 
-And this is how you shall make it: The length of the ark _shall be_ three hundred cubits, its width fifty cubits, and its height thirty cubits. 
+And this is how you shall make it: The length of the ark shall be three hundred cubits, its width fifty cubits, and its height thirty cubits. 
 
 ###### 16 
-You shall make a window for the ark, and you shall finish it to a cubit from above; and set the door of the ark in its side. You shall make it _with_ lower, second, and third _decks._ 
+You shall make a window for the ark, and you shall finish it to a cubit from above; and set the door of the ark in its side. You shall make it with lower, second, and third decks. 
 
 ###### 17 
-And behold, I Myself am bringing floodwaters on the earth, to destroy from under heaven all flesh in which _is_ the breath of life; everything that _is_ on the earth shall die. 
+And behold, I Myself am bringing floodwaters on the earth, to destroy from under heaven all flesh in which is the breath of life; everything that is on the earth shall die. 
 
 ###### 18 
 But I will establish My covenant with you; and you shall go into the ark--you, your sons, your wife, and your sons' wives with you. 
 
 ###### 19 
-And of every living thing of all flesh you shall bring two of every _sort_ into the ark, to keep _them_ alive with you; they shall be male and female. 
+And of every living thing of all flesh you shall bring two of every sort into the ark, to keep them alive with you; they shall be male and female. 
 
 ###### 20 
-Of the birds after their kind, of animals after their kind, and of every creeping thing of the earth after its kind, two of every _kind_ will come to you to keep _them_ alive. 
+Of the birds after their kind, of animals after their kind, and of every creeping thing of the earth after its kind, two of every kind will come to you to keep them alive. 
 
 ###### 21 
-And you shall take for yourself of all food that is eaten, and you shall gather _it_ to yourself; and it shall be food for you and for them." 
+And you shall take for yourself of all food that is eaten, and you shall gather it to yourself; and it shall be food for you and for them." 
 
 ###### 22 
 Thus Noah did; according to all that God commanded him, so he did.

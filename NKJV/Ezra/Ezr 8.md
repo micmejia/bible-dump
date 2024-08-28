@@ -10,13 +10,13 @@ next: ['Ezr 9']
 
 
 ###### 1 
-These _are_ the heads of their fathers' _houses,_ and _this is_ the genealogy of those who went up with me from Babylon, in the reign of King Artaxerxes: 
+These are the heads of their fathers' houses, and this is the genealogy of those who went up with me from Babylon, in the reign of King Artaxerxes: 
 
 ###### 2 
 of the sons of Phinehas, Gershom; of the sons of Ithamar, Daniel; of the sons of David, Hattush; 
 
 ###### 3 
-of the sons of Shecaniah, of the sons of Parosh, Zechariah; and registered with him _were_ one hundred and fifty males; 
+of the sons of Shecaniah, of the sons of Parosh, Zechariah; and registered with him were one hundred and fifty males; 
 
 ###### 4 
 of the sons of Pahath-Moab, Eliehoenai the son of Zerahiah, and with him two hundred males; 
@@ -46,7 +46,7 @@ of the sons of Bebai, Zechariah the son of Bebai, and with him twenty-eight male
 of the sons of Azgad, Johanan the son of Hakkatan, and with him one hundred and ten males; 
 
 ###### 13 
-of the last sons of Adonikam, whose names _are_ these--Eliphelet, Jeiel, and Shemaiah--and with them sixty males; 
+of the last sons of Adonikam, whose names are these--Eliphelet, Jeiel, and Shemaiah--and with them sixty males; 
 
 ###### 14 
 also of the sons of Bigvai, Uthai and Zabbud, and with them seventy males.
@@ -60,7 +60,7 @@ Now I gathered them by the river that flows to Ahava, and we camped there three 
 Then I sent for Eliezer, Ariel, Shemaiah, Elnathan, Jarib, Elnathan, Nathan, Zechariah, and Meshullam, leaders; also for Joiarib and Elnathan, men of understanding. 
 
 ###### 17 
-And I gave them a command for Iddo the chief man at the place Casiphia, and I told them what they should say to Iddo _and_ his brethren the Nethinim at the place Casiphia--that they should bring us servants for the house of our God. 
+And I gave them a command for Iddo the chief man at the place Casiphia, and I told them what they should say to Iddo and his brethren the Nethinim at the place Casiphia--that they should bring us servants for the house of our God. 
 
 ###### 18 
 Then, by the good hand of our God upon us, they brought us a man of understanding, of the sons of Mahli the son of Levi, the son of Israel, namely Sherebiah, with his sons and brothers, eighteen men; 
@@ -77,7 +77,7 @@ also of the Nethinim, whom David and the leaders had appointed for the service o
 Then I proclaimed a fast there at the river of Ahava, that we might humble ourselves before our God, to seek from Him the right way for us and our little ones and all our possessions. 
 
 ###### 22 
-For I was ashamed to request of the king an escort of soldiers and horsemen to help us against the enemy on the road, because we had spoken to the king, saying, "The hand of our God _is_ upon all those for good who seek Him, but His power and His wrath _are_ against all those who forsake Him." 
+For I was ashamed to request of the king an escort of soldiers and horsemen to help us against the enemy on the road, because we had spoken to the king, saying, "The hand of our God is upon all those for good who seek Him, but His power and His wrath are against all those who forsake Him." 
 
 ###### 23 
 So we fasted and entreated our God for this, and He answered our prayer.
@@ -88,39 +88,39 @@ So we fasted and entreated our God for this, and He answered our prayer.
 And I separated twelve of the leaders of the priests--Sherebiah, Hashabiah, and ten of their brethren with them-- 
 
 ###### 25 
-and weighed out to them the silver, the gold, and the articles, the offering for the house of our God which the king and his counselors and his princes, and all Israel _who were_ present, had offered. 
+and weighed out to them the silver, the gold, and the articles, the offering for the house of our God which the king and his counselors and his princes, and all Israel who were present, had offered. 
 
 ###### 26 
-I weighed into their hand six hundred and fifty talents of silver, silver articles _weighing_ one hundred talents, one hundred talents of gold, 
+I weighed into their hand six hundred and fifty talents of silver, silver articles weighing one hundred talents, one hundred talents of gold, 
 
 ###### 27 
-twenty gold basins _worth_ a thousand drachmas, and two vessels of fine polished bronze, precious as gold. 
+twenty gold basins worth a thousand drachmas, and two vessels of fine polished bronze, precious as gold. 
 
 ###### 28 
-And I said to them, "You _are_ holy to the Lord; the articles _are_ holy also; and the silver and the gold _are_ a freewill offering to the Lord God of your fathers. 
+And I said to them, "You are holy to the Lord; the articles are holy also; and the silver and the gold are a freewill offering to the Lord God of your fathers. 
 
 ###### 29 
-Watch and keep _them_ until you weigh _them_ before the leaders of the priests and the Levites and heads of the fathers' _houses_ of Israel in Jerusalem, _in_ the chambers of the house of the Lord." 
+Watch and keep them until you weigh them before the leaders of the priests and the Levites and heads of the fathers' houses of Israel in Jerusalem, in the chambers of the house of the Lord." 
 
 ###### 30 
-So the priests and the Levites received the silver and the gold and the articles by weight, to bring _them_ to Jerusalem to the house of our God.
+So the priests and the Levites received the silver and the gold and the articles by weight, to bring them to Jerusalem to the house of our God.
 
 ## The Return to Jerusalem 
 
 ###### 31 
-Then we departed from the river of Ahava on the twelfth _day_ of the first month, to go to Jerusalem. And the hand of our God was upon us, and He delivered us from the hand of the enemy and from ambush along the road. 
+Then we departed from the river of Ahava on the twelfth day of the first month, to go to Jerusalem. And the hand of our God was upon us, and He delivered us from the hand of the enemy and from ambush along the road. 
 
 ###### 32 
 So we came to Jerusalem, and stayed there three days. 
 
 ###### 33 
-Now on the fourth day the silver and the gold and the articles were weighed in the house of our God by the hand of Meremoth the son of Uriah the priest, and with him _was_ Eleazar the son of Phinehas; with them _were_ the Levites, Jozabad the son of Jeshua and Noadiah the son of Binnui, 
+Now on the fourth day the silver and the gold and the articles were weighed in the house of our God by the hand of Meremoth the son of Uriah the priest, and with him was Eleazar the son of Phinehas; with them were the Levites, Jozabad the son of Jeshua and Noadiah the son of Binnui, 
 
 ###### 34 
-with the number _and_ weight of everything. All the weight was written down at that time. 
+with the number and weight of everything. All the weight was written down at that time. 
 
 ###### 35 
-The children of those who had been carried away captive, who had come from the captivity, offered burnt offerings to the God of Israel: twelve bulls for all Israel, ninety-six rams, seventy-seven lambs, and twelve male goats _as_ a sin offering. All _this was_ a burnt offering to the Lord. 
+The children of those who had been carried away captive, who had come from the captivity, offered burnt offerings to the God of Israel: twelve bulls for all Israel, ninety-six rams, seventy-seven lambs, and twelve male goats as a sin offering. All this was a burnt offering to the Lord. 
 
 ###### 36 
-And they delivered the king's orders to the king's satraps and the governors _in the region_ beyond the River. So they gave support to the people and the house of God.
+And they delivered the king's orders to the king's satraps and the governors in the region beyond the River. So they gave support to the people and the house of God.

@@ -10,7 +10,7 @@ next: ['Job 15']
 
 
 ###### 1 
-"Man _who is_ born of woman Is of few days and full of trouble. 
+"Man who is born of woman Is of few days and full of trouble. 
 
 ###### 2 
 He comes forth like a flower and fades away; He flees like a shadow and does not continue. 
@@ -19,10 +19,10 @@ He comes forth like a flower and fades away; He flees like a shadow and does not
 And do You open Your eyes on such a one, And bring me to judgment with Yourself? 
 
 ###### 4 
-Who can bring a clean _thing_ out of an unclean? No one! 
+Who can bring a clean thing out of an unclean? No one! 
 
 ###### 5 
-Since his days _are_ determined, The number of his months _is_ with You; You have appointed his limits, so that he cannot pass. 
+Since his days are determined, The number of his months is with You; You have appointed his limits, so that he cannot pass. 
 
 ###### 6 
 Look away from him that he may rest, Till like a hired man he finishes his day. 
@@ -34,22 +34,22 @@ Look away from him that he may rest, Till like a hired man he finishes his day.
 Though its root may grow old in the earth, And its stump may die in the ground, 
 
 ###### 9 
-_Yet_ at the scent of water it will bud And bring forth branches like a plant. 
+Yet at the scent of water it will bud And bring forth branches like a plant. 
 
 ###### 10 
-But man dies and is laid away; Indeed he breathes his last And where _is_ he? 
+But man dies and is laid away; Indeed he breathes his last And where is he? 
 
 ###### 11 
-_As_ water disappears from the sea, And a river becomes parched and dries up, 
+As water disappears from the sea, And a river becomes parched and dries up, 
 
 ###### 12 
-So man lies down and does not rise. Till the heavens _are_ no more, They will not awake Nor be roused from their sleep. 
+So man lies down and does not rise. Till the heavens are no more, They will not awake Nor be roused from their sleep. 
 
 ###### 13 
 "Oh, that You would hide me in the grave, That You would conceal me until Your wrath is past, That You would appoint me a set time, and remember me! 
 
 ###### 14 
-If a man dies, shall he live _again?_ All the days of my hard service I will wait, Till my change comes. 
+If a man dies, shall he live again? All the days of my hard service I will wait, Till my change comes. 
 
 ###### 15 
 You shall call, and I will answer You; You shall desire the work of Your hands. 
@@ -58,19 +58,19 @@ You shall call, and I will answer You; You shall desire the work of Your hands.
 For now You number my steps, But do not watch over my sin. 
 
 ###### 17 
-My transgression _is_ sealed up in a bag, And You cover my iniquity. 
+My transgression is sealed up in a bag, And You cover my iniquity. 
 
 ###### 18 
-"But _as_ a mountain falls _and_ crumbles away, And _as_ a rock is moved from its place; 
+"But as a mountain falls and crumbles away, And as a rock is moved from its place; 
 
 ###### 19 
-_As_ water wears away stones, _And as_ torrents wash away the soil of the earth; So You destroy the hope of man. 
+As water wears away stones, And as torrents wash away the soil of the earth; So You destroy the hope of man. 
 
 ###### 20 
 You prevail forever against him, and he passes on; You change his countenance and send him away. 
 
 ###### 21 
-His sons come to honor, and he does not know _it;_ They are brought low, and he does not perceive _it._ 
+His sons come to honor, and he does not know it; They are brought low, and he does not perceive it. 
 
 ###### 22 
 But his flesh will be in pain over it, And his soul will mourn over it."

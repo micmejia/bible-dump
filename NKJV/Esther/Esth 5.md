@@ -10,13 +10,13 @@ next: ['Esth 6']
 
 
 ###### 1 
-Now it happened on the third day that Esther put on _her_ royal _robes_ and stood in the inner court of the king's palace, across from the king's house, while the king sat on his royal throne in the royal house, facing the entrance of the house. 
+Now it happened on the third day that Esther put on her royal robes and stood in the inner court of the king's palace, across from the king's house, while the king sat on his royal throne in the royal house, facing the entrance of the house. 
 
 ###### 2 
-So it was, when the king saw Queen Esther standing in the court, _that_ she found favor in his sight, and the king held out to Esther the golden scepter that _was_ in his hand. Then Esther went near and touched the top of the scepter. 
+So it was, when the king saw Queen Esther standing in the court, that she found favor in his sight, and the king held out to Esther the golden scepter that was in his hand. Then Esther went near and touched the top of the scepter. 
 
 ###### 3 
-And the king said to her, "What do you wish, Queen Esther? What _is_ your request? It shall be given to you--up to half the kingdom!" 
+And the king said to her, "What do you wish, Queen Esther? What is your request? It shall be given to you--up to half the kingdom!" 
 
 ###### 4 
 So Esther answered, "If it pleases the king, let the king and Haman come today to the banquet that I have prepared for him." 
@@ -25,10 +25,10 @@ So Esther answered, "If it pleases the king, let the king and Haman come today t
 Then the king said, "Bring Haman quickly, that he may do as Esther has said." So the king and Haman went to the banquet that Esther had prepared. 
 
 ###### 6 
-At the banquet of wine the king said to Esther, "What _is_ your petition? It shall be granted you. What _is_ your request, up to half the kingdom? It shall be done!" 
+At the banquet of wine the king said to Esther, "What is your petition? It shall be granted you. What is your request, up to half the kingdom? It shall be done!" 
 
 ###### 7 
-Then Esther answered and said, "My petition and request _is this:_ 
+Then Esther answered and said, "My petition and request is this: 
 
 ###### 8 
 If I have found favor in the sight of the king, and if it pleases the king to grant my petition and fulfill my request, then let the king and Haman come to the banquet which I will prepare for them, and tomorrow I will do as the king has said." 

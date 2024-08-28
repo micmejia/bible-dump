@@ -10,7 +10,7 @@ next: ['Ps 9']
 
 
 ###### 1 
-O Lord, our Lord, How excellent _is_ Your name in all the earth, Who have set Your glory above the heavens! 
+O Lord, our Lord, How excellent is Your name in all the earth, Who have set Your glory above the heavens! 
 
 ###### 2 
 Out of the mouth of babes and nursing infants You have ordained strength, Because of Your enemies, That You may silence the enemy and the avenger. 
@@ -25,7 +25,7 @@ What is man that You are mindful of him, And the son of man that You visit him?
 For You have made him a little lower than the angels, And You have crowned him with glory and honor. 
 
 ###### 6 
-You have made him to have dominion over the works of Your hands; You have put all _things_ under his feet, 
+You have made him to have dominion over the works of Your hands; You have put all things under his feet, 
 
 ###### 7 
 All sheep and oxen-- Even the beasts of the field, 
@@ -34,4 +34,4 @@ All sheep and oxen-- Even the beasts of the field,
 The birds of the air, And the fish of the sea That pass through the paths of the seas. 
 
 ###### 9 
-O Lord, our Lord, How excellent _is_ Your name in all the earth!
+O Lord, our Lord, How excellent is Your name in all the earth!

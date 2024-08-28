@@ -70,7 +70,7 @@ That I have bitter grief and incessant anguish in my heart.
 
 
 
-For I could wish that I myself were accursed _and_ cut off _and_ banished from Christ for the sake of my brethren _and_ instead of them, my natural kinsmen _and_ my fellow countrymen. 
+For I could wish that I myself were accursed and cut off and banished from Christ for the sake of my brethren and instead of them, my natural kinsmen and my fellow countrymen. 
 
 
 
@@ -112,7 +112,7 @@ For they are Israelites, and to them belong God's adoption [as a nation] and the
 
 
 
-To them belong the patriarchs, and as far as His natural descent was concerned, from them is the Christ, Who is exalted _and_ supreme over all, God, blessed forever! Amen (so let it be). 
+To them belong the patriarchs, and as far as His natural descent was concerned, from them is the Christ, Who is exalted and supreme over all, God, blessed forever! Amen (so let it be). 
 
 
 
@@ -154,7 +154,7 @@ However, it is not as though God's Word had failed [coming to nothing]. For it i
 
 
 
-And they are not all the children of Abraham because they are by blood his descendants. No, [the promise was] Your descendants will be called _and_ counted through the line of Isaac [though Abraham had an older son]. 
+And they are not all the children of Abraham because they are by blood his descendants. No, [the promise was] Your descendants will be called and counted through the line of Isaac [though Abraham had an older son]. 
 
 
 
@@ -238,7 +238,7 @@ And not only that, but this too: Rebecca conceived [two sons under exactly the s
 
 
 
-And the children were yet unborn and had so far done nothing either good or evil. Even so, in order further to carry out God's purpose of selection (election, choice), which depends not on works _or_ what men can do, but on Him Who calls [them], 
+And the children were yet unborn and had so far done nothing either good or evil. Even so, in order further to carry out God's purpose of selection (election, choice), which depends not on works or what men can do, but on Him Who calls [them], 
 
 
 
@@ -406,7 +406,7 @@ So then He has mercy on whomever He wills (chooses) and He hardens (makes stubbo
 
 
 
-You will say to me, Why then does He still find fault _and_ blame us [for sinning]? For who can resist _and_ withstand His will? 
+You will say to me, Why then does He still find fault and blame us [for sinning]? For who can resist and withstand His will? 
 
 
 
@@ -427,7 +427,7 @@ You will say to me, Why then does He still find fault _and_ blame us [for sinnin
 
 
 
-But who are you, a mere man, to criticize _and_ contradict _and_ answer back to God? Will what is formed say to him that formed it, Why have you made me thus? 
+But who are you, a mere man, to criticize and contradict and answer back to God? Will what is formed say to him that formed it, Why have you made me thus? 
 
 
 
@@ -448,7 +448,7 @@ But who are you, a mere man, to criticize _and_ contradict _and_ answer back to 
 
 
 
-Has the potter no right over the clay, to make out of the same mass (lump) one vessel for beauty _and_ distinction _and_ honorable use, and another for menial _or_ ignoble _and_ dishonorable use? 
+Has the potter no right over the clay, to make out of the same mass (lump) one vessel for beauty and distinction and honorable use, and another for menial or ignoble and dishonorable use? 
 
 
 
@@ -469,7 +469,7 @@ Has the potter no right over the clay, to make out of the same mass (lump) one v
 
 
 
-What if God, although fully intending to show [the awfulness of] His wrath and to make known His power _and_ authority, has tolerated with much patience the vessels (objects) of [His] anger which are ripe for destruction? 
+What if God, although fully intending to show [the awfulness of] His wrath and to make known His power and authority, has tolerated with much patience the vessels (objects) of [His] anger which are ripe for destruction? 
 
 
 
@@ -490,7 +490,7 @@ What if God, although fully intending to show [the awfulness of] His wrath and t
 
 
 
-And [what if] He thus purposes to make known _and_ show the wealth of His glory in [dealing with] the vessels (objects) of His mercy which He has prepared beforehand for glory, 
+And [what if] He thus purposes to make known and show the wealth of His glory in [dealing with] the vessels (objects) of His mercy which He has prepared beforehand for glory, 
 
 
 
@@ -700,4 +700,4 @@ For what reason? Because [they pursued it] not through faith, relying [instead] 
 
 
 
-As it is written, Behold I am laying in Zion a Stone that will make men stumble, a Rock that will make them fall; but he who believes in Him [who adheres to, trusts in, and relies on Him] shall not be put to shame _nor_ be disappointed in his expectations.
+As it is written, Behold I am laying in Zion a Stone that will make men stumble, a Rock that will make them fall; but he who believes in Him [who adheres to, trusts in, and relies on Him] shall not be put to shame nor be disappointed in his expectations.

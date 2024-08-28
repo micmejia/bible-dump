@@ -10,7 +10,7 @@ next: ['Josh 10']
 
 
 ###### 1 
-And it came to pass when all the kings who _were_ on this side of the Jordan, in the hills and in the lowland and in all the coasts of the Great Sea toward Lebanon--the Hittite, the Amorite, the Canaanite, the Perizzite, the Hivite, and the Jebusite--heard _about it,_ 
+And it came to pass when all the kings who were on this side of the Jordan, in the hills and in the lowland and in all the coasts of the Great Sea toward Lebanon--the Hittite, the Amorite, the Canaanite, the Perizzite, the Hivite, and the Jebusite--heard about it, 
 
 ###### 2 
 that they gathered together to fight with Joshua and Israel with one accord. 
@@ -22,7 +22,7 @@ But when the inhabitants of Gibeon heard what Joshua had done to Jericho and Ai,
 they worked craftily, and went and pretended to be ambassadors. And they took old sacks on their donkeys, old wineskins torn and mended, 
 
 ###### 5 
-old and patched sandals on their feet, and old garments on themselves; and all the bread of their provision was dry _and_ moldy. 
+old and patched sandals on their feet, and old garments on themselves; and all the bread of their provision was dry and moldy. 
 
 ###### 6 
 And they went to Joshua, to the camp at Gilgal, and said to him and to the men of Israel, "We have come from a far country; now therefore, make a covenant with us." 
@@ -31,22 +31,22 @@ And they went to Joshua, to the camp at Gilgal, and said to him and to the men o
 Then the men of Israel said to the Hivites, "Perhaps you dwell among us; so how can we make a covenant with you?" 
 
 ###### 8 
-But they said to Joshua, "We _are_ your servants." And Joshua said to them, "Who _are_ you, and where do you come from?" 
+But they said to Joshua, "We are your servants." And Joshua said to them, "Who are you, and where do you come from?" 
 
 ###### 9 
 So they said to him: "From a very far country your servants have come, because of the name of the Lord your God; for we have heard of His fame, and all that He did in Egypt, 
 
 ###### 10 
-and all that He did to the two kings of the Amorites who _were_ beyond the Jordan--to Sihon king of Heshbon, and Og king of Bashan, who was at Ashtaroth. 
+and all that He did to the two kings of the Amorites who were beyond the Jordan--to Sihon king of Heshbon, and Og king of Bashan, who was at Ashtaroth. 
 
 ###### 11 
-Therefore our elders and all the inhabitants of our country spoke to us, saying, 'Take provisions with you for the journey, and go to meet them, and say to them, "We _are_ your servants; now therefore, make a covenant with us." ' 
+Therefore our elders and all the inhabitants of our country spoke to us, saying, 'Take provisions with you for the journey, and go to meet them, and say to them, "We are your servants; now therefore, make a covenant with us." ' 
 
 ###### 12 
-This bread of ours we took hot _for_ our provision from our houses on the day we departed to come to you. But now look, it is dry and moldy. 
+This bread of ours we took hot for our provision from our houses on the day we departed to come to you. But now look, it is dry and moldy. 
 
 ###### 13 
-And these wineskins which we filled _were_ new, and see, they are torn; and these our garments and our sandals have become old because of the very long journey." 
+And these wineskins which we filled were new, and see, they are torn; and these our garments and our sandals have become old because of the very long journey." 
 
 ###### 14 
 Then the men of Israel took some of their provisions; but they did not ask counsel of the Lord. 
@@ -55,10 +55,10 @@ Then the men of Israel took some of their provisions; but they did not ask couns
 So Joshua made peace with them, and made a covenant with them to let them live; and the rulers of the congregation swore to them. 
 
 ###### 16 
-And it happened at the end of three days, after they had made a covenant with them, that they heard that they _were_ their neighbors who dwelt near them. 
+And it happened at the end of three days, after they had made a covenant with them, that they heard that they were their neighbors who dwelt near them. 
 
 ###### 17 
-Then the children of Israel journeyed and came to their cities on the third day. Now their cities _were_ Gibeon, Chephirah, Beeroth, and Kirjath Jearim. 
+Then the children of Israel journeyed and came to their cities on the third day. Now their cities were Gibeon, Chephirah, Beeroth, and Kirjath Jearim. 
 
 ###### 18 
 But the children of Israel did not attack them, because the rulers of the congregation had sworn to them by the Lord God of Israel. And all the congregation complained against the rulers. 
@@ -73,10 +73,10 @@ This we will do to them: We will let them live, lest wrath be upon us because of
 And the rulers said to them, "Let them live, but let them be woodcutters and water carriers for all the congregation, as the rulers had promised them." 
 
 ###### 22 
-Then Joshua called for them, and he spoke to them, saying, "Why have you deceived us, saying, 'We _are_ very far from you,' when you dwell near us? 
+Then Joshua called for them, and he spoke to them, saying, "Why have you deceived us, saying, 'We are very far from you,' when you dwell near us? 
 
 ###### 23 
-Now therefore, you _are_ cursed, and none of you shall be freed from being slaves--woodcutters and water carriers for the house of my God." 
+Now therefore, you are cursed, and none of you shall be freed from being slaves--woodcutters and water carriers for the house of my God." 
 
 ###### 24 
 So they answered Joshua and said, "Because your servants were clearly told that the Lord your God commanded His servant Moses to give you all the land, and to destroy all the inhabitants of the land from before you; therefore we were very much afraid for our lives because of you, and have done this thing. 

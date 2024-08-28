@@ -28,7 +28,7 @@ next: ['Prov 9']
 
 
 
-Does not skillful _and_ godly Wisdom cry out, and understanding raise her voice [in contrast to the loose woman]? 
+Does not skillful and godly Wisdom cry out, and understanding raise her voice [in contrast to the loose woman]? 
 
 
 
@@ -112,7 +112,7 @@ To you, O men, I call, and my voice is directed to the sons of men.
 
 
 
-O you simple _and_ thoughtless ones, understand prudence; you [self-confident] fools, be of an understanding heart. 
+O you simple and thoughtless ones, understand prudence; you [self-confident] fools, be of an understanding heart. 
 
 
 
@@ -133,7 +133,7 @@ O you simple _and_ thoughtless ones, understand prudence; you [self-confident] f
 
 
 
-Hear, for I will speak excellent _and_ princely things; and the opening of my lips shall be for right things. 
+Hear, for I will speak excellent and princely things; and the opening of my lips shall be for right things. 
 
 
 
@@ -154,7 +154,7 @@ Hear, for I will speak excellent _and_ princely things; and the opening of my li
 
 
 
-For my mouth shall utter truth, and wrongdoing is detestable _and_ loathsome to my lips. 
+For my mouth shall utter truth, and wrongdoing is detestable and loathsome to my lips. 
 
 
 
@@ -238,7 +238,7 @@ Receive my instruction in preference to [striving for] silver, and knowledge rat
 
 
 
-For skillful _and_ godly Wisdom is better than rubies _or_ pearls, and all the things that may be desired are not to be compared to it. 
+For skillful and godly Wisdom is better than rubies or pearls, and all the things that may be desired are not to be compared to it. 
 
 
 
@@ -280,7 +280,7 @@ I, Wisdom [from God], make prudence my dwelling, and I find out knowledge and di
 
 
 
-The reverent fear _and_ worshipful awe of the Lord [includes] the hatred of evil; pride, arrogance, the evil way, and perverted _and_ twisted speech I hate. 
+The reverent fear and worshipful awe of the Lord [includes] the hatred of evil; pride, arrogance, the evil way, and perverted and twisted speech I hate. 
 
 
 
@@ -301,7 +301,7 @@ The reverent fear _and_ worshipful awe of the Lord [includes] the hatred of evil
 
 
 
-I have counsel and sound knowledge, I have understanding, I have might _and_ power. 
+I have counsel and sound knowledge, I have understanding, I have might and power. 
 
 
 
@@ -343,7 +343,7 @@ By me kings reign and rulers decree justice.
 
 
 
-By me princes rule, and nobles, even all the judges _and_ governors of the earth. 
+By me princes rule, and nobles, even all the judges and governors of the earth. 
 
 
 
@@ -364,7 +364,7 @@ By me princes rule, and nobles, even all the judges _and_ governors of the earth
 
 
 
-I love those who love me, and those who seek me early _and_ diligently shall find me. 
+I love those who love me, and those who seek me early and diligently shall find me. 
 
 
 
@@ -469,7 +469,7 @@ That I may cause those who love me to inherit [true] riches and that I may fill 
 
 
 
-The Lord formed _and_ brought me [Wisdom] forth at the beginning of His way, before His acts of old. 
+The Lord formed and brought me [Wisdom] forth at the beginning of His way, before His acts of old. 
 
 
 
@@ -490,7 +490,7 @@ The Lord formed _and_ brought me [Wisdom] forth at the beginning of His way, bef
 
 
 
-I [Wisdom] was inaugurated _and_ ordained from everlasting, from the beginning, before ever the earth existed. 
+I [Wisdom] was inaugurated and ordained from everlasting, from the beginning, before ever the earth existed. 
 
 
 
@@ -574,7 +574,7 @@ While as yet He had not made the land or the fields or the first of the dust of 
 
 
 
-When He prepared the heavens, I [Wisdom] was there; when He drew a circle upon the face of the deep _and_ stretched out the firmament over it, 
+When He prepared the heavens, I [Wisdom] was there; when He drew a circle upon the face of the deep and stretched out the firmament over it, 
 
 
 
@@ -616,7 +616,7 @@ When He made firm the skies above, when He established the fountains of the deep
 
 
 
-When He gave to the sea its limit _and_ His decree that the waters should not transgress [across the boundaries set by] His command, when He appointed the foundations of the earth-- 
+When He gave to the sea its limit and His decree that the waters should not transgress [across the boundaries set by] His command, when He appointed the foundations of the earth-- 
 
 
 
@@ -637,7 +637,7 @@ When He gave to the sea its limit _and_ His decree that the waters should not tr
 
 
 
-Then I [Wisdom] was beside Him as a master _and_ director of the work; and I was daily His delight, rejoicing before Him always, 
+Then I [Wisdom] was beside Him as a master and director of the work; and I was daily His delight, rejoicing before Him always, 
 
 
 
@@ -700,7 +700,7 @@ Now therefore listen to me, O you sons; for blessed (happy, fortunate, to be env
 
 
 
-Hear instruction and be wise, and do not refuse _or_ neglect it. 
+Hear instruction and be wise, and do not refuse or neglect it. 
 
 
 
@@ -742,7 +742,7 @@ Blessed (happy, fortunate, to be envied) is the man who listens to me, watching 
 
 
 
-For whoever finds me [Wisdom] finds life and draws forth _and_ obtains favor from the Lord. 
+For whoever finds me [Wisdom] finds life and draws forth and obtains favor from the Lord. 
 
 
 
@@ -763,4 +763,4 @@ For whoever finds me [Wisdom] finds life and draws forth _and_ obtains favor fro
 
 
 
-But he who misses me _or_ sins against me wrongs _and_ injures himself; all who hate me love _and_ court death.
+But he who misses me or sins against me wrongs and injures himself; all who hate me love and court death.

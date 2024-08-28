@@ -91,7 +91,7 @@ He brought me there, and behold, there was a man [an angel] whose appearance was
 
 
 
-And the man said to me, Son of man, look with your eyes and hear with your ears and set your heart _and_ mind on all that I will show you, for you are brought here that I may show them to you. Declare all that you see to the house of Israel. 
+And the man said to me, Son of man, look with your eyes and hear with your ears and set your heart and mind on all that I will show you, for you are brought here that I may show them to you. Declare all that you see to the house of Israel. 
 
 
 
@@ -154,7 +154,7 @@ Then he came to the gate which faced the east and went up its [seven] steps and 
 
 
 
-And every room for the guards was one reed long and one reed broad, and the space between the guardrooms _or_ lodges was five cubits. And the threshold of the gate by the porch _or_ vestibule of the gateway within was one reed. 
+And every room for the guards was one reed long and one reed broad, and the space between the guardrooms or lodges was five cubits. And the threshold of the gate by the porch or vestibule of the gateway within was one reed. 
 
 
 
@@ -175,7 +175,7 @@ And every room for the guards was one reed long and one reed broad, and the spac
 
 
 
-He measured also the porch _or_ vestibule of the gate toward the house [of the Lord], one reed. 
+He measured also the porch or vestibule of the gate toward the house [of the Lord], one reed. 
 
 
 
@@ -196,7 +196,7 @@ He measured also the porch _or_ vestibule of the gate toward the house [of the L
 
 
 
-Then he measured the porch _or_ vestibule of the gateway, eight cubits, and its posts _or_ jambs, two cubits. And the porch _or_ vestibule of the gate was inside [toward the house of the Lord]. 
+Then he measured the porch or vestibule of the gateway, eight cubits, and its posts or jambs, two cubits. And the porch or vestibule of the gate was inside [toward the house of the Lord]. 
 
 
 
@@ -217,7 +217,7 @@ Then he measured the porch _or_ vestibule of the gateway, eight cubits, and its 
 
 
 
-And the guardrooms _or_ lodges of the east gateway were three on this side and three on that side; the three were the same size, and the posts _or_ jambs were the same size on either side. 
+And the guardrooms or lodges of the east gateway were three on this side and three on that side; the three were the same size, and the posts or jambs were the same size on either side. 
 
 
 
@@ -259,7 +259,7 @@ And he measured the breadth of the opening of the gateway, ten cubits, and the l
 
 
 
-And a border _or_ barrier before the guardrooms was one cubit on this side, and a border _or_ barrier, one cubit on that side. And the guardrooms _or_ lodges were six cubits on this side and six cubits on that side. 
+And a border or barrier before the guardrooms was one cubit on this side, and a border or barrier, one cubit on that side. And the guardrooms or lodges were six cubits on this side and six cubits on that side. 
 
 
 
@@ -280,7 +280,7 @@ And a border _or_ barrier before the guardrooms was one cubit on this side, and 
 
 
 
-And _the man_ [an angel] measured the gate from the outer wall of one chamber _or_ guardroom to the outer wall of another--a breadth of twenty-five cubits from door to door. 
+And the man [an angel] measured the gate from the outer wall of one chamber or guardroom to the outer wall of another--a breadth of twenty-five cubits from door to door. 
 
 
 
@@ -301,7 +301,7 @@ And _the man_ [an angel] measured the gate from the outer wall of one chamber _o
 
 
 
-And the open part of the porch _or_ vestibule of the gateway on the outside was twenty cubits, the chambers _or_ guardrooms of the gate being round about. 
+And the open part of the porch or vestibule of the gateway on the outside was twenty cubits, the chambers or guardrooms of the gate being round about. 
 
 
 
@@ -322,7 +322,7 @@ And the open part of the porch _or_ vestibule of the gateway on the outside was 
 
 
 
-And including this porch _or_ vestibule of the gate on the outside and the porch _or_ vestibule on the inside, the extent was fifty cubits. 
+And including this porch or vestibule of the gate on the outside and the porch or vestibule on the inside, the extent was fifty cubits. 
 
 
 
@@ -343,7 +343,7 @@ And including this porch _or_ vestibule of the gate on the outside and the porch
 
 
 
-And there were closed windows to the guardrooms _or_ chambers and to their posts _or_ pillars within the gate round about, and likewise to the archway _or_ vestibule; and windows were round about facing into the court, and upon each post _or_ pillar were palm tree [decorations]. 
+And there were closed windows to the guardrooms or chambers and to their posts or pillars within the gate round about, and likewise to the archway or vestibule; and windows were round about facing into the court, and upon each post or pillar were palm tree [decorations]. 
 
 
 
@@ -406,7 +406,7 @@ And the pavement was along by the side of the gates, answerable to the length of
 
 
 
-Then _the man_ measured the distance from the inner front before the lower gate to the outer front of the inner court, a hundred cubits, both on the east and on the north. 
+Then the man measured the distance from the inner front before the lower gate to the outer front of the inner court, a hundred cubits, both on the east and on the north. 
 
 
 
@@ -448,7 +448,7 @@ And the gate of the outward court which faced the north, of it he measured both 
 
 
 
-And its guardrooms _or_ lodges, three on this side and three on that side, and its posts _or_ pillars and archway _or_ vestibule were the same size as those of the first gate; the length was fifty cubits and the breadth twenty-five cubits. 
+And its guardrooms or lodges, three on this side and three on that side, and its posts or pillars and archway or vestibule were the same size as those of the first gate; the length was fifty cubits and the breadth twenty-five cubits. 
 
 
 
@@ -469,7 +469,7 @@ And its guardrooms _or_ lodges, three on this side and three on that side, and i
 
 
 
-And its windows and its archway _or_ vestibule and its palm trees were of the same size as those of the gate that faces toward the east. It was reached by going up seven steps, and the archway of its vestibule was on the inner side. 
+And its windows and its archway or vestibule and its palm trees were of the same size as those of the gate that faces toward the east. It was reached by going up seven steps, and the archway of its vestibule was on the inner side. 
 
 
 
@@ -511,7 +511,7 @@ Opposite the gate on the north and on the east was a gate to the inner court, an
 
 
 
-After that _the man_ brought me toward the south, and behold, there was a gate on the south, and he measured its posts _or_ pillars and its archway _or_ vestibule; they measured as the others did. 
+After that the man brought me toward the south, and behold, there was a gate on the south, and he measured its posts or pillars and its archway or vestibule; they measured as the others did. 
 
 
 
@@ -532,7 +532,7 @@ After that _the man_ brought me toward the south, and behold, there was a gate o
 
 
 
-And there were windows round about in it and in its archway _or_ vestibule, like those windows in the other gateways; its length was fifty cubits and its breadth twenty-five cubits. 
+And there were windows round about in it and in its archway or vestibule, like those windows in the other gateways; its length was fifty cubits and its breadth twenty-five cubits. 
 
 
 
@@ -553,7 +553,7 @@ And there were windows round about in it and in its archway _or_ vestibule, like
 
 
 
-And there were seven steps going up to the gate, and its archway _or_ vestibule was on the inside. And it had palm trees, one on this side and another on that side, carved on its posts _or_ pillars. 
+And there were seven steps going up to the gate, and its archway or vestibule was on the inside. And it had palm trees, one on this side and another on that side, carved on its posts or pillars. 
 
 
 
@@ -595,7 +595,7 @@ And there was a gate to the inner court on the south, and he measured from gate 
 
 
 
-And _the man_ [an angel] brought me into the inner court by the south gate, and he measured the south gate; its measurements were the same as those of the other gateways. 
+And the man [an angel] brought me into the inner court by the south gate, and he measured the south gate; its measurements were the same as those of the other gateways. 
 
 
 
@@ -616,7 +616,7 @@ And _the man_ [an angel] brought me into the inner court by the south gate, and 
 
 
 
-And its guardrooms _or_ chambers and its posts _or_ pillars and its archway _or_ vestibule measured as did the others. And there were windows in the gateway and in its archway _or_ vestibule round about; its length was fifty cubits and its breadth twenty-five cubits. 
+And its guardrooms or chambers and its posts or pillars and its archway or vestibule measured as did the others. And there were windows in the gateway and in its archway or vestibule round about; its length was fifty cubits and its breadth twenty-five cubits. 
 
 
 
@@ -637,7 +637,7 @@ And its guardrooms _or_ chambers and its posts _or_ pillars and its archway _or_
 
 
 
-And there was an archway _or_ a vestibule round about, twenty-five cubits long and five cubits wide. 
+And there was an archway or a vestibule round about, twenty-five cubits long and five cubits wide. 
 
 
 
@@ -658,7 +658,7 @@ And there was an archway _or_ a vestibule round about, twenty-five cubits long a
 
 
 
-And its [arched] vestibule faced the outer court; and palm trees were carved upon its posts _or_ pillars, and the steps going up to it were eight. 
+And its [arched] vestibule faced the outer court; and palm trees were carved upon its posts or pillars, and the steps going up to it were eight. 
 
 
 
@@ -700,7 +700,7 @@ And he brought me into the inner court toward the east and he measured the gate;
 
 
 
-And its guardrooms _or_ chambers and its posts _or_ pillars and its archway _or_ vestibule measured as did the others. And there were windows in it and in its [arched] vestibule round about; the gateway was fifty cubits long and twenty-five cubits wide. 
+And its guardrooms or chambers and its posts or pillars and its archway or vestibule measured as did the others. And there were windows in it and in its [arched] vestibule round about; the gateway was fifty cubits long and twenty-five cubits wide. 
 
 
 
@@ -721,7 +721,7 @@ And its guardrooms _or_ chambers and its posts _or_ pillars and its archway _or_
 
 
 
-And its [arched] vestibule faced the outer court; and palm trees were carved upon its posts _or_ pillars on either side, and the steps leading to it were eight. 
+And its [arched] vestibule faced the outer court; and palm trees were carved upon its posts or pillars on either side, and the steps leading to it were eight. 
 
 
 
@@ -742,7 +742,7 @@ And its [arched] vestibule faced the outer court; and palm trees were carved upo
 
 
 
-And _the man_ [an angel] brought me to the north gate and measured it; the measurements were the same as those of the other gates. 
+And the man [an angel] brought me to the north gate and measured it; the measurements were the same as those of the other gates. 
 
 
 
@@ -763,7 +763,7 @@ And _the man_ [an angel] brought me to the north gate and measured it; the measu
 
 
 
-Its guardrooms _or_ chambers, its posts _or_ pillars, its [arched] vestibule, and the windows to it round about [were of the same size as the others]. The length of the gateway was fifty cubits and the width was twenty-five cubits. 
+Its guardrooms or chambers, its posts or pillars, its [arched] vestibule, and the windows to it round about [were of the same size as the others]. The length of the gateway was fifty cubits and the width was twenty-five cubits. 
 
 
 
@@ -784,7 +784,7 @@ Its guardrooms _or_ chambers, its posts _or_ pillars, its [arched] vestibule, an
 
 
 
-And its posts _or_ pillars were toward the outer court, and palm trees were carved upon them on either side. And the approach to it had eight steps. 
+And its posts or pillars were toward the outer court, and palm trees were carved upon them on either side. And the approach to it had eight steps. 
 
 
 
@@ -805,7 +805,7 @@ And its posts _or_ pillars were toward the outer court, and palm trees were carv
 
 
 
-There was an attached chamber with its door beside the posts _or_ pillars of the gates where the burnt offering was to be washed. 
+There was an attached chamber with its door beside the posts or pillars of the gates where the burnt offering was to be washed. 
 
 
 
@@ -826,7 +826,7 @@ There was an attached chamber with its door beside the posts _or_ pillars of the
 
 
 
-And in the porch _or_ vestibule of the gate were two tables on this side and two tables on that side, on which to slay the burnt offering and the sin offering and the trespass _or_ guilt offering. 
+And in the porch or vestibule of the gate were two tables on this side and two tables on that side, on which to slay the burnt offering and the sin offering and the trespass or guilt offering. 
 
 
 
@@ -910,7 +910,7 @@ Moreover, there were four tables of hewn stone for the burnt offering, a cubit a
 
 
 
-And slabs _or_ hooks a handbreadth long were fastened within [the room] round about. Upon the tables was to be placed the flesh of the offering. 
+And slabs or hooks a handbreadth long were fastened within [the room] round about. Upon the tables was to be placed the flesh of the offering. 
 
 
 
@@ -931,7 +931,7 @@ And slabs _or_ hooks a handbreadth long were fastened within [the room] round ab
 
 
 
-Then _the man_ [an angel] led me [from without] into the inner court, and behold, there were two chambers in the inner court: one beside the north gate but facing the south, and one beside the south gate but looking toward the north. 
+Then the man [an angel] led me [from without] into the inner court, and behold, there were two chambers in the inner court: one beside the north gate but facing the south, and one beside the south gate but looking toward the north. 
 
 
 
@@ -952,7 +952,7 @@ Then _the man_ [an angel] led me [from without] into the inner court, and behold
 
 
 
-And _the man_ [an angel who was guiding me] said, This chamber with its view to the south is for the priests who have charge of the house [of the Lord], 
+And the man [an angel who was guiding me] said, This chamber with its view to the south is for the priests who have charge of the house [of the Lord], 
 
 
 
@@ -1015,7 +1015,7 @@ And he measured the court, a hundred cubits long and a hundred cubits broad, fou
 
 
 
-Then he brought me to the porch _or_ vestibule of the temple proper, and he measured each post _or_ pillar of the porch, five cubits on either side. And the width of the gate was three cubits for this [leaf] and three cubits for that one. 
+Then he brought me to the porch or vestibule of the temple proper, and he measured each post or pillar of the porch, five cubits on either side. And the width of the gate was three cubits for this [leaf] and three cubits for that one. 
 
 
 
@@ -1036,4 +1036,4 @@ Then he brought me to the porch _or_ vestibule of the temple proper, and he meas
 
 
 
-And the length of the porch _or_ vestibule was twenty cubits and the breadth eleven cubits; and he brought me by the steps by which it was reached, and there were two pillars standing on the posts [as bases] _or_ beside them, one on either side of the entrance.
+And the length of the porch or vestibule was twenty cubits and the breadth eleven cubits; and he brought me by the steps by which it was reached, and there were two pillars standing on the posts [as bases] or beside them, one on either side of the entrance.

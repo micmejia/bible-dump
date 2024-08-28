@@ -49,7 +49,7 @@ Elihu spoke further [to Job] and said,
 
 
 
-Do you think this is your right, _or_ are you saying, My righteousness is more than God's, 
+Do you think this is your right, or are you saying, My righteousness is more than God's, 
 
 
 
@@ -322,7 +322,7 @@ How much less when [missing His righteous judgment on earth] you say that you do
 
 
 
-But now because God has not [speedily] punished in His anger and seems to be unaware of the wrong _and_ oppression [of which a person is guilty], 
+But now because God has not [speedily] punished in His anger and seems to be unaware of the wrong and oppression [of which a person is guilty], 
 
 
 

@@ -28,7 +28,7 @@ next: ['Rom 16']
 
 
 
-We who are strong [in our convictions and of robust faith] ought to bear with the failings _and_ the frailties _and_ the tender scruples of the weak; [we ought to help carry the doubts and qualms of others] and not to please ourselves. 
+We who are strong [in our convictions and of robust faith] ought to bear with the failings and the frailties and the tender scruples of the weak; [we ought to help carry the doubts and qualms of others] and not to please ourselves. 
 
 
 
@@ -49,7 +49,7 @@ We who are strong [in our convictions and of robust faith] ought to bear with th
 
 
 
-Let each one of us make it a practice to please (make happy) his neighbor for his good _and_ for his true welfare, to edify him [to strengthen him and build him up spiritually]. 
+Let each one of us make it a practice to please (make happy) his neighbor for his good and for his true welfare, to edify him [to strengthen him and build him up spiritually]. 
 
 
 
@@ -70,7 +70,7 @@ Let each one of us make it a practice to please (make happy) his neighbor for hi
 
 
 
-For Christ did not please Himself [gave no thought to His own interests]; but, as it is written, The reproaches _and_ abuses of those who reproached _and_ abused you fell on Me. 
+For Christ did not please Himself [gave no thought to His own interests]; but, as it is written, The reproaches and abuses of those who reproached and abused you fell on Me. 
 
 
 
@@ -91,7 +91,7 @@ For Christ did not please Himself [gave no thought to His own interests]; but, a
 
 
 
-For whatever was thus written in former days was written for our instruction, that by [our steadfast and patient] endurance and the encouragement [drawn] from the Scriptures we might hold fast to _and_ cherish hope. 
+For whatever was thus written in former days was written for our instruction, that by [our steadfast and patient] endurance and the encouragement [drawn] from the Scriptures we might hold fast to and cherish hope. 
 
 
 
@@ -112,7 +112,7 @@ For whatever was thus written in former days was written for our instruction, th
 
 
 
-Now may the God Who gives the power of patient endurance (steadfastness) and Who supplies encouragement, grant you to live in such mutual harmony _and_ such full sympathy with one another, in accord with Christ Jesus, 
+Now may the God Who gives the power of patient endurance (steadfastness) and Who supplies encouragement, grant you to live in such mutual harmony and such full sympathy with one another, in accord with Christ Jesus, 
 
 
 
@@ -133,7 +133,7 @@ Now may the God Who gives the power of patient endurance (steadfastness) and Who
 
 
 
-That together you may [unanimously] with united hearts _and_ one voice, praise and glorify the God and Father of our Lord Jesus Christ (the Messiah). 
+That together you may [unanimously] with united hearts and one voice, praise and glorify the God and Father of our Lord Jesus Christ (the Messiah). 
 
 
 
@@ -154,7 +154,7 @@ That together you may [unanimously] with united hearts _and_ one voice, praise a
 
 
 
-Welcome _and_ receive [to your hearts] one another, then, even as Christ has welcomed _and_ received you, for the glory of God. 
+Welcome and receive [to your hearts] one another, then, even as Christ has welcomed and received you, for the glory of God. 
 
 
 
@@ -175,7 +175,7 @@ Welcome _and_ receive [to your hearts] one another, then, even as Christ has wel
 
 
 
-For I tell you that Christ (the Messiah) became a servant _and_ a minister to the circumcised (the Jews) in order to show God's truthfulness _and_ honesty by confirming (verifying) the promises [given] to our fathers, 
+For I tell you that Christ (the Messiah) became a servant and a minister to the circumcised (the Jews) in order to show God's truthfulness and honesty by confirming (verifying) the promises [given] to our fathers, 
 
 
 
@@ -280,7 +280,7 @@ And further Isaiah says, There shall be a Sprout from the Root of Jesse, He Who 
 
 
 
-May the God of your hope so fill you with all joy and peace in believing [through the experience of your faith] that by the power of the Holy Spirit you may abound _and_ be overflowing (bubbling over) with hope. 
+May the God of your hope so fill you with all joy and peace in believing [through the experience of your faith] that by the power of the Holy Spirit you may abound and be overflowing (bubbling over) with hope. 
 
 
 
@@ -301,7 +301,7 @@ May the God of your hope so fill you with all joy and peace in believing [throug
 
 
 
-Personally I am satisfied about you, my brethren, that you yourselves are rich in goodness, amply filled with all [spiritual] knowledge and competent to admonish _and_ counsel _and_ instruct one another also. 
+Personally I am satisfied about you, my brethren, that you yourselves are rich in goodness, amply filled with all [spiritual] knowledge and competent to admonish and counsel and instruct one another also. 
 
 
 
@@ -322,7 +322,7 @@ Personally I am satisfied about you, my brethren, that you yourselves are rich i
 
 
 
-Still on some points I have written to you the more boldly _and_ unreservedly by way of reminder. [I have done so] because of the grace (the unmerited favor) bestowed on me by God 
+Still on some points I have written to you the more boldly and unreservedly by way of reminder. [I have done so] because of the grace (the unmerited favor) bestowed on me by God 
 
 
 
@@ -343,7 +343,7 @@ Still on some points I have written to you the more boldly _and_ unreservedly by
 
 
 
-In making me a minister of Christ Jesus to the Gentiles. I act in the priestly service of the Gospel (the good news) of God, in order that the sacrificial offering of the Gentiles may be acceptable [to God], consecrated _and_ made holy by the Holy Spirit. 
+In making me a minister of Christ Jesus to the Gentiles. I act in the priestly service of the Gospel (the good news) of God, in order that the sacrificial offering of the Gentiles may be acceptable [to God], consecrated and made holy by the Holy Spirit. 
 
 
 
@@ -616,7 +616,7 @@ When therefore I have completed this mission and have delivered to them [at Jeru
 
 
 
-And I know that when I do come to you, I shall come in the abundant blessing _of the Gospel_ of Christ. 
+And I know that when I do come to you, I shall come in the abundant blessing of the Gospel of Christ. 
 
 
 
@@ -658,7 +658,7 @@ I appeal to you [I entreat you], brethren, for the sake of our Lord Jesus Christ
 
 
 
-[Pray] that I may be delivered (rescued) from the unbelievers in Judea and that my mission of relief to Jerusalem may be acceptable _and_ graciously received by the saints (God's people there), 
+[Pray] that I may be delivered (rescued) from the unbelievers in Judea and that my mission of relief to Jerusalem may be acceptable and graciously received by the saints (God's people there), 
 
 
 

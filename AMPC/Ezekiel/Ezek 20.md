@@ -91,7 +91,7 @@ Son of man, speak to the elders of Israel and say to them, Thus says the Lord Go
 
 
 
-Will you judge them, son of man [Ezekiel], will you judge them? Then cause them to know, understand, _and_ realize the abominations of their fathers. 
+Will you judge them, son of man [Ezekiel], will you judge them? Then cause them to know, understand, and realize the abominations of their fathers. 
 
 
 
@@ -112,7 +112,7 @@ Will you judge them, son of man [Ezekiel], will you judge them? Then cause them 
 
 
 
-And say to them, Thus says the Lord God: In the day when I chose Israel and lifted up My hand _and_ swore to the offspring of the house of Jacob and made Myself known to them in the land of Egypt, when I lifted up My hand _and_ swore to them, saying, I am the Lord your God, 
+And say to them, Thus says the Lord God: In the day when I chose Israel and lifted up My hand and swore to the offspring of the house of Jacob and made Myself known to them in the land of Egypt, when I lifted up My hand and swore to them, saying, I am the Lord your God, 
 
 
 
@@ -133,7 +133,7 @@ And say to them, Thus says the Lord God: In the day when I chose Israel and lift
 
 
 
-On that day I lifted up My hand _and_ swore to them to bring them out of the land of Egypt to a land that I had searched out for them, flowing with milk and honey, [a land] which is an ornament _and_ a glory to all lands. 
+On that day I lifted up My hand and swore to them to bring them out of the land of Egypt to a land that I had searched out for them, flowing with milk and honey, [a land] which is an ornament and a glory to all lands. 
 
 
 
@@ -238,7 +238,7 @@ So I caused them to go out from the land of Egypt and brought them into the wild
 
 
 
-And I gave them My statutes and showed _and_ made known to them My judgments, which, if a man keeps, he must live in _and_ by them. 
+And I gave them My statutes and showed and made known to them My judgments, which, if a man keeps, he must live in and by them. 
 
 
 
@@ -259,7 +259,7 @@ And I gave them My statutes and showed _and_ made known to them My judgments, wh
 
 
 
-Moreover, also I gave them My Sabbaths to be a sign between Me and them, that they might understand _and_ realize that I am the Lord Who sanctifies them [separates and sets them apart]. 
+Moreover, also I gave them My Sabbaths to be a sign between Me and them, that they might understand and realize that I am the Lord Who sanctifies them [separates and sets them apart]. 
 
 
 
@@ -280,7 +280,7 @@ Moreover, also I gave them My Sabbaths to be a sign between Me and them, that th
 
 
 
-But the house of Israel rebelled against Me in the wilderness; they walked not in My statutes and they despised _and_ cast away My judgments, which, if a man keeps, he must even live in _and_ by them; and they grievously profaned My Sabbaths. Then I thought I would pour out My wrath on them in the wilderness and uproot _and_ consume them. 
+But the house of Israel rebelled against Me in the wilderness; they walked not in My statutes and they despised and cast away My judgments, which, if a man keeps, he must even live in and by them; and they grievously profaned My Sabbaths. Then I thought I would pour out My wrath on them in the wilderness and uproot and consume them. 
 
 
 
@@ -322,7 +322,7 @@ But I acted for My name's sake, that it should not be profaned before the [heath
 
 
 
-Yet also I lifted up My hand to swear to them in the wilderness that I would not bring them into the land which I had given them, flowing with milk and honey, which is the ornament _and_ glory of all lands-- 
+Yet also I lifted up My hand to swear to them in the wilderness that I would not bring them into the land which I had given them, flowing with milk and honey, which is the ornament and glory of all lands-- 
 
 
 
@@ -343,7 +343,7 @@ Yet also I lifted up My hand to swear to them in the wilderness that I would not
 
 
 
-Because they despised _and_ rejected My ordinances and walked not in My statutes and profaned My Sabbaths, for their hearts went after their idols. 
+Because they despised and rejected My ordinances and walked not in My statutes and profaned My Sabbaths, for their hearts went after their idols. 
 
 
 
@@ -427,7 +427,7 @@ I the Lord am your God; walk in My statutes and keep My ordinances,
 
 
 
-And hallow (separate and keep holy) My Sabbaths, and they shall be a sign between Me and you, that you may know, understand, _and_ realize that I am the Lord your God. 
+And hallow (separate and keep holy) My Sabbaths, and they shall be a sign between Me and you, that you may know, understand, and realize that I am the Lord your God. 
 
 
 
@@ -448,7 +448,7 @@ And hallow (separate and keep holy) My Sabbaths, and they shall be a sign betwee
 
 
 
-Yet the sons rebelled against Me; they walked not in My statutes, neither kept My ordinances which, if a man does, he must live in _and_ by them; they profaned My Sabbaths. Then I thought I would pour out My wrath on them and finish My anger against them in the wilderness. 
+Yet the sons rebelled against Me; they walked not in My statutes, neither kept My ordinances which, if a man does, he must live in and by them; they profaned My Sabbaths. Then I thought I would pour out My wrath on them and finish My anger against them in the wilderness. 
 
 
 
@@ -490,7 +490,7 @@ Yet I withheld My hand and acted for My name's sake, that it should not be debas
 
 
 
-Moreover, I lifted up My hand _and_ swore to them in the wilderness that I would scatter them among the [heathen] nations and disperse them in the countries, 
+Moreover, I lifted up My hand and swore to them in the wilderness that I would scatter them among the [heathen] nations and disperse them in the countries, 
 
 
 
@@ -511,7 +511,7 @@ Moreover, I lifted up My hand _and_ swore to them in the wilderness that I would
 
 
 
-Because they had not executed My ordinances but had despised _and_ rejected My statutes and had profaned My Sabbaths, and their eyes were set on their fathers' idols. 
+Because they had not executed My ordinances but had despised and rejected My statutes and had profaned My Sabbaths, and their eyes were set on their fathers' idols. 
 
 
 
@@ -532,7 +532,7 @@ Because they had not executed My ordinances but had despised _and_ rejected My s
 
 
 
-Wherefore also I gave them [over to] statutes that were not good and ordinances whereby they should not live _and_ could not have life, 
+Wherefore also I gave them [over to] statutes that were not good and ordinances whereby they should not live and could not have life, 
 
 
 
@@ -553,7 +553,7 @@ Wherefore also I gave them [over to] statutes that were not good and ordinances 
 
 
 
-And I [let them] pollute _and_ make themselves unclean in their own offerings [to their idols], in that they caused to pass through the fire all the firstborn, that I might make them desolate, to the end that they might know, understand, _and_ realize that I am the Lord. 
+And I [let them] pollute and make themselves unclean in their own offerings [to their idols], in that they caused to pass through the fire all the firstborn, that I might make them desolate, to the end that they might know, understand, and realize that I am the Lord. 
 
 
 
@@ -574,7 +574,7 @@ And I [let them] pollute _and_ make themselves unclean in their own offerings [t
 
 
 
-Therefore, son of man, speak to the house of Israel and say to them, Thus says the Lord God: Again in this your fathers blasphemed Me, in that they dealt faithlessly _and_ treacherously with Me and committed a treasonous trespass against Me. 
+Therefore, son of man, speak to the house of Israel and say to them, Thus says the Lord God: Again in this your fathers blasphemed Me, in that they dealt faithlessly and treacherously with Me and committed a treasonous trespass against Me. 
 
 
 
@@ -595,7 +595,7 @@ Therefore, son of man, speak to the house of Israel and say to them, Thus says t
 
 
 
-For when I had brought them into the land which I lifted up My hand _and_ swore to give to them, then they saw every high hill and every dark _and_ leafy tree [as a place for idol worship], and they offered there their sacrifices and there they presented their offering that provoked My anger _and_ sadness; there also they made their sweet-smelling savor and poured out there their drink offerings. 
+For when I had brought them into the land which I lifted up My hand and swore to give to them, then they saw every high hill and every dark and leafy tree [as a place for idol worship], and they offered there their sacrifices and there they presented their offering that provoked My anger and sadness; there also they made their sweet-smelling savor and poured out there their drink offerings. 
 
 
 
@@ -637,7 +637,7 @@ Then I said to them, What is the high place to which you go? And the name of it 
 
 
 
-Therefore say to the house of Israel, Thus says the Lord God: Do you [exiles] debase _and_ defile yourselves after the manner of your fathers? And do you play the harlot after their loathsome _and_ detestable things? 
+Therefore say to the house of Israel, Thus says the Lord God: Do you [exiles] debase and defile yourselves after the manner of your fathers? And do you play the harlot after their loathsome and detestable things? 
 
 
 
@@ -658,7 +658,7 @@ Therefore say to the house of Israel, Thus says the Lord God: Do you [exiles] de
 
 
 
-And when you offer your gifts, when you make your sons pass through the fire, do you not debase _and_ defile yourselves with all your idols to this day? And shall I be inquired of by you, O house of Israel? As I live, says the Lord God, I will not be inquired of by you! 
+And when you offer your gifts, when you make your sons pass through the fire, do you not debase and defile yourselves with all your idols to this day? And shall I be inquired of by you, O house of Israel? As I live, says the Lord God, I will not be inquired of by you! 
 
 
 
@@ -742,7 +742,7 @@ And I will bring you out from the peoples and will gather you out of the countri
 
 
 
-And I will bring you into the wilderness of the peoples, and there will I enter into judgment with you _and_ contend with you face to face. 
+And I will bring you into the wilderness of the peoples, and there will I enter into judgment with you and contend with you face to face. 
 
 
 
@@ -763,7 +763,7 @@ And I will bring you into the wilderness of the peoples, and there will I enter 
 
 
 
-As I entered into judgment _and_ contended with your fathers in the wilderness of the land of Egypt, so will I enter into judgment _and_ contend with you, says the Lord God. 
+As I entered into judgment and contended with your fathers in the wilderness of the land of Egypt, so will I enter into judgment and contend with you, says the Lord God. 
 
 
 
@@ -805,7 +805,7 @@ And I will cause you to pass under the rod [as the shepherd does his sheep when 
 
 
 
-And I will purge out _and_ separate from among you the rebels and those who transgress against Me; I will bring them out of the country where they temporarily dwell, but they shall not enter the land of Israel. Then you shall know, understand, _and_ realize that I am the Lord. 
+And I will purge out and separate from among you the rebels and those who transgress against Me; I will bring them out of the country where they temporarily dwell, but they shall not enter the land of Israel. Then you shall know, understand, and realize that I am the Lord. 
 
 
 
@@ -847,7 +847,7 @@ As for you, O house of Israel, thus says the Lord God: Go, serve every one of yo
 
 
 
-For on My holy mountain, on the mountain height of Israel, says the Lord God, there all the house of Israel, all of them in the land, shall serve Me. There will I [graciously] accept them, and there will I require your offerings and the firstfruits _and_ the choicest of your contributions, with all your sacred things. 
+For on My holy mountain, on the mountain height of Israel, says the Lord God, there all the house of Israel, all of them in the land, shall serve Me. There will I [graciously] accept them, and there will I require your offerings and the firstfruits and the choicest of your contributions, with all your sacred things. 
 
 
 
@@ -889,7 +889,7 @@ I will accept you [graciously] as a pleasant odor when I lead you out from the p
 
 
 
-And you shall know, understand, _and_ realize that I am the Lord, when I bring you into the land of Israel, into the country which I lifted up My hand _and_ swore to give to your fathers. 
+And you shall know, understand, and realize that I am the Lord, when I bring you into the land of Israel, into the country which I lifted up My hand and swore to give to your fathers. 
 
 
 
@@ -931,7 +931,7 @@ And there you shall [earnestly] remember your ways and all your doings with whic
 
 
 
-And you shall know, understand, _and_ realize that I am the Lord, when I deal with you for My name's sake, not according to your evil ways nor according to your corrupt doings, O house of Israel, says the Lord God. 
+And you shall know, understand, and realize that I am the Lord, when I deal with you for My name's sake, not according to your evil ways nor according to your corrupt doings, O house of Israel, says the Lord God. 
 
 
 
@@ -1036,4 +1036,4 @@ All flesh shall see that I the Lord have kindled it; it shall not be quenched.
 
 
 
-Then said I, Ah, Lord God! They are saying of me, Does he not speak in parables _and_ make allegories?
+Then said I, Ah, Lord God! They are saying of me, Does he not speak in parables and make allegories?

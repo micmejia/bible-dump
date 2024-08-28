@@ -385,7 +385,7 @@ These are the men who shall divide the land to you for inheritance: Eleazar the 
 
 
 
-And [with them] you shall take one head _or_ prince of each tribe to divide the land for inheritance. 
+And [with them] you shall take one head or prince of each tribe to divide the land for inheritance. 
 
 
 

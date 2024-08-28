@@ -91,7 +91,7 @@ At the noise of the tumult [caused by Your voice at which the enemy is overthrow
 
 
 
-And the spoil [of the Assyrians] is gathered [by the inhabitants of Jerusalem] as the caterpillar gathers; as locusts leap _and_ run to and fro, so [the Jews spoil the Assyrians' forsaken camp as they] leap upon it. 
+And the spoil [of the Assyrians] is gathered [by the inhabitants of Jerusalem] as the caterpillar gathers; as locusts leap and run to and fro, so [the Jews spoil the Assyrians' forsaken camp as they] leap upon it. 
 
 
 
@@ -133,7 +133,7 @@ The Lord is exalted, for He dwells on high; He will fill Zion with justice and r
 
 
 
-And there shall be stability in your times, an abundance of salvation, wisdom, and knowledge; the reverent fear _and_ worship of the Lord is your treasure _and_ His. 
+And there shall be stability in your times, an abundance of salvation, wisdom, and knowledge; the reverent fear and worship of the Lord is your treasure and His. 
 
 
 
@@ -175,7 +175,7 @@ Behold, their valiant ones cry without; the ambassadors of peace weep bitterly.
 
 
 
-The highways lie waste, the wayfaring man ceases. The enemy has broken the covenant, he has despised the cities _and_ _the witnesses_, he regards no man. 
+The highways lie waste, the wayfaring man ceases. The enemy has broken the covenant, he has despised the cities and the witnesses, he regards no man. 
 
 
 
@@ -322,7 +322,7 @@ The sinners in Zion are afraid; trembling seizes the godless ones. [They cry] Wh
 
 
 
-He who walks righteously and speaks uprightly, who despises gain from fraud _and_ from oppression, who shakes his hand free from the taking of bribes, who stops his ears from hearing of bloodshed and shuts his eyes to avoid looking upon evil. 
+He who walks righteously and speaks uprightly, who despises gain from fraud and from oppression, who shakes his hand free from the taking of bribes, who stops his ears from hearing of bloodshed and shuts his eyes to avoid looking upon evil. 
 
 
 
@@ -406,7 +406,7 @@ Your mind will meditate on the terror: [asking] Where is he who counted? Where i
 
 
 
-You will see no more the fierce _and_ insolent people, a people of a speech too deep _and_ obscure to be comprehended, of a strange _and_ stammering tongue that you cannot understand. 
+You will see no more the fierce and insolent people, a people of a speech too deep and obscure to be comprehended, of a strange and stammering tongue that you cannot understand. 
 
 
 
@@ -427,7 +427,7 @@ You will see no more the fierce _and_ insolent people, a people of a speech too 
 
 
 
-Look upon Zion, the city of our set feasts _and_ solemnities! Your eyes shall see Jerusalem, a quiet habitation, a tent that shall not be taken down; not one of its stakes shall ever be pulled up, neither shall any of its cords be broken. 
+Look upon Zion, the city of our set feasts and solemnities! Your eyes shall see Jerusalem, a quiet habitation, a tent that shall not be taken down; not one of its stakes shall ever be pulled up, neither shall any of its cords be broken. 
 
 
 
@@ -448,7 +448,7 @@ Look upon Zion, the city of our set feasts _and_ solemnities! Your eyes shall se
 
 
 
-But there the Lord will be for us in majesty _and_ splendor a place of broad rivers and streams, where no oar-propelled boat can go, and no mighty _and_ stately ship can pass. 
+But there the Lord will be for us in majesty and splendor a place of broad rivers and streams, where no oar-propelled boat can go, and no mighty and stately ship can pass. 
 
 
 
@@ -490,7 +490,7 @@ For the Lord is our Judge, the Lord is our Lawgiver, the Lord is our King; He wi
 
 
 
-Your hoisting ropes hang loose; they cannot strengthen _and_ hold firm the foot of their mast or keep the sail spread out. Then will prey and spoil in abundance be divided; even the lame will take the prey. 
+Your hoisting ropes hang loose; they cannot strengthen and hold firm the foot of their mast or keep the sail spread out. Then will prey and spoil in abundance be divided; even the lame will take the prey. 
 
 
 
@@ -511,4 +511,4 @@ Your hoisting ropes hang loose; they cannot strengthen _and_ hold firm the foot 
 
 
 
-And no inhabitant [of Zion] will say, I am sick; the people who dwell there will be forgiven their iniquity _and_ guilt.
+And no inhabitant [of Zion] will say, I am sick; the people who dwell there will be forgiven their iniquity and guilt.

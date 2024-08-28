@@ -28,7 +28,7 @@ next: ['Rom 9']
 
 
 
-Therefore, [there is] now no condemnation (no adjudging guilty of wrong) for those who are in Christ Jesus, _who live [and] walk not after the dictates of the flesh, but after the dictates of the Spirit_. 
+Therefore, [there is] now no condemnation (no adjudging guilty of wrong) for those who are in Christ Jesus, who live [and] walk not after the dictates of the flesh, but after the dictates of the Spirit. 
 
 
 
@@ -91,7 +91,7 @@ For God has done what the Law could not do, [its power] being weakened by the fl
 
 
 
-So that the righteous _and_ just requirement of the Law might be fully met in us who live _and_ move not in the ways of the flesh but in the ways of the Spirit [our lives governed not by the standards and according to the dictates of the flesh, but controlled by the Holy Spirit]. 
+So that the righteous and just requirement of the Law might be fully met in us who live and move not in the ways of the flesh but in the ways of the Spirit [our lives governed not by the standards and according to the dictates of the flesh, but controlled by the Holy Spirit]. 
 
 
 
@@ -112,7 +112,7 @@ So that the righteous _and_ just requirement of the Law might be fully met in us
 
 
 
-For those who are according to the flesh _and_ are controlled by its unholy desires set their minds on _and_ pursue those things which gratify the flesh, but those who are according to the Spirit _and_ are controlled by the desires of the Spirit set their minds on _and_ seek those things which gratify the [Holy] Spirit. 
+For those who are according to the flesh and are controlled by its unholy desires set their minds on and pursue those things which gratify the flesh, but those who are according to the Spirit and are controlled by the desires of the Spirit set their minds on and seek those things which gratify the [Holy] Spirit. 
 
 
 
@@ -175,7 +175,7 @@ Now the mind of the flesh [which is sense and reason without the Holy Spirit] is
 
 
 
-So then those who are living the life of the flesh [catering to the appetites and impulses of their carnal nature] cannot please _or_ satisfy God, _or_ be acceptable to Him. 
+So then those who are living the life of the flesh [catering to the appetites and impulses of their carnal nature] cannot please or satisfy God, or be acceptable to Him. 
 
 
 
@@ -217,7 +217,7 @@ But you are not living the life of the flesh, you are living the life of the Spi
 
 
 
-But if Christ lives in you, [then although] your [natural] body is dead by reason of sin _and_ guilt, the spirit is alive because of [the] righteousness [that He imputes to you]. 
+But if Christ lives in you, [then although] your [natural] body is dead by reason of sin and guilt, the spirit is alive because of [the] righteousness [that He imputes to you]. 
 
 
 
@@ -238,7 +238,7 @@ But if Christ lives in you, [then although] your [natural] body is dead by reaso
 
 
 
-And if the Spirit of Him Who raised up Jesus from the dead dwells in you, [then] He Who raised up Christ _Jesus_ from the dead will also restore to life your mortal (short-lived, perishable) bodies through His Spirit Who dwells in you. 
+And if the Spirit of Him Who raised up Jesus from the dead dwells in you, [then] He Who raised up Christ Jesus from the dead will also restore to life your mortal (short-lived, perishable) bodies through His Spirit Who dwells in you. 
 
 
 
@@ -385,7 +385,7 @@ And if we are [His] children, then we are [His] heirs also: heirs of God and fel
 
 
 
-[But what of that?] For I consider that the sufferings of this present time (this present life) are not worth being compared with the glory that is about to be revealed to us _and_ in us _and_ for us _and_ conferred on us! 
+[But what of that?] For I consider that the sufferings of this present time (this present life) are not worth being compared with the glory that is about to be revealed to us and in us and for us and conferred on us! 
 
 
 
@@ -406,7 +406,7 @@ And if we are [His] children, then we are [His] heirs also: heirs of God and fel
 
 
 
-For [even the whole] creation (all nature) waits expectantly _and_ longs earnestly for God's sons to be made known [waits for the revealing, the disclosing of their sonship]. 
+For [even the whole] creation (all nature) waits expectantly and longs earnestly for God's sons to be made known [waits for the revealing, the disclosing of their sonship]. 
 
 
 
@@ -448,7 +448,7 @@ For the creation (nature) was subjected to frailty (to futility, condemned to fr
 
 
 
-That nature (creation) itself will be set free from its bondage to decay _and_ corruption [and gain an entrance] into the glorious freedom of God's children. 
+That nature (creation) itself will be set free from its bondage to decay and corruption [and gain an entrance] into the glorious freedom of God's children. 
 
 
 
@@ -490,7 +490,7 @@ We know that the whole creation [of irrational creatures] has been moaning toget
 
 
 
-And not only the creation, but we ourselves too, who have _and_ enjoy the firstfruits of the [Holy] Spirit [a foretaste of the blissful things to come] groan inwardly as we wait for the redemption of our bodies [from sensuality and the grave, which will reveal] our adoption (our manifestation as God's sons). 
+And not only the creation, but we ourselves too, who have and enjoy the firstfruits of the [Holy] Spirit [a foretaste of the blissful things to come] groan inwardly as we wait for the redemption of our bodies [from sensuality and the grave, which will reveal] our adoption (our manifestation as God's sons). 
 
 
 
@@ -532,7 +532,7 @@ For in [this] hope we were saved. But hope [the object of] which is seen is not 
 
 
 
-But if we hope for what is still unseen by us, we wait for it with patience _and_ composure. 
+But if we hope for what is still unseen by us, we wait for it with patience and composure. 
 
 
 
@@ -553,7 +553,7 @@ But if we hope for what is still unseen by us, we wait for it with patience _and
 
 
 
-So too the [Holy] Spirit comes to our aid _and_ bears us up in our weakness; for we do not know what prayer to offer _nor_ how to offer it worthily as we ought, but the Spirit Himself goes to meet our supplication _and_ pleads in our behalf with unspeakable yearnings _and_ groanings too deep for utterance. 
+So too the [Holy] Spirit comes to our aid and bears us up in our weakness; for we do not know what prayer to offer nor how to offer it worthily as we ought, but the Spirit Himself goes to meet our supplication and pleads in our behalf with unspeakable yearnings and groanings too deep for utterance. 
 
 
 
@@ -574,7 +574,7 @@ So too the [Holy] Spirit comes to our aid _and_ bears us up in our weakness; for
 
 
 
-And He Who searches the hearts of men knows what is in the mind of the [Holy] Spirit [what His intent is], because the Spirit intercedes _and_ pleads [before God] in behalf of the saints according to _and_ in harmony with God's will. 
+And He Who searches the hearts of men knows what is in the mind of the [Holy] Spirit [what His intent is], because the Spirit intercedes and pleads [before God] in behalf of the saints according to and in harmony with God's will. 
 
 
 
@@ -595,7 +595,7 @@ And He Who searches the hearts of men knows what is in the mind of the [Holy] Sp
 
 
 
-We are assured _and_ know that [God being a partner in their labor] all things work together _and_ are [fitting into a plan] for good to _and_ for those who love God and are called according to [His] design _and_ purpose. 
+We are assured and know that [God being a partner in their labor] all things work together and are [fitting into a plan] for good to and for those who love God and are called according to [His] design and purpose. 
 
 
 
@@ -679,7 +679,7 @@ What then shall we say to [all] this? If God is for us, who [can be] against us?
 
 
 
-He who did not withhold _or_ spare [even] His own Son but gave Him up for us all, will He not also with Him freely _and_ graciously give us all [other] things? 
+He who did not withhold or spare [even] His own Son but gave Him up for us all, will He not also with Him freely and graciously give us all [other] things? 
 
 
 
@@ -721,7 +721,7 @@ Who shall bring any charge against God's elect [when it is] God Who justifies [t
 
 
 
-Who is there to condemn [us]? Will Christ Jesus (the Messiah), Who died, or rather Who was raised from the dead, Who is at the right hand of God actually pleading _as_ He intercedes for us? 
+Who is there to condemn [us]? Will Christ Jesus (the Messiah), Who died, or rather Who was raised from the dead, Who is at the right hand of God actually pleading as He intercedes for us? 
 
 
 
@@ -742,7 +742,7 @@ Who is there to condemn [us]? Will Christ Jesus (the Messiah), Who died, or rath
 
 
 
-Who shall ever separate us from Christ's love? Shall suffering _and_ affliction _and_ tribulation? Or calamity _and_ distress? Or persecution or hunger or destitution or peril or sword? 
+Who shall ever separate us from Christ's love? Shall suffering and affliction and tribulation? Or calamity and distress? Or persecution or hunger or destitution or peril or sword? 
 
 
 
@@ -763,7 +763,7 @@ Who shall ever separate us from Christ's love? Shall suffering _and_ affliction 
 
 
 
-Even as it is written, For Thy sake we are put to death all the day long; we are regarded _and_ counted as sheep for the slaughter. 
+Even as it is written, For Thy sake we are put to death all the day long; we are regarded and counted as sheep for the slaughter. 
 
 
 
@@ -784,7 +784,7 @@ Even as it is written, For Thy sake we are put to death all the day long; we are
 
 
 
-Yet amid all these things we are more than conquerors _and_ gain a surpassing victory through Him Who loved us. 
+Yet amid all these things we are more than conquerors and gain a surpassing victory through Him Who loved us. 
 
 
 
@@ -805,7 +805,7 @@ Yet amid all these things we are more than conquerors _and_ gain a surpassing vi
 
 
 
-For I am persuaded beyond doubt (am sure) that neither death nor life, nor angels nor principalities, nor things impending _and_ threatening nor things to come, nor powers, 
+For I am persuaded beyond doubt (am sure) that neither death nor life, nor angels nor principalities, nor things impending and threatening nor things to come, nor powers, 
 
 
 

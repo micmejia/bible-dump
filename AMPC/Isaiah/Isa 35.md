@@ -28,7 +28,7 @@ next: ['Isa 36']
 
 
 
-The wilderness and the dry land shall be glad; the desert shall rejoice and blossom like the rose _and_ the autumn crocus. 
+The wilderness and the dry land shall be glad; the desert shall rejoice and blossom like the rose and the autumn crocus. 
 
 
 
@@ -49,7 +49,7 @@ The wilderness and the dry land shall be glad; the desert shall rejoice and blos
 
 
 
-It shall blossom abundantly and rejoice even with joy and singing. The glory of Lebanon shall be given to it, the excellency of [Mount] Carmel and [the plain] of Sharon. They shall see the glory of the Lord, the majesty _and_ splendor _and_ excellency of our God. 
+It shall blossom abundantly and rejoice even with joy and singing. The glory of Lebanon shall be given to it, the excellency of [Mount] Carmel and [the plain] of Sharon. They shall see the glory of the Lord, the majesty and splendor and excellency of our God. 
 
 
 
@@ -70,7 +70,7 @@ It shall blossom abundantly and rejoice even with joy and singing. The glory of 
 
 
 
-Strengthen the weak hands and make firm the feeble _and_ tottering knees. 
+Strengthen the weak hands and make firm the feeble and tottering knees. 
 
 
 
@@ -91,7 +91,7 @@ Strengthen the weak hands and make firm the feeble _and_ tottering knees.
 
 
 
-Say to those who are of a fearful _and_ hasty heart, Be strong, fear not! Behold, your God will come with vengeance; with the recompense of God He will come and save you. 
+Say to those who are of a fearful and hasty heart, Be strong, fear not! Behold, your God will come with vengeance; with the recompense of God He will come and save you. 
 
 
 
@@ -154,7 +154,7 @@ Then shall the lame man leap like a hart, and the tongue of the dumb shall sing 
 
 
 
-And the burning sand _and_ the mirage shall become a pool, and the thirsty ground springs of water; in the haunt of jackals, where they lay resting, shall be grass with reeds and rushes. 
+And the burning sand and the mirage shall become a pool, and the thirsty ground springs of water; in the haunt of jackals, where they lay resting, shall be grass with reeds and rushes. 
 
 
 
@@ -175,7 +175,7 @@ And the burning sand _and_ the mirage shall become a pool, and the thirsty groun
 
 
 
-And a highway shall be there, and a way; and it shall be called the Holy Way. The unclean shall not pass over it, but it shall be for the redeemed; the wayfaring men, yes, the simple ones _and_ fools, shall not err in it _and_ lose their way. 
+And a highway shall be there, and a way; and it shall be called the Holy Way. The unclean shall not pass over it, but it shall be for the redeemed; the wayfaring men, yes, the simple ones and fools, shall not err in it and lose their way. 
 
 
 

@@ -280,7 +280,7 @@ And it is turned round about by His guidance, that they may do whatever He comma
 
 
 
-Whether it be for correction or for His earth [generally] or for His mercy _and_ loving-kindness, He causes it to come. 
+Whether it be for correction or for His earth [generally] or for His mercy and loving-kindness, He causes it to come. 
 
 
 
@@ -469,7 +469,7 @@ And now men cannot look upon the light when it is bright in the skies, when the 
 
 
 
-Golden brightness _and_ splendor come out of the north; [if men can scarcely look upon it, how much less upon the] terrible splendor _and_ majesty God has upon Himself! 
+Golden brightness and splendor come out of the north; [if men can scarcely look upon it, how much less upon the] terrible splendor and majesty God has upon Himself! 
 
 
 
@@ -511,4 +511,4 @@ Touching the Almighty, we cannot find Him out; He is excellent in power; and to 
 
 
 
-Men therefore [reverently] fear Him; He regards _and_ respects not any who are wise in heart [in their own understanding and conceit].
+Men therefore [reverently] fear Him; He regards and respects not any who are wise in heart [in their own understanding and conceit].

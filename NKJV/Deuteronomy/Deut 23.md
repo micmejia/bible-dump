@@ -13,10 +13,10 @@ next: ['Deut 24']
 "He who is emasculated by crushing or mutilation shall not enter the assembly of the Lord. 
 
 ###### 2 
-"One of illegitimate birth shall not enter the assembly of the Lord; even to the tenth generation none of his _descendants_ shall enter the assembly of the Lord. 
+"One of illegitimate birth shall not enter the assembly of the Lord; even to the tenth generation none of his descendants shall enter the assembly of the Lord. 
 
 ###### 3 
-"An Ammonite or Moabite shall not enter the assembly of the Lord; even to the tenth generation none of his _descendants_ shall enter the assembly of the Lord forever, 
+"An Ammonite or Moabite shall not enter the assembly of the Lord; even to the tenth generation none of his descendants shall enter the assembly of the Lord forever, 
 
 ###### 4 
 because they did not meet you with bread and water on the road when you came out of Egypt, and because they hired against you Balaam the son of Beor from Pethor of Mesopotamia, to curse you. 
@@ -28,7 +28,7 @@ Nevertheless the Lord your God would not listen to Balaam, but the Lord your God
 You shall not seek their peace nor their prosperity all your days forever. 
 
 ###### 7 
-"You shall not abhor an Edomite, for he _is_ your brother. You shall not abhor an Egyptian, because you were an alien in his land. 
+"You shall not abhor an Edomite, for he is your brother. You shall not abhor an Egyptian, because you were an alien in his land. 
 
 ###### 8 
 The children of the third generation born to them may enter the assembly of the Lord.
@@ -62,13 +62,13 @@ For the Lord your God walks in the midst of your camp, to deliver you and give y
 He may dwell with you in your midst, in the place which he chooses within one of your gates, where it seems best to him; you shall not oppress him. 
 
 ###### 17 
-"There shall be no _ritual_ harlot of the daughters of Israel, or a perverted one of the sons of Israel. 
+"There shall be no ritual harlot of the daughters of Israel, or a perverted one of the sons of Israel. 
 
 ###### 18 
-You shall not bring the wages of a harlot or the price of a dog to the house of the Lord your God for any vowed offering, for both of these _are_ an abomination to the Lord your God. 
+You shall not bring the wages of a harlot or the price of a dog to the house of the Lord your God for any vowed offering, for both of these are an abomination to the Lord your God. 
 
 ###### 19 
-"You shall not charge interest to your brother--interest on money _or_ food _or_ anything that is lent out at interest. 
+"You shall not charge interest to your brother--interest on money or food or anything that is lent out at interest. 
 
 ###### 20 
 To a foreigner you may charge interest, but to your brother you shall not charge interest, that the Lord your God may bless you in all to which you set your hand in the land which you are entering to possess. 
@@ -83,7 +83,7 @@ But if you abstain from vowing, it shall not be sin to you.
 That which has gone from your lips you shall keep and perform, for you voluntarily vowed to the Lord your God what you have promised with your mouth. 
 
 ###### 24 
-"When you come into your neighbor's vineyard, you may eat your fill of grapes at your pleasure, but you shall not put _any_ in your container. 
+"When you come into your neighbor's vineyard, you may eat your fill of grapes at your pleasure, but you shall not put any in your container. 
 
 ###### 25 
 When you come into your neighbor's standing grain, you may pluck the heads with your hand, but you shall not use a sickle on your neighbor's standing grain.

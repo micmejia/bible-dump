@@ -406,7 +406,7 @@ But you shall eat them before the Lord your God in the place which the Lord your
 
 
 
-Take heed not to forsake _or_ neglect the Levite [God's minister] as long as you live in your land. 
+Take heed not to forsake or neglect the Levite [God's minister] as long as you live in your land. 
 
 
 

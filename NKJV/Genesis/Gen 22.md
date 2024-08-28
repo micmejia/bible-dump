@@ -13,7 +13,7 @@ next: ['Gen 23']
 Now it came to pass after these things that God tested Abraham, and said to him, "Abraham!" And he said, "Here I am." 
 
 ###### 2 
-Then He said, "Take now your son, your only _son_ Isaac, whom you love, and go to the land of Moriah, and offer him there as a burnt offering on one of the mountains of which I shall tell you." 
+Then He said, "Take now your son, your only son Isaac, whom you love, and go to the land of Moriah, and offer him there as a burnt offering on one of the mountains of which I shall tell you." 
 
 ###### 3 
 So Abraham rose early in the morning and saddled his donkey, and took two of his young men with him, and Isaac his son; and he split the wood for the burnt offering, and arose and went to the place of which God had told him. 
@@ -25,10 +25,10 @@ Then on the third day Abraham lifted his eyes and saw the place afar off.
 And Abraham said to his young men, "Stay here with the donkey; the lad and I will go yonder and worship, and we will come back to you." 
 
 ###### 6 
-So Abraham took the wood of the burnt offering and laid _it_ on Isaac his son; and he took the fire in his hand, and a knife, and the two of them went together. 
+So Abraham took the wood of the burnt offering and laid it on Isaac his son; and he took the fire in his hand, and a knife, and the two of them went together. 
 
 ###### 7 
-But Isaac spoke to Abraham his father and said, "My father!" And he said, "Here I am, my son." Then he said, "Look, the fire and the wood, but where _is_ the lamb for a burnt offering?" 
+But Isaac spoke to Abraham his father and said, "My father!" And he said, "Here I am, my son." Then he said, "Look, the fire and the wood, but where is the lamb for a burnt offering?" 
 
 ###### 8 
 And Abraham said, "My son, God will provide for Himself the lamb for a burnt offering." So the two of them went together. 
@@ -43,22 +43,22 @@ And Abraham stretched out his hand and took the knife to slay his son.
 But the Angel of the Lord called to him from heaven and said, "Abraham, Abraham!" So he said, "Here I am." 
 
 ###### 12 
-And He said, "Do not lay your hand on the lad, or do anything to him; for now I know that you fear God, since you have not withheld your son, your only _son,_ from Me." 
+And He said, "Do not lay your hand on the lad, or do anything to him; for now I know that you fear God, since you have not withheld your son, your only son, from Me." 
 
 ###### 13 
-Then Abraham lifted his eyes and looked, and there behind _him was_ a ram caught in a thicket by its horns. So Abraham went and took the ram, and offered it up for a burnt offering instead of his son. 
+Then Abraham lifted his eyes and looked, and there behind him was a ram caught in a thicket by its horns. So Abraham went and took the ram, and offered it up for a burnt offering instead of his son. 
 
 ###### 14 
-And Abraham called the name of the place, The-Lord-Will-Provide; as it is said _to_ this day, "In the Mount of the Lord it shall be provided." 
+And Abraham called the name of the place, The-Lord-Will-Provide; as it is said to this day, "In the Mount of the Lord it shall be provided." 
 
 ###### 15 
 Then the Angel of the Lord called to Abraham a second time out of heaven, 
 
 ###### 16 
-and said: "By Myself I have sworn, says the Lord, because you have done this thing, and have not withheld your son, your only _son_-- 
+and said: "By Myself I have sworn, says the Lord, because you have done this thing, and have not withheld your son, your only son-- 
 
 ###### 17 
-blessing I will bless you, and multiplying I will multiply your descendants as the stars of the heaven and as the sand which _is_ on the seashore; and your descendants shall possess the gate of their enemies. 
+blessing I will bless you, and multiplying I will multiply your descendants as the stars of the heaven and as the sand which is on the seashore; and your descendants shall possess the gate of their enemies. 
 
 ###### 18 
 In your seed all the nations of the earth shall be blessed, because you have obeyed My voice." 

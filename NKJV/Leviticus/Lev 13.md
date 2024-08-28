@@ -13,52 +13,52 @@ next: ['Lev 14']
 And the Lord spoke to Moses and Aaron, saying: 
 
 ###### 2 
-"When a man has on the skin of his body a swelling, a scab, or a bright spot, and it becomes on the skin of his body _like_ a leprous sore, then he shall be brought to Aaron the priest or to one of his sons the priests. 
+"When a man has on the skin of his body a swelling, a scab, or a bright spot, and it becomes on the skin of his body like a leprous sore, then he shall be brought to Aaron the priest or to one of his sons the priests. 
 
 ###### 3 
-The priest shall examine the sore on the skin of the body; and if the hair on the sore has turned white, and the sore appears _to be_ deeper than the skin of his body, it _is_ a leprous sore. Then the priest shall examine him, and pronounce him unclean. 
+The priest shall examine the sore on the skin of the body; and if the hair on the sore has turned white, and the sore appears to be deeper than the skin of his body, it is a leprous sore. Then the priest shall examine him, and pronounce him unclean. 
 
 ###### 4 
-But if the bright spot _is_ white on the skin of his body, and does not appear _to be_ deeper than the skin, and its hair has not turned white, then the priest shall isolate _the one who has_ the sore seven days. 
+But if the bright spot is white on the skin of his body, and does not appear to be deeper than the skin, and its hair has not turned white, then the priest shall isolate the one who has the sore seven days. 
 
 ###### 5 
-And the priest shall examine him on the seventh day; and indeed _if_ the sore appears to be as it was, _and_ the sore has not spread on the skin, then the priest shall isolate him another seven days. 
+And the priest shall examine him on the seventh day; and indeed if the sore appears to be as it was, and the sore has not spread on the skin, then the priest shall isolate him another seven days. 
 
 ###### 6 
-Then the priest shall examine him again on the seventh day; and indeed _if_ the sore has faded, _and_ the sore has not spread on the skin, then the priest shall pronounce him clean; it _is only_ a scab, and he shall wash his clothes and be clean. 
+Then the priest shall examine him again on the seventh day; and indeed if the sore has faded, and the sore has not spread on the skin, then the priest shall pronounce him clean; it is only a scab, and he shall wash his clothes and be clean. 
 
 ###### 7 
 But if the scab should at all spread over the skin, after he has been seen by the priest for his cleansing, he shall be seen by the priest again. 
 
 ###### 8 
-And _if_ the priest sees that the scab has indeed spread on the skin, then the priest shall pronounce him unclean. It _is_ leprosy. 
+And if the priest sees that the scab has indeed spread on the skin, then the priest shall pronounce him unclean. It is leprosy. 
 
 ###### 9 
 "When the leprous sore is on a person, then he shall be brought to the priest. 
 
 ###### 10 
-And the priest shall examine _him;_ and indeed _if_ the swelling on the skin _is_ white, and it has turned the hair white, and _there is_ a spot of raw flesh in the swelling, 
+And the priest shall examine him; and indeed if the swelling on the skin is white, and it has turned the hair white, and there is a spot of raw flesh in the swelling, 
 
 ###### 11 
-it _is_ an old leprosy on the skin of his body. The priest shall pronounce him unclean, and shall not isolate him, for he _is_ unclean. 
+it is an old leprosy on the skin of his body. The priest shall pronounce him unclean, and shall not isolate him, for he is unclean. 
 
 ###### 12 
-"And if leprosy breaks out all over the skin, and the leprosy covers all the skin of _the one who has_ the sore, from his head to his foot, wherever the priest looks, 
+"And if leprosy breaks out all over the skin, and the leprosy covers all the skin of the one who has the sore, from his head to his foot, wherever the priest looks, 
 
 ###### 13 
-then the priest shall consider; and indeed _if_ the leprosy has covered all his body, he shall pronounce _him_ clean _who has_ the sore. It has all turned white. He _is_ clean. 
+then the priest shall consider; and indeed if the leprosy has covered all his body, he shall pronounce him clean who has the sore. It has all turned white. He is clean. 
 
 ###### 14 
 But when raw flesh appears on him, he shall be unclean. 
 
 ###### 15 
-And the priest shall examine the raw flesh and pronounce him to be unclean; _for_ the raw flesh _is_ unclean. It _is_ leprosy. 
+And the priest shall examine the raw flesh and pronounce him to be unclean; for the raw flesh is unclean. It is leprosy. 
 
 ###### 16 
 Or if the raw flesh changes and turns white again, he shall come to the priest. 
 
 ###### 17 
-And the priest shall examine him; and indeed _if_ the sore has turned white, then the priest shall pronounce _him_ clean _who has_ the sore. He _is_ clean. 
+And the priest shall examine him; and indeed if the sore has turned white, then the priest shall pronounce him clean who has the sore. He is clean. 
 
 ###### 18 
 "If the body develops a boil in the skin, and it is healed, 
@@ -67,123 +67,123 @@ And the priest shall examine him; and indeed _if_ the sore has turned white, the
 and in the place of the boil there comes a white swelling or a bright spot, reddish-white, then it shall be shown to the priest; 
 
 ###### 20 
-and _if,_ when the priest sees it, it indeed appears deeper than the skin, and its hair has turned white, the priest shall pronounce him unclean. It _is_ a leprous sore which has broken out of the boil. 
+and if, when the priest sees it, it indeed appears deeper than the skin, and its hair has turned white, the priest shall pronounce him unclean. It is a leprous sore which has broken out of the boil. 
 
 ###### 21 
-But if the priest examines it, and indeed _there are_ no white hairs in it, and it _is_ not deeper than the skin, but has faded, then the priest shall isolate him seven days; 
+But if the priest examines it, and indeed there are no white hairs in it, and it is not deeper than the skin, but has faded, then the priest shall isolate him seven days; 
 
 ###### 22 
-and if it should at all spread over the skin, then the priest shall pronounce him unclean. It _is_ a leprous sore. 
+and if it should at all spread over the skin, then the priest shall pronounce him unclean. It is a leprous sore. 
 
 ###### 23 
-But if the bright spot stays in one place, _and_ has not spread, it _is_ the scar of the boil; and the priest shall pronounce him clean. 
+But if the bright spot stays in one place, and has not spread, it is the scar of the boil; and the priest shall pronounce him clean. 
 
 ###### 24 
-"Or if the body receives a burn on its skin by fire, and the raw _flesh_ of the burn becomes a bright spot, reddish-white or white, 
+"Or if the body receives a burn on its skin by fire, and the raw flesh of the burn becomes a bright spot, reddish-white or white, 
 
 ###### 25 
-then the priest shall examine it; and indeed _if_ the hair of the bright spot has turned white, and it appears deeper than the skin, it _is_ leprosy broken out in the burn. Therefore the priest shall pronounce him unclean. It _is_ a leprous sore. 
+then the priest shall examine it; and indeed if the hair of the bright spot has turned white, and it appears deeper than the skin, it is leprosy broken out in the burn. Therefore the priest shall pronounce him unclean. It is a leprous sore. 
 
 ###### 26 
-But if the priest examines it, and indeed _there are_ no white hairs in the bright spot, and it _is_ not deeper than the skin, but has faded, then the priest shall isolate him seven days. 
+But if the priest examines it, and indeed there are no white hairs in the bright spot, and it is not deeper than the skin, but has faded, then the priest shall isolate him seven days. 
 
 ###### 27 
-And the priest shall examine him on the seventh day. If it has at all spread over the skin, then the priest shall pronounce him unclean. It _is_ a leprous sore. 
+And the priest shall examine him on the seventh day. If it has at all spread over the skin, then the priest shall pronounce him unclean. It is a leprous sore. 
 
 ###### 28 
-But if the bright spot stays in one place, _and_ has not spread on the skin, but has faded, it _is_ a swelling from the burn. The priest shall pronounce him clean, for it _is_ the scar from the burn. 
+But if the bright spot stays in one place, and has not spread on the skin, but has faded, it is a swelling from the burn. The priest shall pronounce him clean, for it is the scar from the burn. 
 
 ###### 29 
 "If a man or woman has a sore on the head or the beard, 
 
 ###### 30 
-then the priest shall examine the sore; and indeed if it appears deeper than the skin, _and there is_ in it thin yellow hair, then the priest shall pronounce him unclean. It _is_ a scaly leprosy of the head or beard. 
+then the priest shall examine the sore; and indeed if it appears deeper than the skin, and there is in it thin yellow hair, then the priest shall pronounce him unclean. It is a scaly leprosy of the head or beard. 
 
 ###### 31 
-But if the priest examines the scaly sore, and indeed it does not appear deeper than the skin, and _there is_ no black hair in it, then the priest shall isolate _the one who has_ the scale seven days. 
+But if the priest examines the scaly sore, and indeed it does not appear deeper than the skin, and there is no black hair in it, then the priest shall isolate the one who has the scale seven days. 
 
 ###### 32 
-And on the seventh day the priest shall examine the sore; and indeed _if_ the scale has not spread, and there is no yellow hair in it, and the scale does not appear deeper than the skin, 
+And on the seventh day the priest shall examine the sore; and indeed if the scale has not spread, and there is no yellow hair in it, and the scale does not appear deeper than the skin, 
 
 ###### 33 
-he shall shave himself, but the scale he shall not shave. And the priest shall isolate _the one who has_ the scale another seven days. 
+he shall shave himself, but the scale he shall not shave. And the priest shall isolate the one who has the scale another seven days. 
 
 ###### 34 
-On the seventh day the priest shall examine the scale; and indeed _if_ the scale has not spread over the skin, and does not appear deeper than the skin, then the priest shall pronounce him clean. He shall wash his clothes and be clean. 
+On the seventh day the priest shall examine the scale; and indeed if the scale has not spread over the skin, and does not appear deeper than the skin, then the priest shall pronounce him clean. He shall wash his clothes and be clean. 
 
 ###### 35 
 But if the scale should at all spread over the skin after his cleansing, 
 
 ###### 36 
-then the priest shall examine him; and indeed _if_ the scale has spread over the skin, the priest need not seek for yellow hair. He _is_ unclean. 
+then the priest shall examine him; and indeed if the scale has spread over the skin, the priest need not seek for yellow hair. He is unclean. 
 
 ###### 37 
-But if the scale appears to be at a standstill, and there is black hair grown up in it, the scale has healed. He _is_ clean, and the priest shall pronounce him clean. 
+But if the scale appears to be at a standstill, and there is black hair grown up in it, the scale has healed. He is clean, and the priest shall pronounce him clean. 
 
 ###### 38 
-"If a man or a woman has bright spots on the skin of the body, _specifically_ white bright spots, 
+"If a man or a woman has bright spots on the skin of the body, specifically white bright spots, 
 
 ###### 39 
-then the priest shall look; and indeed _if_ the bright spots on the skin of the body _are_ dull white, it _is_ a white spot _that_ grows on the skin. He _is_ clean. 
+then the priest shall look; and indeed if the bright spots on the skin of the body are dull white, it is a white spot that grows on the skin. He is clean. 
 
 ###### 40 
-"As for the man whose hair has fallen from his head, he _is_ bald, _but_ he _is_ clean. 
+"As for the man whose hair has fallen from his head, he is bald, but he is clean. 
 
 ###### 41 
-He whose hair has fallen from his forehead, he _is_ bald on the forehead, _but_ he _is_ clean. 
+He whose hair has fallen from his forehead, he is bald on the forehead, but he is clean. 
 
 ###### 42 
-And if there is on the bald head or bald forehead a reddish-white sore, it _is_ leprosy breaking out on his bald head or his bald forehead. 
+And if there is on the bald head or bald forehead a reddish-white sore, it is leprosy breaking out on his bald head or his bald forehead. 
 
 ###### 43 
-Then the priest shall examine it; and indeed _if_ the swelling of the sore _is_ reddish-white on his bald head or on his bald forehead, as the appearance of leprosy on the skin of the body, 
+Then the priest shall examine it; and indeed if the swelling of the sore is reddish-white on his bald head or on his bald forehead, as the appearance of leprosy on the skin of the body, 
 
 ###### 44 
-he is a leprous man. He _is_ unclean. The priest shall surely pronounce him unclean; his sore _is_ on his head. 
+he is a leprous man. He is unclean. The priest shall surely pronounce him unclean; his sore is on his head. 
 
 ###### 45 
-"Now the leper on whom the sore _is_, his clothes shall be torn and his head bare; and he shall cover his mustache, and cry, 'Unclean! Unclean!' 
+"Now the leper on whom the sore is, his clothes shall be torn and his head bare; and he shall cover his mustache, and cry, 'Unclean! Unclean!' 
 
 ###### 46 
-He shall be unclean. All the days he has the sore he shall be unclean. He _is_ unclean, and he shall dwell alone; his dwelling _shall be_ outside the camp.
+He shall be unclean. All the days he has the sore he shall be unclean. He is unclean, and he shall dwell alone; his dwelling shall be outside the camp.
 
 ## The Law Concerning Leprous Garments 
 
 ###### 47 
-"Also, if a garment has a leprous plague in it, _whether it is_ a woolen garment or a linen garment, 
+"Also, if a garment has a leprous plague in it, whether it is a woolen garment or a linen garment, 
 
 ###### 48 
-whether _it is_ in the warp or woof of linen or wool, whether in leather or in anything made of leather, 
+whether it is in the warp or woof of linen or wool, whether in leather or in anything made of leather, 
 
 ###### 49 
-and if the plague is greenish or reddish in the garment or in the leather, whether in the warp or in the woof, or in anything made of leather, it _is_ a leprous plague and shall be shown to the priest. 
+and if the plague is greenish or reddish in the garment or in the leather, whether in the warp or in the woof, or in anything made of leather, it is a leprous plague and shall be shown to the priest. 
 
 ###### 50 
-The priest shall examine the plague and isolate _that which has_ the plague seven days. 
+The priest shall examine the plague and isolate that which has the plague seven days. 
 
 ###### 51 
-And he shall examine the plague on the seventh day. If the plague has spread in the garment, either in the warp or in the woof, in the leather _or_ in anything made of leather, the plague _is_ an active leprosy. It _is_ unclean. 
+And he shall examine the plague on the seventh day. If the plague has spread in the garment, either in the warp or in the woof, in the leather or in anything made of leather, the plague is an active leprosy. It is unclean. 
 
 ###### 52 
-He shall therefore burn that garment in which is the plague, whether warp or woof, in wool or in linen, or anything of leather, for it _is_ an active leprosy; _the garment_ shall be burned in the fire. 
+He shall therefore burn that garment in which is the plague, whether warp or woof, in wool or in linen, or anything of leather, for it is an active leprosy; the garment shall be burned in the fire. 
 
 ###### 53 
-"But if the priest examines _it_, and indeed the plague has not spread in the garment, either in the warp or in the woof, or in anything made of leather, 
+"But if the priest examines it, and indeed the plague has not spread in the garment, either in the warp or in the woof, or in anything made of leather, 
 
 ###### 54 
-then the priest shall command that they wash _the thing_ in which _is_ the plague; and he shall isolate it another seven days. 
+then the priest shall command that they wash the thing in which is the plague; and he shall isolate it another seven days. 
 
 ###### 55 
-Then the priest shall examine the plague after it has been washed; and indeed _if_ the plague has not changed its color, though the plague has not spread, it _is_ unclean, and you shall burn it in the fire; it continues eating away, _whether_ the damage _is_ outside or inside. 
+Then the priest shall examine the plague after it has been washed; and indeed if the plague has not changed its color, though the plague has not spread, it is unclean, and you shall burn it in the fire; it continues eating away, whether the damage is outside or inside. 
 
 ###### 56 
-If the priest examines _it_, and indeed the plague has faded after washing it, then he shall tear it out of the garment, whether out of the warp or out of the woof, or out of the leather. 
+If the priest examines it, and indeed the plague has faded after washing it, then he shall tear it out of the garment, whether out of the warp or out of the woof, or out of the leather. 
 
 ###### 57 
-But if it appears again in the garment, either in the warp or in the woof, or in anything made of leather, it _is_ a spreading _plague;_ you shall burn with fire that in which is the plague. 
+But if it appears again in the garment, either in the warp or in the woof, or in anything made of leather, it is a spreading plague; you shall burn with fire that in which is the plague. 
 
 ###### 58 
 And if you wash the garment, either warp or woof, or whatever is made of leather, if the plague has disappeared from it, then it shall be washed a second time, and shall be clean. 
 
 ###### 59 
-"This _is_ the law of the leprous plague in a garment of wool or linen, either in the warp or woof, or in anything made of leather, to pronounce it clean or to pronounce it unclean."
+"This is the law of the leprous plague in a garment of wool or linen, either in the warp or woof, or in anything made of leather, to pronounce it clean or to pronounce it unclean."

@@ -301,7 +301,7 @@ And put off her prisoner's garb, and shall remain in your house and bewail her f
 
 
 
-And if you have no delight in her, then you shall let her go absolutely free. You shall not sell her at all for money; you shall not deal with her as a slave _or_ a servant, because you have humbled her. 
+And if you have no delight in her, then you shall let her go absolutely free. You shall not sell her at all for money; you shall not deal with her as a slave or a servant, because you have humbled her. 
 
 
 

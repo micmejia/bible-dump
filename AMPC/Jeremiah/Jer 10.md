@@ -70,7 +70,7 @@ Thus says the Lord: Learn not the way of the [heathen] nations and be not dismay
 
 
 
-For the customs _and_ ordinances of the peoples are false, empty, _and_ futile; it is but a tree which one cuts out of the forest [to make for himself a god], the work of the hands of the craftsman with the ax _or_ other tool. 
+For the customs and ordinances of the peoples are false, empty, and futile; it is but a tree which one cuts out of the forest [to make for himself a god], the work of the hands of the craftsman with the ax or other tool. 
 
 
 
@@ -91,7 +91,7 @@ For the customs _and_ ordinances of the peoples are false, empty, _and_ futile; 
 
 
 
-They deck [the idol] with silver and with gold; they fasten it with nails and with hammers so it will not fall apart _or_ move around. 
+They deck [the idol] with silver and with gold; they fasten it with nails and with hammers so it will not fall apart or move around. 
 
 
 
@@ -154,7 +154,7 @@ None at all is like You, O Lord; You are great, and Your name is great in might.
 
 
 
-Who would not fear You, O King of the nations? For it is fitting to You _and_ Your due! For among all the wise [men or gods] of the nations and in all their kingdoms, there is none like You. 
+Who would not fear You, O King of the nations? For it is fitting to You and Your due! For among all the wise [men or gods] of the nations and in all their kingdoms, there is none like You. 
 
 
 
@@ -175,7 +175,7 @@ Who would not fear You, O King of the nations? For it is fitting to You _and_ Yo
 
 
 
-But they are altogether irrational _and_ stupid and foolish. Their instruction is given by idols who are but wood [it is a teaching of falsity, emptiness, futility]! 
+But they are altogether irrational and stupid and foolish. Their instruction is given by idols who are but wood [it is a teaching of falsity, emptiness, futility]! 
 
 
 
@@ -217,7 +217,7 @@ Silver beaten [into plates] is brought from Tarshish and gold from Uphaz, the wo
 
 
 
-But the Lord is the true God _and_ the God of truth (the God Who is Truth). He is the living God and the everlasting King. At His wrath the earth quakes, and the nations are not able to bear His indignation. 
+But the Lord is the true God and the God of truth (the God Who is Truth). He is the living God and the everlasting King. At His wrath the earth quakes, and the nations are not able to bear His indignation. 
 
 
 
@@ -259,7 +259,7 @@ Thus shall you say to them: The gods, who did not make the heavens and the earth
 
 
 
-God made the earth by His power; He established the world by His wisdom and by His understanding _and_ skill stretched out the heavens. 
+God made the earth by His power; He established the world by His wisdom and by His understanding and skill stretched out the heavens. 
 
 
 
@@ -280,7 +280,7 @@ God made the earth by His power; He established the world by His wisdom and by H
 
 
 
-When He utters His voice, there is a tumult of waters in the heavens, and He causes the vapors to ascend from the ends of the earth. He makes lightnings for the rain and brings forth the wind out from His treasuries _and_ from His storehouses. 
+When He utters His voice, there is a tumult of waters in the heavens, and He causes the vapors to ascend from the ends of the earth. He makes lightnings for the rain and brings forth the wind out from His treasuries and from His storehouses. 
 
 
 
@@ -301,7 +301,7 @@ When He utters His voice, there is a tumult of waters in the heavens, and He cau
 
 
 
-Every man has become like a brute, irrational _and_ stupid, without knowledge [of God]; every goldsmith is brought to shame by his graven idols; for his molten images are frauds _and_ falsehood, and there is no breath in them. 
+Every man has become like a brute, irrational and stupid, without knowledge [of God]; every goldsmith is brought to shame by his graven idols; for his molten images are frauds and falsehood, and there is no breath in them. 
 
 
 
@@ -322,7 +322,7 @@ Every man has become like a brute, irrational _and_ stupid, without knowledge [o
 
 
 
-They are devoid of worth, usefulness, _or_ truth, a work of delusion _and_ mockery; in their time of trial _and_ punishment they shall [helplessly] perish. 
+They are devoid of worth, usefulness, or truth, a work of delusion and mockery; in their time of trial and punishment they shall [helplessly] perish. 
 
 
 
@@ -343,7 +343,7 @@ They are devoid of worth, usefulness, _or_ truth, a work of delusion _and_ mocke
 
 
 
-The Portion of Jacob [the true God on Whom Israel has a claim] is not like these, for He is the Fashioner _and_ Maker of all things, and Israel is the tribe of His inheritance--the Lord of hosts is His name. 
+The Portion of Jacob [the true God on Whom Israel has a claim] is not like these, for He is the Fashioner and Maker of all things, and Israel is the tribe of His inheritance--the Lord of hosts is His name. 
 
 
 
@@ -385,7 +385,7 @@ Gather up your bundle [of baggage] from the ground, O you who dwell under siege.
 
 
 
-For thus says the Lord: Behold, I will sling out the inhabitants of the land at this time and will bring distress on them, that they may feel it _and_ find it [to be as I have said, and turn to Me]. 
+For thus says the Lord: Behold, I will sling out the inhabitants of the land at this time and will bring distress on them, that they may feel it and find it [to be as I have said, and turn to Me]. 
 
 
 
@@ -406,7 +406,7 @@ For thus says the Lord: Behold, I will sling out the inhabitants of the land at 
 
 
 
-Woe is me because of my hurt! [says Jeremiah, speaking for the nation.] My wound is grievous _and_ incurable. But I said, Surely this sickness _and_ suffering _and_ grief are mine, and I must endure, tolerate, _and_ bear them. 
+Woe is me because of my hurt! [says Jeremiah, speaking for the nation.] My wound is grievous and incurable. But I said, Surely this sickness and suffering and grief are mine, and I must endure, tolerate, and bear them. 
 
 
 
@@ -427,7 +427,7 @@ Woe is me because of my hurt! [says Jeremiah, speaking for the nation.] My wound
 
 
 
-My tent (home) is taken by force _and_ plundered, and all my [tent] cords are broken. My children have gone forth [as captives] from me, and they are no more; there is no one to stretch forth my tent any more and to set up my [tent] curtains. 
+My tent (home) is taken by force and plundered, and all my [tent] cords are broken. My children have gone forth [as captives] from me, and they are no more; there is no one to stretch forth my tent any more and to set up my [tent] curtains. 
 
 
 
@@ -448,7 +448,7 @@ My tent (home) is taken by force _and_ plundered, and all my [tent] cords are br
 
 
 
-For the shepherds [of the people] have become like brutes, irrational _and_ stupid, and have not sought the Lord _or_ inquired of Him _or_ required Him [by necessity and by right of His word]. Therefore they have not dealt prudently _and_ have not prospered, and all their flocks are scattered. 
+For the shepherds [of the people] have become like brutes, irrational and stupid, and have not sought the Lord or inquired of Him or required Him [by necessity and by right of His word]. Therefore they have not dealt prudently and have not prospered, and all their flocks are scattered. 
 
 
 
@@ -511,7 +511,7 @@ O Lord [pleads Jeremiah in the name of the people], I know that [the determinati
 
 
 
-O Lord, correct, instruct, _and_ chastise me, but with judgment _and_ in just measure--not in Your anger, lest You diminish me _and_ bring me to nothing. 
+O Lord, correct, instruct, and chastise me, but with judgment and in just measure--not in Your anger, lest You diminish me and bring me to nothing. 
 
 
 
@@ -532,4 +532,4 @@ O Lord, correct, instruct, _and_ chastise me, but with judgment _and_ in just me
 
 
 
-Pour out Your wrath upon the nations that do not know _or_ recognize You and upon the peoples that do not call upon Your name. For they have devoured Jacob, yes, devoured him and consumed him and made his habitation a desolate waste.
+Pour out Your wrath upon the nations that do not know or recognize You and upon the peoples that do not call upon Your name. For they have devoured Jacob, yes, devoured him and consumed him and made his habitation a desolate waste.

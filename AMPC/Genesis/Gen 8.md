@@ -28,7 +28,7 @@ next: ['Gen 9']
 
 
 
-And God [earnestly] remembered Noah and every living thing and all the animals that were with him in the ark; and God made a wind blow over the land, and the waters sank down _and_ abated. 
+And God [earnestly] remembered Noah and every living thing and all the animals that were with him in the ark; and God made a wind blow over the land, and the waters sank down and abated. 
 
 
 
@@ -133,7 +133,7 @@ And the waters continued to diminish until the tenth month; on the first day of 
 
 
 
-At the end of [another] forty days Noah opened _a_ window of the ark which he had made 
+At the end of [another] forty days Noah opened a window of the ark which he had made 
 
 
 
@@ -238,7 +238,7 @@ He waited another seven days and again sent forth the dove out of the ark.
 
 
 
-And the dove came back to him in the evening, and behold, in her mouth was a newly sprouted _and_ freshly plucked olive leaf! So Noah knew that the waters had subsided from the land. 
+And the dove came back to him in the evening, and behold, in her mouth was a newly sprouted and freshly plucked olive leaf! So Noah knew that the waters had subsided from the land. 
 
 
 
@@ -427,7 +427,7 @@ Every beast, every creeping thing, every bird--and whatever moves on the land--w
 
 
 
-And Noah built an altar to the Lord and took of every clean [four-footed] animal and of every clean fowl _or_ bird and offered burnt offerings on the altar. 
+And Noah built an altar to the Lord and took of every clean [four-footed] animal and of every clean fowl or bird and offered burnt offerings on the altar. 
 
 
 
@@ -448,7 +448,7 @@ And Noah built an altar to the Lord and took of every clean [four-footed] animal
 
 
 
-When the Lord smelled the pleasing odor [a scent of satisfaction to His heart], the Lord said to Himself, I will never again curse the ground because of man, for the imagination (the strong desire) of man's heart is evil _and_ wicked from his youth; neither will I ever again smite _and_ destroy every living thing, as I have done. 
+When the Lord smelled the pleasing odor [a scent of satisfaction to His heart], the Lord said to Himself, I will never again curse the ground because of man, for the imagination (the strong desire) of man's heart is evil and wicked from his youth; neither will I ever again smite and destroy every living thing, as I have done. 
 
 
 

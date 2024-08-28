@@ -49,7 +49,7 @@ It pleased [King] Darius [successor to Belshazzar] to set over the kingdom 120 s
 
 
 
-And over them three presidents--of whom Daniel was one--that these satraps might give account to them and that the king should have no loss _or_ damage. 
+And over them three presidents--of whom Daniel was one--that these satraps might give account to them and that the king should have no loss or damage. 
 
 
 
@@ -154,7 +154,7 @@ Then these presidents and satraps came [tumultuously] together to the king and s
 
 
 
-All the presidents of the kingdom, the deputies and the satraps, the counselors and the governors, have consulted _and_ agreed that the king should establish a royal statute and make a firm decree that whoever shall ask a petition of any god or man for thirty days, except of you, O king, shall be cast into the den of lions. 
+All the presidents of the kingdom, the deputies and the satraps, the counselors and the governors, have consulted and agreed that the king should establish a royal statute and make a firm decree that whoever shall ask a petition of any god or man for thirty days, except of you, O king, shall be cast into the den of lions. 
 
 
 
@@ -259,7 +259,7 @@ Then these men came thronging [by agreement] and found Daniel praying and making
 
 
 
-Then they came near and said before the king concerning his prohibitory decree, Have you not signed an edict that any man who shall make a petition to any god or man within thirty days, except of you, O king, shall be cast into the den of lions? The king answered and said, The thing is true, according to the law of the Medes and Persians, which cannot be changed _or_ repealed. 
+Then they came near and said before the king concerning his prohibitory decree, Have you not signed an edict that any man who shall make a petition to any god or man within thirty days, except of you, O king, shall be cast into the den of lions? The king answered and said, The thing is true, according to the law of the Medes and Persians, which cannot be changed or repealed. 
 
 
 
@@ -280,7 +280,7 @@ Then they came near and said before the king concerning his prohibitory decree, 
 
 
 
-Then they said before the king, That Daniel, who is one of the exiles from Judah, does not regard _or_ pay any attention to you, O king, or to the decree that you have signed, but makes his petition three times a day. 
+Then they said before the king, That Daniel, who is one of the exiles from Judah, does not regard or pay any attention to you, O king, or to the decree that you have signed, but makes his petition three times a day. 
 
 
 
@@ -322,7 +322,7 @@ Then the king, when he heard these words, was much distressed [over what he had 
 
 
 
-Then these same men came thronging [by agreement] to the king and said, Know, O king, that it is a law of the Medes and Persians that no decree or statute which the king establishes may be changed _or_ repealed. 
+Then these same men came thronging [by agreement] to the king and said, Know, O king, that it is a law of the Medes and Persians that no decree or statute which the king establishes may be changed or repealed. 
 
 
 
@@ -469,7 +469,7 @@ Then Daniel said to the king, O king, live forever!
 
 
 
-My God has sent His angel and has shut the lions' mouths so that they have not hurt me, because I was found innocent _and_ blameless before Him; and also before you, O king, [as you very well know] I have done no harm _or_ wrong. 
+My God has sent His angel and has shut the lions' mouths so that they have not hurt me, because I was found innocent and blameless before Him; and also before you, O king, [as you very well know] I have done no harm or wrong. 
 
 
 
@@ -553,7 +553,7 @@ Then King Darius wrote to all peoples, nations, and languages [in his realm] tha
 
 
 
-I make a decree that in all my royal dominion men must tremble and fear before the God of Daniel, for He is the living God, enduring _and_ steadfast forever, and His kingdom shall not be destroyed and His dominion shall be even to the end [of the world]. 
+I make a decree that in all my royal dominion men must tremble and fear before the God of Daniel, for He is the living God, enduring and steadfast forever, and His kingdom shall not be destroyed and His dominion shall be even to the end [of the world]. 
 
 
 

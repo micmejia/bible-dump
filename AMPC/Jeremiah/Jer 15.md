@@ -70,7 +70,7 @@ And if they say to you, Where shall we go? then tell them, Thus says the Lord: S
 
 
 
-And I will appoint over them four kinds [of destroyers], says the Lord: the sword to slay, the dogs to tear _and_ drag away, and the birds of the air and the beasts of the earth to devour and to destroy. 
+And I will appoint over them four kinds [of destroyers], says the Lord: the sword to slay, the dogs to tear and drag away, and the birds of the air and the beasts of the earth to devour and to destroy. 
 
 
 
@@ -91,7 +91,7 @@ And I will appoint over them four kinds [of destroyers], says the Lord: the swor
 
 
 
-And I will cause them to be tossed to and fro among all the kingdoms of the earth _and_ to be made a horror to all nations because of Manasseh son of Hezekiah king of Judah, for [the horrible wickedness] which he did in Jerusalem. 
+And I will cause them to be tossed to and fro among all the kingdoms of the earth and to be made a horror to all nations because of Manasseh son of Hezekiah king of Judah, for [the horrible wickedness] which he did in Jerusalem. 
 
 
 
@@ -133,7 +133,7 @@ For who will have pity on you, O Jerusalem? Or who will bemoan you? Or who will 
 
 
 
-You have rejected _and_ forsaken Me, says the Lord. You keep going in reverse. Therefore I will stretch out My hand against you and destroy you; I am weary of relenting [concerning your punishment]. 
+You have rejected and forsaken Me, says the Lord. You keep going in reverse. Therefore I will stretch out My hand against you and destroy you; I am weary of relenting [concerning your punishment]. 
 
 
 
@@ -154,7 +154,7 @@ You have rejected _and_ forsaken Me, says the Lord. You keep going in reverse. T
 
 
 
-I will winnow them with a fan _and_ a winnowing fork in the gates of the land; I will bereave them [of children], I will destroy My people; from their [evil] ways they did not return. 
+I will winnow them with a fan and a winnowing fork in the gates of the land; I will bereave them [of children], I will destroy My people; from their [evil] ways they did not return. 
 
 
 
@@ -175,7 +175,7 @@ I will winnow them with a fan _and_ a winnowing fork in the gates of the land; I
 
 
 
-I will increase the number of their widows more than the sand of the seas. I will bring upon them, [both] against the mother of young men _and_ the young men [themselves], a destroyer at noonday. I will cause anguish and terrors to fall upon her [Jerusalem] suddenly. 
+I will increase the number of their widows more than the sand of the seas. I will bring upon them, [both] against the mother of young men and the young men [themselves], a destroyer at noonday. I will cause anguish and terrors to fall upon her [Jerusalem] suddenly. 
 
 
 
@@ -196,7 +196,7 @@ I will increase the number of their widows more than the sand of the seas. I wil
 
 
 
-She who has borne seven languishes; she has expired. Her sun has gone down while it was yet day; she has been put to shame, confounded, _and_ disgraced. And the rest of them I will deliver to the sword before their enemies, says the Lord. 
+She who has borne seven languishes; she has expired. Her sun has gone down while it was yet day; she has been put to shame, confounded, and disgraced. And the rest of them I will deliver to the sword before their enemies, says the Lord. 
 
 
 
@@ -238,7 +238,7 @@ Woe is me, my mother, that you bore me to be a man of strife and a man of conten
 
 
 
-The Lord said, Truly your release, affliction, _and_ strengthening will be for good [purposes]; surely [Jeremiah] I will intercede for you with the enemy _and_ I will cause the enemy to ask for your aid in the time of evil and in the time of affliction. 
+The Lord said, Truly your release, affliction, and strengthening will be for good [purposes]; surely [Jeremiah] I will intercede for you with the enemy and I will cause the enemy to ask for your aid in the time of evil and in the time of affliction. 
 
 
 
@@ -301,7 +301,7 @@ Your [nation's] substance and your treasures will I give as spoil, without price
 
 
 
-And I will make [your possessions] to pass with your enemies into a land which you do not know _and_ I will make you to serve [your conquerors] there, for a fire is kindled in My anger which will burn upon you [Israel]. 
+And I will make [your possessions] to pass with your enemies into a land which you do not know and I will make you to serve [your conquerors] there, for a fire is kindled in My anger which will burn upon you [Israel]. 
 
 
 
@@ -322,7 +322,7 @@ And I will make [your possessions] to pass with your enemies into a land which y
 
 
 
-[Jeremiah said] O Lord, You know _and_ understand; [earnestly] remember me and visit me and avenge me on my persecutors. Take me not away [from joy or from life itself] in Your long-suffering [to my enemies]; know that for Your sake I suffer _and_ bear reproach. 
+[Jeremiah said] O Lord, You know and understand; [earnestly] remember me and visit me and avenge me on my persecutors. Take me not away [from joy or from life itself] in Your long-suffering [to my enemies]; know that for Your sake I suffer and bear reproach. 
 
 
 
@@ -385,7 +385,7 @@ I sat not in the assembly of those who make merry, nor did I rejoice; I sat alon
 
 
 
-Why is my pain perpetual and my wound incurable, refusing to be healed? Will you indeed be to me like a deceitful brook, like waters that fail _and_ are uncertain? 
+Why is my pain perpetual and my wound incurable, refusing to be healed? Will you indeed be to me like a deceitful brook, like waters that fail and are uncertain? 
 
 
 
@@ -406,7 +406,7 @@ Why is my pain perpetual and my wound incurable, refusing to be healed? Will you
 
 
 
-Therefore thus says the Lord [to Jeremiah]: If you return [and give up this mistaken tone of distrust and despair], then I will give you again a settled place of quiet _and_ safety, and you will be My minister; and if you separate the precious from the vile [cleansing your own heart from unworthy and unwarranted suspicions concerning God's faithfulness], you shall be My mouthpiece. [But do not yield to them.] Let them return to you--not you to [the people]. 
+Therefore thus says the Lord [to Jeremiah]: If you return [and give up this mistaken tone of distrust and despair], then I will give you again a settled place of quiet and safety, and you will be My minister; and if you separate the precious from the vile [cleansing your own heart from unworthy and unwarranted suspicions concerning God's faithfulness], you shall be My mouthpiece. [But do not yield to them.] Let them return to you--not you to [the people]. 
 
 
 
@@ -427,7 +427,7 @@ Therefore thus says the Lord [to Jeremiah]: If you return [and give up this mist
 
 
 
-And I will make you to this people a fortified, bronze wall; they will fight against you, but they will not prevail over you, for I am with you to save _and_ deliver you, says the Lord. 
+And I will make you to this people a fortified, bronze wall; they will fight against you, but they will not prevail over you, for I am with you to save and deliver you, says the Lord. 
 
 
 
@@ -448,4 +448,4 @@ And I will make you to this people a fortified, bronze wall; they will fight aga
 
 
 
-And I will deliver you out of the hands of the wicked, and I will redeem you out of the palms of the terrible _and_ ruthless tyrants.
+And I will deliver you out of the hands of the wicked, and I will redeem you out of the palms of the terrible and ruthless tyrants.

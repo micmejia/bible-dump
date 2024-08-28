@@ -22,7 +22,7 @@ And the Lord said to me, 'Do not fear him, for I have delivered him and all his 
 And we took all his cities at that time; there was not a city which we did not take from them: sixty cities, all the region of Argob, the kingdom of Og in Bashan. 
 
 ###### 5 
-All these cities _were_ fortified with high walls, gates, and bars, besides a great many rural towns. 
+All these cities were fortified with high walls, gates, and bars, besides a great many rural towns. 
 
 ###### 6 
 And we utterly destroyed them, as we did to Sihon king of Heshbon, utterly destroying the men, women, and children of every city. 
@@ -31,7 +31,7 @@ And we utterly destroyed them, as we did to Sihon king of Heshbon, utterly destr
 But all the livestock and the spoil of the cities we took as booty for ourselves. 
 
 ###### 8 
-"And at that time we took the land from the hand of the two kings of the Amorites who _were_ on this side of the Jordan, from the River Arnon to Mount Hermon 
+"And at that time we took the land from the hand of the two kings of the Amorites who were on this side of the Jordan, from the River Arnon to Mount Hermon 
 
 ###### 9 
 (the Sidonians call Hermon Sirion, and the Amorites call it Senir), 
@@ -40,12 +40,12 @@ But all the livestock and the spoil of the cities we took as booty for ourselves
 all the cities of the plain, all Gilead, and all Bashan, as far as Salcah and Edrei, cities of the kingdom of Og in Bashan. 
 
 ###### 11 
-"For only Og king of Bashan remained of the remnant of the giants. Indeed his bedstead _was_ an iron bedstead. (_Is_ it not in Rabbah of the people of Ammon?) Nine cubits _is_ its length and four cubits its width, according to the standard cubit.
+"For only Og king of Bashan remained of the remnant of the giants. Indeed his bedstead was an iron bedstead. (Is it not in Rabbah of the people of Ammon?) Nine cubits is its length and four cubits its width, according to the standard cubit.
 
 ## The Land East of the Jordan Divided 
 
 ###### 12 
-"And this land, _which_ we possessed at that time, from Aroer, which _is_ by the River Arnon, and half the mountains of Gilead and its cities, I gave to the Reubenites and the Gadites. 
+"And this land, which we possessed at that time, from Aroer, which is by the River Arnon, and half the mountains of Gilead and its cities, I gave to the Reubenites and the Gadites. 
 
 ###### 13 
 The rest of Gilead, and all Bashan, the kingdom of Og, I gave to half the tribe of Manasseh. (All the region of Argob, with all Bashan, was called the land of the giants. 
@@ -57,10 +57,10 @@ Jair the son of Manasseh took all the region of Argob, as far as the border of t
 "Also I gave Gilead to Machir. 
 
 ###### 16 
-And to the Reubenites and the Gadites I gave from Gilead as far as the River Arnon, the middle of the river as _the_ border, as far as the River Jabbok, the border of the people of Ammon; 
+And to the Reubenites and the Gadites I gave from Gilead as far as the River Arnon, the middle of the river as the border, as far as the River Jabbok, the border of the people of Ammon; 
 
 ###### 17 
-the plain also, with the Jordan as _the_ border, from Chinnereth as far as the east side of the Sea of the Arabah (the Salt Sea), below the slopes of Pisgah. 
+the plain also, with the Jordan as the border, from Chinnereth as far as the east side of the Sea of the Arabah (the Salt Sea), below the slopes of Pisgah. 
 
 ###### 18 
 "Then I commanded you at that time, saying: 'The Lord your God has given you this land to possess. All you men of valor shall cross over armed before your brethren, the children of Israel. 
@@ -83,7 +83,7 @@ You must not fear them, for the Lord your God Himself fights for you.'
 "Then I pleaded with the Lord at that time, saying: 
 
 ###### 24 
-'O Lord God, You have begun to show Your servant Your greatness and Your mighty hand, for what god _is there_ in heaven or on earth who can do _anything_ like Your works and Your mighty _deeds?_ 
+'O Lord God, You have begun to show Your servant Your greatness and Your mighty hand, for what god is there in heaven or on earth who can do anything like Your works and Your mighty deeds? 
 
 ###### 25 
 I pray, let me cross over and see the good land beyond the Jordan, those pleasant mountains, and Lebanon.' 
@@ -92,7 +92,7 @@ I pray, let me cross over and see the good land beyond the Jordan, those pleasan
 "But the Lord was angry with me on your account, and would not listen to me. So the Lord said to me: 'Enough of that! Speak no more to Me of this matter. 
 
 ###### 27 
-Go up to the top of Pisgah, and lift your eyes toward the west, the north, the south, and the east; behold _it_ with your eyes, for you shall not cross over this Jordan. 
+Go up to the top of Pisgah, and lift your eyes toward the west, the north, the south, and the east; behold it with your eyes, for you shall not cross over this Jordan. 
 
 ###### 28 
 But command Joshua, and encourage him and strengthen him; for he shall go over before this people, and he shall cause them to inherit the land which you will see.' 

@@ -70,7 +70,7 @@ This month shall be to you the beginning of months, the first month of the year 
 
 
 
-Tell all the congregation of Israel, On the tenth day of this month they shall take every man a lamb _or_ kid, according to [the size of] the family of which he is the father, a lamb _or_ kid for each house. 
+Tell all the congregation of Israel, On the tenth day of this month they shall take every man a lamb or kid, according to [the size of] the family of which he is the father, a lamb or kid for each house. 
 
 
 
@@ -112,7 +112,7 @@ And if the household is too small to consume the lamb, let him and his next door
 
 
 
-Your lamb _or_ kid shall be without blemish, a male of the first year; you shall take it from the sheep or the goats. 
+Your lamb or kid shall be without blemish, a male of the first year; you shall take it from the sheep or the goats. 
 
 
 
@@ -217,7 +217,7 @@ Eat not of it raw nor boiled at all with water, but roasted--its head, its legs,
 
 
 
-You shall let nothing of the meat remain until the morning; and the bones _and_ unedible bits which remain of it until morning you shall burn with fire. 
+You shall let nothing of the meat remain until the morning; and the bones and unedible bits which remain of it until morning you shall burn with fire. 
 
 
 
@@ -280,7 +280,7 @@ For I will pass through the land of Egypt this night and will smite all the firs
 
 
 
-The blood shall be for a token _or_ sign to you upon [the doorposts of] the houses where you are, [that] when I see the blood, I will pass over you, and no plague shall be upon you to destroy you when I smite the land of Egypt. 
+The blood shall be for a token or sign to you upon [the doorposts of] the houses where you are, [that] when I see the blood, I will pass over you, and no plague shall be upon you to destroy you when I smite the land of Egypt. 
 
 
 
@@ -343,7 +343,7 @@ And this day shall be to you for a memorial. You shall keep it as a feast to the
 
 
 
-On the first day you shall hold a solemn _and_ holy assembly, and on the seventh day there shall be a solemn _and_ holy assembly; no kind of work shall be done in them, save [preparation of] that which every person must eat--that only may be done by you. 
+On the first day you shall hold a solemn and holy assembly, and on the seventh day there shall be a solemn and holy assembly; no kind of work shall be done in them, save [preparation of] that which every person must eat--that only may be done by you. 
 
 
 
@@ -889,7 +889,7 @@ At the end of the 430 years, even that very day, all the hosts of the Lord went 
 
 
 
-It was a night of watching unto the Lord _and_ to be much observed for bringing them out of Egypt; this same night of watching unto the Lord is to be observed by all the Israelites throughout their generations. 
+It was a night of watching unto the Lord and to be much observed for bringing them out of Egypt; this same night of watching unto the Lord is to be observed by all the Israelites throughout their generations. 
 
 
 

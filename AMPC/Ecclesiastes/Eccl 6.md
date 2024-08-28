@@ -49,7 +49,7 @@ There is an evil which I have seen under the sun, and it lies heavily upon men:
 
 
 
-A man to whom God has given riches, possessions, and honor, so that he lacks nothing for his soul of all that he might desire, yet God does not give him the power _or_ capacity to enjoy them [things which are gifts from God], but a stranger [in whom he has no interest succeeds him and] consumes _and_ enjoys them. This is vanity (emptiness, falsity, and futility); it is a sore affliction! 
+A man to whom God has given riches, possessions, and honor, so that he lacks nothing for his soul of all that he might desire, yet God does not give him the power or capacity to enjoy them [things which are gifts from God], but a stranger [in whom he has no interest succeeds him and] consumes and enjoys them. This is vanity (emptiness, falsity, and futility); it is a sore affliction! 
 
 
 
@@ -133,7 +133,7 @@ Moreover, he has not seen the sun nor had any knowledge, yet he [the stillborn c
 
 
 
-Even though he lives a thousand years twice over and yet has seen no good _and_ experienced no enjoyment--do not all go to one place [the place of the dead]? 
+Even though he lives a thousand years twice over and yet has seen no good and experienced no enjoyment--do not all go to one place [the place of the dead]? 
 
 
 
@@ -196,7 +196,7 @@ For what advantage has the wise man over the fool [being worldly-wise is not the
 
 
 
-Better is the sight of the eyes [the enjoyment of what is available to one] than the cravings of wandering desire. This is also vanity (emptiness, falsity, and futility) and a striving after the wind _and_ a feeding on it! 
+Better is the sight of the eyes [the enjoyment of what is available to one] than the cravings of wandering desire. This is also vanity (emptiness, falsity, and futility) and a striving after the wind and a feeding on it! 
 
 
 
@@ -238,7 +238,7 @@ Whatever [man] is, he has been named that long ago, and it is known that it is m
 
 
 
-Seeing that there are [all these and] many other things _and_ words that increase the emptiness, falsity, vainglory, _and_ futility [of living], what profit _and_ what outcome is there for man? 
+Seeing that there are [all these and] many other things and words that increase the emptiness, falsity, vainglory, and futility [of living], what profit and what outcome is there for man? 
 
 
 

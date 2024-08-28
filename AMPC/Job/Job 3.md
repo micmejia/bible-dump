@@ -154,7 +154,7 @@ As for that night, let thick darkness seize it; let it not rejoice among the day
 
 
 
-Yes, let that night be solitary _and_ barren; let no joyful voice come into it. 
+Yes, let that night be solitary and barren; let no joyful voice come into it. 
 
 
 
@@ -217,7 +217,7 @@ Let the stars of the early dawn of that day be dark; let [the morning] look in v
 
 
 
-Because it shut not the doors of my mother's womb nor hid sorrow _and_ trouble from my eyes. 
+Because it shut not the doors of my mother's womb nor hid sorrow and trouble from my eyes. 
 
 
 
@@ -343,7 +343,7 @@ Or with princes who had gold, who filled their houses with silver.
 
 
 
-Or [why] was I not a miscarriage, hidden _and_ put away, as infants who never saw light? 
+Or [why] was I not a miscarriage, hidden and put away, as infants who never saw light? 
 
 
 
@@ -448,7 +448,7 @@ Why is light [of life] given to him who is in misery, and life to the bitter in 
 
 
 
-Who long _and_ wait for death, but it comes not, and dig for it more than for hidden treasures, 
+Who long and wait for death, but it comes not, and dig for it more than for hidden treasures, 
 
 
 
@@ -553,4 +553,4 @@ For the thing which I greatly fear comes upon me, and that of which I am afraid 
 
 
 
-I was not _or_ am not at ease, nor had I _or_ have I rest, nor was I _or_ am I quiet, yet trouble came _and_ still comes [upon me].
+I was not or am not at ease, nor had I or have I rest, nor was I or am I quiet, yet trouble came and still comes [upon me].

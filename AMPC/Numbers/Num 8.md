@@ -49,7 +49,7 @@ And the Lord said to Moses,
 
 
 
-Say to Aaron, When you set up _and_ light the lamps, the seven lamps shall be made to give light in front of the lampstand. 
+Say to Aaron, When you set up and light the lamps, the seven lamps shall be made to give light in front of the lampstand. 
 
 
 
@@ -91,7 +91,7 @@ And Aaron did so; he lighted the lamps of the lampstand to give light in front o
 
 
 
-And this was the workmanship of the candlestick: beaten _or_ turned gold, beaten work [of gold] from its base to its flowers; according to the pattern which the Lord had shown Moses, so he made the lampstand. 
+And this was the workmanship of the candlestick: beaten or turned gold, beaten work [of gold] from its base to its flowers; according to the pattern which the Lord had shown Moses, so he made the lampstand. 
 
 
 
@@ -238,7 +238,7 @@ And you shall present the Levites before the Lord, and the Israelites shall put 
 
 
 
-And Aaron shall offer the Levites before the Lord as a wave offering from the Israelites _and_ on their behalf, that they may do the service of the Lord. 
+And Aaron shall offer the Levites before the Lord as a wave offering from the Israelites and on their behalf, that they may do the service of the Lord. 
 
 
 
@@ -364,7 +364,7 @@ For they are wholly given to Me from among the Israelites; instead of all who op
 
 
 
-For all the firstborn of the Israelites are Mine, both of man and beast; on the day that I smote every firstborn in the land of Egypt [not of Israel], I consecrated them _and_ set them apart for Myself. 
+For all the firstborn of the Israelites are Mine, both of man and beast; on the day that I smote every firstborn in the land of Egypt [not of Israel], I consecrated them and set them apart for Myself. 
 
 
 
@@ -448,7 +448,7 @@ So Moses and Aaron and all the congregation of the Israelites did thus to the Le
 
 
 
-The Levites cleansed _and_ purified themselves and they washed their clothes; and Aaron offered them as a wave offering before the Lord and Aaron made atonement for them to cleanse them. 
+The Levites cleansed and purified themselves and they washed their clothes; and Aaron offered them as a wave offering before the Lord and Aaron made atonement for them to cleanse them. 
 
 
 
@@ -553,4 +553,4 @@ And at the age of fifty years, they shall retire from the warfare of the service
 
 
 
-But shall help their brethren in the Tent of Meeting [attend to protecting the sacred things from being profaned], but shall do no regular _or_ heavy service. Thus shall you direct the Levites in regard to their duties.
+But shall help their brethren in the Tent of Meeting [attend to protecting the sacred things from being profaned], but shall do no regular or heavy service. Thus shall you direct the Levites in regard to their duties.

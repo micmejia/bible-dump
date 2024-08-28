@@ -10,10 +10,10 @@ next: ['Gen 39']
 
 
 ###### 1 
-It came to pass at that time that Judah departed from his brothers, and visited a certain Adullamite whose name _was_ Hirah. 
+It came to pass at that time that Judah departed from his brothers, and visited a certain Adullamite whose name was Hirah. 
 
 ###### 2 
-And Judah saw there a daughter of a certain Canaanite whose name _was_ Shua, and he married her and went in to her. 
+And Judah saw there a daughter of a certain Canaanite whose name was Shua, and he married her and went in to her. 
 
 ###### 3 
 So she conceived and bore a son, and he called his name Er. 
@@ -25,7 +25,7 @@ She conceived again and bore a son, and she called his name Onan.
 And she conceived yet again and bore a son, and called his name Shelah. He was at Chezib when she bore him. 
 
 ###### 6 
-Then Judah took a wife for Er his firstborn, and her name _was_ Tamar. 
+Then Judah took a wife for Er his firstborn, and her name was Tamar. 
 
 ###### 7 
 But Er, Judah's firstborn, was wicked in the sight of the Lord, and the Lord killed him. 
@@ -49,52 +49,52 @@ Now in the process of time the daughter of Shua, Judah's wife, died; and Judah w
 And it was told Tamar, saying, "Look, your father-in-law is going up to Timnah to shear his sheep." 
 
 ###### 14 
-So she took off her widow's garments, covered _herself_ with a veil and wrapped herself, and sat in an open place which _was_ on the way to Timnah; for she saw that Shelah was grown, and she was not given to him as a wife. 
+So she took off her widow's garments, covered herself with a veil and wrapped herself, and sat in an open place which was on the way to Timnah; for she saw that Shelah was grown, and she was not given to him as a wife. 
 
 ###### 15 
-When Judah saw her, he thought she _was_ a harlot, because she had covered her face. 
+When Judah saw her, he thought she was a harlot, because she had covered her face. 
 
 ###### 16 
-Then he turned to her by the way, and said, "Please let me come in to you"; for he did not know that she _was_ his daughter-in-law. So she said, "What will you give me, that you may come in to me?" 
+Then he turned to her by the way, and said, "Please let me come in to you"; for he did not know that she was his daughter-in-law. So she said, "What will you give me, that you may come in to me?" 
 
 ###### 17 
-And he said, "I will send a young goat from the flock." So she said, "Will you give _me_ a pledge till you send _it?_" 
+And he said, "I will send a young goat from the flock." So she said, "Will you give me a pledge till you send it?" 
 
 ###### 18 
-Then he said, "What pledge shall I give you?" So she said, "Your signet and cord, and your staff that _is_ in your hand." Then he gave _them_ to her, and went in to her, and she conceived by him. 
+Then he said, "What pledge shall I give you?" So she said, "Your signet and cord, and your staff that is in your hand." Then he gave them to her, and went in to her, and she conceived by him. 
 
 ###### 19 
 So she arose and went away, and laid aside her veil and put on the garments of her widowhood. 
 
 ###### 20 
-And Judah sent the young goat by the hand of his friend the Adullamite, to receive _his_ pledge from the woman's hand, but he did not find her. 
+And Judah sent the young goat by the hand of his friend the Adullamite, to receive his pledge from the woman's hand, but he did not find her. 
 
 ###### 21 
-Then he asked the men of that place, saying, "Where is the harlot who _was_ openly by the roadside?" And they said, "There was no harlot in this _place._" 
+Then he asked the men of that place, saying, "Where is the harlot who was openly by the roadside?" And they said, "There was no harlot in this place." 
 
 ###### 22 
-So he returned to Judah and said, "I cannot find her. Also, the men of the place said there was no harlot in this _place._" 
+So he returned to Judah and said, "I cannot find her. Also, the men of the place said there was no harlot in this place." 
 
 ###### 23 
-Then Judah said, "Let her take _them_ for herself, lest we be shamed; for I sent this young goat and you have not found her." 
+Then Judah said, "Let her take them for herself, lest we be shamed; for I sent this young goat and you have not found her." 
 
 ###### 24 
-And it came to pass, about three months after, that Judah was told, saying, "Tamar your daughter-in-law has played the harlot; furthermore she _is_ with child by harlotry." So Judah said, "Bring her out and let her be burned!" 
+And it came to pass, about three months after, that Judah was told, saying, "Tamar your daughter-in-law has played the harlot; furthermore she is with child by harlotry." So Judah said, "Bring her out and let her be burned!" 
 
 ###### 25 
-When she _was_ brought out, she sent to her father-in-law, saying, "By the man to whom these belong, I _am_ with child." And she said, "Please determine whose these _are_--the signet and cord, and staff." 
+When she was brought out, she sent to her father-in-law, saying, "By the man to whom these belong, I am with child." And she said, "Please determine whose these are--the signet and cord, and staff." 
 
 ###### 26 
-So Judah acknowledged _them_ and said, "She has been more righteous than I, because I did not give her to Shelah my son." And he never knew her again. 
+So Judah acknowledged them and said, "She has been more righteous than I, because I did not give her to Shelah my son." And he never knew her again. 
 
 ###### 27 
-Now it came to pass, at the time for giving birth, that behold, twins _were_ in her womb. 
+Now it came to pass, at the time for giving birth, that behold, twins were in her womb. 
 
 ###### 28 
-And so it was, when she was giving birth, that _the one_ put out _his_ hand; and the midwife took a scarlet _thread_ and bound it on his hand, saying, "This one came out first." 
+And so it was, when she was giving birth, that the one put out his hand; and the midwife took a scarlet thread and bound it on his hand, saying, "This one came out first." 
 
 ###### 29 
-Then it happened, as he drew back his hand, that his brother came out unexpectedly; and she said, "How did you break through? _This_ breach _be_ upon you!" Therefore his name was called Perez. 
+Then it happened, as he drew back his hand, that his brother came out unexpectedly; and she said, "How did you break through? This breach be upon you!" Therefore his name was called Perez. 
 
 ###### 30 
-Afterward his brother came out who had the scarlet _thread_ on his hand. And his name was called Zerah.
+Afterward his brother came out who had the scarlet thread on his hand. And his name was called Zerah.

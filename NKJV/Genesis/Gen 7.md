@@ -10,10 +10,10 @@ next: ['Gen 8']
 
 
 ###### 1 
-Then the Lord said to Noah, "Come into the ark, you and all your household, because I have seen _that_ you _are_ righteous before Me in this generation. 
+Then the Lord said to Noah, "Come into the ark, you and all your household, because I have seen that you are righteous before Me in this generation. 
 
 ###### 2 
-You shall take with you seven each of every clean animal, a male and his female; two each of animals that _are_ unclean, a male and his female; 
+You shall take with you seven each of every clean animal, a male and his female; two each of animals that are unclean, a male and his female; 
 
 ###### 3 
 also seven each of birds of the air, male and female, to keep the species alive on the face of all the earth. 
@@ -25,13 +25,13 @@ For after seven more days I will cause it to rain on the earth forty days and fo
 And Noah did according to all that the Lord commanded him. 
 
 ###### 6 
-Noah _was_ six hundred years old when the floodwaters were on the earth. 
+Noah was six hundred years old when the floodwaters were on the earth. 
 
 ###### 7 
 So Noah, with his sons, his wife, and his sons' wives, went into the ark because of the waters of the flood. 
 
 ###### 8 
-Of clean animals, of animals that _are_ unclean, of birds, and of everything that creeps on the earth, 
+Of clean animals, of animals that are unclean, of birds, and of everything that creeps on the earth, 
 
 ###### 9 
 two by two they went into the ark to Noah, male and female, as God had commanded Noah. 
@@ -52,7 +52,7 @@ On the very same day Noah and Noah's sons, Shem, Ham, and Japheth, and Noah's wi
 they and every beast after its kind, all cattle after their kind, every creeping thing that creeps on the earth after its kind, and every bird after its kind, every bird of every sort. 
 
 ###### 15 
-And they went into the ark to Noah, two by two, of all flesh in which _is_ the breath of life. 
+And they went into the ark to Noah, two by two, of all flesh in which is the breath of life. 
 
 ###### 16 
 So those that entered, male and female of all flesh, went in as God had commanded him; and the Lord shut him in. 
@@ -73,10 +73,10 @@ The waters prevailed fifteen cubits upward, and the mountains were covered.
 And all flesh died that moved on the earth: birds and cattle and beasts and every creeping thing that creeps on the earth, and every man. 
 
 ###### 22 
-All in whose nostrils _was_ the breath of the spirit of life, all that _was_ on the dry _land,_ died. 
+All in whose nostrils was the breath of the spirit of life, all that was on the dry land, died. 
 
 ###### 23 
-So He destroyed all living things which were on the face of the ground: both man and cattle, creeping thing and bird of the air. They were destroyed from the earth. Only Noah and those who _were_ with him in the ark remained _alive._ 
+So He destroyed all living things which were on the face of the ground: both man and cattle, creeping thing and bird of the air. They were destroyed from the earth. Only Noah and those who were with him in the ark remained alive. 
 
 ###### 24 
 And the waters prevailed on the earth one hundred and fifty days.

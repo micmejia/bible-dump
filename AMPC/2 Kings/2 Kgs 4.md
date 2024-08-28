@@ -280,7 +280,7 @@ And he said to Gehazi his servant, Call this Shunammite. When he had called her,
 
 
 
-And he said to Gehazi, Say now to her, You have been most painstakingly _and_ reverently concerned for us; what is to be done for you? Would you like to be spoken for to the king or to the commander of the army? She answered, I dwell among my own people [they are sufficient]. 
+And he said to Gehazi, Say now to her, You have been most painstakingly and reverently concerned for us; what is to be done for you? Would you like to be spoken for to the king or to the commander of the army? She answered, I dwell among my own people [they are sufficient]. 
 
 
 
@@ -574,7 +574,7 @@ Run to meet her and say, Is it well with you? Well with your husband? Well with 
 
 
 
-When she came to the mountain to the man of God, she clung to his feet. Gehazi came to thrust her away, but the man of God said, Let her alone, for her soul is bitter _and_ vexed within her, and the Lord has hid it from me and has not told me. 
+When she came to the mountain to the man of God, she clung to his feet. Gehazi came to thrust her away, but the man of God said, Let her alone, for her soul is bitter and vexed within her, and the Lord has hid it from me and has not told me. 
 
 
 
@@ -721,7 +721,7 @@ So he went in, shut the door on the two of them, and prayed to the Lord.
 
 
 
-He went up and lay on the child, put his mouth on his mouth, his eyes on his eyes, and his hands on his hands. And as he stretched himself on him _and_ embraced him, the child's flesh became warm. 
+He went up and lay on the child, put his mouth on his mouth, his eyes on his eyes, and his hands on his hands. And as he stretched himself on him and embraced him, the child's flesh became warm. 
 
 
 

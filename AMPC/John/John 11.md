@@ -91,7 +91,7 @@ So the sisters sent to Him, saying, Lord, he whom You love [so well] is sick.
 
 
 
-When Jesus received the message, He said, This sickness is not to end in death; but [on the contrary] it is to honor God _and_ to promote His glory, that the Son of God may be glorified through (by) it. 
+When Jesus received the message, He said, This sickness is not to end in death; but [on the contrary] it is to honor God and to promote His glory, that the Son of God may be glorified through (by) it. 
 
 
 
@@ -175,7 +175,7 @@ Then after that interval He said to His disciples, Let us go back again to Judea
 
 
 
-The disciples said to Him, Rabbi, the Jews only recently were intending _and_ trying to stone You, and are You [thinking of] going back there again? 
+The disciples said to Him, Rabbi, the Jews only recently were intending and trying to stone You, and are You [thinking of] going back there again? 
 
 
 
@@ -238,7 +238,7 @@ But if anyone walks about in the night, he does stumble, because there is no lig
 
 
 
-He said these things, and then added, Our friend Lazarus is at rest _and_ sleeping; but I am going there that I may awaken him out of his sleep. 
+He said these things, and then added, Our friend Lazarus is at rest and sleeping; but I am going there that I may awaken him out of his sleep. 
 
 
 
@@ -280,7 +280,7 @@ The disciples answered, Lord, if he is sleeping, he will recover.
 
 
 
-However, Jesus had spoken of his death, but they thought that He referred to falling into a refreshing _and_ natural sleep. 
+However, Jesus had spoken of his death, but they thought that He referred to falling into a refreshing and natural sleep. 
 
 
 
@@ -805,7 +805,7 @@ But some of them said, Could not He Who opened a blind man's eyes have prevented
 
 
 
-Now Jesus, again sighing repeatedly _and_ deeply disquieted, approached the tomb. It was a cave (a hole in the rock), and a boulder lay against [the entrance to close] it. 
+Now Jesus, again sighing repeatedly and deeply disquieted, approached the tomb. It was a cave (a hole in the rock), and a boulder lay against [the entrance to close] it. 
 
 
 
@@ -847,7 +847,7 @@ Jesus said, Take away the stone. Martha, the sister of the dead man, exclaimed, 
 
 
 
-Jesus said to her, Did I not tell you _and_ promise you that if you would believe _and_ rely on Me, you would see the glory of God? 
+Jesus said to her, Did I not tell you and promise you that if you would believe and rely on Me, you would see the glory of God? 
 
 
 
@@ -889,7 +889,7 @@ So they took away the stone. And Jesus lifted up His eyes and said, Father, I th
 
 
 
-Yes, I know You always hear _and_ listen to Me, but I have said this on account of _and_ for the benefit of the people standing around, so that they may believe that You did send Me [that You have made Me Your Messenger]. 
+Yes, I know You always hear and listen to Me, but I have said this on account of and for the benefit of the people standing around, so that they may believe that You did send Me [that You have made Me Your Messenger]. 
 
 
 
@@ -1015,7 +1015,7 @@ So the chief priests and Pharisees called a meeting of the council (the Sanhedri
 
 
 
-If we let Him alone to go on like this, everyone will believe in Him _and_ adhere to Him, and the Romans will come and suppress _and_ destroy _and_ take away our [holy] place and our nation [our temple and city and our civil organization]. 
+If we let Him alone to go on like this, everyone will believe in Him and adhere to Him, and the Romans will come and suppress and destroy and take away our [holy] place and our nation [our temple and city and our civil organization]. 
 
 
 
@@ -1057,7 +1057,7 @@ But one of them, Caiaphas, who was the high priest that year, declared, You know
 
 
 
-Nor do you understand _or_ reason out that it is expedient _and_ better for your own welfare that one man should die on behalf of the people than that the whole nation should perish (be destroyed, ruined). 
+Nor do you understand or reason out that it is expedient and better for your own welfare that one man should die on behalf of the people than that the whole nation should perish (be destroyed, ruined). 
 
 
 
@@ -1120,7 +1120,7 @@ And not only for the nation but also for the purpose of uniting into one body th
 
 
 
-So from that day on they took counsel _and_ plotted together how they might put Him to death. 
+So from that day on they took counsel and plotted together how they might put Him to death. 
 
 
 
@@ -1162,7 +1162,7 @@ For that reason Jesus no longer appeared publicly among the Jews, but left there
 
 
 
-Now the Jewish Passover was at hand, and many from the country went up to Jerusalem in order that they might purify _and_ consecrate themselves before the Passover. 
+Now the Jewish Passover was at hand, and many from the country went up to Jerusalem in order that they might purify and consecrate themselves before the Passover. 
 
 
 

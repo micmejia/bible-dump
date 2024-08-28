@@ -11,25 +11,25 @@ next: ['Heb 2']
 ###### 1 
 
 
-In many separate revelations [each of which set forth a portion of the Truth] and in different ways God spoke of old to [our] forefathers in _and_ by the prophets, 
+In many separate revelations [each of which set forth a portion of the Truth] and in different ways God spoke of old to [our] forefathers in and by the prophets, 
 
 
 ###### 2 
 
 
-[But] in the last of these days He has spoken to us in [the person of a] Son, Whom He appointed Heir _and_ lawful Owner of all things, also by _and_ through Whom He created the worlds _and_ the reaches of space _and_ the ages of time [He made, produced, built, operated, and arranged them in order]. 
+[But] in the last of these days He has spoken to us in [the person of a] Son, Whom He appointed Heir and lawful Owner of all things, also by and through Whom He created the worlds and the reaches of space and the ages of time [He made, produced, built, operated, and arranged them in order]. 
 
 
 ###### 3 
 
 
-He is the sole expression of the glory of God [the Light-being, the out-raying or radiance of the divine], and He is the perfect imprint _and_ very image of [God's] nature, upholding _and_ maintaining _and_ guiding _and_ propelling the universe by His mighty word of power. When He had _by offering Himself_ accomplished _our_ cleansing of sins _and_ riddance of guilt, He sat down at the right hand of the divine Majesty on high, 
+He is the sole expression of the glory of God [the Light-being, the out-raying or radiance of the divine], and He is the perfect imprint and very image of [God's] nature, upholding and maintaining and guiding and propelling the universe by His mighty word of power. When He had by offering Himself accomplished our cleansing of sins and riddance of guilt, He sat down at the right hand of the divine Majesty on high, 
 
 
 ###### 4 
 
 
-[Taking a place and rank by which] He Himself became as much superior to angels as the glorious Name (title) which He has inherited is different from _and_ more excellent than theirs. 
+[Taking a place and rank by which] He Himself became as much superior to angels as the glorious Name (title) which He has inherited is different from and more excellent than theirs. 
 
 
 ###### 5 
@@ -59,7 +59,7 @@ But as to the Son, He says to Him, Your throne, O God, is forever and ever (to t
 ###### 9 
 
 
-You have loved righteousness [You have delighted in integrity, virtue, and uprightness in purpose, thought, and action] and You have hated lawlessness (injustice and iniquity). Therefore God, [even] Your God (Godhead), has anointed You with the oil of exultant joy _and_ gladness above _and_ beyond Your companions. 
+You have loved righteousness [You have delighted in integrity, virtue, and uprightness in purpose, thought, and action] and You have hated lawlessness (injustice and iniquity). Therefore God, [even] Your God (Godhead), has anointed You with the oil of exultant joy and gladness above and beyond Your companions. 
 
 
 ###### 10 
@@ -71,13 +71,13 @@ And [further], You, Lord, did lay the foundation of the earth in the beginning, 
 ###### 11 
 
 
-They will perish, but You remain _and_ continue permanently; they will all grow old _and_ wear out like a garment. 
+They will perish, but You remain and continue permanently; they will all grow old and wear out like a garment. 
 
 
 ###### 12 
 
 
-Like a mantle [thrown about one's self] You will roll them up, and they will be changed _and_ replaced by others. But You remain the same, and Your years will never end _nor_ come to failure. 
+Like a mantle [thrown about one's self] You will roll them up, and they will be changed and replaced by others. But You remain the same, and Your years will never end nor come to failure. 
 
 
 ###### 13 

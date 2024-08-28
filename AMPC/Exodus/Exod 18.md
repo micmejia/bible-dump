@@ -406,7 +406,7 @@ You will surely wear out both yourself and this people with you, for the thing i
 
 
 
-Listen now to [me]; I will counsel you, and God will be with you. You shall represent the people before God, bringing their cases _and_ causes to Him, 
+Listen now to [me]; I will counsel you, and God will be with you. You shall represent the people before God, bringing their cases and causes to Him, 
 
 
 
@@ -511,7 +511,7 @@ If you will do this, and God so commands you, you will be able to endure [the st
 
 
 
-So Moses listened to _and_ heeded the voice of his father-in-law and did all that he had said. 
+So Moses listened to and heeded the voice of his father-in-law and did all that he had said. 
 
 
 

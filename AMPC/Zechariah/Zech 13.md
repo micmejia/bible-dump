@@ -91,7 +91,7 @@ And if anyone again appears [falsely] as a prophet, then his father and his moth
 
 
 
-And in that day the [false] prophets shall each be ashamed of his vision when he prophesies, nor will he wear a hairy _or_ rough garment to deceive, 
+And in that day the [false] prophets shall each be ashamed of his vision when he prophesies, nor will he wear a hairy or rough garment to deceive, 
 
 
 
@@ -133,7 +133,7 @@ But he will [deny his identity and] say, I am no prophet. I am a tiller of the g
 
 
 
-And one shall say to him, What are these wounds on your breast _or_ between your hands? Then he will answer, Those with which I was wounded [when disciplined] in the house of my [loving] friends. 
+And one shall say to him, What are these wounds on your breast or between your hands? Then he will answer, Those with which I was wounded [when disciplined] in the house of my [loving] friends. 
 
 
 
@@ -154,7 +154,7 @@ And one shall say to him, What are these wounds on your breast _or_ between your
 
 
 
-Awake, O sword, against My shepherd and against the man who is My associate, says the Lord of hosts; smite the shepherd and the sheep [of the flock] shall be scattered, and I will turn back My hand _and_ stretch it out again upon the little ones [of the flock]. 
+Awake, O sword, against My shepherd and against the man who is My associate, says the Lord of hosts; smite the shepherd and the sheep [of the flock] shall be scattered, and I will turn back My hand and stretch it out again upon the little ones [of the flock]. 
 
 
 
@@ -196,4 +196,4 @@ And in all the land, says the Lord, two-thirds shall be cut off and perish, but 
 
 
 
-And I will bring the third part through the fire, and will refine them as silver is refined and will test them as gold is tested. They will call on My name, and I will hear _and_ answer them. I will say, It is My people; and they will say, The Lord is my God.
+And I will bring the third part through the fire, and will refine them as silver is refined and will test them as gold is tested. They will call on My name, and I will hear and answer them. I will say, It is My people; and they will say, The Lord is my God.

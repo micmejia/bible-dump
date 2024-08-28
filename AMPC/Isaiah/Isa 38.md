@@ -70,7 +70,7 @@ Then Hezekiah turned his face to the wall and prayed to the Lord
 
 
 
-And said, Remember [earnestly] now, O Lord, I beseech You, how I have walked before You in faithfulness _and_ in truth, with a whole heart [absolutely devoted to You], and have done what is good in Your sight. And Hezekiah wept bitterly. 
+And said, Remember [earnestly] now, O Lord, I beseech You, how I have walked before You in faithfulness and in truth, with a whole heart [absolutely devoted to You], and have done what is good in Your sight. And Hezekiah wept bitterly. 
 
 
 
@@ -175,7 +175,7 @@ And this will be the sign to you from the Lord that the Lord will do this thing 
 
 
 
-Behold, I will turn the shadow [denoting the time of day] on the steps _or_ degrees, which has gone down on the steps _or_ sundial of Ahaz, backward ten steps _or_ degrees. And the sunlight turned back ten steps on the steps on which it had gone down. 
+Behold, I will turn the shadow [denoting the time of day] on the steps or degrees, which has gone down on the steps or sundial of Ahaz, backward ten steps or degrees. And the sunlight turned back ten steps on the steps on which it had gone down. 
 
 
 
@@ -217,7 +217,7 @@ This is the writing of Hezekiah king of Judah after he had been sick and had rec
 
 
 
-I said, In the noontide _and_ tranquillity of my days I must depart; I am to pass through the gates of Sheol (the place of the dead), deprived of the remainder of my years. 
+I said, In the noontide and tranquillity of my days I must depart; I am to pass through the gates of Sheol (the place of the dead), deprived of the remainder of my years. 
 
 
 
@@ -259,7 +259,7 @@ I said, I shall not see the Lord, even the Lord, in the land of the living; I sh
 
 
 
-My [fleshly] dwelling is plucked up _and_ is removed from me like a shepherd's tent. I have rolled up my life as a weaver [rolls up the finished web]; [the Lord] cuts me free from the loom; from day to night You bring me to an end. 
+My [fleshly] dwelling is plucked up and is removed from me like a shepherd's tent. I have rolled up my life as a weaver [rolls up the finished web]; [the Lord] cuts me free from the loom; from day to night You bring me to an end. 
 
 
 
@@ -280,7 +280,7 @@ My [fleshly] dwelling is plucked up _and_ is removed from me like a shepherd's t
 
 
 
-I thought _and_ quieted myself until morning. Like a lion He breaks all my bones; from day to night You bring me to an end. 
+I thought and quieted myself until morning. Like a lion He breaks all my bones; from day to night You bring me to an end. 
 
 
 
@@ -301,7 +301,7 @@ I thought _and_ quieted myself until morning. Like a lion He breaks all my bones
 
 
 
-Like a twittering swallow _or_ a crane, so do I chirp _and_ chatter; I moan like a dove. My eyes are weary _and_ dim with looking upward. O Lord, I am oppressed; take my side _and_ be my security [as of a debtor being sent to prison]. 
+Like a twittering swallow or a crane, so do I chirp and chatter; I moan like a dove. My eyes are weary and dim with looking upward. O Lord, I am oppressed; take my side and be my security [as of a debtor being sent to prison]. 
 
 
 
@@ -322,7 +322,7 @@ Like a twittering swallow _or_ a crane, so do I chirp _and_ chatter; I moan like
 
 
 
-But what can I say? For He has both spoken to me and He Himself has done it. I must go softly [as in solemn procession] all my years _and_ my sleep has fled because of the bitterness of my soul. 
+But what can I say? For He has both spoken to me and He Himself has done it. I must go softly [as in solemn procession] all my years and my sleep has fled because of the bitterness of my soul. 
 
 
 
@@ -364,7 +364,7 @@ O Lord, by these things men live; and in all these is the life of my spirit. O g
 
 
 
-Behold, it was for my peace that I had intense bitterness; but You have loved back my life from the pit of corruption _and_ nothingness, for You have cast all my sins behind Your back. 
+Behold, it was for my peace that I had intense bitterness; but You have loved back my life from the pit of corruption and nothingness, for You have cast all my sins behind Your back. 
 
 
 
@@ -385,7 +385,7 @@ Behold, it was for my peace that I had intense bitterness; but You have loved ba
 
 
 
-For Sheol (the place of the dead) cannot confess _and_ reach out the hand to You, death cannot praise _and_ rejoice in You; they who go down to the pit cannot hope for Your faithfulness [to Your promises; their probation is at an end, their destiny is sealed]. 
+For Sheol (the place of the dead) cannot confess and reach out the hand to You, death cannot praise and rejoice in You; they who go down to the pit cannot hope for Your faithfulness [to Your promises; their probation is at an end, their destiny is sealed]. 
 
 
 
@@ -406,7 +406,7 @@ For Sheol (the place of the dead) cannot confess _and_ reach out the hand to You
 
 
 
-The living, the living--they shall thank _and_ praise You, as I do this day; the father shall make known to the children Your faithfulness _and_ Your truth. 
+The living, the living--they shall thank and praise You, as I do this day; the father shall make known to the children Your faithfulness and Your truth. 
 
 
 

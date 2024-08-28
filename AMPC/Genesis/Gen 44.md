@@ -322,7 +322,7 @@ Judah and his brethren came to Joseph's house, for he was still there; and they 
 
 
 
-Joseph said to them, What is this thing that you have done? Do you not realize that such a man as I can certainly detect _and_ know by divination [everything you do without other knowledge of it]? 
+Joseph said to them, What is this thing that you have done? Do you not realize that such a man as I can certainly detect and know by divination [everything you do without other knowledge of it]? 
 
 
 
@@ -343,7 +343,7 @@ Joseph said to them, What is this thing that you have done? Do you not realize t
 
 
 
-And Judah said, What shall we say to my lord? What shall we reply? Or how shall we clear ourselves, since God has found out _and_ exposed the iniquity of your servants? Behold, we are my lord's slaves, the rest of us as well as he with whom the cup is found. 
+And Judah said, What shall we say to my lord? What shall we reply? Or how shall we clear ourselves, since God has found out and exposed the iniquity of your servants? Behold, we are my lord's slaves, the rest of us as well as he with whom the cup is found. 
 
 
 
@@ -364,7 +364,7 @@ And Judah said, What shall we say to my lord? What shall we reply? Or how shall 
 
 
 
-But [Joseph] said, God forbid that I should do that; but the man in whose hand the cup is found, he shall be my servant; and as for [the rest of] you, arise _and_ go in peace to your father. 
+But [Joseph] said, God forbid that I should do that; but the man in whose hand the cup is found, he shall be my servant; and as for [the rest of] you, arise and go in peace to your father. 
 
 
 
@@ -616,7 +616,7 @@ And the one went out from me, and I said, Surely he is torn to pieces, and I hav
 
 
 
-And if you take this son also from me, and harm _or_ accident should befall him, you will bring down my gray hairs with sorrow _and_ evil to Sheol (the place of the dead). 
+And if you take this son also from me, and harm or accident should befall him, you will bring down my gray hairs with sorrow and evil to Sheol (the place of the dead). 
 
 
 
@@ -637,7 +637,7 @@ And if you take this son also from me, and harm _or_ accident should befall him,
 
 
 
-Now therefore, when I come to your servant my father and the lad is not with us, since his life is bound up in the lad's life _and_ his soul knit with the lad's soul, 
+Now therefore, when I come to your servant my father and the lad is not with us, since his life is bound up in the lad's life and his soul knit with the lad's soul, 
 
 
 
@@ -658,7 +658,7 @@ Now therefore, when I come to your servant my father and the lad is not with us,
 
 
 
-When he sees that the lad is not with us, he will die; and your servants will be responsible for his death _and_ will bring down the gray hairs of your servant our father with sorrow to Sheol. 
+When he sees that the lad is not with us, he will die; and your servants will be responsible for his death and will bring down the gray hairs of your servant our father with sorrow to Sheol. 
 
 
 
@@ -721,4 +721,4 @@ Now therefore, I pray you, let your servant remain instead of the youth [to be] 
 
 
 
-For how can I go up to my father if the lad is not with me?--lest I witness the woe _and_ the evil that will come upon my father.
+For how can I go up to my father if the lad is not with me?--lest I witness the woe and the evil that will come upon my father.

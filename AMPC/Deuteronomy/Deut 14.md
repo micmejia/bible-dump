@@ -133,7 +133,7 @@ The hart, the gazelle, the roebuck, the wild goat, the ibex, the antelope, and t
 
 
 
-And every beast that parts the hoof and has it divided into two and brings up _and_ chews the cud among the beasts you may eat. 
+And every beast that parts the hoof and has it divided into two and brings up and chews the cud among the beasts you may eat. 
 
 
 
@@ -448,7 +448,7 @@ But of all clean winged things you may eat.
 
 
 
-You shall not eat of anything that dies of itself. You may give it to the stranger _or_ the foreigner who is within your towns, that he may eat it, or you may sell it to an alien. [They are not under God's law in this matter] but you are a people holy to the Lord your God. You shall not [even] boil a kid in its mother's milk. 
+You shall not eat of anything that dies of itself. You may give it to the stranger or the foreigner who is within your towns, that he may eat it, or you may sell it to an alien. [They are not under God's law in this matter] but you are a people holy to the Lord your God. You shall not [even] boil a kid in its mother's milk. 
 
 
 
@@ -574,7 +574,7 @@ And you may spend that money for whatever your appetite craves, for oxen, or she
 
 
 
-And you shall not forsake _or_ neglect the Levite [God's minister] in your towns, for he has been given no share or inheritance with you. 
+And you shall not forsake or neglect the Levite [God's minister] in your towns, for he has been given no share or inheritance with you. 
 
 
 
@@ -616,4 +616,4 @@ At the end of every three years you shall bring forth all the tithe of your incr
 
 
 
-And the Levite [because he has no part or inheritance with you] and the stranger _or_ temporary resident, and the fatherless and the widow who are in your towns shall come and eat and be satisfied, so that the Lord your God may bless you in all the work of your hands that you do.
+And the Levite [because he has no part or inheritance with you] and the stranger or temporary resident, and the fatherless and the widow who are in your towns shall come and eat and be satisfied, so that the Lord your God may bless you in all the work of your hands that you do.

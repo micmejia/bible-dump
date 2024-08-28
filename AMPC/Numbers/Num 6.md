@@ -49,7 +49,7 @@ And the Lord said to Moses,
 
 
 
-Say to the Israelites, When either a man or a woman shall make a special vow, the vow of a Nazirite, that is, one separated _and_ consecrated to the Lord, 
+Say to the Israelites, When either a man or a woman shall make a special vow, the vow of a Nazirite, that is, one separated and consecrated to the Lord, 
 
 
 
@@ -112,7 +112,7 @@ All the days of his separation he shall eat nothing produced from the grapevine,
 
 
 
-All the days of the vow of his separation _and_ abstinence there shall no razor come upon his head. Until the time is completed for which he separates himself to the Lord, he shall be holy, and shall let the locks of the hair of his head grow long. 
+All the days of the vow of his separation and abstinence there shall no razor come upon his head. Until the time is completed for which he separates himself to the Lord, he shall be holy, and shall let the locks of the hair of his head grow long. 
 
 
 
@@ -154,7 +154,7 @@ All the days that he separates himself to the Lord he shall not go near a dead b
 
 
 
-He shall not make himself unclean for his father, mother, brother, or sister, when they die, because his separation _and_ abstinence to his God is upon his head. 
+He shall not make himself unclean for his father, mother, brother, or sister, when they die, because his separation and abstinence to his God is upon his head. 
 
 
 
@@ -175,7 +175,7 @@ He shall not make himself unclean for his father, mother, brother, or sister, wh
 
 
 
-All the days of his separation _and_ abstinence he is holy to the Lord. 
+All the days of his separation and abstinence he is holy to the Lord. 
 
 
 
@@ -259,7 +259,7 @@ And the priest shall offer the one for a sin offering and the other for a burnt 
 
 
 
-And he shall consecrate _and_ separate himself to the Lord for the days of his separation and shall bring a male lamb a year old for a trespass _or_ guilt offering; but the previous days shall be void _and_ lost, because his separation was defiled. 
+And he shall consecrate and separate himself to the Lord for the days of his separation and shall bring a male lamb a year old for a trespass or guilt offering; but the previous days shall be void and lost, because his separation was defiled. 
 
 
 
@@ -280,7 +280,7 @@ And he shall consecrate _and_ separate himself to the Lord for the days of his s
 
 
 
-And this is the law of the Nazirite when the days of his separation _and_ abstinence are fulfilled. He shall be brought to the door of the Tent of Meeting, 
+And this is the law of the Nazirite when the days of his separation and abstinence are fulfilled. He shall be brought to the door of the Tent of Meeting, 
 
 
 
@@ -406,7 +406,7 @@ And the Nazirite shall shave his consecrated head at the door of the Tent of Mee
 
 
 
-And the priest shall take the boiled shoulder of the ram, and one unleavened cake out of the basket, and one unleavened wafer and shall put them upon the hands of the Nazirite, after he has shaven the hair of his separation _and_ abstinence. 
+And the priest shall take the boiled shoulder of the ram, and one unleavened cake out of the basket, and one unleavened wafer and shall put them upon the hands of the Nazirite, after he has shaven the hair of his separation and abstinence. 
 
 
 
@@ -427,7 +427,7 @@ And the priest shall take the boiled shoulder of the ram, and one unleavened cak
 
 
 
-And the priest shall wave them for a wave offering before the Lord; they are a holy portion for the priest, with the breast that is waved and the thigh _or_ shoulder that is offered; and after that the Nazirite may drink wine. 
+And the priest shall wave them for a wave offering before the Lord; they are a holy portion for the priest, with the breast that is waved and the thigh or shoulder that is offered; and after that the Nazirite may drink wine. 
 
 
 
@@ -448,7 +448,7 @@ And the priest shall wave them for a wave offering before the Lord; they are a h
 
 
 
-This is the law for the Nazirite who has made a vow. His offering to the Lord, besides what else he is able to afford, shall be according to the vow which he has vowed; so shall he do according to the law for his separation _and_ abstinence [as a Nazirite]. 
+This is the law for the Nazirite who has made a vow. His offering to the Lord, besides what else he is able to afford, shall be according to the vow which he has vowed; so shall he do according to the law for his separation and abstinence [as a Nazirite]. 
 
 
 
@@ -511,7 +511,7 @@ Say to Aaron and his sons, This is the way you shall bless the Israelites. Say t
 
 
 
-The Lord bless you and watch, guard, _and_ keep you; 
+The Lord bless you and watch, guard, and keep you; 
 
 
 
@@ -532,7 +532,7 @@ The Lord bless you and watch, guard, _and_ keep you;
 
 
 
-The Lord make His face to shine upon _and_ enlighten you and be gracious (kind, merciful, and giving favor) to you; 
+The Lord make His face to shine upon and enlighten you and be gracious (kind, merciful, and giving favor) to you; 
 
 
 

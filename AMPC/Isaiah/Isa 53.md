@@ -70,7 +70,7 @@ For [the Servant of God] grew up before Him like a tender plant, and like a root
 
 
 
-He was despised and rejected _and_ forsaken by men, a Man of sorrows _and_ pains, and acquainted with grief _and_ sickness; and like One from Whom men hide their faces He was despised, and we did not appreciate His worth _or_ have any esteem for Him. 
+He was despised and rejected and forsaken by men, a Man of sorrows and pains, and acquainted with grief and sickness; and like One from Whom men hide their faces He was despised, and we did not appreciate His worth or have any esteem for Him. 
 
 
 
@@ -91,7 +91,7 @@ He was despised and rejected _and_ forsaken by men, a Man of sorrows _and_ pains
 
 
 
-Surely He has borne our griefs (sicknesses, weaknesses, and distresses) and carried our sorrows _and_ pains [of punishment], yet we [ignorantly] considered Him stricken, smitten, and afflicted by God [as if with leprosy]. 
+Surely He has borne our griefs (sicknesses, weaknesses, and distresses) and carried our sorrows and pains [of punishment], yet we [ignorantly] considered Him stricken, smitten, and afflicted by God [as if with leprosy]. 
 
 
 
@@ -112,7 +112,7 @@ Surely He has borne our griefs (sicknesses, weaknesses, and distresses) and carr
 
 
 
-But He was wounded for our transgressions, He was bruised for our guilt _and_ iniquities; the chastisement [needful to obtain] peace _and_ well-being for us was upon Him, and with the stripes [that wounded] Him we are healed _and_ made whole. 
+But He was wounded for our transgressions, He was bruised for our guilt and iniquities; the chastisement [needful to obtain] peace and well-being for us was upon Him, and with the stripes [that wounded] Him we are healed and made whole. 
 
 
 
@@ -133,7 +133,7 @@ But He was wounded for our transgressions, He was bruised for our guilt _and_ in
 
 
 
-All we like sheep have gone astray, we have turned every one to his own way; and the Lord has made to light upon Him the guilt _and_ iniquity of us all. 
+All we like sheep have gone astray, we have turned every one to his own way; and the Lord has made to light upon Him the guilt and iniquity of us all. 
 
 
 
@@ -154,7 +154,7 @@ All we like sheep have gone astray, we have turned every one to his own way; and
 
 
 
-He was oppressed, [yet when] He was afflicted, He was submissive _and_ opened not His mouth; like a lamb that is led to the slaughter, and as a sheep before her shearers is dumb, so He opened not His mouth. 
+He was oppressed, [yet when] He was afflicted, He was submissive and opened not His mouth; like a lamb that is led to the slaughter, and as a sheep before her shearers is dumb, so He opened not His mouth. 
 
 
 
@@ -217,7 +217,7 @@ And they assigned Him a grave with the wicked, and with a rich man in His death,
 
 
 
-Yet it was the will of the Lord to bruise Him; He has put Him to grief _and_ made Him sick. When You _and_ He make His life an offering for sin [and He has risen from the dead, in time to come], He shall see His [spiritual] offspring, He shall prolong His days, and the will _and_ pleasure of the Lord shall prosper in His hand. 
+Yet it was the will of the Lord to bruise Him; He has put Him to grief and made Him sick. When You and He make His life an offering for sin [and He has risen from the dead, in time to come], He shall see His [spiritual] offspring, He shall prolong His days, and the will and pleasure of the Lord shall prosper in His hand. 
 
 
 
@@ -238,7 +238,7 @@ Yet it was the will of the Lord to bruise Him; He has put Him to grief _and_ mad
 
 
 
-He shall see [the fruit] of the travail of His soul and be satisfied; by His knowledge of Himself [which He possesses and imparts to others] shall My [uncompromisingly] righteous One, My Servant, justify many _and_ make many righteous (upright and in right standing with God), for He shall bear their iniquities _and_ their guilt [with the consequences, says the Lord]. 
+He shall see [the fruit] of the travail of His soul and be satisfied; by His knowledge of Himself [which He possesses and imparts to others] shall My [uncompromisingly] righteous One, My Servant, justify many and make many righteous (upright and in right standing with God), for He shall bear their iniquities and their guilt [with the consequences, says the Lord]. 
 
 
 
@@ -259,4 +259,4 @@ He shall see [the fruit] of the travail of His soul and be satisfied; by His kno
 
 
 
-Therefore will I divide Him a portion with the great [kings and rulers], and He shall divide the spoil with the mighty, because He poured out His life unto death, and [He let Himself] be regarded as a criminal _and_ be numbered with the transgressors; yet He bore [and took away] the sin of many and made intercession for the transgressors (the rebellious).
+Therefore will I divide Him a portion with the great [kings and rulers], and He shall divide the spoil with the mighty, because He poured out His life unto death, and [He let Himself] be regarded as a criminal and be numbered with the transgressors; yet He bore [and took away] the sin of many and made intercession for the transgressors (the rebellious).

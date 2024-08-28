@@ -48,7 +48,7 @@ It was in the days of Ahasuerus [Xerxes], the Ahasuerus who reigned from India t
 
 
 
-In those days when King Ahasuerus sat on his royal throne which was in Shushan _or_ Susa [the capital of the Persian Empire] in the palace _or_ castle, 
+In those days when King Ahasuerus sat on his royal throne which was in Shushan or Susa [the capital of the Persian Empire] in the palace or castle, 
 
 
 
@@ -132,7 +132,7 @@ And when these days were completed, the king made a feast for all the people pre
 
 
 
-There were hangings of fine white cloth, of green and of blue [cotton], fastened with cords of fine linen and purple to silver rings _or_ rods and marble pillars. The couches of gold and silver rested on a [mosaic] pavement of porphyry, white marble, mother-of-pearl, and [precious] colored stones. 
+There were hangings of fine white cloth, of green and of blue [cotton], fastened with cords of fine linen and purple to silver rings or rods and marble pillars. The couches of gold and silver rested on a [mosaic] pavement of porphyry, white marble, mother-of-pearl, and [precious] colored stones. 
 
 
 

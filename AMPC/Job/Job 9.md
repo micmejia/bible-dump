@@ -91,7 +91,7 @@ If one should want to contend with Him, he cannot answer one [of His questions] 
 
 
 
-[God] is wise in heart and mighty in strength; who has [ever] hardened himself against Him and prospered _or_ even been safe? 
+[God] is wise in heart and mighty in strength; who has [ever] hardened himself against Him and prospered or even been safe? 
 
 
 
@@ -175,7 +175,7 @@ Who commands the sun, and it rises not; Who seals up the stars [from view];
 
 
 
-Who alone stretches out the heavens and treads upon the waves _and_ high places of the sea; 
+Who alone stretches out the heavens and treads upon the waves and high places of the sea; 
 
 
 
@@ -259,7 +259,7 @@ Behold, He goes by me, and I see Him not; He passes on also, but I perceive Him 
 
 
 
-Behold, He snatches away; who can hinder _or_ turn Him back? Who will say to Him, What are You doing? 
+Behold, He snatches away; who can hinder or turn Him back? Who will say to Him, What are You doing? 
 
 
 
@@ -322,7 +322,7 @@ How much less shall I answer Him, choosing out my words to reason with Him
 
 
 
-Whom, though I were righteous (upright and innocent) yet I could not answer? I must appeal for mercy to my Opponent _and_ Judge [for my right]. 
+Whom, though I were righteous (upright and innocent) yet I could not answer? I must appeal for mercy to my Opponent and Judge [for my right]. 
 
 
 
@@ -364,7 +364,7 @@ If I called and He answered me, yet would I not believe that He listened to my v
 
 
 
-For He overwhelms _and_ breaks me with a tempest and multiplies my wounds without cause. 
+For He overwhelms and breaks me with a tempest and multiplies my wounds without cause. 
 
 
 
@@ -427,7 +427,7 @@ If I speak of strength, behold, He is mighty! And if of justice, Who, says He, w
 
 
 
-Though I am innocent _and_ in the right, my own mouth would condemn me; though I am blameless, He would prove me perverse. 
+Though I am innocent and in the right, my own mouth would condemn me; though I am blameless, He would prove me perverse. 
 
 
 
@@ -490,7 +490,7 @@ It is all one; therefore I say, God [does not discriminate, but] destroys the bl
 
 
 
-When [His] scourge slays suddenly, He mocks at the calamity _and_ trial of the innocent. 
+When [His] scourge slays suddenly, He mocks at the calamity and trial of the innocent. 
 
 
 
@@ -574,7 +574,7 @@ They are passed away like the swift rowboats made of reeds, or like the eagle th
 
 
 
-If I say, I will forget my complaint, I will put off my sad countenance, and be of good cheer _and_ brighten up, 
+If I say, I will forget my complaint, I will put off my sad countenance, and be of good cheer and brighten up, 
 
 
 
@@ -595,7 +595,7 @@ If I say, I will forget my complaint, I will put off my sad countenance, and be 
 
 
 
-I become afraid of all my pains _and_ sorrows [yet to come], for I know You will not pronounce me innocent [by removing them]. 
+I become afraid of all my pains and sorrows [yet to come], for I know You will not pronounce me innocent [by removing them]. 
 
 
 
@@ -616,7 +616,7 @@ I become afraid of all my pains _and_ sorrows [yet to come], for I know You will
 
 
 
-I shall be held guilty _and_ be condemned; why then should I labor in vain [to appear innocent]? 
+I shall be held guilty and be condemned; why then should I labor in vain [to appear innocent]? 
 
 
 

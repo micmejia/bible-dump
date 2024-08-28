@@ -28,7 +28,7 @@ next: ['1 Sam 4']
 
 
 
-Now the boy Samuel ministered to the Lord before Eli. The word of the Lord was rare _and_ precious in those days; there was no frequent _or_ widely spread vision. 
+Now the boy Samuel ministered to the Lord before Eli. The word of the Lord was rare and precious in those days; there was no frequent or widely spread vision. 
 
 
 
@@ -280,7 +280,7 @@ On that day I will perform against Eli all that I have spoken concerning his hou
 
 
 
-And I [now] announce to him that I will judge _and_ punish his house forever for the iniquity of which he knew, for his sons were bringing a curse upon themselves [blaspheming God], and he did not restrain them. 
+And I [now] announce to him that I will judge and punish his house forever for the iniquity of which he knew, for his sons were bringing a curse upon themselves [blaspheming God], and he did not restrain them. 
 
 
 
@@ -301,7 +301,7 @@ And I [now] announce to him that I will judge _and_ punish his house forever for
 
 
 
-Therefore I have sworn to the house of Eli that the iniquity of Eli's house shall not be atoned for _or_ purged with sacrifice or offering forever. 
+Therefore I have sworn to the house of Eli that the iniquity of Eli's house shall not be atoned for or purged with sacrifice or offering forever. 
 
 
 

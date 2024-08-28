@@ -28,7 +28,7 @@ next: ['Esth 6']
 
 
 
-On the third day [of the fast] Esther put on her royal robes and stood in the royal _or_ inner court of the king's palace opposite his [throne room]. The king was sitting on his throne, facing the main entrance of the palace. 
+On the third day [of the fast] Esther put on her royal robes and stood in the royal or inner court of the king's palace opposite his [throne room]. The king was sitting on his throne, facing the main entrance of the palace. 
 
 
 

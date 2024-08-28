@@ -49,7 +49,7 @@ In the days of Ahaz son of Jotham, the son of Uzziah, king of Judah, Rezin the k
 
 
 
-And the house of David [Judah] was told, Syria is allied with Ephraim [Israel]. And the heart [of Ahaz] and the hearts of his people trembled _and_ shook, as the trees of the forest tremble _and_ shake with the wind. 
+And the house of David [Judah] was told, Syria is allied with Ephraim [Israel]. And the heart [of Ahaz] and the hearts of his people trembled and shook, as the trees of the forest tremble and shake with the wind. 
 
 
 
@@ -70,7 +70,7 @@ And the house of David [Judah] was told, Syria is allied with Ephraim [Israel]. 
 
 
 
-Then said the Lord to Isaiah, Go forth now to meet _Judah's King_ Ahaz, you and your son Shear-jashub [a remnant shall return], at the end of the aqueduct _or_ canal of the Upper Pool on the highway to the Fuller's Field; 
+Then said the Lord to Isaiah, Go forth now to meet Judah's King Ahaz, you and your son Shear-jashub [a remnant shall return], at the end of the aqueduct or canal of the Upper Pool on the highway to the Fuller's Field; 
 
 
 
@@ -133,7 +133,7 @@ Because Syria, Ephraim [Israel], and the son of Remaliah have purposed evil agai
 
 
 
-Let us go up against Judah and harass _and_ terrify it; and let us cleave it asunder [each of us taking a portion], and set a [vassal] king in the midst of it, namely the son of Tabeel, 
+Let us go up against Judah and harass and terrify it; and let us cleave it asunder [each of us taking a portion], and set a [vassal] king in the midst of it, namely the son of Tabeel, 
 
 
 
@@ -196,7 +196,7 @@ For the head [the capital] of Syria is Damascus, and the head of Damascus is [Ki
 
 
 
-And the head (the capital) of Ephraim is Samaria, and the head of Samaria is Remaliah's son [Pekah]. If you will not believe _and_ trust _and_ rely [on God and on the words of God's prophet instead of Assyria], surely you will not be established _nor_ will you remain. 
+And the head (the capital) of Ephraim is Samaria, and the head of Samaria is Remaliah's son [Pekah]. If you will not believe and trust and rely [on God and on the words of God's prophet instead of Assyria], surely you will not be established nor will you remain. 
 
 
 
@@ -280,7 +280,7 @@ But Ahaz said, I will not ask, neither will I tempt the Lord.
 
 
 
-And [Isaiah] said, Hear then, O house of David! Is it a small thing for you to weary _and_ try the patience of men, but will you weary _and_ try the patience of my God also? 
+And [Isaiah] said, Hear then, O house of David! Is it a small thing for you to weary and try the patience of men, but will you weary and try the patience of my God also? 
 
 
 
@@ -301,7 +301,7 @@ And [Isaiah] said, Hear then, O house of David! Is it a small thing for you to w
 
 
 
-Therefore the Lord Himself shall give you a sign: Behold, the young woman who is unmarried _and_ a virgin shall conceive and bear a son, and shall call his name Immanuel [God with us]. 
+Therefore the Lord Himself shall give you a sign: Behold, the young woman who is unmarried and a virgin shall conceive and bear a son, and shall call his name Immanuel [God with us]. 
 
 
 
@@ -322,7 +322,7 @@ Therefore the Lord Himself shall give you a sign: Behold, the young woman who is
 
 
 
-Butter _and_ curds and wild honey shall he eat when he knows [enough] to refuse the evil and choose the good. 
+Butter and curds and wild honey shall he eat when he knows [enough] to refuse the evil and choose the good. 
 
 
 
@@ -343,7 +343,7 @@ Butter _and_ curds and wild honey shall he eat when he knows [enough] to refuse 
 
 
 
-For before the child shall know [enough] to refuse the evil and choose the good, the land [Canaan] whose two kings you abhor _and_ of whom you are in sickening dread shall be forsaken [both Ephraim and Syria]. 
+For before the child shall know [enough] to refuse the evil and choose the good, the land [Canaan] whose two kings you abhor and of whom you are in sickening dread shall be forsaken [both Ephraim and Syria]. 
 
 
 
@@ -406,7 +406,7 @@ And in that day the Lord shall whistle for the fly [the numerous and troublesome
 
 
 
-And these [enemies like flies and bees] shall come and shall rest all of them in the desolate _and_ rugged valleys _and_ deep ravines and in the clefts of the rocks, and on all the thornbushes and on all the pastures. 
+And these [enemies like flies and bees] shall come and shall rest all of them in the desolate and rugged valleys and deep ravines and in the clefts of the rocks, and on all the thornbushes and on all the pastures. 
 
 
 
@@ -469,7 +469,7 @@ And [because of the desolation brought on by the invaders] in that day, a man wi
 
 
 
-And because of the abundance of milk that they will give, he will eat butter _and_ curds, for [only] butter _and_ curds and [wild] honey [no vegetables] shall everyone eat who is left in the land [these products provided from the extensive pastures and the plentiful wild flowers upon which the bees depend]. 
+And because of the abundance of milk that they will give, he will eat butter and curds, for [only] butter and curds and [wild] honey [no vegetables] shall everyone eat who is left in the land [these products provided from the extensive pastures and the plentiful wild flowers upon which the bees depend]. 
 
 
 
@@ -532,4 +532,4 @@ With arrows and with bows shall a man come [to hunt] there, because all the land
 
 
 
-And as for all the hills that were formerly cultivated with mattock _and_ hoe, you will not go there for fear of briers and thorns; but they will become a place where oxen are let loose to pasture and where sheep tread.
+And as for all the hills that were formerly cultivated with mattock and hoe, you will not go there for fear of briers and thorns; but they will become a place where oxen are let loose to pasture and where sheep tread.

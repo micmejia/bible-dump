@@ -91,7 +91,7 @@ But God came to Abimelech in a dream by night and said, Behold, you are a dead m
 
 
 
-But Abimelech had not come near her, so he said, Lord, will you slay a people who are just _and_ innocent? 
+But Abimelech had not come near her, so he said, Lord, will you slay a people who are just and innocent? 
 
 
 
@@ -133,7 +133,7 @@ Did not the man tell me, She is my sister? And she herself said, He is my brothe
 
 
 
-Then God said to him in the dream, Yes, I know you did this in the integrity of your heart, for it was I Who kept you back _and_ spared you from sinning against Me; therefore I did not give you occasion to touch her. 
+Then God said to him in the dream, Yes, I know you did this in the integrity of your heart, for it was I Who kept you back and spared you from sinning against Me; therefore I did not give you occasion to touch her. 
 
 
 
@@ -175,7 +175,7 @@ So now restore to the man his wife, for he is a prophet, and he will pray for yo
 
 
 
-So Abimelech rose early in the morning and called all his servants and told them all these things; and the men were exceedingly filled with reverence _and_ fear. 
+So Abimelech rose early in the morning and called all his servants and told them all these things; and the men were exceedingly filled with reverence and fear. 
 
 
 
@@ -238,7 +238,7 @@ And Abimelech said to Abraham, What did you see [in us] that [justified] you in 
 
 
 
-And Abraham said, Because I thought, Surely there is no reverence _or_ fear of God at all in this place, and they will slay me because of my wife. 
+And Abraham said, Because I thought, Surely there is no reverence or fear of God at all in this place, and they will slay me because of my wife. 
 
 
 
@@ -343,7 +343,7 @@ And Abimelech said, Behold, my land is before you; dwell wherever it pleases you
 
 
 
-And to Sarah he said, Behold, I have given this brother of yours a thousand pieces of silver; see, it is to compensate you [for all that has occurred] and to vindicate your honor before all who are with you; before all men you are cleared _and_ compensated. 
+And to Sarah he said, Behold, I have given this brother of yours a thousand pieces of silver; see, it is to compensate you [for all that has occurred] and to vindicate your honor before all who are with you; before all men you are cleared and compensated. 
 
 
 

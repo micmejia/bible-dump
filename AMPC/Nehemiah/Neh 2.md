@@ -175,7 +175,7 @@ Also I said to the king, If it pleases the king, let letters be given me for the
 
 
 
-And a letter to Asaph, keeper of the king's forest _or_ park, that he may give me timber to make beams for the gates of the fortress of the temple and for the city wall and for the house that I shall occupy. And the king granted what I asked, for the good hand of my God was upon me. 
+And a letter to Asaph, keeper of the king's forest or park, that he may give me timber to make beams for the gates of the fortress of the temple and for the city wall and for the house that I shall occupy. And the king granted what I asked, for the good hand of my God was upon me. 
 
 
 
@@ -217,7 +217,7 @@ Then I came to the governors beyond the River and gave them the king's letters. 
 
 
 
-When Sanballat the Horonite and Tobiah the servant, the Ammonite, heard this, it distressed them exceedingly that a man had come to inquire for _and_ require the good _and_ prosperity of the Israelites. 
+When Sanballat the Horonite and Tobiah the servant, the Ammonite, heard this, it distressed them exceedingly that a man had come to inquire for and require the good and prosperity of the Israelites. 
 
 
 

@@ -196,7 +196,7 @@ There are sixty queens and eighty concubines, and virgins without number;
 
 
 
-But my dove, my undefiled _and_ perfect one, stands alone [above them all]; she is the only one of her mother, she is the choice one of her who bore her. The daughters saw her and called her blessed _and_ happy, yes, the queens and the concubines, and they praised her. 
+But my dove, my undefiled and perfect one, stands alone [above them all]; she is the only one of her mother, she is the choice one of her who bore her. The daughters saw her and called her blessed and happy, yes, the queens and the concubines, and they praised her. 
 
 
 
@@ -217,7 +217,7 @@ But my dove, my undefiled _and_ perfect one, stands alone [above them all]; she 
 
 
 
-[The ladies asked] Who is this that looks forth like the dawn, fair as the moon, clear _and_ pure as the sun, _and_ terrible as a bannered host? 
+[The ladies asked] Who is this that looks forth like the dawn, fair as the moon, clear and pure as the sun, and terrible as a bannered host? 
 
 
 
@@ -280,4 +280,4 @@ Before I was aware [of what was happening], my desire [to roam about] had brough
 
 
 
-[I began to flee, but they called to me] Return, return, O Shulammite; return, return, that we may look upon you! [I replied] What is there for you to see in the [poor little] Shulammite? [And they answered] As upon a dance before two armies _or_ a dance of Mahanaim.
+[I began to flee, but they called to me] Return, return, O Shulammite; return, return, that we may look upon you! [I replied] What is there for you to see in the [poor little] Shulammite? [And they answered] As upon a dance before two armies or a dance of Mahanaim.

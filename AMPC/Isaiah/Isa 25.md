@@ -70,7 +70,7 @@ For You have made a city a heap, a fortified city a ruin, a palace of aliens wit
 
 
 
-Therefore [many] a strong people will glorify You, [many] a city of terrible _and_ ruthless nations will [reverently] fear You. 
+Therefore [many] a strong people will glorify You, [many] a city of terrible and ruthless nations will [reverently] fear You. 
 
 
 
@@ -154,7 +154,7 @@ And on this Mount [Zion] shall the Lord of hosts make for all peoples a feast of
 
 
 
-And He will destroy on this mountain the covering of the face that is cast over the heads of all peoples [in mourning], and the veil [of profound wretchedness] that is woven _and_ spread over all nations. 
+And He will destroy on this mountain the covering of the face that is cast over the heads of all peoples [in mourning], and the veil [of profound wretchedness] that is woven and spread over all nations. 
 
 
 
@@ -196,7 +196,7 @@ He will swallow up death [in victory; He will abolish death forever]. And the Lo
 
 
 
-It shall be said in that day, Behold our God upon Whom we have waited _and_ hoped, that He might save us! This is the Lord, we have waited for Him; we will be glad and rejoice in His salvation. 
+It shall be said in that day, Behold our God upon Whom we have waited and hoped, that He might save us! This is the Lord, we have waited for Him; we will be glad and rejoice in His salvation. 
 
 
 
@@ -217,7 +217,7 @@ It shall be said in that day, Behold our God upon Whom we have waited _and_ hope
 
 
 
-For the hand of the Lord shall rest on this Mount [Zion], and Moab shall be threshed _and_ trodden down in his place as straw is trodden down in the [filthy] water of a [primitive] cesspit. 
+For the hand of the Lord shall rest on this Mount [Zion], and Moab shall be threshed and trodden down in his place as straw is trodden down in the [filthy] water of a [primitive] cesspit. 
 
 
 
@@ -238,7 +238,7 @@ For the hand of the Lord shall rest on this Mount [Zion], and Moab shall be thre
 
 
 
-And though [Moab] stretches forth his hands in the midst of [the filthy water] as a swimmer stretches out his hands to swim, the Lord will bring down [Moab's] pride in spite of the skillfulness of his hands _and_ together with the spoils of his hands. 
+And though [Moab] stretches forth his hands in the midst of [the filthy water] as a swimmer stretches out his hands to swim, the Lord will bring down [Moab's] pride in spite of the skillfulness of his hands and together with the spoils of his hands. 
 
 
 

@@ -133,7 +133,7 @@ But thus shall you deal with them: you shall break down their altars and dash in
 
 
 
-For you are a holy _and_ set-apart people to the Lord your God; the Lord your God has chosen you to be a special people to Himself out of all the peoples on the face of the earth. 
+For you are a holy and set-apart people to the Lord your God; the Lord your God has chosen you to be a special people to Himself out of all the peoples on the face of the earth. 
 
 
 
@@ -196,7 +196,7 @@ But because the Lord loves you and because He would keep the oath which He had s
 
 
 
-Know, recognize, _and_ understand therefore that the Lord your God, He is God, the faithful God, Who keeps covenant and steadfast love _and_ mercy with those who love Him and keep His commandments, to a thousand generations, 
+Know, recognize, and understand therefore that the Lord your God, He is God, the faithful God, Who keeps covenant and steadfast love and mercy with those who love Him and keep His commandments, to a thousand generations, 
 
 
 

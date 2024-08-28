@@ -24,7 +24,7 @@ So the children of Joseph, Manasseh and Ephraim, took their inheritance.
 ## The Land of Ephraim 
 
 ###### 5 
-The border of the children of Ephraim, according to their families, was _thus:_ The border of their inheritance on the east side was Ataroth Addar as far as Upper Beth Horon. 
+The border of the children of Ephraim, according to their families, was thus: The border of their inheritance on the east side was Ataroth Addar as far as Upper Beth Horon. 
 
 ###### 6 
 And the border went out toward the sea on the north side of Michmethath; then the border went around eastward to Taanath Shiloh, and passed by it on the east of Janohah. 
@@ -33,10 +33,10 @@ And the border went out toward the sea on the north side of Michmethath; then th
 Then it went down from Janohah to Ataroth and Naarah, reached to Jericho, and came out at the Jordan. 
 
 ###### 8 
-The border went out from Tappuah westward to the Brook Kanah, and it ended at the sea. This _was_ the inheritance of the tribe of the children of Ephraim according to their families. 
+The border went out from Tappuah westward to the Brook Kanah, and it ended at the sea. This was the inheritance of the tribe of the children of Ephraim according to their families. 
 
 ###### 9 
-The separate cities for the children of Ephraim _were_ among the inheritance of the children of Manasseh, all the cities with their villages. 
+The separate cities for the children of Ephraim were among the inheritance of the children of Manasseh, all the cities with their villages. 
 
 ###### 10 
 And they did not drive out the Canaanites who dwelt in Gezer; but the Canaanites dwell among the Ephraimites to this day and have become forced laborers.

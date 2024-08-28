@@ -70,7 +70,7 @@ And going aboard a ship from Adramyttium which was about to sail for the ports a
 
 
 
-The following day we landed at Sidon, and Julius treated Paul in a loving way, with much consideration (kindness and care), permitting him to go to his friends [there] and be refreshed _and_ be cared for. 
+The following day we landed at Sidon, and Julius treated Paul in a loving way, with much consideration (kindness and care), permitting him to go to his friends [there] and be refreshed and be cared for. 
 
 
 
@@ -196,7 +196,7 @@ And coasting along it with difficulty, we arrived at a place called Fair Havens,
 
 
 
-But as [the season was well advanced, for] much time had been lost and navigation was already dangerous, for the time for the Fast [the Day of Atonement, about the beginning of October] had already gone by, Paul warned _and_ advised them, 
+But as [the season was well advanced, for] much time had been lost and navigation was already dangerous, for the time for the Fast [the Day of Atonement, about the beginning of October] had already gone by, Paul warned and advised them, 
 
 
 
@@ -259,7 +259,7 @@ However, the centurion paid greater attention to the pilot and to the owner of t
 
 
 
-And as the harbor was not well situated _and_ so unsuitable to winter in, the majority favored the plan of putting to sea again from there, hoping somehow to reach Phoenice, a harbor of Crete facing southwest and northwest, and winter there. 
+And as the harbor was not well situated and so unsuitable to winter in, the majority favored the plan of putting to sea again from there, hoping somehow to reach Phoenice, a harbor of Crete facing southwest and northwest, and winter there. 
 
 
 
@@ -343,7 +343,7 @@ And when the ship was caught and was unable to head against the wind, we gave up
 
 
 
-We ran under the shelter of a small island called Cauda, where we managed with [much] difficulty to draw the [ship's small] boat on deck _and_ secure it. 
+We ran under the shelter of a small island called Cauda, where we managed with [much] difficulty to draw the [ship's small] boat on deck and secure it. 
 
 
 
@@ -364,7 +364,7 @@ We ran under the shelter of a small island called Cauda, where we managed with [
 
 
 
-After hoisting it on board, they used supports with ropes to undergird _and_ brace the ship; then afraid that they would be driven into the Syrtis [quicksands off the north coast of Africa], they lowered the gear (sails and ropes) and so were driven along. 
+After hoisting it on board, they used supports with ropes to undergird and brace the ship; then afraid that they would be driven into the Syrtis [quicksands off the north coast of Africa], they lowered the gear (sails and ropes) and so were driven along. 
 
 
 
@@ -448,7 +448,7 @@ And when neither sun nor stars were visible for many days and no small tempest k
 
 
 
-Then as they had eaten nothing for a long time, Paul came forward into their midst and said, Men, you should have listened to me, and should not have put to sea from Crete and brought on this disaster and harm _and_ misery _and_ loss. 
+Then as they had eaten nothing for a long time, Paul came forward into their midst and said, Men, you should have listened to me, and should not have put to sea from Crete and brought on this disaster and harm and misery and loss. 
 
 
 
@@ -469,7 +469,7 @@ Then as they had eaten nothing for a long time, Paul came forward into their mid
 
 
 
-But [even] now I beg you to be in good spirits _and_ take heart, for there will be no loss of life among you but only of the ship. 
+But [even] now I beg you to be in good spirits and take heart, for there will be no loss of life among you but only of the ship. 
 
 
 
@@ -490,7 +490,7 @@ But [even] now I beg you to be in good spirits _and_ take heart, for there will 
 
 
 
-For this [very] night there stood by my side an angel of the God to Whom I belong and Whom I serve _and_ worship, 
+For this [very] night there stood by my side an angel of the God to Whom I belong and Whom I serve and worship, 
 
 
 
@@ -574,7 +574,7 @@ But we shall have to be stranded on some island.
 
 
 
-The fourteenth night had come and we were drifting _and_ being driven about in the Adriatic Sea, when about midnight the sailors began to suspect that they were drawing near to some land. 
+The fourteenth night had come and we were drifting and being driven about in the Adriatic Sea, when about midnight the sailors began to suspect that they were drawing near to some land. 
 
 
 
@@ -679,7 +679,7 @@ Paul said to the centurion and the soldiers, Unless these men remain in the ship
 
 
 
-Then the soldiers cut away the ropes that held the small boat, and let it fall _and_ drift away. 
+Then the soldiers cut away the ropes that held the small boat, and let it fall and drift away. 
 
 
 
@@ -700,7 +700,7 @@ Then the soldiers cut away the ropes that held the small boat, and let it fall _
 
 
 
-While they waited until it should become day, Paul entreated them all to take some food, saying, This is the fourteenth day that you have been continually in suspense _and_ on the alert without food, having eaten nothing. 
+While they waited until it should become day, Paul entreated them all to take some food, saying, This is the fourteenth day that you have been continually in suspense and on the alert without food, having eaten nothing. 
 
 
 
@@ -763,7 +763,7 @@ Having said these words, he took bread and, giving thanks to God before them all
 
 
 
-Then they all became more cheerful _and_ were encouraged and took food themselves. 
+Then they all became more cheerful and were encouraged and took food themselves. 
 
 
 
@@ -847,7 +847,7 @@ Now when it was day [and they saw the land], they did not recognize it, but they
 
 
 
-So they cut the cables _and_ severed the anchors and left them in the sea; at the same time unlashing the ropes that held the rudders and hoisting the foresail to the wind, they headed for the beach. 
+So they cut the cables and severed the anchors and left them in the sea; at the same time unlashing the ropes that held the rudders and hoisting the foresail to the wind, they headed for the beach. 
 
 
 

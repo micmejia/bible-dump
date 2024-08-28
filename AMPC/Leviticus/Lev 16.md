@@ -91,7 +91,7 @@ But Aaron shall come into the holy enclosure in this way: with a young bull for 
 
 
 
-He shall put on the holy linen undergarment, and he shall have the linen breeches upon his body, and be girded with the linen girdle _or_ sash, and with the linen turban _or_ miter shall he be attired; these are the holy garments; he shall bathe his body in water and then put them on. 
+He shall put on the holy linen undergarment, and he shall have the linen breeches upon his body, and be girded with the linen girdle or sash, and with the linen turban or miter shall he be attired; these are the holy garments; he shall bathe his body in water and then put them on. 
 
 
 
@@ -175,7 +175,7 @@ He shall take the two goats and present them before the Lord at the door of the 
 
 
 
-Aaron shall cast lots on the two goats--one lot for the Lord, the other lot for Azazel _or_ removal. 
+Aaron shall cast lots on the two goats--one lot for the Lord, the other lot for Azazel or removal. 
 
 
 
@@ -217,7 +217,7 @@ And Aaron shall bring the goat on which the Lord's lot fell and offer him as a s
 
 
 
-But the goat on which the lot fell for Azazel _or_ removal shall be presented alive before the Lord to make atonement over him, that he may be let go into the wilderness for Azazel (for dismissal). 
+But the goat on which the lot fell for Azazel or removal shall be presented alive before the Lord to make atonement over him, that he may be let go into the wilderness for Azazel (for dismissal). 
 
 
 
@@ -469,7 +469,7 @@ And Aaron shall lay both his hands upon the head of the live goat and confess ov
 
 
 
-The goat shall bear upon himself all their iniquities, carrying them to a land cut off (a land of forgetfulness _and_ separation, not inhabited)! And the man leading it shall let the goat go in the wilderness. 
+The goat shall bear upon himself all their iniquities, carrying them to a land cut off (a land of forgetfulness and separation, not inhabited)! And the man leading it shall let the goat go in the wilderness. 
 
 
 
@@ -553,7 +553,7 @@ And the fat of the sin offering he shall burn upon the altar.
 
 
 
-The man who led the sin-bearing goat out and let him go for Azazel _or_ removal shall wash his clothes and bathe his body, and afterward he may come into the camp. 
+The man who led the sin-bearing goat out and let him go for Azazel or removal shall wash his clothes and bathe his body, and afterward he may come into the camp. 
 
 
 

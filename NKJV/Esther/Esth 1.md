@@ -9,22 +9,22 @@ next: ['Esth 2']
 
 
 ###### 1 
-Now it came to pass in the days of Ahasuerus (this _was_ the Ahasuerus who reigned over one hundred and twenty-seven provinces, from India to Ethiopia), 
+Now it came to pass in the days of Ahasuerus (this was the Ahasuerus who reigned over one hundred and twenty-seven provinces, from India to Ethiopia), 
 
 ###### 2 
-in those days when King Ahasuerus sat on the throne of his kingdom, which _was_ in Shushan the citadel, 
+in those days when King Ahasuerus sat on the throne of his kingdom, which was in Shushan the citadel, 
 
 ###### 3 
-_that_ in the third year of his reign he made a feast for all his officials and servants--the powers of Persia and Media, the nobles, and the princes of the provinces _being_ before him-- 
+that in the third year of his reign he made a feast for all his officials and servants--the powers of Persia and Media, the nobles, and the princes of the provinces being before him-- 
 
 ###### 4 
-when he showed the riches of his glorious kingdom and the splendor of his excellent majesty for many days, one hundred and eighty days _in all._ 
+when he showed the riches of his glorious kingdom and the splendor of his excellent majesty for many days, one hundred and eighty days in all. 
 
 ###### 5 
 And when these days were completed, the king made a feast lasting seven days for all the people who were present in Shushan the citadel, from great to small, in the court of the garden of the king's palace. 
 
 ###### 6 
-_There were_ white and blue linen _curtains_ fastened with cords of fine linen and purple on silver rods and marble pillars; _and the_ couches _were_ of gold and silver on a _mosaic_ pavement of alabaster, turquoise, and white and black marble. 
+There were white and blue linen curtains fastened with cords of fine linen and purple on silver rods and marble pillars; and the couches were of gold and silver on a mosaic pavement of alabaster, turquoise, and white and black marble. 
 
 ###### 7 
 And they served drinks in golden vessels, each vessel being different from the other, with royal wine in abundance, according to the generosity of the king. 
@@ -33,34 +33,34 @@ And they served drinks in golden vessels, each vessel being different from the o
 In accordance with the law, the drinking was not compulsory; for so the king had ordered all the officers of his household, that they should do according to each man's pleasure. 
 
 ###### 9 
-Queen Vashti also made a feast for the women _in_ the royal palace which _belonged_ to King Ahasuerus. 
+Queen Vashti also made a feast for the women in the royal palace which belonged to King Ahasuerus. 
 
 ###### 10 
 On the seventh day, when the heart of the king was merry with wine, he commanded Mehuman, Biztha, Harbona, Bigtha, Abagtha, Zethar, and Carcas, seven eunuchs who served in the presence of King Ahasuerus, 
 
 ###### 11 
-to bring Queen Vashti before the king, _wearing_ her royal crown, in order to show her beauty to the people and the officials, for she _was_ beautiful to behold. 
+to bring Queen Vashti before the king, wearing her royal crown, in order to show her beauty to the people and the officials, for she was beautiful to behold. 
 
 ###### 12 
-But Queen Vashti refused to come at the king's command _brought_ by _his_ eunuchs; therefore the king was furious, and his anger burned within him. 
+But Queen Vashti refused to come at the king's command brought by his eunuchs; therefore the king was furious, and his anger burned within him. 
 
 ###### 13 
-Then the king said to the wise men who understood the times (for this _was_ the king's manner toward all who knew law and justice, 
+Then the king said to the wise men who understood the times (for this was the king's manner toward all who knew law and justice, 
 
 ###### 14 
-those closest to him _being_ Carshena, Shethar, Admatha, Tarshish, Meres, Marsena, and Memucan, the seven princes of Persia and Media, who had access to the king's presence, _and_ who ranked highest in the kingdom): 
+those closest to him being Carshena, Shethar, Admatha, Tarshish, Meres, Marsena, and Memucan, the seven princes of Persia and Media, who had access to the king's presence, and who ranked highest in the kingdom): 
 
 ###### 15 
-"What _shall we_ do to Queen Vashti, according to law, because she did not obey the command of King Ahasuerus _brought to her_ by the eunuchs?" 
+"What shall we do to Queen Vashti, according to law, because she did not obey the command of King Ahasuerus brought to her by the eunuchs?" 
 
 ###### 16 
-And Memucan answered before the king and the princes: "Queen Vashti has not only wronged the king, but also all the princes, and all the people who _are_ in all the provinces of King Ahasuerus. 
+And Memucan answered before the king and the princes: "Queen Vashti has not only wronged the king, but also all the princes, and all the people who are in all the provinces of King Ahasuerus. 
 
 ###### 17 
 For the queen's behavior will become known to all women, so that they will despise their husbands in their eyes, when they report, 'King Ahasuerus commanded Queen Vashti to be brought in before him, but she did not come.' 
 
 ###### 18 
-This very day the _noble_ ladies of Persia and Media will say to all the king's officials that they have heard of the behavior of the queen. Thus _there will be_ excessive contempt and wrath. 
+This very day the noble ladies of Persia and Media will say to all the king's officials that they have heard of the behavior of the queen. Thus there will be excessive contempt and wrath. 
 
 ###### 19 
 If it pleases the king, let a royal decree go out from him, and let it be recorded in the laws of the Persians and the Medes, so that it will not be altered, that Vashti shall come no more before King Ahasuerus; and let the king give her royal position to another who is better than she. 

@@ -27,7 +27,7 @@ up: ['Joel']
 
 
 
-For behold, in those days and at that time when I shall reverse the captivity _and_ restore the fortunes of Judah and Jerusalem, 
+For behold, in those days and at that time when I shall reverse the captivity and restore the fortunes of Judah and Jerusalem, 
 
 
 
@@ -48,7 +48,7 @@ For behold, in those days and at that time when I shall reverse the captivity _a
 
 
 
-I will gather all nations and will bring them down into the Valley of Jehoshaphat, and there will I deal with _and_ execute judgment upon them for [their treatment of] My people and of My heritage Israel, whom they have scattered among the nations and [because] they have divided My land. 
+I will gather all nations and will bring them down into the Valley of Jehoshaphat, and there will I deal with and execute judgment upon them for [their treatment of] My people and of My heritage Israel, whom they have scattered among the nations and [because] they have divided My land. 
 
 
 
@@ -111,7 +111,7 @@ Yes, and what are you to Me, O Tyre and Sidon and all the [five small] divisions
 
 
 
-Because you have taken My silver and My gold and have carried into your temples _and_ palaces My precious treasures, 
+Because you have taken My silver and My gold and have carried into your temples and palaces My precious treasures, 
 
 
 
@@ -279,7 +279,7 @@ Let the nations bestir themselves and come up to the Valley of Jehoshaphat, for 
 
 
 
-Put in the sickle, for the [vintage] harvest is ripe; come, get down _and_ tread the grapes, for the winepress is full; the vats overflow, for the wickedness [of the peoples] is great. 
+Put in the sickle, for the [vintage] harvest is ripe; come, get down and tread the grapes, for the winepress is full; the vats overflow, for the wickedness [of the peoples] is great. 
 
 
 
@@ -342,7 +342,7 @@ The sun and the moon are darkened and the stars withdraw their shining.
 
 
 
-The Lord will thunder _and_ roar from Zion and utter His voice from Jerusalem, and the heavens and the earth shall shake; but the Lord will be a refuge for His people and a stronghold to the children of Israel. 
+The Lord will thunder and roar from Zion and utter His voice from Jerusalem, and the heavens and the earth shall shake; but the Lord will be a refuge for His people and a stronghold to the children of Israel. 
 
 
 
@@ -363,7 +363,7 @@ The Lord will thunder _and_ roar from Zion and utter His voice from Jerusalem, a
 
 
 
-So shall you know, understand, _and_ realize that I am the Lord your God, dwelling in Zion, My holy mountain. Then shall Jerusalem be holy, and strangers _and_ foreigners [not born into the family of God] shall no more pass through it. 
+So shall you know, understand, and realize that I am the Lord your God, dwelling in Zion, My holy mountain. Then shall Jerusalem be holy, and strangers and foreigners [not born into the family of God] shall no more pass through it. 
 
 
 
@@ -384,7 +384,7 @@ So shall you know, understand, _and_ realize that I am the Lord your God, dwelli
 
 
 
-And in that day, the mountains shall drip with fresh juice [of the grape] and the hills shall flow with milk; and all the brooks _and_ riverbeds of Judah shall flow with water, and a fountain shall come forth from the house of the Lord and shall water the Valley of Shittim. 
+And in that day, the mountains shall drip with fresh juice [of the grape] and the hills shall flow with milk; and all the brooks and riverbeds of Judah shall flow with water, and a fountain shall come forth from the house of the Lord and shall water the Valley of Shittim. 
 
 
 
@@ -426,7 +426,7 @@ Egypt shall be a desolation and Edom shall be a desolate wilderness for their vi
 
 
 
-But Judah shall remain _and_ be inhabited forever, and Jerusalem from generation to generation. 
+But Judah shall remain and be inhabited forever, and Jerusalem from generation to generation. 
 
 
 
@@ -447,4 +447,4 @@ But Judah shall remain _and_ be inhabited forever, and Jerusalem from generation
 
 
 
-And I will cleanse _and_ hold as innocent their blood _and_ avenge it, blood which I have not cleansed, held innocent, _and_ avenged, for the Lord dwells in Zion.
+And I will cleanse and hold as innocent their blood and avenge it, blood which I have not cleansed, held innocent, and avenged, for the Lord dwells in Zion.

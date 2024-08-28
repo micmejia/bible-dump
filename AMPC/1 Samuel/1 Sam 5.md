@@ -133,7 +133,7 @@ This is the reason neither the priests of Dagon nor any who come into Dagon's ho
 
 
 
-But the hand of the Lord was heavy upon the people of Ashdod, and He caused [mice to spring up and there was] very deadly destruction and He smote the people with [very painful] tumors _or_ boils, both Ashdod and its territory. 
+But the hand of the Lord was heavy upon the people of Ashdod, and He caused [mice to spring up and there was] very deadly destruction and He smote the people with [very painful] tumors or boils, both Ashdod and its territory. 
 
 
 
@@ -196,7 +196,7 @@ So they sent and gathered all the lords of the Philistines to them and said, Wha
 
 
 
-But after they had carried it to Gath, the hand of the Lord was against the city, causing an exceedingly great panic [at the deaths from the plague], for He afflicted the people of the city, both small and great, and tumors _or_ boils broke out on them. 
+But after they had carried it to Gath, the hand of the Lord was against the city, causing an exceedingly great panic [at the deaths from the plague], for He afflicted the people of the city, both small and great, and tumors or boils broke out on them. 
 
 
 
@@ -259,4 +259,4 @@ So they sent and assembled all the lords of the Philistines and said, Send away 
 
 
 
-The men who had not died were stricken with very painful tumors _or_ boils, and the cry of the city went up to heaven.
+The men who had not died were stricken with very painful tumors or boils, and the cry of the city went up to heaven.

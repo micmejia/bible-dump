@@ -91,7 +91,7 @@ And say, Hear the word of the Lord, O kings of Judah and inhabitants of Jerusale
 
 
 
-Because the people have forsaken Me and have estranged _and_ profaned this place [Jerusalem] by burning incense in it to other gods that neither they nor their fathers nor the kings of Judah ever knew, and because they have filled this place with the blood of innocents 
+Because the people have forsaken Me and have estranged and profaned this place [Jerusalem] by burning incense in it to other gods that neither they nor their fathers nor the kings of Judah ever knew, and because they have filled this place with the blood of innocents 
 
 
 
@@ -112,7 +112,7 @@ Because the people have forsaken Me and have estranged _and_ profaned this place
 
 
 
-And have built the high places of Baal to burn their sons in the fire as burnt offerings to Baal, which I commanded not nor spoke of it, nor did it come into My mind _and_ heart-- 
+And have built the high places of Baal to burn their sons in the fire as burnt offerings to Baal, which I commanded not nor spoke of it, nor did it come into My mind and heart-- 
 
 
 
@@ -154,7 +154,7 @@ Therefore, behold, the days are coming, says the Lord, when this place shall no 
 
 
 
-And I will pour out _and_ make void the counsel _and_ the plans of [the men of] Judah and Jerusalem in this place, and I will cause their people to fall by the sword before their enemies and by the hands of those who seek their lives, and their dead bodies I will give to be food for the birds of the air and for the beasts of the earth. 
+And I will pour out and make void the counsel and the plans of [the men of] Judah and Jerusalem in this place, and I will cause their people to fall by the sword before their enemies and by the hands of those who seek their lives, and their dead bodies I will give to be food for the birds of the air and for the beasts of the earth. 
 
 
 
@@ -175,7 +175,7 @@ And I will pour out _and_ make void the counsel _and_ the plans of [the men of] 
 
 
 
-And I will make this city an astonishment _and_ a horror and a hissing; everyone who passes by it will be horrified and will hiss [in scorn] because of all its plagues _and_ disasters. 
+And I will make this city an astonishment and a horror and a hissing; everyone who passes by it will be horrified and will hiss [in scorn] because of all its plagues and disasters. 
 
 
 
@@ -196,7 +196,7 @@ And I will make this city an astonishment _and_ a horror and a hissing; everyone
 
 
 
-And I will cause them to eat the flesh of their sons and their daughters, and they shall eat each one the flesh of his neighbor _and_ friend in the siege and in the distress with which their enemies and those who seek their lives distress them. 
+And I will cause them to eat the flesh of their sons and their daughters, and they shall eat each one the flesh of his neighbor and friend in the siege and in the distress with which their enemies and those who seek their lives distress them. 
 
 
 
@@ -238,7 +238,7 @@ Then you shall break the bottle in the sight of the men who accompany you,
 
 
 
-And say to them, Thus said the Lord of hosts: Even so will I break this people and this city as one breaks a potter's vessel, so that it cannot be mended. Men will bury in Topheth because there will be no other place for burial _and_ until there is no more room to bury. 
+And say to them, Thus said the Lord of hosts: Even so will I break this people and this city as one breaks a potter's vessel, so that it cannot be mended. Men will bury in Topheth because there will be no other place for burial and until there is no more room to bury. 
 
 
 

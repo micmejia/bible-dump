@@ -91,7 +91,7 @@ This is he who was mentioned by the prophet Isaiah when he said, The voice of on
 
 
 
-This _same_ John's garments were made of camel's hair, and he wore a leather girdle about his waist; and his food was locusts and wild honey. 
+This same John's garments were made of camel's hair, and he wore a leather girdle about his waist; and his food was locusts and wild honey. 
 
 
 
@@ -154,7 +154,7 @@ And they were baptized in the Jordan by him, confessing their sins.
 
 
 
-But when he saw many of the Pharisees and Sadducees coming for baptism, he said to them, You brood of vipers! Who warned you to flee _and_ escape from the wrath _and_ indignation [of God against disobedience] that is coming? 
+But when he saw many of the Pharisees and Sadducees coming for baptism, he said to them, You brood of vipers! Who warned you to flee and escape from the wrath and indignation [of God against disobedience] that is coming? 
 
 
 
@@ -238,7 +238,7 @@ And already the ax is lying at the root of the trees; every tree therefore that 
 
 
 
-I indeed baptize you in (with) water because of repentance [that is, because of your changing your minds for the better, heartily amending your ways, with abhorrence of your past sins]. But He Who is coming after me is mightier than I, Whose sandals I am not worthy _or_ fit to take off _or_ carry; He will baptize you with the Holy Spirit and with fire. 
+I indeed baptize you in (with) water because of repentance [that is, because of your changing your minds for the better, heartily amending your ways, with abhorrence of your past sins]. But He Who is coming after me is mightier than I, Whose sandals I am not worthy or fit to take off or carry; He will baptize you with the Holy Spirit and with fire. 
 
 
 
@@ -259,7 +259,7 @@ I indeed baptize you in (with) water because of repentance [that is, because of 
 
 
 
-His winnowing fan (shovel, fork) is in His hand, and He will thoroughly clear out _and_ clean His threshing floor and gather _and_ store His wheat in His barn, but the chaff He will burn up with fire that cannot be put out. 
+His winnowing fan (shovel, fork) is in His hand, and He will thoroughly clear out and clean His threshing floor and gather and store His wheat in His barn, but the chaff He will burn up with fire that cannot be put out. 
 
 
 

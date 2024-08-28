@@ -12,43 +12,43 @@ next: ['Gal 4']
 ###### 1 
 
 
-O you poor _and_ silly _and_ thoughtless _and_ unreflecting _and_ senseless Galatians! Who has fascinated _or_ bewitched _or_ cast a spell over you, unto whom--right before your very eyes--Jesus Christ (the Messiah) was openly _and_ graphically set forth _and_ portrayed as crucified? 
+O you poor and silly and thoughtless and unreflecting and senseless Galatians! Who has fascinated or bewitched or cast a spell over you, unto whom--right before your very eyes--Jesus Christ (the Messiah) was openly and graphically set forth and portrayed as crucified? 
 
 
 ###### 2 
 
 
-Let me ask you this one question: Did you receive the [Holy] Spirit as the result of obeying the Law _and_ doing its works, or was it by hearing [the message of the Gospel] and believing [it]? [Was it from observing a law of rituals or from a message of faith?] 
+Let me ask you this one question: Did you receive the [Holy] Spirit as the result of obeying the Law and doing its works, or was it by hearing [the message of the Gospel] and believing [it]? [Was it from observing a law of rituals or from a message of faith?] 
 
 
 ###### 3 
 
 
-Are you so foolish _and_ so senseless _and_ so silly? Having begun [your new life spiritually] with the [Holy] Spirit, are you now reaching perfection [by dependence] on the flesh? 
+Are you so foolish and so senseless and so silly? Having begun [your new life spiritually] with the [Holy] Spirit, are you now reaching perfection [by dependence] on the flesh? 
 
 
 ###### 4 
 
 
-Have you suffered so many things _and_ experienced so much all for nothing (to no purpose)--if it really is to no purpose _and_ in vain? 
+Have you suffered so many things and experienced so much all for nothing (to no purpose)--if it really is to no purpose and in vain? 
 
 
 ###### 5 
 
 
-Then does He Who supplies you with His marvelous [Holy] Spirit and works powerfully _and_ miraculously among you do so on [the grounds of your doing] what the Law demands, or because of your believing in _and_ adhering to _and_ trusting in _and_ relying on the message that you heard? 
+Then does He Who supplies you with His marvelous [Holy] Spirit and works powerfully and miraculously among you do so on [the grounds of your doing] what the Law demands, or because of your believing in and adhering to and trusting in and relying on the message that you heard? 
 
 
 ###### 6 
 
 
-Thus Abraham believed in _and_ adhered to _and_ trusted in _and_ relied on God, and it was reckoned _and_ placed to his account _and_ credited as righteousness (as conformity to the divine will in purpose, thought, and action). 
+Thus Abraham believed in and adhered to and trusted in and relied on God, and it was reckoned and placed to his account and credited as righteousness (as conformity to the divine will in purpose, thought, and action). 
 
 
 ###### 7 
 
 
-Know _and_ understand that it is [really] the people [who live] by faith who are [the true] sons of Abraham. 
+Know and understand that it is [really] the people [who live] by faith who are [the true] sons of Abraham. 
 
 
 ###### 8 
@@ -60,19 +60,19 @@ And the Scripture, foreseeing that God would justify (declare righteous, put in 
 ###### 9 
 
 
-So then, those who are people of faith are blessed _and_ made happy _and_ favored by God [as partners in fellowship] with the believing _and_ trusting Abraham. 
+So then, those who are people of faith are blessed and made happy and favored by God [as partners in fellowship] with the believing and trusting Abraham. 
 
 
 ###### 10 
 
 
-And all who depend on the Law [who are seeking to be justified by obedience to the Law of rituals] are under a curse _and_ doomed to disappointment _and_ destruction, for it is written in the Scriptures, Cursed (accursed, devoted to destruction, doomed to eternal punishment) be everyone who does not continue to abide (live and remain) by all the precepts _and_ commands written in the Book of the Law and to practice them. 
+And all who depend on the Law [who are seeking to be justified by obedience to the Law of rituals] are under a curse and doomed to disappointment and destruction, for it is written in the Scriptures, Cursed (accursed, devoted to destruction, doomed to eternal punishment) be everyone who does not continue to abide (live and remain) by all the precepts and commands written in the Book of the Law and to practice them. 
 
 
 ###### 11 
 
 
-Now it is evident that no person is justified (declared righteous and brought into right standing with God) through the Law, for the Scripture says, The man in right standing with God [the just, the righteous] shall live by _and_ out of faith _and_ he who through _and_ by faith is declared righteous _and_ in right standing with God shall live. 
+Now it is evident that no person is justified (declared righteous and brought into right standing with God) through the Law, for the Scripture says, The man in right standing with God [the just, the righteous] shall live by and out of faith and he who through and by faith is declared righteous and in right standing with God shall live. 
 
 
 ###### 12 
@@ -96,19 +96,19 @@ To the end that through [their receiving] Christ Jesus, the blessing [promised] 
 ###### 15 
 
 
-To speak in terms of human relations, brethren, [if] even a man makes a last will and testament (a merely human covenant), no one sets it aside _or_ makes it void _or_ adds to it when once it has been drawn up _and_ signed (ratified, confirmed). 
+To speak in terms of human relations, brethren, [if] even a man makes a last will and testament (a merely human covenant), no one sets it aside or makes it void or adds to it when once it has been drawn up and signed (ratified, confirmed). 
 
 
 ###### 16 
 
 
-Now the promises (covenants, agreements) were decreed _and_ made to Abraham and his Seed (his Offspring, his Heir). He [God] does not say, And to seeds (descendants, heirs), as if referring to many persons, but, And to your Seed (your Descendant, your Heir), obviously referring to one individual, Who is [none other than] Christ (the Messiah). 
+Now the promises (covenants, agreements) were decreed and made to Abraham and his Seed (his Offspring, his Heir). He [God] does not say, And to seeds (descendants, heirs), as if referring to many persons, but, And to your Seed (your Descendant, your Heir), obviously referring to one individual, Who is [none other than] Christ (the Messiah). 
 
 
 ###### 17 
 
 
-This is my argument: The Law, which began 430 years after the covenant [concerning the coming Messiah], does not _and_ cannot annul the covenant previously established (ratified) by God, so as to abolish the promise _and_ make it void. 
+This is my argument: The Law, which began 430 years after the covenant [concerning the coming Messiah], does not and cannot annul the covenant previously established (ratified) by God, so as to abolish the promise and make it void. 
 
 
 ###### 18 
@@ -120,25 +120,25 @@ For if the inheritance [of the promise depends on observing] the Law [as these f
 ###### 19 
 
 
-What then was the purpose of the Law? It was added [later on, after the promise, to disclose and expose to men their guilt] because of transgressions _and_ [to make men more conscious of the sinfulness] of sin; and it was intended to be in effect until the Seed (the Descendant, the Heir) should come, to _and_ concerning Whom the promise had been made. And it [the Law] was arranged _and_ ordained _and_ appointed through the instrumentality of angels [and was given] by the hand (in the person) of a go-between [Moses, an intermediary person between God and man]. 
+What then was the purpose of the Law? It was added [later on, after the promise, to disclose and expose to men their guilt] because of transgressions and [to make men more conscious of the sinfulness] of sin; and it was intended to be in effect until the Seed (the Descendant, the Heir) should come, to and concerning Whom the promise had been made. And it [the Law] was arranged and ordained and appointed through the instrumentality of angels [and was given] by the hand (in the person) of a go-between [Moses, an intermediary person between God and man]. 
 
 
 ###### 20 
 
 
-Now a go-between (intermediary) has to do with _and_ implies more than one party [there can be no mediator with just one person]. Yet God is [only] one Person [and He was the sole party in giving that promise to Abraham. But the Law was a contract between two, God and Israel; its validity was dependent on both]. 
+Now a go-between (intermediary) has to do with and implies more than one party [there can be no mediator with just one person]. Yet God is [only] one Person [and He was the sole party in giving that promise to Abraham. But the Law was a contract between two, God and Israel; its validity was dependent on both]. 
 
 
 ###### 21 
 
 
-Is the Law then contrary _and_ opposed to the promises of God? Of course not! For if a Law had been given which could confer [spiritual] life, then righteousness _and_ right standing with God would certainly have come by Law. 
+Is the Law then contrary and opposed to the promises of God? Of course not! For if a Law had been given which could confer [spiritual] life, then righteousness and right standing with God would certainly have come by Law. 
 
 
 ###### 22 
 
 
-But the Scriptures [picture all mankind as sinners] shut up _and_ imprisoned by sin, so that [the inheritance, blessing] which was promised through faith in Jesus Christ (the Messiah) might be given (released, delivered, and committed) to [all] those who believe [who adhere to and trust in and rely on Him]. 
+But the Scriptures [picture all mankind as sinners] shut up and imprisoned by sin, so that [the inheritance, blessing] which was promised through faith in Jesus Christ (the Messiah) might be given (released, delivered, and committed) to [all] those who believe [who adhere to and trust in and rely on Him]. 
 
 
 ###### 23 
@@ -150,7 +150,7 @@ Now before the faith came, we were perpetually guarded under the Law, kept in cu
 ###### 24 
 
 
-So that the Law served [to us Jews] as our trainer [our guardian, our guide to Christ, to lead us] until Christ [came], that we might be justified (declared righteous, put in right standing with God) by _and_ through faith. 
+So that the Law served [to us Jews] as our trainer [our guardian, our guide to Christ, to lead us] until Christ [came], that we might be justified (declared righteous, put in right standing with God) by and through faith. 
 
 
 ###### 25 

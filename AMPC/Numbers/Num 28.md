@@ -49,7 +49,7 @@ And the Lord said to Moses,
 
 
 
-Command the Israelites, saying, My offering, My food for My offerings made by fire, My sweet _and_ soothing odor you shall be careful to offer to Me at its proper time. 
+Command the Israelites, saying, My offering, My food for My offerings made by fire, My sweet and soothing odor you shall be careful to offer to Me at its proper time. 
 
 
 
@@ -70,7 +70,7 @@ Command the Israelites, saying, My offering, My food for My offerings made by fi
 
 
 
-And you shall say to the people, This is the offering made by fire which you shall offer to the Lord: two male lambs a year old without spot _or_ blemish, two day by day, for a continual burnt offering. 
+And you shall say to the people, This is the offering made by fire which you shall offer to the Lord: two male lambs a year old without spot or blemish, two day by day, for a continual burnt offering. 
 
 
 
@@ -133,7 +133,7 @@ Also a tenth of an ephah of flour for a cereal offering, mixed with a fourth of 
 
 
 
-It is a continual burnt offering which was ordained in Mount Sinai for a sweet _and_ soothing odor, an offering made by fire to the Lord. 
+It is a continual burnt offering which was ordained in Mount Sinai for a sweet and soothing odor, an offering made by fire to the Lord. 
 
 
 
@@ -175,7 +175,7 @@ Its drink offering shall be a fourth of a hin for each lamb; in the Holy Place y
 
 
 
-And the other lamb you shall offer in the evening; like the cereal offering of the morning and like its drink offering, you shall offer it, an offering made by fire, a sweet _and_ soothing odor to the Lord. 
+And the other lamb you shall offer in the evening; like the cereal offering of the morning and like its drink offering, you shall offer it, an offering made by fire, a sweet and soothing odor to the Lord. 
 
 
 
@@ -196,7 +196,7 @@ And the other lamb you shall offer in the evening; like the cereal offering of t
 
 
 
-And on the Sabbath day two male lambs a year old without spot _or_ blemish, and two-tenths of an ephah of flour for a cereal offering, mixed with oil, and its drink offering. 
+And on the Sabbath day two male lambs a year old without spot or blemish, and two-tenths of an ephah of flour for a cereal offering, mixed with oil, and its drink offering. 
 
 
 
@@ -238,7 +238,7 @@ This is the burnt offering of every Sabbath, besides the continual burnt offerin
 
 
 
-And at the beginning of your months you shall offer a burnt offering to the Lord: two young bulls, one ram, seven male lambs a year old without spot _or_ blemish; 
+And at the beginning of your months you shall offer a burnt offering to the Lord: two young bulls, one ram, seven male lambs a year old without spot or blemish; 
 
 
 
@@ -280,7 +280,7 @@ And three-tenths of an ephah of fine flour for a cereal offering, mixed with oil
 
 
 
-And a tenth part of fine flour mixed with oil as a cereal offering, for each lamb, for a burnt offering of a sweet _and_ pleasant fragrance, an offering made by fire to the Lord. 
+And a tenth part of fine flour mixed with oil as a cereal offering, for each lamb, for a burnt offering of a sweet and pleasant fragrance, an offering made by fire to the Lord. 
 
 
 
@@ -511,7 +511,7 @@ You shall offer these in addition to the burnt offering of the morning, which is
 
 
 
-In this way you shall offer daily for seven days the food of an offering made by fire, a sweet _and_ soothing odor to the Lord; it shall be offered in addition to the continual burnt offering and its drink offering. 
+In this way you shall offer daily for seven days the food of an offering made by fire, a sweet and soothing odor to the Lord; it shall be offered in addition to the continual burnt offering and its drink offering. 
 
 
 
@@ -532,7 +532,7 @@ In this way you shall offer daily for seven days the food of an offering made by
 
 
 
-And on the seventh day you shall have a holy [summoned] assembly; you shall do no work befitting a slave _or_ a servant. 
+And on the seventh day you shall have a holy [summoned] assembly; you shall do no work befitting a slave or a servant. 
 
 
 
@@ -574,7 +574,7 @@ Also in the day of the firstfruits, when you offer a cereal offering of new grai
 
 
 
-But you shall offer the burnt offering for a sweet, pleasing, _and_ soothing fragrance to the Lord: two young bulls, one ram, seven male lambs a year old, 
+But you shall offer the burnt offering for a sweet, pleasing, and soothing fragrance to the Lord: two young bulls, one ram, seven male lambs a year old, 
 
 
 

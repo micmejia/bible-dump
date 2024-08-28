@@ -36,7 +36,7 @@ These are they who have not defiled themselves by relations with women, for they
 ###### 5 
 
 
-No lie was found to be upon their lips, for they are blameless (spotless, untainted, without blemish) _before the throne of God_. 
+No lie was found to be upon their lips, for they are blameless (spotless, untainted, without blemish) before the throne of God. 
 
 
 ###### 6 
@@ -48,7 +48,7 @@ Then I saw another angel flying in midair, with an eternal Gospel (good news) to
 ###### 7 
 
 
-And he cried with a mighty voice, Revere God and give Him glory (honor and praise in worship), for the hour of His judgment has arrived. Fall down before Him; pay Him homage _and_ adoration _and_ worship Him Who created heaven and earth, the sea and the springs (fountains) of water. 
+And he cried with a mighty voice, Revere God and give Him glory (honor and praise in worship), for the hour of His judgment has arrived. Fall down before Him; pay Him homage and adoration and worship Him Who created heaven and earth, the sea and the springs (fountains) of water. 
 
 
 ###### 8 
@@ -66,7 +66,7 @@ Then another angel, a third, followed them, saying with a mighty voice, Whoever 
 ###### 10 
 
 
-He too shall [have to] drink of the wine of God's indignation _and_ wrath, poured undiluted into the cup of His anger; and he shall be tormented with fire and brimstone in the presence of the holy angels and in the presence of the Lamb. 
+He too shall [have to] drink of the wine of God's indignation and wrath, poured undiluted into the cup of His anger; and he shall be tormented with fire and brimstone in the presence of the holy angels and in the presence of the Lamb. 
 
 
 ###### 11 
@@ -114,13 +114,13 @@ Then another angel came out of the temple [sanctuary] in heaven, and he also car
 ###### 18 
 
 
-And another angel came forth from the altar, [the angel] who has authority _and_ power over fire, and he called with a loud cry to him who had the sharp scythe (sickle), Put forth your scythe and reap the fruitage of the vine of the earth, for its grapes are entirely ripe. 
+And another angel came forth from the altar, [the angel] who has authority and power over fire, and he called with a loud cry to him who had the sharp scythe (sickle), Put forth your scythe and reap the fruitage of the vine of the earth, for its grapes are entirely ripe. 
 
 
 ###### 19 
 
 
-So the angel swung his scythe on the earth and stripped the grapes _and_ gathered the vintage from the vines of the earth and cast it into the huge winepress of God's indignation _and_ wrath. 
+So the angel swung his scythe on the earth and stripped the grapes and gathered the vintage from the vines of the earth and cast it into the huge winepress of God's indignation and wrath. 
 
 
 ###### 20 

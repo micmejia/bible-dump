@@ -70,7 +70,7 @@ And he sent Eliakim, who was over the [royal] household, and Shebna the secretar
 
 
 
-And they said to him, Thus says Hezekiah: This day is a day of trouble _and_ distress and of rebuke and of disgrace; for children have come to the birth, and there is no strength to bring them forth. 
+And they said to him, Thus says Hezekiah: This day is a day of trouble and distress and of rebuke and of disgrace; for children have come to the birth, and there is no strength to bring them forth. 
 
 
 
@@ -91,7 +91,7 @@ And they said to him, Thus says Hezekiah: This day is a day of trouble _and_ dis
 
 
 
-It may be that the Lord your God will hear the words of the Rabshakeh, whom the king of Assyria, his master, has sent to mock, reproach, insult, _and_ defy the living God, and will rebuke the words which the Lord your God has heard. Therefore lift up your prayer for the remnant [of His people] that is left. 
+It may be that the Lord your God will hear the words of the Rabshakeh, whom the king of Assyria, his master, has sent to mock, reproach, insult, and defy the living God, and will rebuke the words which the Lord your God has heard. Therefore lift up your prayer for the remnant [of His people] that is left. 
 
 
 
@@ -133,7 +133,7 @@ So the servants of King Hezekiah came to Isaiah.
 
 
 
-And Isaiah said to them, You shall say to your master, Thus says the Lord: Do not be afraid because of the words which you have heard, with which the servants of the king of Assyria have reviled _and_ blasphemed Me. 
+And Isaiah said to them, You shall say to your master, Thus says the Lord: Do not be afraid because of the words which you have heard, with which the servants of the king of Assyria have reviled and blasphemed Me. 
 
 
 
@@ -364,7 +364,7 @@ O Lord of hosts, God of Israel, Who [in symbol] are enthroned above the cherubim
 
 
 
-Incline Your ear, O Lord, and hear; open Your eyes, O Lord, and see; and hear all the words of Sennacherib which he has sent to mock, reproach, insult, _and_ defy the living God. 
+Incline Your ear, O Lord, and hear; open Your eyes, O Lord, and see; and hear all the words of Sennacherib which he has sent to mock, reproach, insult, and defy the living God. 
 
 
 
@@ -511,7 +511,7 @@ Whom have you mocked and reviled [insulted and blasphemed]? And against Whom hav
 
 
 
-By your servants you have mocked, reproached, insulted, _and_ defied the Lord, and you have said, With my many chariots I have gone up to the height of the mountains, to the inner recesses of Lebanon. I cut down its tallest cedars _and_ its choicest cypress trees; I came to its remotest height, its most luxuriant _and_ dense forest; 
+By your servants you have mocked, reproached, insulted, and defied the Lord, and you have said, With my many chariots I have gone up to the height of the mountains, to the inner recesses of Lebanon. I cut down its tallest cedars and its choicest cypress trees; I came to its remotest height, its most luxuriant and dense forest; 
 
 
 
@@ -574,7 +574,7 @@ I dug wells and drank foreign waters, and with the sole of my feet I have dried 
 
 
 
-Therefore their inhabitants had little power, they were dismayed and confounded; they were like the grass of the field and like the green herb, like the grass on the housetops and like a field of grain blasted before it is grown _or_ is in stalk. 
+Therefore their inhabitants had little power, they were dismayed and confounded; they were like the grass of the field and like the green herb, like the grass on the housetops and like a field of grain blasted before it is grown or is in stalk. 
 
 
 
@@ -616,7 +616,7 @@ But I [the Lord] know your sitting down and your going out and your coming in an
 
 
 
-Because your raging against Me and your arrogance _and_ careless ease have come to My ears, therefore will I put My hook in your nose and My bridle in your lips, and I will turn you back by the way you came. 
+Because your raging against Me and your arrogance and careless ease have come to My ears, therefore will I put My hook in your nose and My bridle in your lips, and I will turn you back by the way you came. 
 
 
 
@@ -805,4 +805,4 @@ So Sennacherib king of Assyria departed and returned and dwelt at Nineveh.
 
 
 
-And as he was worshiping in the house of Nisroch his god, Adrammelech and Sharezer his sons killed him with the sword, and they escaped into the land of Armenia _or_ Ararat. And Esarhaddon his son reigned in his stead.
+And as he was worshiping in the house of Nisroch his god, Adrammelech and Sharezer his sons killed him with the sword, and they escaped into the land of Armenia or Ararat. And Esarhaddon his son reigned in his stead.

@@ -196,7 +196,7 @@ And as for the bad figs, which are so bad that they cannot be eaten, surely thus
 
 
 
-I will even give them up to be a dismay _and_ a horror _and_ to be tossed to and fro among all the kingdoms of the earth for evil, to be a reproach, a byword _or_ proverb, a taunt, and a curse in all places where I will drive them. 
+I will even give them up to be a dismay and a horror and to be tossed to and fro among all the kingdoms of the earth for evil, to be a reproach, a byword or proverb, a taunt, and a curse in all places where I will drive them. 
 
 
 

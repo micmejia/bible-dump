@@ -24,13 +24,13 @@ And Abraham gave to him a tenth portion of all [the spoil]. He is primarily, as 
 ###### 3 
 
 
-Without [record of] father or mother or ancestral line, neither with beginning of days nor ending of life, but, resembling the Son of God, he continues to be a priest without interruption _and_ without successor. 
+Without [record of] father or mother or ancestral line, neither with beginning of days nor ending of life, but, resembling the Son of God, he continues to be a priest without interruption and without successor. 
 
 
 ###### 4 
 
 
-Now observe _and_ consider how great [a personage] this was to whom even Abraham the patriarch gave a tenth [the topmost or the pick of the heap] of the spoils. 
+Now observe and consider how great [a personage] this was to whom even Abraham the patriarch gave a tenth [the topmost or the pick of the heap] of the spoils. 
 
 
 ###### 5 
@@ -72,7 +72,7 @@ For he was still in the loins of his forefather [Abraham] when Melchizedek met h
 ###### 11 
 
 
-Now if perfection (a perfect fellowship between God and the worshiper) had been attainable by the Levitical priesthood--for under it the people were given the Law--why was it further necessary that there should arise another _and_ different kind of Priest, one after the order of Melchizedek, rather than one appointed after the order _and_ rank of Aaron? 
+Now if perfection (a perfect fellowship between God and the worshiper) had been attainable by the Levitical priesthood--for under it the people were given the Law--why was it further necessary that there should arise another and different kind of Priest, one after the order of Melchizedek, rather than one appointed after the order and rank of Aaron? 
 
 
 ###### 12 
@@ -102,7 +102,7 @@ And this becomes more plainly evident when another Priest arises Who bears the l
 ###### 16 
 
 
-Who has been constituted a Priest, not on the basis of a bodily legal requirement [an externally imposed command concerning His physical ancestry], but on the basis of the power of an endless _and_ indestructible Life. 
+Who has been constituted a Priest, not on the basis of a bodily legal requirement [an externally imposed command concerning His physical ancestry], but on the basis of the power of an endless and indestructible Life. 
 
 
 ###### 17 
@@ -114,7 +114,7 @@ For it is witnessed of Him, You are a Priest forever after the order (with the r
 ###### 18 
 
 
-So a previous physical regulation _and_ command is cancelled because of its weakness _and_ ineffectiveness and uselessness-- 
+So a previous physical regulation and command is cancelled because of its weakness and ineffectiveness and uselessness-- 
 
 
 ###### 19 
@@ -132,7 +132,7 @@ And it was not without the taking of an oath [that Christ was made Priest],
 ###### 21 
 
 
-For those who formerly became priests received their office without its being confirmed by the taking of an oath by God, but this One was designated _and_ addressed _and_ saluted with an oath, The Lord has sworn and will not regret it _or_ change His mind, You are a Priest forever _according to the order of Melchizedek_. 
+For those who formerly became priests received their office without its being confirmed by the taking of an oath by God, but this One was designated and addressed and saluted with an oath, The Lord has sworn and will not regret it or change His mind, You are a Priest forever according to the order of Melchizedek. 
 
 
 ###### 22 
@@ -156,7 +156,7 @@ But He holds His priesthood unchangeably, because He lives on forever.
 ###### 25 
 
 
-Therefore He is able also to save to the uttermost (completely, perfectly, finally, and for all time and eternity) those who come to God through Him, since He is always living to make petition to God _and_ intercede with Him _and_ intervene for them. 
+Therefore He is able also to save to the uttermost (completely, perfectly, finally, and for all time and eternity) those who come to God through Him, since He is always living to make petition to God and intercede with Him and intervene for them. 
 
 
 ###### 26 

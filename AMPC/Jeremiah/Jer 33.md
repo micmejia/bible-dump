@@ -70,7 +70,7 @@ Thus says the Lord Who made [the earth], the Lord Who formed it to establish it-
 
 
 
-Call to Me and I will answer you and show you great and mighty things, fenced in _and_ hidden, which you do not know (do not distinguish and recognize, have knowledge of and understand). 
+Call to Me and I will answer you and show you great and mighty things, fenced in and hidden, which you do not know (do not distinguish and recognize, have knowledge of and understand). 
 
 
 
@@ -175,7 +175,7 @@ And I will cause the captivity of Judah and the captivity of Israel to be revers
 
 
 
-And I will cleanse them from all the guilt _and_ iniquity by which they have sinned against Me, and I will forgive all their guilt _and_ iniquities by which they have sinned and rebelled against Me. 
+And I will cleanse them from all the guilt and iniquity by which they have sinned against Me, and I will forgive all their guilt and iniquities by which they have sinned and rebelled against Me. 
 
 
 
@@ -196,7 +196,7 @@ And I will cleanse them from all the guilt _and_ iniquity by which they have sin
 
 
 
-And [Jerusalem] shall be to Me a name of joy, a praise and a glory before all the nations of the earth that hear of all the good I do for it, and they shall fear and tremble because of all the good and all the peace, prosperity, security, _and_ stability I provide for it. 
+And [Jerusalem] shall be to Me a name of joy, a praise and a glory before all the nations of the earth that hear of all the good I do for it, and they shall fear and tremble because of all the good and all the peace, prosperity, security, and stability I provide for it. 
 
 
 
@@ -238,7 +238,7 @@ Thus says the Lord: Yet again there shall be heard in this place of which you sa
 
 
 
-[There shall be heard again] the voice of joy and the voice of gladness, the voice of the bridegroom and the voice of the bride, the voices of those who sing as they bring sacrifices of thanksgiving into the house of the Lord, Give praise _and_ thanks to the Lord of hosts, for the Lord is good; for His mercy _and_ kindness _and_ steadfast love endure forever! For I will cause the captivity of the land to be reversed _and_ return to be as it was at first, says the Lord. 
+[There shall be heard again] the voice of joy and the voice of gladness, the voice of the bridegroom and the voice of the bride, the voices of those who sing as they bring sacrifices of thanksgiving into the house of the Lord, Give praise and thanks to the Lord of hosts, for the Lord is good; for His mercy and kindness and steadfast love endure forever! For I will cause the captivity of the land to be reversed and return to be as it was at first, says the Lord. 
 
 
 
@@ -259,7 +259,7 @@ Thus says the Lord: Yet again there shall be heard in this place of which you sa
 
 
 
-Thus says the Lord of hosts: In this place which is desolate, without man and without beast, and in all its cities, there shall again be dwellings _and_ pastures of shepherds resting their flocks. 
+Thus says the Lord of hosts: In this place which is desolate, without man and without beast, and in all its cities, there shall again be dwellings and pastures of shepherds resting their flocks. 
 
 
 
@@ -553,4 +553,4 @@ Thus says the Lord: If My covenant with day and night does not stand, and if I h
 
 
 
-Then will I also cast away the descendants of Jacob and David My servant and will not choose one of his offspring to be ruler over the descendants of Abraham, Isaac, and Jacob. For I will cause their captivity to be reversed, and I will have mercy, kindness, _and_ steadfast love on _and_ for them.
+Then will I also cast away the descendants of Jacob and David My servant and will not choose one of his offspring to be ruler over the descendants of Abraham, Isaac, and Jacob. For I will cause their captivity to be reversed, and I will have mercy, kindness, and steadfast love on and for them.

@@ -28,7 +28,7 @@ next: ['Exod 4']
 
 
 
-Now Moses kept the flock of Jethro his father-in-law, the priest of Midian; and he led the flock to the back _or_ west side of the wilderness and came to Horeb _or_ Sinai, the mountain of God. 
+Now Moses kept the flock of Jethro his father-in-law, the priest of Midian; and he led the flock to the back or west side of the wilderness and came to Horeb or Sinai, the mountain of God. 
 
 
 
@@ -154,7 +154,7 @@ Also He said, I am the God of your father, the God of Abraham, the God of Isaac,
 
 
 
-And the Lord said, I have surely seen the affliction of My people who are in Egypt, and have heard their cry because of their taskmasters _and_ oppressors; for I know their sorrows _and_ sufferings _and_ trials. 
+And the Lord said, I have surely seen the affliction of My people who are in Egypt, and have heard their cry because of their taskmasters and oppressors; for I know their sorrows and sufferings and trials. 
 
 
 
@@ -175,7 +175,7 @@ And the Lord said, I have surely seen the affliction of My people who are in Egy
 
 
 
-And I have come down to deliver them out of the hand _and_ power of the Egyptians and to bring them up out of that land to a land good and large, a land flowing with milk and honey [a land of plenty]--to the place of the Canaanite, the Hittite, the Amorite, the Perizzite, the Hivite, and the Jebusite. 
+And I have come down to deliver them out of the hand and power of the Egyptians and to bring them up out of that land to a land good and large, a land flowing with milk and honey [a land of plenty]--to the place of the Canaanite, the Hittite, the Amorite, the Perizzite, the Hivite, and the Jebusite. 
 
 
 
@@ -301,7 +301,7 @@ And Moses said to God, Behold, when I come to the Israelites and say to them, Th
 
 
 
-And God said to Moses, I Am Who I Am _and_ What I Am, _and_ I Will Be What I Will Be; and He said, You shall say this to the Israelites: I Am has sent me to you! 
+And God said to Moses, I Am Who I Am and What I Am, and I Will Be What I Will Be; and He said, You shall say this to the Israelites: I Am has sent me to you! 
 
 
 
@@ -385,7 +385,7 @@ And I have declared that I will bring you up out of the affliction of Egypt to t
 
 
 
-And [the elders] shall believe _and_ obey your voice; and you shall go, you and the elders of Israel, to the king of Egypt and you shall say to him, The Lord, the God of the Hebrews, has met with us; and now let us go, we beseech you, three days' journey into the wilderness, that we may sacrifice to the Lord our God. 
+And [the elders] shall believe and obey your voice; and you shall go, you and the elders of Israel, to the king of Egypt and you shall say to him, The Lord, the God of the Hebrews, has met with us; and now let us go, we beseech you, three days' journey into the wilderness, that we may sacrifice to the Lord our God. 
 
 
 
@@ -448,7 +448,7 @@ So I will stretch out My hand and smite Egypt with all My wonders which I will d
 
 
 
-And I will give this people favor _and_ respect in the sight of the Egyptians; and it shall be that when you go, you shall not go empty-handed. 
+And I will give this people favor and respect in the sight of the Egyptians; and it shall be that when you go, you shall not go empty-handed. 
 
 
 

@@ -112,7 +112,7 @@ And he commanded them, Say this to my lord Esau: Your servant Jacob says this: I
 
 
 
-And I have oxen, donkeys, flocks, menservants, and women servants; and I have sent to tell my lord, that I may find mercy _and_ kindness in your sight. 
+And I have oxen, donkeys, flocks, menservants, and women servants; and I have sent to tell my lord, that I may find mercy and kindness in your sight. 
 
 
 
@@ -217,7 +217,7 @@ Jacob said, O God of my father Abraham and God of my father Isaac, the Lord Who 
 
 
 
-I am not worthy of the least of all the mercy _and_ loving-kindness and all the faithfulness which You have shown to Your servant, for with [only] my staff I passed over this Jordan [long ago], and now I have become two companies. 
+I am not worthy of the least of all the mercy and loving-kindness and all the faithfulness which You have shown to Your servant, for with [only] my staff I passed over this Jordan [long ago], and now I have become two companies. 
 
 
 
@@ -595,7 +595,7 @@ Then He said, Let Me go, for day is breaking. But [Jacob] said, I will not let Y
 
 
 
-And He said, Your name shall be called no more Jacob [supplanter], but Israel [contender with God]; for you have contended _and_ have power with God and with men and have prevailed. 
+And He said, Your name shall be called no more Jacob [supplanter], but Israel [contender with God]; for you have contended and have power with God and with men and have prevailed. 
 
 
 
@@ -637,7 +637,7 @@ Then Jacob asked Him, Tell me, I pray You, what [in contrast] is Your name? But 
 
 
 
-And Jacob called the name of the place Peniel [the face of God], saying, For I have seen God face to face, and my life is spared _and_ not snatched away. 
+And Jacob called the name of the place Peniel [the face of God], saying, For I have seen God face to face, and my life is spared and not snatched away. 
 
 
 

@@ -133,7 +133,7 @@ This is so that the Israelites, rather than offer their sacrifices [to idols] in
 
 
 
-And the priest shall dash the blood on the altar of the Lord at the door of the Tent of Meeting and burn the fat for a sweet _and_ satisfying fragrance to the Lord. 
+And the priest shall dash the blood on the altar of the Lord at the door of the Tent of Meeting and burn the fat for a sweet and satisfying fragrance to the Lord. 
 
 
 
@@ -154,7 +154,7 @@ And the priest shall dash the blood on the altar of the Lord at the door of the 
 
 
 
-So they shall no more offer their sacrifices to goatlike gods _or_ demons _or_ field spirits after which they have played the harlot. This shall be a statute forever to them throughout their generations. 
+So they shall no more offer their sacrifices to goatlike gods or demons or field spirits after which they have played the harlot. This shall be a statute forever to them throughout their generations. 
 
 
 

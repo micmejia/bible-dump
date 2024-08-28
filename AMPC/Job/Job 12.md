@@ -322,7 +322,7 @@ Behold, He tears down, and it cannot be built again; He shuts a man in, and none
 
 
 
-He withholds the waters, and the land dries up; again, He sends forth [rains], and they overwhelm the land _or_ transform it. 
+He withholds the waters, and the land dries up; again, He sends forth [rains], and they overwhelm the land or transform it. 
 
 
 
@@ -364,7 +364,7 @@ With Him are might and wisdom; the deceived and the deceiver are His [and in His
 
 
 
-He leads [great and scheming] counselors away stripped _and_ barefoot and makes the judges fools [in human estimation, by overthrowing their plans]. 
+He leads [great and scheming] counselors away stripped and barefoot and makes the judges fools [in human estimation, by overthrowing their plans]. 
 
 
 
@@ -427,7 +427,7 @@ He leads away priests as spoil, and men firmly seated He overturns.
 
 
 
-He deprives of speech those who are trusted and takes away the discernment _and_ discretion of the aged. 
+He deprives of speech those who are trusted and takes away the discernment and discretion of the aged. 
 
 
 
@@ -469,7 +469,7 @@ He pours contempt on princes and loosens the belt of the strong [disabling them,
 
 
 
-He uncovers deep things out of darkness and brings into light black gloom _and_ the shadow of death. 
+He uncovers deep things out of darkness and brings into light black gloom and the shadow of death. 
 
 
 
@@ -511,7 +511,7 @@ He makes nations great, and He destroys them; He enlarges nations [and then stra
 
 
 
-He takes away understanding from the leaders of the people of the land _and_ of the earth, and causes them to wander in a wilderness where there is no path. 
+He takes away understanding from the leaders of the people of the land and of the earth, and causes them to wander in a wilderness where there is no path. 
 
 
 
@@ -532,4 +532,4 @@ He takes away understanding from the leaders of the people of the land _and_ of 
 
 
 
-They grope in the dark without light, and He makes them to stagger _and_ wander like a drunken man.
+They grope in the dark without light, and He makes them to stagger and wander like a drunken man.

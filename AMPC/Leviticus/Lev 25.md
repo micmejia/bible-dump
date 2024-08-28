@@ -175,7 +175,7 @@ For your domestic animals also and for the [wild] beasts in your land; all its y
 
 
 
-And you shall number seven sabbaths _or_ weeks of years for you, seven times seven years, so the total time of the seven weeks of years shall be forty-nine years. 
+And you shall number seven sabbaths or weeks of years for you, seven times seven years, so the total time of the seven weeks of years shall be forty-nine years. 
 
 
 
@@ -364,7 +364,7 @@ If the years [to the next Jubilee] are many, you may increase the price, and if 
 
 
 
-You shall not oppress _and_ wrong one another, but you shall [reverently] fear your God. For I am the Lord your God. 
+You shall not oppress and wrong one another, but you shall [reverently] fear your God. For I am the Lord your God. 
 
 
 
@@ -385,7 +385,7 @@ You shall not oppress _and_ wrong one another, but you shall [reverently] fear y
 
 
 
-Therefore you shall do _and_ give effect to My statutes and keep My ordinances and perform them, and you will dwell in the land in safety. 
+Therefore you shall do and give effect to My statutes and keep My ordinances and perform them, and you will dwell in the land in safety. 
 
 
 
@@ -553,7 +553,7 @@ If your brother has become poor and has sold some of his property, if any of his
 
 
 
-And if the man has no one to redeem his property, and he himself has become more prosperous _and_ has enough to redeem it, 
+And if the man has no one to redeem his property, and he himself has become more prosperous and has enough to redeem it, 
 
 
 
@@ -637,7 +637,7 @@ If a man sells a dwelling house in a fortified city, he may redeem it within a w
 
 
 
-And if it is not redeemed within a full year, then the house that is in the fortified city shall be made sure, permanently _and_ without limitations, for him who bought it, throughout his generations. It shall not go free in the Year of Jubilee. 
+And if it is not redeemed within a full year, then the house that is in the fortified city shall be made sure, permanently and without limitations, for him who bought it, throughout his generations. It shall not go free in the Year of Jubilee. 
 
 
 
@@ -721,7 +721,7 @@ But if a house is not redeemed by a Levite, the sold house in the city they poss
 
 
 
-But the field of unenclosed _or_ pasture lands of their cities may not be sold; it is their perpetual possession. 
+But the field of unenclosed or pasture lands of their cities may not be sold; it is their perpetual possession. 
 
 
 
@@ -1036,7 +1036,7 @@ After he is sold he may be redeemed. One of his brethren may redeem him:
 
 
 
-Either his uncle or his uncle's son may redeem him, or a near kinsman may redeem him; or if he has enough _and_ is able, he may redeem himself. 
+Either his uncle or his uncle's son may redeem him, or a near kinsman may redeem him; or if he has enough and is able, he may redeem himself. 
 
 
 
@@ -1141,7 +1141,7 @@ And as a servant hired year by year shall he deal with him; he shall not rule ov
 
 
 
-And if he is not redeemed during these years _and_ by these means, then he shall go free in the Year of Jubilee, he and his children with him. 
+And if he is not redeemed during these years and by these means, then he shall go free in the Year of Jubilee, he and his children with him. 
 
 
 

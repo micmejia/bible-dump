@@ -13,10 +13,10 @@ next: ['Josh 14']
 Now Joshua was old, advanced in years. And the Lord said to him: "You are old, advanced in years, and there remains very much land yet to be possessed. 
 
 ###### 2 
-This is the land that yet remains: all the territory of the Philistines and all _that of_ the Geshurites, 
+This is the land that yet remains: all the territory of the Philistines and all that of the Geshurites, 
 
 ###### 3 
-from Sihor, which _is_ east of Egypt, as far as the border of Ekron northward (_which_ is counted as Canaanite); the five lords of the Philistines--the Gazites, the Ashdodites, the Ashkelonites, the Gittites, and the Ekronites; also the Avites; 
+from Sihor, which is east of Egypt, as far as the border of Ekron northward (which is counted as Canaanite); the five lords of the Philistines--the Gazites, the Ashdodites, the Ashkelonites, the Gittites, and the Ekronites; also the Avites; 
 
 ###### 4 
 from the south, all the land of the Canaanites, and Mearah that belongs to the Sidonians as far as Aphek, to the border of the Amorites; 
@@ -25,7 +25,7 @@ from the south, all the land of the Canaanites, and Mearah that belongs to the S
 the land of the Gebalites, and all Lebanon, toward the sunrise, from Baal Gad below Mount Hermon as far as the entrance to Hamath; 
 
 ###### 6 
-all the inhabitants of the mountains from Lebanon as far as the Brook Misrephoth, _and_ all the Sidonians--them I will drive out from before the children of Israel; only divide it by lot to Israel as an inheritance, as I have commanded you. 
+all the inhabitants of the mountains from Lebanon as far as the Brook Misrephoth, and all the Sidonians--them I will drive out from before the children of Israel; only divide it by lot to Israel as an inheritance, as I have commanded you. 
 
 ###### 7 
 Now therefore, divide this land as an inheritance to the nine tribes and half the tribe of Manasseh." 
@@ -36,7 +36,7 @@ Now therefore, divide this land as an inheritance to the nine tribes and half th
 With the other half-tribe the Reubenites and the Gadites received their inheritance, which Moses had given them, beyond the Jordan eastward, as Moses the servant of the Lord had given them: 
 
 ###### 9 
-from Aroer which _is_ on the bank of the River Arnon, and the town that _is_ in the midst of the ravine, and all the plain of Medeba as far as Dibon; 
+from Aroer which is on the bank of the River Arnon, and the town that is in the midst of the ravine, and all the plain of Medeba as far as Dibon; 
 
 ###### 10 
 all the cities of Sihon king of the Amorites, who reigned in Heshbon, as far as the border of the children of Ammon; 
@@ -51,18 +51,18 @@ all the kingdom of Og in Bashan, who reigned in Ashtaroth and Edrei, who remaine
 Nevertheless the children of Israel did not drive out the Geshurites or the Maachathites, but the Geshurites and the Maachathites dwell among the Israelites until this day. 
 
 ###### 14 
-Only to the tribe of Levi he had given no inheritance; the sacrifices of the Lord God of Israel made by fire _are_ their inheritance, as He said to them.
+Only to the tribe of Levi he had given no inheritance; the sacrifices of the Lord God of Israel made by fire are their inheritance, as He said to them.
 
 ## The Land of Reuben 
 
 ###### 15 
-And Moses had given to the tribe of the children of Reuben _an inheritance_ according to their families. 
+And Moses had given to the tribe of the children of Reuben an inheritance according to their families. 
 
 ###### 16 
-Their territory was from Aroer, which _is_ on the bank of the River Arnon, and the city that _is_ in the midst of the ravine, and all the plain by Medeba; 
+Their territory was from Aroer, which is on the bank of the River Arnon, and the city that is in the midst of the ravine, and all the plain by Medeba; 
 
 ###### 17 
-Heshbon and all its cities that _are_ in the plain: Dibon, Bamoth Baal, Beth Baal Meon, 
+Heshbon and all its cities that are in the plain: Dibon, Bamoth Baal, Beth Baal Meon, 
 
 ###### 18 
 Jahaza, Kedemoth, Mephaath, 
@@ -74,44 +74,44 @@ Kirjathaim, Sibmah, Zereth Shahar on the mountain of the valley,
 Beth Peor, the slopes of Pisgah, and Beth Jeshimoth-- 
 
 ###### 21 
-all the cities of the plain and all the kingdom of Sihon king of the Amorites, who reigned in Heshbon, whom Moses had struck with the princes of Midian: Evi, Rekem, Zur, Hur, and Reba, who _were_ princes of Sihon dwelling in the country. 
+all the cities of the plain and all the kingdom of Sihon king of the Amorites, who reigned in Heshbon, whom Moses had struck with the princes of Midian: Evi, Rekem, Zur, Hur, and Reba, who were princes of Sihon dwelling in the country. 
 
 ###### 22 
 The children of Israel also killed with the sword Balaam the son of Beor, the soothsayer, among those who were killed by them. 
 
 ###### 23 
-And the border of the children of Reuben was the bank of the Jordan. This _was_ the inheritance of the children of Reuben according to their families, the cities and their villages.
+And the border of the children of Reuben was the bank of the Jordan. This was the inheritance of the children of Reuben according to their families, the cities and their villages.
 
 ## The Land of Gad 
 
 ###### 24 
-Moses also had given _an inheritance_ to the tribe of Gad, to the children of Gad according to their families. 
+Moses also had given an inheritance to the tribe of Gad, to the children of Gad according to their families. 
 
 ###### 25 
-Their territory was Jazer, and all the cities of Gilead, and half the land of the Ammonites as far as Aroer, which _is_ before Rabbah, 
+Their territory was Jazer, and all the cities of Gilead, and half the land of the Ammonites as far as Aroer, which is before Rabbah, 
 
 ###### 26 
 and from Heshbon to Ramath Mizpah and Betonim, and from Mahanaim to the border of Debir, 
 
 ###### 27 
-and in the valley Beth Haram, Beth Nimrah, Succoth, and Zaphon, the rest of the kingdom of Sihon king of Heshbon, with the Jordan as _its_ border, as far as the edge of the Sea of Chinnereth, on the other side of the Jordan eastward. 
+and in the valley Beth Haram, Beth Nimrah, Succoth, and Zaphon, the rest of the kingdom of Sihon king of Heshbon, with the Jordan as its border, as far as the edge of the Sea of Chinnereth, on the other side of the Jordan eastward. 
 
 ###### 28 
-This _is_ the inheritance of the children of Gad according to their families, the cities and their villages.
+This is the inheritance of the children of Gad according to their families, the cities and their villages.
 
 ## Half the Tribe of Manasseh (East) 
 
 ###### 29 
-Moses also had given _an inheritance_ to half the tribe of Manasseh; it was for half the tribe of the children of Manasseh according to their families: 
+Moses also had given an inheritance to half the tribe of Manasseh; it was for half the tribe of the children of Manasseh according to their families: 
 
 ###### 30 
 Their territory was from Mahanaim, all Bashan, all the kingdom of Og king of Bashan, and all the towns of Jair which are in Bashan, sixty cities; 
 
 ###### 31 
-half of Gilead, and Ashtaroth and Edrei, cities of the kingdom of Og in Bashan, _were_ for the children of Machir the son of Manasseh, for half of the children of Machir according to their families. 
+half of Gilead, and Ashtaroth and Edrei, cities of the kingdom of Og in Bashan, were for the children of Machir the son of Manasseh, for half of the children of Machir according to their families. 
 
 ###### 32 
-These _are the areas_ which Moses had distributed as an inheritance in the plains of Moab on the other side of the Jordan, by Jericho eastward. 
+These are the areas which Moses had distributed as an inheritance in the plains of Moab on the other side of the Jordan, by Jericho eastward. 
 
 ###### 33 
-But to the tribe of Levi Moses had given no inheritance; the Lord God of Israel _was_ their inheritance, as He had said to them.
+But to the tribe of Levi Moses had given no inheritance; the Lord God of Israel was their inheritance, as He had said to them.

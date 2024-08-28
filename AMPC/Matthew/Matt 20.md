@@ -154,7 +154,7 @@ And about the eleventh hour (five o'clock) he went out and found still others st
 
 
 
-They answered him, Because nobody has hired us. He told them, You go out into the vineyard also _and you will get whatever is just and fair_. 
+They answered him, Because nobody has hired us. He told them, You go out into the vineyard also and you will get whatever is just and fair. 
 
 
 
@@ -343,7 +343,7 @@ Am I not permitted to do what I choose with what is mine? [Or do you begrudge my
 
 
 
-So those who [now] are last will be first [then], and those who [now] are first will be last [then]. _For many are called, but few chosen._ 
+So those who [now] are last will be first [then], and those who [now] are first will be last [then]. For many are called, but few chosen. 
 
 
 
@@ -469,7 +469,7 @@ And He asked her, What do you wish? She answered Him, Give orders that these two
 
 
 
-But Jesus replied, You do not realize what you are asking. Are you able to drink the cup that I am about to drink _and to be baptized with the baptism with which I am baptized_? They answered, We are able. 
+But Jesus replied, You do not realize what you are asking. Are you able to drink the cup that I am about to drink and to be baptized with the baptism with which I am baptized? They answered, We are able. 
 
 
 
@@ -490,7 +490,7 @@ But Jesus replied, You do not realize what you are asking. Are you able to drink
 
 
 
-He said to them, You will drink My cup, but seats at My right hand and at My left are not Mine to give, but they are for those for whom they have been ordained _and_ prepared by My Father. 
+He said to them, You will drink My cup, but seats at My right hand and at My left are not Mine to give, but they are for those for whom they have been ordained and prepared by My Father. 
 
 
 
@@ -637,7 +637,7 @@ And as they were going out of Jericho, a great throng accompanied Him.
 
 
 
-And behold, two blind men were sitting by the roadside, and when they heard that Jesus was passing by, they cried out, Lord, have pity _and_ mercy on us, [You] Son of David! 
+And behold, two blind men were sitting by the roadside, and when they heard that Jesus was passing by, they cried out, Lord, have pity and mercy on us, [You] Son of David! 
 
 
 
@@ -658,7 +658,7 @@ And behold, two blind men were sitting by the roadside, and when they heard that
 
 
 
-The crowds reproved them and told them to keep still; but they cried out all the more, Lord, have pity _and_ mercy on us, [You] Son of David! 
+The crowds reproved them and told them to keep still; but they cried out all the more, Lord, have pity and mercy on us, [You] Son of David! 
 
 
 

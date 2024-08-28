@@ -28,7 +28,7 @@ next: ['Gen 32']
 
 
 
-Jacob heard Laban's sons complaining, Jacob has taken away all that was our father's; he has acquired all this wealth _and_ honor from what belonged to our father. 
+Jacob heard Laban's sons complaining, Jacob has taken away all that was our father's; he has acquired all this wealth and honor from what belonged to our father. 
 
 
 
@@ -133,7 +133,7 @@ And he said to them, I see how your father looks at me, that he is not [friendly
 
 
 
-You know that I have served your father with all my might _and_ power. 
+You know that I have served your father with all my might and power. 
 
 
 
@@ -385,7 +385,7 @@ Then Jacob rose up and set his sons and his wives upon the camels;
 
 
 
-And he drove away all his livestock and all his gain which he had gotten, the livestock he had obtained _and_ accumulated in Padan-aram, to go to Isaac his father in the land of Canaan. 
+And he drove away all his livestock and all his gain which he had gotten, the livestock he had obtained and accumulated in Padan-aram, to go to Isaac his father in the land of Canaan. 
 
 
 
@@ -427,7 +427,7 @@ Now Laban had gone to shear his sheep [possibly to the feast of sheepshearing], 
 
 
 
-And Jacob outwitted Laban the Syrian [Aramean] in that he did not tell him that he [intended] to flee _and_ slip away secretly. 
+And Jacob outwitted Laban the Syrian [Aramean] in that he did not tell him that he [intended] to flee and slip away secretly. 
 
 
 
@@ -553,7 +553,7 @@ Then Laban overtook Jacob. Now Jacob had pitched his tent on the hill, and Laban
 
 
 
-And Laban said to Jacob, What do you mean stealing away _and_ leaving like this without my knowing it, and carrying off my daughters as if captives of the sword? 
+And Laban said to Jacob, What do you mean stealing away and leaving like this without my knowing it, and carrying off my daughters as if captives of the sword? 
 
 
 
@@ -574,7 +574,7 @@ And Laban said to Jacob, What do you mean stealing away _and_ leaving like this 
 
 
 
-Why did you flee secretly and cheat me and did not tell me, so that I might have sent you away with joy _and_ gladness and with singing, with tambourine and lyre? 
+Why did you flee secretly and cheat me and did not tell me, so that I might have sent you away with joy and gladness and with singing, with tambourine and lyre? 
 
 
 
@@ -721,7 +721,7 @@ So Laban went into Jacob's tent and into Leah's tent and the tent of the two mai
 
 
 
-Now Rachel had taken the images (gods) and put them in the camel's saddle and sat on them. Laban searched _and_ felt through all the tent, but did not find them. 
+Now Rachel had taken the images (gods) and put them in the camel's saddle and sat on them. Laban searched and felt through all the tent, but did not find them. 
 
 
 
@@ -742,7 +742,7 @@ Now Rachel had taken the images (gods) and put them in the camel's saddle and sa
 
 
 
-And [Rachel] said to her father, Do not be displeased, my lord, that I cannot rise up before you, for the period of women is upon me _and_ I am unwell. And he searched, but did not find the gods. 
+And [Rachel] said to her father, Do not be displeased, my lord, that I cannot rise up before you, for the period of women is upon me and I am unwell. And he searched, but did not find the gods. 
 
 
 
@@ -763,7 +763,7 @@ And [Rachel] said to her father, Do not be displeased, my lord, that I cannot ri
 
 
 
-Then Jacob became angry and reproached _and_ argued with Laban. And Jacob said to Laban, What is my fault? What is my sin, that you so hotly pursued me? 
+Then Jacob became angry and reproached and argued with Laban. And Jacob said to Laban, What is my fault? What is my sin, that you so hotly pursued me? 
 
 
 
@@ -784,7 +784,7 @@ Then Jacob became angry and reproached _and_ argued with Laban. And Jacob said t
 
 
 
-Although you have searched _and_ felt through all my household possessions, what have you found of all your household goods? Put it here before my brethren and yours, that they may judge _and_ decide between us. 
+Although you have searched and felt through all my household possessions, what have you found of all your household goods? Put it here before my brethren and yours, that they may judge and decide between us. 
 
 
 
@@ -889,7 +889,7 @@ I have been twenty years in your house. I served you fourteen years for your two
 
 
 
-And if the God of my father, the God of Abraham and the Dread [lest he should fall] _and_ Fear [lest he offend] of Isaac, had not been with me, surely you would have sent me away now empty-handed. God has seen my affliction _and_ humiliation and the [wearying] labor of my hands and rebuked you last night. 
+And if the God of my father, the God of Abraham and the Dread [lest he should fall] and Fear [lest he offend] of Isaac, had not been with me, surely you would have sent me away now empty-handed. God has seen my affliction and humiliation and the [wearying] labor of my hands and rebuked you last night. 
 
 
 
@@ -931,7 +931,7 @@ Laban answered Jacob, These daughters are my daughters, these children are my ch
 
 
 
-So come now, let us make a covenant _or_ league, you and I, and let it be for a witness between you and me. 
+So come now, let us make a covenant or league, you and I, and let it be for a witness between you and me. 
 
 
 
@@ -952,7 +952,7 @@ So come now, let us make a covenant _or_ league, you and I, and let it be for a 
 
 
 
-So Jacob set up a stone for a pillar _or_ monument. 
+So Jacob set up a stone for a pillar or monument. 
 
 
 
@@ -994,7 +994,7 @@ And Jacob said to his brethren, Gather stones; and they took stones and made a h
 
 
 
-Laban called it Jegar-sahadutha [witness heap, _in Aramaic_], but Jacob called it Galeed [witness heap, _in Hebrew_.] 
+Laban called it Jegar-sahadutha [witness heap, in Aramaic], but Jacob called it Galeed [witness heap, in Hebrew.] 
 
 
 
@@ -1036,7 +1036,7 @@ Laban said, This heap is a witness today between you and me. Therefore it was na
 
 
 
-And [the pillar or monument was called] Mizpah [watchpost], for he [Laban] said, May the Lord watch between you and me when we are absent _and_ hidden one from another. 
+And [the pillar or monument was called] Mizpah [watchpost], for he [Laban] said, May the Lord watch between you and me when we are absent and hidden one from another. 
 
 
 
@@ -1057,7 +1057,7 @@ And [the pillar or monument was called] Mizpah [watchpost], for he [Laban] said,
 
 
 
-If you should afflict, humiliate, _or_ lower [divorce] my daughters, or if you should take other wives beside my daughters, although no man is with us [to witness], see (remember), God is witness between you and me. 
+If you should afflict, humiliate, or lower [divorce] my daughters, or if you should take other wives beside my daughters, although no man is with us [to witness], see (remember), God is witness between you and me. 
 
 
 
@@ -1120,7 +1120,7 @@ This heap is a witness and this pillar is a witness, that I will not pass by thi
 
 
 
-The God of Abraham and the God of Nahor, and the god [the object of worship] of their father [Terah, an idolator], judge between us. But Jacob swore [only] by [the one true God] the Dread _and_ Fear of his father Isaac. 
+The God of Abraham and the God of Nahor, and the god [the object of worship] of their father [Terah, an idolator], judge between us. But Jacob swore [only] by [the one true God] the Dread and Fear of his father Isaac. 
 
 
 

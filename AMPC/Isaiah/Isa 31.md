@@ -28,7 +28,7 @@ next: ['Isa 32']
 
 
 
-Woe to those who go down to Egypt for help, who rely on horses and trust in chariots because they are many and in horsemen because they are very strong, but they look not to the Holy One of Israel, nor seek _and_ consult the Lord! 
+Woe to those who go down to Egypt for help, who rely on horses and trust in chariots because they are many and in horsemen because they are very strong, but they look not to the Holy One of Israel, nor seek and consult the Lord! 
 
 
 
@@ -70,7 +70,7 @@ And yet He is wise and brings calamity and does not retract His words; He will a
 
 
 
-Now the Egyptians are men and not God, and their horses are flesh and not spirit; and when the Lord stretches out His hand, both [Egypt] who helps will stumble, and [Judah] who is helped will fall, and they will all perish _and_ be consumed together. 
+Now the Egyptians are men and not God, and their horses are flesh and not spirit; and when the Lord stretches out His hand, both [Egypt] who helps will stumble, and [Judah] who is helped will fall, and they will all perish and be consumed together. 
 
 
 
@@ -112,7 +112,7 @@ For the Lord has said to me, As the lion or the young lion growls over his prey-
 
 
 
-Like birds hovering, so will the Lord of hosts defend Jerusalem; He will protect and deliver it, He will pass over _and_ spare and preserve it. 
+Like birds hovering, so will the Lord of hosts defend Jerusalem; He will protect and deliver it, He will pass over and spare and preserve it. 
 
 
 
@@ -196,4 +196,4 @@ Then the Assyrian shall fall by a sword not of man; and a sword, not of men [but
 
 
 
-[In his flight] he shall pass beyond his rock [refuge and stronghold] because of terror; even his officers shall desert the standard in fear _and_ panic, says the Lord, Whose fire is in Zion and Whose furnace is in Jerusalem.
+[In his flight] he shall pass beyond his rock [refuge and stronghold] because of terror; even his officers shall desert the standard in fear and panic, says the Lord, Whose fire is in Zion and Whose furnace is in Jerusalem.

@@ -28,7 +28,7 @@ next: ['Gen 11']
 
 
 
-This is the history of the generations (descendants) of the sons of Noah, Shem, Ham, and Japheth. The sons born to them after the flood _were_: 
+This is the history of the generations (descendants) of the sons of Noah, Shem, Ham, and Japheth. The sons born to them after the flood were: 
 
 
 

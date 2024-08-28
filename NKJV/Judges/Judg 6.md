@@ -13,7 +13,7 @@ next: ['Judg 7']
 Then the children of Israel did evil in the sight of the Lord. So the Lord delivered them into the hand of Midian for seven years, 
 
 ###### 2 
-and the hand of Midian prevailed against Israel. Because of the Midianites, the children of Israel made for themselves the dens, the caves, and the strongholds which _are_ in the mountains. 
+and the hand of Midian prevailed against Israel. Because of the Midianites, the children of Israel made for themselves the dens, the caves, and the strongholds which are in the mountains. 
 
 ###### 3 
 So it was, whenever Israel had sown, Midianites would come up; also Amalekites and the people of the East would come up against them. 
@@ -37,24 +37,24 @@ that the Lord sent a prophet to the children of Israel, who said to them, "Thus 
 and I delivered you out of the hand of the Egyptians and out of the hand of all who oppressed you, and drove them out before you and gave you their land. 
 
 ###### 10 
-Also I said to you, "I _am_ the Lord your God; do not fear the gods of the Amorites, in whose land you dwell." But you have not obeyed My voice.' " 
+Also I said to you, "I am the Lord your God; do not fear the gods of the Amorites, in whose land you dwell." But you have not obeyed My voice.' " 
 
 ## Gideon 
 
 ###### 11 
-Now the Angel of the Lord came and sat under the terebinth tree which _was_ in Ophrah, which _belonged_ to Joash the Abiezrite, while his son Gideon threshed wheat in the winepress, in order to hide _it_ from the Midianites. 
+Now the Angel of the Lord came and sat under the terebinth tree which was in Ophrah, which belonged to Joash the Abiezrite, while his son Gideon threshed wheat in the winepress, in order to hide it from the Midianites. 
 
 ###### 12 
-And the Angel of the Lord appeared to him, and said to him, "The Lord _is_ with you, you mighty man of valor!" 
+And the Angel of the Lord appeared to him, and said to him, "The Lord is with you, you mighty man of valor!" 
 
 ###### 13 
-Gideon said to Him, "O my lord, if the Lord is with us, why then has all this happened to us? And where _are_ all His miracles which our fathers told us about, saying, 'Did not the Lord bring us up from Egypt?' But now the Lord has forsaken us and delivered us into the hands of the Midianites." 
+Gideon said to Him, "O my lord, if the Lord is with us, why then has all this happened to us? And where are all His miracles which our fathers told us about, saying, 'Did not the Lord bring us up from Egypt?' But now the Lord has forsaken us and delivered us into the hands of the Midianites." 
 
 ###### 14 
 Then the Lord turned to him and said, "Go in this might of yours, and you shall save Israel from the hand of the Midianites. Have I not sent you?" 
 
 ###### 15 
-So he said to Him, "O my Lord, how can I save Israel? Indeed my clan _is_ the weakest in Manasseh, and I _am_ the least in my father's house." 
+So he said to Him, "O my Lord, how can I save Israel? Indeed my clan is the weakest in Manasseh, and I am the least in my father's house." 
 
 ###### 16 
 And the Lord said to him, "Surely I will be with you, and you shall defeat the Midianites as one man." 
@@ -63,48 +63,48 @@ And the Lord said to him, "Surely I will be with you, and you shall defeat the M
 Then he said to Him, "If now I have found favor in Your sight, then show me a sign that it is You who talk with me. 
 
 ###### 18 
-Do not depart from here, I pray, until I come to You and bring out my offering and set _it_ before You." And He said, "I will wait until you come back." 
+Do not depart from here, I pray, until I come to You and bring out my offering and set it before You." And He said, "I will wait until you come back." 
 
 ###### 19 
-So Gideon went in and prepared a young goat, and unleavened bread from an ephah of flour. The meat he put in a basket, and he put the broth in a pot; and he brought _them_ out to Him under the terebinth tree and presented _them._ 
+So Gideon went in and prepared a young goat, and unleavened bread from an ephah of flour. The meat he put in a basket, and he put the broth in a pot; and he brought them out to Him under the terebinth tree and presented them. 
 
 ###### 20 
-The Angel of God said to him, "Take the meat and the unleavened bread and lay _them_ on this rock, and pour out the broth." And he did so. 
+The Angel of God said to him, "Take the meat and the unleavened bread and lay them on this rock, and pour out the broth." And he did so. 
 
 ###### 21 
-Then the Angel of the Lord put out the end of the staff that _was_ in His hand, and touched the meat and the unleavened bread; and fire rose out of the rock and consumed the meat and the unleavened bread. And the Angel of the Lord departed out of his sight. 
+Then the Angel of the Lord put out the end of the staff that was in His hand, and touched the meat and the unleavened bread; and fire rose out of the rock and consumed the meat and the unleavened bread. And the Angel of the Lord departed out of his sight. 
 
 ###### 22 
-Now Gideon perceived that He _was_ the Angel of the Lord. So Gideon said, "Alas, O Lord God! For I have seen the Angel of the Lord face to face." 
+Now Gideon perceived that He was the Angel of the Lord. So Gideon said, "Alas, O Lord God! For I have seen the Angel of the Lord face to face." 
 
 ###### 23 
-Then the Lord said to him, "Peace _be_ with you; do not fear, you shall not die." 
+Then the Lord said to him, "Peace be with you; do not fear, you shall not die." 
 
 ###### 24 
-So Gideon built an altar there to the Lord, and called it The-Lord-_Is_-Peace. To this day it _is_ still in Ophrah of the Abiezrites. 
+So Gideon built an altar there to the Lord, and called it The-Lord-Is-Peace. To this day it is still in Ophrah of the Abiezrites. 
 
 ###### 25 
-Now it came to pass the same night that the Lord said to him, "Take your father's young bull, the second bull of seven years old, and tear down the altar of Baal that your father has, and cut down the wooden image that _is_ beside it; 
+Now it came to pass the same night that the Lord said to him, "Take your father's young bull, the second bull of seven years old, and tear down the altar of Baal that your father has, and cut down the wooden image that is beside it; 
 
 ###### 26 
 and build an altar to the Lord your God on top of this rock in the proper arrangement, and take the second bull and offer a burnt sacrifice with the wood of the image which you shall cut down." 
 
 ###### 27 
-So Gideon took ten men from among his servants and did as the Lord had said to him. But because he feared his father's household and the men of the city too much to do _it_ by day, he did _it_ by night.
+So Gideon took ten men from among his servants and did as the Lord had said to him. But because he feared his father's household and the men of the city too much to do it by day, he did it by night.
 
 ## Gideon Destroys the Altar of Baal 
 
 ###### 28 
-And when the men of the city arose early in the morning, there was the altar of Baal, torn down; and the wooden image that _was_ beside it was cut down, and the second bull was being offered on the altar _which had been_ built. 
+And when the men of the city arose early in the morning, there was the altar of Baal, torn down; and the wooden image that was beside it was cut down, and the second bull was being offered on the altar which had been built. 
 
 ###### 29 
 So they said to one another, "Who has done this thing?" And when they had inquired and asked, they said, "Gideon the son of Joash has done this thing." 
 
 ###### 30 
-Then the men of the city said to Joash, "Bring out your son, that he may die, because he has torn down the altar of Baal, and because he has cut down the wooden image that _was_ beside it." 
+Then the men of the city said to Joash, "Bring out your son, that he may die, because he has torn down the altar of Baal, and because he has cut down the wooden image that was beside it." 
 
 ###### 31 
-But Joash said to all who stood against him, "Would you plead for Baal? Would you save him? Let the one who would plead for him be put to death by morning! If he _is_ a god, let him plead for himself, because his altar has been torn down!" 
+But Joash said to all who stood against him, "Would you plead for Baal? Would you save him? Let the one who would plead for him be put to death by morning! If he is a god, let him plead for himself, because his altar has been torn down!" 
 
 ###### 32 
 Therefore on that day he called him Jerubbaal, saying, "Let Baal plead against him, because he has torn down his altar." 
@@ -124,7 +124,7 @@ And he sent messengers throughout all Manasseh, who also gathered behind him. He
 So Gideon said to God, "If You will save Israel by my hand as You have said-- 
 
 ###### 37 
-look, I shall put a fleece of wool on the threshing floor; if there is dew on the fleece only, and _it is_ dry on all the ground, then I shall know that You will save Israel by my hand, as You have said." 
+look, I shall put a fleece of wool on the threshing floor; if there is dew on the fleece only, and it is dry on all the ground, then I shall know that You will save Israel by my hand, as You have said." 
 
 ###### 38 
 And it was so. When he rose early the next morning and squeezed the fleece together, he wrung the dew out of the fleece, a bowlful of water. 

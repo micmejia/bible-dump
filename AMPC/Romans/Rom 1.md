@@ -27,7 +27,7 @@ next: ['Rom 2']
 
 
 
-From Paul, a bond servant of Jesus Christ (the Messiah) called to be an apostle, (a special messenger) set apart to [preach] the Gospel (good news) of _and_ from God, 
+From Paul, a bond servant of Jesus Christ (the Messiah) called to be an apostle, (a special messenger) set apart to [preach] the Gospel (good news) of and from God, 
 
 
 
@@ -111,7 +111,7 @@ And [as to His divine nature] according to the Spirit of holiness was openly des
 
 
 
-It is through Him that we have received grace (God's unmerited favor) and [our] apostleship to promote obedience to the faith _and_ make disciples for His name's sake among all the nations, 
+It is through Him that we have received grace (God's unmerited favor) and [our] apostleship to promote obedience to the faith and make disciples for His name's sake among all the nations, 
 
 
 
@@ -132,7 +132,7 @@ It is through Him that we have received grace (God's unmerited favor) and [our] 
 
 
 
-And this includes you, called of Jesus Christ _and_ invited [as you are] to belong to Him. 
+And this includes you, called of Jesus Christ and invited [as you are] to belong to Him. 
 
 
 
@@ -153,7 +153,7 @@ And this includes you, called of Jesus Christ _and_ invited [as you are] to belo
 
 
 
-To [you then] all God's beloved ones in Rome, called to be saints _and_ designated for a consecrated life: Grace _and_ spiritual blessing and peace be yours from God our Father and from the Lord Jesus Christ. 
+To [you then] all God's beloved ones in Rome, called to be saints and designated for a consecrated life: Grace and spiritual blessing and peace be yours from God our Father and from the Lord Jesus Christ. 
 
 
 
@@ -174,7 +174,7 @@ To [you then] all God's beloved ones in Rome, called to be saints _and_ designat
 
 
 
-First, I thank my God through Jesus Christ for all of you, because [the report of] your faith is made known to all the world _and_ is commended everywhere. 
+First, I thank my God through Jesus Christ for all of you, because [the report of] your faith is made known to all the world and is commended everywhere. 
 
 
 
@@ -195,7 +195,7 @@ First, I thank my God through Jesus Christ for all of you, because [the report o
 
 
 
-For God is my witness, Whom I serve with my [whole] spirit [rendering priestly and spiritual service] in [preaching] the Gospel _and_ [telling] the good news of His Son, how incessantly I always mention you when at my prayers. 
+For God is my witness, Whom I serve with my [whole] spirit [rendering priestly and spiritual service] in [preaching] the Gospel and [telling] the good news of His Son, how incessantly I always mention you when at my prayers. 
 
 
 
@@ -216,7 +216,7 @@ For God is my witness, Whom I serve with my [whole] spirit [rendering priestly a
 
 
 
-I keep pleading that somehow by God's will I may now at last prosper _and_ come to you. 
+I keep pleading that somehow by God's will I may now at last prosper and come to you. 
 
 
 
@@ -237,7 +237,7 @@ I keep pleading that somehow by God's will I may now at last prosper _and_ come 
 
 
 
-For I am yearning to see you, that I may impart _and_ share with you some spiritual gift to strengthen _and_ establish you; 
+For I am yearning to see you, that I may impart and share with you some spiritual gift to strengthen and establish you; 
 
 
 
@@ -258,7 +258,7 @@ For I am yearning to see you, that I may impart _and_ share with you some spirit
 
 
 
-That is, that we may be mutually strengthened _and_ encouraged _and_ comforted by each other's faith, both yours and mine. 
+That is, that we may be mutually strengthened and encouraged and comforted by each other's faith, both yours and mine. 
 
 
 
@@ -279,7 +279,7 @@ That is, that we may be mutually strengthened _and_ encouraged _and_ comforted b
 
 
 
-I want you to know, brethren, that many times I have planned _and_ intended to come to you, though thus far I have been hindered _and_ prevented, in order that I might have some fruit (some result of my labors) among you, as I have among the rest of the Gentiles. 
+I want you to know, brethren, that many times I have planned and intended to come to you, though thus far I have been hindered and prevented, in order that I might have some fruit (some result of my labors) among you, as I have among the rest of the Gentiles. 
 
 
 
@@ -300,7 +300,7 @@ I want you to know, brethren, that many times I have planned _and_ intended to c
 
 
 
-Both to Greeks and to barbarians (to the cultured and to the uncultured), both to the wise and the foolish, I have an obligation to discharge _and_ a duty to perform _and_ a debt to pay. 
+Both to Greeks and to barbarians (to the cultured and to the uncultured), both to the wise and the foolish, I have an obligation to discharge and a duty to perform and a debt to pay. 
 
 
 
@@ -321,7 +321,7 @@ Both to Greeks and to barbarians (to the cultured and to the uncultured), both t
 
 
 
-So, for my part, I am willing _and_ eagerly ready to preach the Gospel to you also who are in Rome. 
+So, for my part, I am willing and eagerly ready to preach the Gospel to you also who are in Rome. 
 
 
 
@@ -342,7 +342,7 @@ So, for my part, I am willing _and_ eagerly ready to preach the Gospel to you al
 
 
 
-For I am not ashamed of the Gospel (good news) _of Christ_, for it is God's power working unto salvation [for deliverance from eternal death] to everyone who believes _with_ a personal trust _and_ a confident surrender _and_ firm reliance, to the Jew first and also to the Greek, 
+For I am not ashamed of the Gospel (good news) of Christ, for it is God's power working unto salvation [for deliverance from eternal death] to everyone who believes with a personal trust and a confident surrender and firm reliance, to the Jew first and also to the Greek, 
 
 
 
@@ -363,7 +363,7 @@ For I am not ashamed of the Gospel (good news) _of Christ_, for it is God's powe
 
 
 
-For in the Gospel a righteousness which God ascribes is revealed, both springing from faith and leading to faith [disclosed through the way of faith that arouses to more faith]. As it is written, The man who through faith is just _and_ upright shall live _and_ shall live by faith. 
+For in the Gospel a righteousness which God ascribes is revealed, both springing from faith and leading to faith [disclosed through the way of faith that arouses to more faith]. As it is written, The man who through faith is just and upright shall live and shall live by faith. 
 
 
 
@@ -384,7 +384,7 @@ For in the Gospel a righteousness which God ascribes is revealed, both springing
 
 
 
-For God's [holy] wrath _and_ indignation are revealed from heaven against all ungodliness and unrighteousness of men, who in their wickedness repress _and_ hinder the truth _and_ make it inoperative. 
+For God's [holy] wrath and indignation are revealed from heaven against all ungodliness and unrighteousness of men, who in their wickedness repress and hinder the truth and make it inoperative. 
 
 
 
@@ -405,7 +405,7 @@ For God's [holy] wrath _and_ indignation are revealed from heaven against all un
 
 
 
-For that which is known about God is evident to them _and_ made plain in their inner consciousness, because God [Himself] has shown it to them. 
+For that which is known about God is evident to them and made plain in their inner consciousness, because God [Himself] has shown it to them. 
 
 
 
@@ -426,7 +426,7 @@ For that which is known about God is evident to them _and_ made plain in their i
 
 
 
-For ever since the creation of the world His invisible nature _and_ attributes, that is, His eternal power and divinity, have been made intelligible _and_ clearly discernible in _and_ through the things that have been made (His handiworks). So [men] are without excuse [altogether without any defense or justification], 
+For ever since the creation of the world His invisible nature and attributes, that is, His eternal power and divinity, have been made intelligible and clearly discernible in and through the things that have been made (His handiworks). So [men] are without excuse [altogether without any defense or justification], 
 
 
 
@@ -447,7 +447,7 @@ For ever since the creation of the world His invisible nature _and_ attributes, 
 
 
 
-Because when they knew _and_ recognized Him as God, they did not honor _and_ glorify Him as God or give Him thanks. But instead they became futile _and_ godless in their thinking [with vain imaginings, foolish reasoning, and stupid speculations] and their senseless minds were darkened. 
+Because when they knew and recognized Him as God, they did not honor and glorify Him as God or give Him thanks. But instead they became futile and godless in their thinking [with vain imaginings, foolish reasoning, and stupid speculations] and their senseless minds were darkened. 
 
 
 
@@ -489,7 +489,7 @@ Claiming to be wise, they became fools [professing to be smart, they made simple
 
 
 
-And by them the glory and majesty _and_ excellence of the immortal God were exchanged for _and_ represented by images, resembling mortal man and birds and beasts and reptiles. 
+And by them the glory and majesty and excellence of the immortal God were exchanged for and represented by images, resembling mortal man and birds and beasts and reptiles. 
 
 
 
@@ -552,7 +552,7 @@ Because they exchanged the truth of God for a lie and worshiped and served the c
 
 
 
-For this reason God gave them over _and_ abandoned them to vile affections _and_ degrading passions. For their women exchanged their natural function for an unnatural _and_ abnormal one, 
+For this reason God gave them over and abandoned them to vile affections and degrading passions. For their women exchanged their natural function for an unnatural and abnormal one, 
 
 
 
@@ -573,7 +573,7 @@ For this reason God gave them over _and_ abandoned them to vile affections _and_
 
 
 
-And the men also turned from natural relations with women and were set ablaze (burning out, consumed) with lust for one another--men committing shameful acts with men and suffering in their own bodies _and_ personalities the inevitable consequences _and_ penalty of their wrong-doing _and_ going astray, which was [their] fitting retribution. 
+And the men also turned from natural relations with women and were set ablaze (burning out, consumed) with lust for one another--men committing shameful acts with men and suffering in their own bodies and personalities the inevitable consequences and penalty of their wrong-doing and going astray, which was [their] fitting retribution. 
 
 
 
@@ -594,7 +594,7 @@ And the men also turned from natural relations with women and were set ablaze (b
 
 
 
-And so, since they did not see fit to acknowledge God _or_ approve of Him _or_ consider Him worth the knowing, God gave them over to a base _and_ condemned mind to do things not proper _or_ decent _but_ loathsome, 
+And so, since they did not see fit to acknowledge God or approve of Him or consider Him worth the knowing, God gave them over to a base and condemned mind to do things not proper or decent but loathsome, 
 
 
 
@@ -615,7 +615,7 @@ And so, since they did not see fit to acknowledge God _or_ approve of Him _or_ c
 
 
 
-Until they were filled (permeated and saturated) with every kind of unrighteousness, iniquity, grasping _and_ covetous greed, and malice. [They were] full of envy _and_ jealousy, murder, strife, deceit _and_ treachery, ill will _and_ cruel ways. [They were] secret backbiters _and_ gossipers, 
+Until they were filled (permeated and saturated) with every kind of unrighteousness, iniquity, grasping and covetous greed, and malice. [They were] full of envy and jealousy, murder, strife, deceit and treachery, ill will and cruel ways. [They were] secret backbiters and gossipers, 
 
 
 
@@ -636,7 +636,7 @@ Until they were filled (permeated and saturated) with every kind of unrighteousn
 
 
 
-Slanderers, hateful to _and_ hating God, full of insolence, arrogance, [and] boasting; inventors of new forms of evil, disobedient _and_ undutiful to parents. 
+Slanderers, hateful to and hating God, full of insolence, arrogance, [and] boasting; inventors of new forms of evil, disobedient and undutiful to parents. 
 
 
 
@@ -657,7 +657,7 @@ Slanderers, hateful to _and_ hating God, full of insolence, arrogance, [and] boa
 
 
 
-[They were] without understanding, conscienceless _and_ faithless, heartless _and_ loveless [and] merciless. 
+[They were] without understanding, conscienceless and faithless, heartless and loveless [and] merciless. 
 
 
 
@@ -678,4 +678,4 @@ Slanderers, hateful to _and_ hating God, full of insolence, arrogance, [and] boa
 
 
 
-Though they are fully aware of God's righteous decree that those who do such things deserve to die, they not only do them themselves but approve _and_ applaud others who practice them.
+Though they are fully aware of God's righteous decree that those who do such things deserve to die, they not only do them themselves but approve and applaud others who practice them.

@@ -70,7 +70,7 @@ The more [the prophets] called to them, the more they went from them; they kept 
 
 
 
-Yet I taught Ephraim to walk, taking them by their arms _or_ taking them up in My arms, but they did not know that I healed them. 
+Yet I taught Ephraim to walk, taking them by their arms or taking them up in My arms, but they did not know that I healed them. 
 
 
 
@@ -91,7 +91,7 @@ Yet I taught Ephraim to walk, taking them by their arms _or_ taking them up in M
 
 
 
-I drew them with cords of a man, with bands of love, and I was to them as one who lifts up _and_ eases the yoke over their cheeks, and I bent down to them _and_ gently laid food before them. 
+I drew them with cords of a man, with bands of love, and I was to them as one who lifts up and eases the yoke over their cheeks, and I bent down to them and gently laid food before them. 
 
 
 
@@ -133,7 +133,7 @@ They shall not [literally] return into [another bondage in] the land of Egypt, b
 
 
 
-And the sword shall rage against _and_ fall upon their cities and shall consume the bars of their gates and shall make an end [of their defenses], because of their own counsels _and_ devices. 
+And the sword shall rage against and fall upon their cities and shall consume the bars of their gates and shall make an end [of their defenses], because of their own counsels and devices. 
 
 
 
@@ -154,7 +154,7 @@ And the sword shall rage against _and_ fall upon their cities and shall consume 
 
 
 
-My people are bent on backsliding from Me; though [the prophets] call them to Him Who is on high, none at all will exalt Him _or_ lift himself up [to come to Him]. 
+My people are bent on backsliding from Me; though [the prophets] call them to Him Who is on high, none at all will exalt Him or lift himself up [to come to Him]. 
 
 
 
@@ -175,7 +175,7 @@ My people are bent on backsliding from Me; though [the prophets] call them to Hi
 
 
 
-How can I give you up, O Ephraim! How can I surrender you _and_ cast you off, O Israel! How can I make you as Admah _or_ how can I treat you as Zeboiim [both destroyed with Sodom]! My heart recoils within Me; My compassions are kindled together. 
+How can I give you up, O Ephraim! How can I surrender you and cast you off, O Israel! How can I make you as Admah or how can I treat you as Zeboiim [both destroyed with Sodom]! My heart recoils within Me; My compassions are kindled together. 
 
 
 
@@ -196,7 +196,7 @@ How can I give you up, O Ephraim! How can I surrender you _and_ cast you off, O 
 
 
 
-I will not execute the fierceness of My anger; I will not bring back Ephraim to nothing _or_ again destroy him. For I am God and not man, the Holy One in the midst of you, and I will not come in wrath _or_ enter into the city. 
+I will not execute the fierceness of My anger; I will not bring back Ephraim to nothing or again destroy him. For I am God and not man, the Holy One in the midst of you, and I will not come in wrath or enter into the city. 
 
 
 
@@ -217,7 +217,7 @@ I will not execute the fierceness of My anger; I will not bring back Ephraim to 
 
 
 
-They shall walk after the Lord, Who will roar like a lion; He Himself will roar and [His] sons shall come trembling _and_ eagerly from the west. 
+They shall walk after the Lord, Who will roar like a lion; He Himself will roar and [His] sons shall come trembling and eagerly from the west. 
 
 
 
@@ -238,7 +238,7 @@ They shall walk after the Lord, Who will roar like a lion; He Himself will roar 
 
 
 
-They shall come trembling _but_ hurriedly like a bird out of Egypt and like a dove out of the land of Assyria, and I will cause them to dwell in their houses, says the Lord. 
+They shall come trembling but hurriedly like a bird out of Egypt and like a dove out of the land of Assyria, and I will cause them to dwell in their houses, says the Lord. 
 
 
 

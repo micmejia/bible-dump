@@ -70,7 +70,7 @@ And of the house of Saul there was a servant whose name was Ziba. When they had 
 
 
 
-The king said, Is there not still someone of the house of Saul to whom I may show the [unfailing, unsought, unlimited] mercy _and_ kindness of God? Ziba replied, Jonathan has yet a son who is lame in his feet. 
+The king said, Is there not still someone of the house of Saul to whom I may show the [unfailing, unsought, unlimited] mercy and kindness of God? Ziba replied, Jonathan has yet a son who is lame in his feet. 
 
 
 

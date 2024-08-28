@@ -28,7 +28,7 @@ next: ['Mark 15']
 
 
 
-It was now two days before the Passover and the Feast of Unleavened Bread, and the chief priests and the scribes were all the while seeking to arrest [Jesus] by secrecy _and_ deceit and put [Him] to death, 
+It was now two days before the Passover and the Feast of Unleavened Bread, and the chief priests and the scribes were all the while seeking to arrest [Jesus] by secrecy and deceit and put [Him] to death, 
 
 
 
@@ -70,7 +70,7 @@ For they kept saying, It must not be during the Feast, for fear that there might
 
 
 
-And while He was in Bethany, [a guest] in the house of Simon the leper, as He was reclining [at table], a woman came with an alabaster jar of ointment (perfume) of pure nard, very costly _and_ precious; and she broke the jar and poured [the perfume] over His head. 
+And while He was in Bethany, [a guest] in the house of Simon the leper, as He was reclining [at table], a woman came with an alabaster jar of ointment (perfume) of pure nard, very costly and precious; and she broke the jar and poured [the perfume] over His head. 
 
 
 
@@ -112,7 +112,7 @@ But there were some who were moved with indignation and said to themselves, To w
 
 
 
-For it was possible to have sold this [perfume] for more than 300 denarii [a laboring man's wages for a year] and to have given [the money] to the poor. And they censured _and_ reproved her. 
+For it was possible to have sold this [perfume] for more than 300 denarii [a laboring man's wages for a year] and to have given [the money] to the poor. And they censured and reproved her. 
 
 
 
@@ -133,7 +133,7 @@ For it was possible to have sold this [perfume] for more than 300 denarii [a lab
 
 
 
-But Jesus said, Let her alone; why are you troubling her? She has done a good _and_ beautiful thing to Me [praiseworthy and noble]. 
+But Jesus said, Let her alone; why are you troubling her? She has done a good and beautiful thing to Me [praiseworthy and noble]. 
 
 
 
@@ -217,7 +217,7 @@ And surely I tell you, wherever the good news (the Gospel) is proclaimed in the 
 
 
 
-Then Judas Iscariot, who was one of the Twelve [apostles], went off to the chief priests in order to betray _and_ hand Him over to them. 
+Then Judas Iscariot, who was one of the Twelve [apostles], went off to the chief priests in order to betray and hand Him over to them. 
 
 
 
@@ -238,7 +238,7 @@ Then Judas Iscariot, who was one of the Twelve [apostles], went off to the chief
 
 
 
-And when they heard it, they rejoiced _and_ were delighted, and they promised to give him money. And he [busying himself continually] sought an opportunity to betray Him. 
+And when they heard it, they rejoiced and were delighted, and they promised to give him money. And he [busying himself continually] sought an opportunity to betray Him. 
 
 
 
@@ -280,7 +280,7 @@ On the first day [of the Feast] of Unleavened Bread, when [as was customary] the
 
 
 
-And He sent two of His disciples and said to them, Go into the city, and a man carrying an [earthen] jar _or_ pitcher of water will meet you; follow him. 
+And He sent two of His disciples and said to them, Go into the city, and a man carrying an [earthen] jar or pitcher of water will meet you; follow him. 
 
 
 
@@ -406,7 +406,7 @@ And while they were at the table eating, Jesus said, Surely I say to you, one of
 
 
 
-And they began to show that they were sad _and_ hurt, and to say to Him one after another, Is it I? _or_, It is not I, is it? 
+And they began to show that they were sad and hurt, and to say to Him one after another, Is it I? or, It is not I, is it? 
 
 
 
@@ -469,7 +469,7 @@ For the Son of Man is going as it stands written concerning Him; but woe to that
 
 
 
-And while they were eating, He took a loaf [of bread], praised God _and_ gave thanks _and_ asked Him to bless it to their use. [Then] He broke [it] and gave to them and said, Take. _Eat_. This is My body. 
+And while they were eating, He took a loaf [of bread], praised God and gave thanks and asked Him to bless it to their use. [Then] He broke [it] and gave to them and said, Take. Eat. This is My body. 
 
 
 
@@ -511,7 +511,7 @@ He also took a cup [of the juice of grapes], and when He had given thanks, He ga
 
 
 
-And He said to them, This is My blood [which ratifies] the _new_ covenant, [the blood] which is being poured out for (on account of) many. 
+And He said to them, This is My blood [which ratifies] the new covenant, [the blood] which is being poured out for (on account of) many. 
 
 
 
@@ -532,7 +532,7 @@ And He said to them, This is My blood [which ratifies] the _new_ covenant, [the 
 
 
 
-Solemnly _and_ surely I tell you, I shall not again drink of the fruit of the vine till that day when I drink it of a new _and_ a higher quality in God's kingdom. 
+Solemnly and surely I tell you, I shall not again drink of the fruit of the vine till that day when I drink it of a new and a higher quality in God's kingdom. 
 
 
 
@@ -574,7 +574,7 @@ And when they had sung a hymn, they went out to the Mount of Olives.
 
 
 
-And Jesus said to them, You will all fall away _this night_ [that is, you will be caused to stumble and will begin to distrust and desert Me], for it stands written, I will strike the Shepherd, and the sheep will be scattered. 
+And Jesus said to them, You will all fall away this night [that is, you will be caused to stumble and will begin to distrust and desert Me], for it stands written, I will strike the Shepherd, and the sheep will be scattered. 
 
 
 
@@ -616,7 +616,7 @@ But after I am raised [to life], I will go before you into Galilee.
 
 
 
-But Peter said to Him, Even if they all fall away _and_ are caused to stumble _and_ distrust _and_ desert You, yet I will not [do so]! 
+But Peter said to Him, Even if they all fall away and are caused to stumble and distrust and desert You, yet I will not [do so]! 
 
 
 
@@ -658,7 +658,7 @@ And Jesus said to him, Truly I tell you, this very night, before a cock crows tw
 
 
 
-But [Peter] said more vehemently _and_ repeatedly, [Even] if it should be necessary for me to die with You, I will not deny _or_ disown You! And they all kept saying the same thing. 
+But [Peter] said more vehemently and repeatedly, [Even] if it should be necessary for me to die with You, I will not deny or disown You! And they all kept saying the same thing. 
 
 
 
@@ -700,7 +700,7 @@ Then they went to a place called Gethsemane, and He said to His disciples, Sit d
 
 
 
-And He took with Him Peter and James and John, and began to be struck with terror _and_ amazement and deeply troubled _and_ depressed. 
+And He took with Him Peter and James and John, and began to be struck with terror and amazement and deeply troubled and depressed. 
 
 
 
@@ -721,7 +721,7 @@ And He took with Him Peter and James and John, and began to be struck with terro
 
 
 
-And He said to them, My soul is exceedingly sad (overwhelmed with grief) so that it almost kills Me! Remain here and keep awake _and_ be watching. 
+And He said to them, My soul is exceedingly sad (overwhelmed with grief) so that it almost kills Me! Remain here and keep awake and be watching. 
 
 
 
@@ -784,7 +784,7 @@ And He was saying, Abba, [which means] Father, everything is possible for You. T
 
 
 
-And He came back and found them sleeping, and He said to Peter, Simon, are you asleep? Have you not the strength to keep awake _and_ watch [with Me for] one hour? 
+And He came back and found them sleeping, and He said to Peter, Simon, are you asleep? Have you not the strength to keep awake and watch [with Me for] one hour? 
 
 
 
@@ -805,7 +805,7 @@ And He came back and found them sleeping, and He said to Peter, Simon, are you a
 
 
 
-Keep awake _and_ watch and pray [constantly], that you may not enter into temptation; the spirit indeed is willing, but the flesh is weak. 
+Keep awake and watch and pray [constantly], that you may not enter into temptation; the spirit indeed is willing, but the flesh is weak. 
 
 
 
@@ -952,7 +952,7 @@ Now the betrayer had given them a signal, saying, The One I shall kiss is [the M
 
 
 
-And when he came, he went up to Jesus immediately and said, Master! _Master_! and he embraced Him _and_ kissed Him fervently. 
+And when he came, he went up to Jesus immediately and said, Master! Master! and he embraced Him and kissed Him fervently. 
 
 
 
@@ -1162,7 +1162,7 @@ And Peter followed Him at a distance, even right into the courtyard of the high 
 
 
 
-Now the chief priests and the entire council (the Sanhedrin) were constantly seeking [to get] testimony against Jesus with a view to condemning Him _and_ putting Him to death, but they did not find any. 
+Now the chief priests and the entire council (the Sanhedrin) were constantly seeking [to get] testimony against Jesus with a view to condemning Him and putting Him to death, but they did not find any. 
 
 
 
@@ -1351,7 +1351,7 @@ Then the high priest tore his garments and said, What need have we for more witn
 
 
 
-You have heard His blasphemy. What is your decision? And they all condemned Him as being guilty _and_ deserving of death. 
+You have heard His blasphemy. What is your decision? And they all condemned Him as being guilty and deserving of death. 
 
 
 
@@ -1372,7 +1372,7 @@ You have heard His blasphemy. What is your decision? And they all condemned Him 
 
 
 
-And some of them began to spit on Him and to blindfold Him and to strike Him with their fists, saying to Him, Prophesy! And the guards received Him with blows _and_ by slapping Him. 
+And some of them began to spit on Him and to blindfold Him and to strike Him with their fists, saying to Him, Prophesy! And the guards received Him with blows and by slapping Him. 
 
 
 
@@ -1435,7 +1435,7 @@ And when she saw Peter warming himself, she gazed intently at him and said, You 
 
 
 
-But he denied it falsely _and_ disowned Him, saying, I neither know nor understand what you say. Then he went outside [the courtyard and was] into the vestibule. _And a cock crowed_. 
+But he denied it falsely and disowned Him, saying, I neither know nor understand what you say. Then he went outside [the courtyard and was] into the vestibule. And a cock crowed. 
 
 
 
@@ -1477,7 +1477,7 @@ And the maidservant saw him, and began again to say to the bystanders, This [man
 
 
 
-But again he denied it falsely _and_ disowned Him. And after a short while, again the bystanders said to Peter, Really, you are one of them, for you are a Galilean _and your dialect shows it_. 
+But again he denied it falsely and disowned Him. And after a short while, again the bystanders said to Peter, Really, you are one of them, for you are a Galilean and your dialect shows it. 
 
 
 
@@ -1519,4 +1519,4 @@ Then he commenced invoking a curse on himself [should he not be telling the trut
 
 
 
-And at once for the second time a cock crowed. And Peter remembered how Jesus said to him, Before a cock crows twice, you will utterly deny Me [disclaiming all connection with Me] three times. And having put his thought upon it [and remembering], he broke down _and_ wept aloud _and_ lamented.
+And at once for the second time a cock crowed. And Peter remembered how Jesus said to him, Before a cock crows twice, you will utterly deny Me [disclaiming all connection with Me] three times. And having put his thought upon it [and remembering], he broke down and wept aloud and lamented.

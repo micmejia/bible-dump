@@ -49,7 +49,7 @@ And the Lord said to Noah, Come with all your household into the ark, for I have
 
 
 
-Of every clean beast you shall receive _and_ take with you seven pairs, the male and his mate, and of beasts that are not clean a pair of each kind, the male and his mate, 
+Of every clean beast you shall receive and take with you seven pairs, the male and his mate, and of beasts that are not clean a pair of each kind, the male and his mate, 
 
 
 
@@ -70,7 +70,7 @@ Of every clean beast you shall receive _and_ take with you seven pairs, the male
 
 
 
-Also of the birds of the air seven pairs, the male and the female, to keep seed [their kind] alive over all the earth _or_ land. 
+Also of the birds of the air seven pairs, the male and the female, to keep seed [their kind] alive over all the earth or land. 
 
 
 
@@ -91,7 +91,7 @@ Also of the birds of the air seven pairs, the male and the female, to keep seed 
 
 
 
-For in seven days I will cause it to rain upon the earth forty days and forty nights, and every living substance _and_ thing that I have made I will destroy, blot out, _and_ wipe away from the face of the earth. 
+For in seven days I will cause it to rain upon the earth forty days and forty nights, and every living substance and thing that I have made I will destroy, blot out, and wipe away from the face of the earth. 
 
 
 
@@ -133,7 +133,7 @@ And Noah did all that the Lord commanded him.
 
 
 
-Noah was 600 years old when the flood of waters came upon the earth _or_ land. 
+Noah was 600 years old when the flood of waters came upon the earth or land. 
 
 
 
@@ -175,7 +175,7 @@ And Noah and his sons and his wife and his sons' wives with him went into the ar
 
 
 
-Of clean animals and of animals that are not clean, and of birds _and_ fowls, and of everything that creeps on the ground, 
+Of clean animals and of animals that are not clean, and of birds and fowls, and of everything that creeps on the ground, 
 
 
 
@@ -217,7 +217,7 @@ There went in two and two with Noah into the ark, the male and the female, as Go
 
 
 
-And after the seven days the floodwaters came upon the earth _or_ land. 
+And after the seven days the floodwaters came upon the earth or land. 
 
 
 
@@ -238,7 +238,7 @@ And after the seven days the floodwaters came upon the earth _or_ land.
 
 
 
-In the year 600 of Noah's life, in the seventeenth day of the second month, that same day all the fountains of the great deep were broken up _and_ burst forth, and the windows _and_ floodgates of the heavens were opened. 
+In the year 600 of Noah's life, in the seventeenth day of the second month, that same day all the fountains of the great deep were broken up and burst forth, and the windows and floodgates of the heavens were opened. 
 
 
 
@@ -322,7 +322,7 @@ They and every [wild] beast according to its kind, all the livestock according t
 
 
 
-And they went into the ark with Noah, two and two of all flesh in which there were the breath _and_ spirit of life. 
+And they went into the ark with Noah, two and two of all flesh in which there were the breath and spirit of life. 
 
 
 
@@ -343,7 +343,7 @@ And they went into the ark with Noah, two and two of all flesh in which there we
 
 
 
-And they that entered, male and female of all flesh, went in as God had commanded [Noah]; and the Lord shut him in _and_ closed [the door] round about him. 
+And they that entered, male and female of all flesh, went in as God had commanded [Noah]; and the Lord shut him in and closed [the door] round about him. 
 
 
 
@@ -406,7 +406,7 @@ And the waters became mighty and increased greatly upon the land, and the ark we
 
 
 
-And the waters prevailed so exceedingly _and_ were so mighty upon the earth that all the high hills under the whole sky were covered. 
+And the waters prevailed so exceedingly and were so mighty upon the earth that all the high hills under the whole sky were covered. 
 
 
 
@@ -448,7 +448,7 @@ And the waters prevailed so exceedingly _and_ were so mighty upon the earth that
 
 
 
-And all flesh ceased to breathe that moved upon the earth--fowls _and_ birds, [tame] animals, [wild] beasts, all swarming _and_ creeping things that swarm _and_ creep upon the land, and all mankind. 
+And all flesh ceased to breathe that moved upon the earth--fowls and birds, [tame] animals, [wild] beasts, all swarming and creeping things that swarm and creep upon the land, and all mankind. 
 
 
 
@@ -469,7 +469,7 @@ And all flesh ceased to breathe that moved upon the earth--fowls _and_ birds, [t
 
 
 
-Everything on the dry land in whose nostrils were the breath _and_ spirit of life died. 
+Everything on the dry land in whose nostrils were the breath and spirit of life died. 
 
 
 
@@ -511,4 +511,4 @@ God destroyed (blotted out) every living thing that was upon the face of the ear
 
 
 
-And the waters prevailed [mightily] upon the earth _or_ land 150 days (five months).
+And the waters prevailed [mightily] upon the earth or land 150 days (five months).

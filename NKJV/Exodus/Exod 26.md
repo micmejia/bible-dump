@@ -10,34 +10,34 @@ next: ['Exod 27']
 
 
 ###### 1 
-"Moreover you shall make the tabernacle _with_ ten curtains _of_ fine woven linen and blue, purple, and scarlet _thread;_ with artistic designs of cherubim you shall weave them. 
+"Moreover you shall make the tabernacle with ten curtains of fine woven linen and blue, purple, and scarlet thread; with artistic designs of cherubim you shall weave them. 
 
 ###### 2 
-The length of each curtain _shall be_ twenty-eight cubits, and the width of each curtain four cubits. And every one of the curtains shall have the same measurements. 
+The length of each curtain shall be twenty-eight cubits, and the width of each curtain four cubits. And every one of the curtains shall have the same measurements. 
 
 ###### 3 
-Five curtains shall be coupled to one another, and _the other_ five curtains _shall be_ coupled to one another. 
+Five curtains shall be coupled to one another, and the other five curtains shall be coupled to one another. 
 
 ###### 4 
-And you shall make loops of blue _yarn_ on the edge of the curtain on the selvedge of _one_ set, and likewise you shall do on the outer edge of _the other_ curtain of the second set. 
+And you shall make loops of blue yarn on the edge of the curtain on the selvedge of one set, and likewise you shall do on the outer edge of the other curtain of the second set. 
 
 ###### 5 
-Fifty loops you shall make in the one curtain, and fifty loops you shall make on the edge of the curtain that _is_ on the end of the second set, that the loops may be clasped to one another. 
+Fifty loops you shall make in the one curtain, and fifty loops you shall make on the edge of the curtain that is on the end of the second set, that the loops may be clasped to one another. 
 
 ###### 6 
 And you shall make fifty clasps of gold, and couple the curtains together with the clasps, so that it may be one tabernacle. 
 
 ###### 7 
-"You shall also make curtains of goats' _hair,_ to be a tent over the tabernacle. You shall make eleven curtains. 
+"You shall also make curtains of goats' hair, to be a tent over the tabernacle. You shall make eleven curtains. 
 
 ###### 8 
-The length of each curtain _shall be_ thirty cubits, and the width of each curtain four cubits; and the eleven curtains shall all have the same measurements. 
+The length of each curtain shall be thirty cubits, and the width of each curtain four cubits; and the eleven curtains shall all have the same measurements. 
 
 ###### 9 
 And you shall couple five curtains by themselves and six curtains by themselves, and you shall double over the sixth curtain at the forefront of the tent. 
 
 ###### 10 
-You shall make fifty loops on the edge of the curtain that is outermost in _one_ set, and fifty loops on the edge of the curtain of the second set. 
+You shall make fifty loops on the edge of the curtain that is outermost in one set, and fifty loops on the edge of the curtain of the second set. 
 
 ###### 11 
 And you shall make fifty bronze clasps, put the clasps into the loops, and couple the tent together, that it may be one. 
@@ -55,10 +55,10 @@ And a cubit on one side and a cubit on the other side, of what remains of the le
 "And for the tabernacle you shall make the boards of acacia wood, standing upright. 
 
 ###### 16 
-Ten cubits _shall be_ the length of a board, and a cubit and a half _shall be_ the width of each board. 
+Ten cubits shall be the length of a board, and a cubit and a half shall be the width of each board. 
 
 ###### 17 
-Two tenons _shall be_ in each board for binding one to another. Thus you shall make for all the boards of the tabernacle. 
+Two tenons shall be in each board for binding one to another. Thus you shall make for all the boards of the tabernacle. 
 
 ###### 18 
 And you shall make the boards for the tabernacle, twenty boards for the south side. 
@@ -67,7 +67,7 @@ And you shall make the boards for the tabernacle, twenty boards for the south si
 You shall make forty sockets of silver under the twenty boards: two sockets under each of the boards for its two tenons. 
 
 ###### 20 
-And for the second side of the tabernacle, the north side, _there shall be_ twenty boards 
+And for the second side of the tabernacle, the north side, there shall be twenty boards 
 
 ###### 21 
 and their forty sockets of silver: two sockets under each of the boards. 
@@ -94,19 +94,19 @@ five bars for the boards on the other side of the tabernacle, and five bars for 
 The middle bar shall pass through the midst of the boards from end to end. 
 
 ###### 29 
-You shall overlay the boards with gold, make their rings of gold _as_ holders for the bars, and overlay the bars with gold. 
+You shall overlay the boards with gold, make their rings of gold as holders for the bars, and overlay the bars with gold. 
 
 ###### 30 
 And you shall raise up the tabernacle according to its pattern which you were shown on the mountain. 
 
 ###### 31 
-"You shall make a veil woven of blue, purple, and scarlet _thread,_ and fine woven linen. It shall be woven with an artistic design of cherubim. 
+"You shall make a veil woven of blue, purple, and scarlet thread, and fine woven linen. It shall be woven with an artistic design of cherubim. 
 
 ###### 32 
-You shall hang it upon the four pillars of acacia _wood_ overlaid with gold. Their hooks _shall be_ gold, upon four sockets of silver. 
+You shall hang it upon the four pillars of acacia wood overlaid with gold. Their hooks shall be gold, upon four sockets of silver. 
 
 ###### 33 
-And you shall hang the veil from the clasps. Then you shall bring the ark of the Testimony in there, behind the veil. The veil shall be a divider for you between the holy _place_ and the Most Holy. 
+And you shall hang the veil from the clasps. Then you shall bring the ark of the Testimony in there, behind the veil. The veil shall be a divider for you between the holy place and the Most Holy. 
 
 ###### 34 
 You shall put the mercy seat upon the ark of the Testimony in the Most Holy. 
@@ -115,7 +115,7 @@ You shall put the mercy seat upon the ark of the Testimony in the Most Holy.
 You shall set the table outside the veil, and the lampstand across from the table on the side of the tabernacle toward the south; and you shall put the table on the north side. 
 
 ###### 36 
-"You shall make a screen for the door of the tabernacle, _woven of_ blue, purple, and scarlet _thread,_ and fine woven linen, made by a weaver. 
+"You shall make a screen for the door of the tabernacle, woven of blue, purple, and scarlet thread, and fine woven linen, made by a weaver. 
 
 ###### 37 
-And you shall make for the screen five pillars of acacia _wood,_ and overlay them with gold; their hooks _shall be_ gold, and you shall cast five sockets of bronze for them.
+And you shall make for the screen five pillars of acacia wood, and overlay them with gold; their hooks shall be gold, and you shall cast five sockets of bronze for them.

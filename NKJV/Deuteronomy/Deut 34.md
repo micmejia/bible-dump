@@ -18,7 +18,7 @@ all Naphtali and the land of Ephraim and Manasseh, all the land of Judah as far 
 the South, and the plain of the Valley of Jericho, the city of palm trees, as far as Zoar. 
 
 ###### 4 
-Then the Lord said to him, "This _is_ the land of which I swore to give Abraham, Isaac, and Jacob, saying, 'I will give it to your descendants.' I have caused you to see _it_ with your eyes, but you shall not cross over there." 
+Then the Lord said to him, "This is the land of which I swore to give Abraham, Isaac, and Jacob, saying, 'I will give it to your descendants.' I have caused you to see it with your eyes, but you shall not cross over there." 
 
 ###### 5 
 So Moses the servant of the Lord died there in the land of Moab, according to the word of the Lord. 
@@ -27,10 +27,10 @@ So Moses the servant of the Lord died there in the land of Moab, according to th
 And He buried him in a valley in the land of Moab, opposite Beth Peor; but no one knows his grave to this day. 
 
 ###### 7 
-Moses _was_ one hundred and twenty years old when he died. His eyes were not dim nor his natural vigor diminished. 
+Moses was one hundred and twenty years old when he died. His eyes were not dim nor his natural vigor diminished. 
 
 ###### 8 
-And the children of Israel wept for Moses in the plains of Moab thirty days. So the days of weeping _and_ mourning for Moses ended. 
+And the children of Israel wept for Moses in the plains of Moab thirty days. So the days of weeping and mourning for Moses ended. 
 
 ###### 9 
 Now Joshua the son of Nun was full of the spirit of wisdom, for Moses had laid his hands on him; so the children of Israel heeded him, and did as the Lord had commanded Moses. 

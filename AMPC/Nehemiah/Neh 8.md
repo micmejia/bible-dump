@@ -175,7 +175,7 @@ Also Jeshua, Bani, Sherebiah, Jamin, Akkub, Shabbethai, Hodiah, Maaseiah, Kelita
 
 
 
-So they read from the Book of the Law of God distinctly, faithfully amplifying _and_ giving the sense so that [the people] understood the reading. 
+So they read from the Book of the Law of God distinctly, faithfully amplifying and giving the sense so that [the people] understood the reading. 
 
 
 
@@ -217,7 +217,7 @@ And Nehemiah, who was the governor, and Ezra the priest and scribe, and the Levi
 
 
 
-Then [Ezra] told them, Go your way, eat the fat, drink the sweet drink, and send portions to him for whom nothing is prepared; for this day is holy to our Lord. And be not grieved _and_ depressed, for the joy of the Lord is your strength _and_ stronghold. 
+Then [Ezra] told them, Go your way, eat the fat, drink the sweet drink, and send portions to him for whom nothing is prepared; for this day is holy to our Lord. And be not grieved and depressed, for the joy of the Lord is your strength and stronghold. 
 
 
 
@@ -238,7 +238,7 @@ Then [Ezra] told them, Go your way, eat the fat, drink the sweet drink, and send
 
 
 
-So the Levites quieted all the people, saying, Be still, for the day is holy. And do not be grieved _and_ sad. 
+So the Levites quieted all the people, saying, Be still, for the day is holy. And do not be grieved and sad. 
 
 
 
@@ -280,7 +280,7 @@ And all the people went their way to eat, drink, send portions, and make great r
 
 
 
-On the second day, all the heads of fathers' houses, with the priests and Levites, gathered to Ezra the scribe to study _and_ understand the words of divine instruction. 
+On the second day, all the heads of fathers' houses, with the priests and Levites, gathered to Ezra the scribe to study and understand the words of divine instruction. 
 
 
 

@@ -301,7 +301,7 @@ So Nebuzaradan the captain of the guard, Nebushasban [the Rabsaris] a chief of t
 
 
 
-Sent and took Jeremiah out of the court of the guard and entrusted him to Gedaliah [a prominent man whose father had once saved the prophet's life] son of Ahikam, the son of Shaphan, that he should take him home [with him to Mizpah]. So Jeremiah was released _and_ dwelt among the people. 
+Sent and took Jeremiah out of the court of the guard and entrusted him to Gedaliah [a prominent man whose father had once saved the prophet's life] son of Ahikam, the son of Shaphan, that he should take him home [with him to Mizpah]. So Jeremiah was released and dwelt among the people. 
 
 
 

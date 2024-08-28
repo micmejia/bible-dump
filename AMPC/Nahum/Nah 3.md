@@ -48,7 +48,7 @@ Woe to the bloody city! It is full of lies and booty and [there is] no end to th
 
 
 
-The cracking of the whip, the noise of the rattling of wheels, and prancing horses and chariots rumbling _and_ bounding, 
+The cracking of the whip, the noise of the rattling of wheels, and prancing horses and chariots rumbling and bounding, 
 
 
 
@@ -69,7 +69,7 @@ The cracking of the whip, the noise of the rattling of wheels, and prancing hors
 
 
 
-Horsemen mounting _and_ charging, the flashing sword, the gleaming spear, a multitude of slain and a great number of corpses, no end of corpses! [The horsemen] stumble over the corpses! 
+Horsemen mounting and charging, the flashing sword, the gleaming spear, a multitude of slain and a great number of corpses, no end of corpses! [The horsemen] stumble over the corpses! 
 
 
 
@@ -90,7 +90,7 @@ Horsemen mounting _and_ charging, the flashing sword, the gleaming spear, a mult
 
 
 
-All because of the multitude of the harlotries [of Nineveh], the well-favored harlot, the mistress of deadly charms who betrays _and_ sells nations through her whoredoms [idolatry] and peoples through her enchantments. 
+All because of the multitude of the harlotries [of Nineveh], the well-favored harlot, the mistress of deadly charms who betrays and sells nations through her whoredoms [idolatry] and peoples through her enchantments. 
 
 
 
@@ -132,7 +132,7 @@ Behold, I am against you, says the Lord of hosts, and I will lift up your skirts
 
 
 
-I will cast abominable things at you _and_ make you filthy, treat you with contempt, and make you a gazingstock. 
+I will cast abominable things at you and make you filthy, treat you with contempt, and make you a gazingstock. 
 
 
 
@@ -153,7 +153,7 @@ I will cast abominable things at you _and_ make you filthy, treat you with conte
 
 
 
-And all who look on you will shrink _and_ flee from you and say, Nineveh is laid waste; who will pity _and_ bemoan her? Where [then] shall I seek comforters for you? 
+And all who look on you will shrink and flee from you and say, Nineveh is laid waste; who will pity and bemoan her? Where [then] shall I seek comforters for you? 
 
 
 
@@ -174,7 +174,7 @@ And all who look on you will shrink _and_ flee from you and say, Nineveh is laid
 
 
 
-Are you better than No-amon [Thebes, capital of Upper Egypt], that dwelt by the rivers _or_ canals, that had the waters round about her, whose rampart was a sea [the Nile] and water her wall? 
+Are you better than No-amon [Thebes, capital of Upper Egypt], that dwelt by the rivers or canals, that had the waters round about her, whose rampart was a sea [the Nile] and water her wall? 
 
 
 
@@ -195,7 +195,7 @@ Are you better than No-amon [Thebes, capital of Upper Egypt], that dwelt by the 
 
 
 
-Ethiopia and Egypt were her strength, and that without limit. Put and the Libyans were _her_ helpers. 
+Ethiopia and Egypt were her strength, and that without limit. Put and the Libyans were her helpers. 
 
 
 
@@ -237,7 +237,7 @@ Yet she was carried away; she went into captivity. Her young children also were 
 
 
 
-You will be drunk [Nineveh, with the cup of God's wrath]; you will be dazed. You will seek _and_ require a refuge because of the enemy. 
+You will be drunk [Nineveh, with the cup of God's wrath]; you will be dazed. You will seek and require a refuge because of the enemy. 
 
 
 
@@ -342,7 +342,7 @@ Draw for yourself the water [necessary] for a [long continued] siege, make stron
 
 
 
-You increased your merchants more than the [visible] stars of the heavens. The swarming locust spreads itself _and_ destroys, and then flies away. 
+You increased your merchants more than the [visible] stars of the heavens. The swarming locust spreads itself and destroys, and then flies away. 
 
 
 

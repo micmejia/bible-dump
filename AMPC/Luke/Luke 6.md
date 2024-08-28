@@ -196,7 +196,7 @@ But He was aware all along of their thoughts, and He said to the man with the wi
 
 
 
-Then Jesus said to them, I ask you, is it lawful _and_ right on the Sabbath to do good [so that someone derives advantage from it] or to do evil, to save a life [and make a soul safe] or to destroy it? 
+Then Jesus said to them, I ask you, is it lawful and right on the Sabbath to do good [so that someone derives advantage from it] or to do evil, to save a life [and make a soul safe] or to destroy it? 
 
 
 
@@ -217,7 +217,7 @@ Then Jesus said to them, I ask you, is it lawful _and_ right on the Sabbath to d
 
 
 
-Then He glanced around at them all and said to the man, Stretch out your hand! And he did so, and his hand was fully restored _like the other one_. 
+Then He glanced around at them all and said to the man, Stretch out your hand! And he did so, and his hand was fully restored like the other one. 
 
 
 
@@ -238,7 +238,7 @@ Then He glanced around at them all and said to the man, Stretch out your hand! A
 
 
 
-But they were filled with lack of understanding _and_ senseless rage and discussed (consulted) with one another what they might do to Jesus. 
+But they were filled with lack of understanding and senseless rage and discussed (consulted) with one another what they might do to Jesus. 
 
 
 
@@ -385,7 +385,7 @@ And Jesus came down with them and took His stand on a level spot, with a great c
 
 
 
-Even those who were disturbed _and_ troubled with unclean spirits, and they were being healed [also]. 
+Even those who were disturbed and troubled with unclean spirits, and they were being healed [also]. 
 
 
 
@@ -427,7 +427,7 @@ And all the multitude were seeking to touch Him, for healing power was all the w
 
 
 
-And solemnly lifting up His eyes on His disciples, He said: Blessed (happy--with life-joy and satisfaction in God's favor and salvation, apart from your outward condition--and to be envied) are you poor _and_ lowly _and_ afflicted (destitute of wealth, influence, position, and honor), for the kingdom of God is yours! 
+And solemnly lifting up His eyes on His disciples, He said: Blessed (happy--with life-joy and satisfaction in God's favor and salvation, apart from your outward condition--and to be envied) are you poor and lowly and afflicted (destitute of wealth, influence, position, and honor), for the kingdom of God is yours! 
 
 
 
@@ -448,7 +448,7 @@ And solemnly lifting up His eyes on His disciples, He said: Blessed (happy--with
 
 
 
-Blessed (happy--with life-joy and satisfaction in God's favor and salvation, apart from your outward condition--and to be envied) are you who hunger _and_ seek with eager desire now, for you shall be filled _and_ completely satisfied! Blessed (happy--with life-joy and satisfaction in God's favor and salvation, apart from your outward condition--and to be envied) are you who weep _and_ sob now, for you shall laugh! 
+Blessed (happy--with life-joy and satisfaction in God's favor and salvation, apart from your outward condition--and to be envied) are you who hunger and seek with eager desire now, for you shall be filled and completely satisfied! Blessed (happy--with life-joy and satisfaction in God's favor and salvation, apart from your outward condition--and to be envied) are you who weep and sob now, for you shall laugh! 
 
 
 
@@ -469,7 +469,7 @@ Blessed (happy--with life-joy and satisfaction in God's favor and salvation, apa
 
 
 
-Blessed (happy--with life-joy and satisfaction in God's favor and salvation, apart from your outward condition--and to be envied) are you when people despise (hate) you, and when they exclude _and_ excommunicate you [as disreputable] and revile _and_ denounce you and defame _and_ cast out _and_ spurn your name as evil (wicked) on account of the Son of Man. 
+Blessed (happy--with life-joy and satisfaction in God's favor and salvation, apart from your outward condition--and to be envied) are you when people despise (hate) you, and when they exclude and excommunicate you [as disreputable] and revile and denounce you and defame and cast out and spurn your name as evil (wicked) on account of the Son of Man. 
 
 
 
@@ -490,7 +490,7 @@ Blessed (happy--with life-joy and satisfaction in God's favor and salvation, apa
 
 
 
-Rejoice _and_ be glad at such a time and exult _and_ leap for joy, for behold, your reward is rich _and_ great _and_ strong _and_ intense _and_ abundant in heaven; for even so their forefathers treated the prophets. 
+Rejoice and be glad at such a time and exult and leap for joy, for behold, your reward is rich and great and strong and intense and abundant in heaven; for even so their forefathers treated the prophets. 
 
 
 
@@ -511,7 +511,7 @@ Rejoice _and_ be glad at such a time and exult _and_ leap for joy, for behold, y
 
 
 
-But woe to (alas for) you who are rich (abounding in material resources), for you already are receiving your consolation (the solace and sense of strengthening and cheer that come from prosperity) _and_ have taken and enjoyed your comfort in full [having nothing left to be awarded you]. 
+But woe to (alas for) you who are rich (abounding in material resources), for you already are receiving your consolation (the solace and sense of strengthening and cheer that come from prosperity) and have taken and enjoyed your comfort in full [having nothing left to be awarded you]. 
 
 
 
@@ -532,7 +532,7 @@ But woe to (alas for) you who are rich (abounding in material resources), for yo
 
 
 
-Woe to (alas for) you who are full now (completely filled, luxuriously gorged and satiated), for you shall hunger _and_ suffer want! Woe to (alas for) you who laugh now, for you shall mourn and weep _and_ wail! 
+Woe to (alas for) you who are full now (completely filled, luxuriously gorged and satiated), for you shall hunger and suffer want! Woe to (alas for) you who laugh now, for you shall mourn and weep and wail! 
 
 
 
@@ -553,7 +553,7 @@ Woe to (alas for) you who are full now (completely filled, luxuriously gorged an
 
 
 
-Woe to (alas for) you when everyone speaks fairly _and_ handsomely of you _and_ praises you, for even so their forefathers did to the false prophets. 
+Woe to (alas for) you when everyone speaks fairly and handsomely of you and praises you, for even so their forefathers did to the false prophets. 
 
 
 
@@ -574,7 +574,7 @@ Woe to (alas for) you when everyone speaks fairly _and_ handsomely of you _and_ 
 
 
 
-But I say to you who are listening now to Me: [in order to heed, make it a practice to] love your enemies, treat well (do good to, act nobly toward) those who detest you _and_ pursue you with hatred, 
+But I say to you who are listening now to Me: [in order to heed, make it a practice to] love your enemies, treat well (do good to, act nobly toward) those who detest you and pursue you with hatred, 
 
 
 
@@ -595,7 +595,7 @@ But I say to you who are listening now to Me: [in order to heed, make it a pract
 
 
 
-Invoke blessings upon _and_ pray for the happiness of those who curse you, implore God's blessing (favor) upon those who abuse you [who revile, reproach, disparage, and high-handedly misuse you]. 
+Invoke blessings upon and pray for the happiness of those who curse you, implore God's blessing (favor) upon those who abuse you [who revile, reproach, disparage, and high-handedly misuse you]. 
 
 
 
@@ -616,7 +616,7 @@ Invoke blessings upon _and_ pray for the happiness of those who curse you, implo
 
 
 
-To the one who strikes you on the jaw _or_ cheek, offer the other jaw _or_ cheek also; and from him who takes away your outer garment, do not withhold your undergarment as well. 
+To the one who strikes you on the jaw or cheek, offer the other jaw or cheek also; and from him who takes away your outer garment, do not withhold your undergarment as well. 
 
 
 
@@ -637,7 +637,7 @@ To the one who strikes you on the jaw _or_ cheek, offer the other jaw _or_ cheek
 
 
 
-Give away to everyone who begs of you [who is in want of necessities], and of him who takes away from you your goods, do not demand _or_ require them back again. 
+Give away to everyone who begs of you [who is in want of necessities], and of him who takes away from you your goods, do not demand or require them back again. 
 
 
 
@@ -658,7 +658,7 @@ Give away to everyone who begs of you [who is in want of necessities], and of hi
 
 
 
-And as you would like _and_ desire that men would do to you, do exactly so to them. 
+And as you would like and desire that men would do to you, do exactly so to them. 
 
 
 
@@ -679,7 +679,7 @@ And as you would like _and_ desire that men would do to you, do exactly so to th
 
 
 
-If you [merely] love those who love you, what quality of credit _and_ thanks is that to you? For even the [very] sinners love their lovers (those who love them). 
+If you [merely] love those who love you, what quality of credit and thanks is that to you? For even the [very] sinners love their lovers (those who love them). 
 
 
 
@@ -700,7 +700,7 @@ If you [merely] love those who love you, what quality of credit _and_ thanks is 
 
 
 
-And if you are kind _and_ good _and_ do favors to _and_ benefit those who are kind _and_ good _and_ do favors to _and_ benefit you, what quality of credit _and_ thanks is that to you? For even the preeminently sinful do the same. 
+And if you are kind and good and do favors to and benefit those who are kind and good and do favors to and benefit you, what quality of credit and thanks is that to you? For even the preeminently sinful do the same. 
 
 
 
@@ -721,7 +721,7 @@ And if you are kind _and_ good _and_ do favors to _and_ benefit those who are ki
 
 
 
-And if you lend money at interest to those from whom you hope to receive, what quality of credit _and_ thanks is that to you? Even notorious sinners lend money at interest to sinners, so as to recover as much again. 
+And if you lend money at interest to those from whom you hope to receive, what quality of credit and thanks is that to you? Even notorious sinners lend money at interest to sinners, so as to recover as much again. 
 
 
 
@@ -742,7 +742,7 @@ And if you lend money at interest to those from whom you hope to receive, what q
 
 
 
-But love your enemies and be kind _and_ do good [doing favors so that someone derives benefit from them] and lend, expecting _and_ hoping for nothing in return _but_ [^aa]considering nothing as lost _and_ despairing of no one; and then your recompense (your reward) will be great (rich, strong, intense, and abundant), and you will be sons of the Most High, for He is kind _and_ charitable _and_ good to the ungrateful _and_ the selfish and wicked. 
+But love your enemies and be kind and do good [doing favors so that someone derives benefit from them] and lend, expecting and hoping for nothing in return but [^aa]considering nothing as lost and despairing of no one; and then your recompense (your reward) will be great (rich, strong, intense, and abundant), and you will be sons of the Most High, for He is kind and charitable and good to the ungrateful and the selfish and wicked. 
 
 
 
@@ -784,7 +784,7 @@ So be merciful (sympathetic, tender, responsive, and compassionate) even as your
 
 
 
-Judge not [neither pronouncing judgment nor subjecting to censure], and you will not be judged; do not condemn _and_ pronounce guilty, and you will not be condemned _and_ pronounced guilty; acquit _and_ forgive _and_ [^ab]release (give up resentment, let it drop), and you will be acquitted _and_ forgiven _and_ [^ac]released. 
+Judge not [neither pronouncing judgment nor subjecting to censure], and you will not be judged; do not condemn and pronounce guilty, and you will not be condemned and pronounced guilty; acquit and forgive and [^ab]release (give up resentment, let it drop), and you will be acquitted and forgiven and [^ac]released. 
 
 
 
@@ -826,7 +826,7 @@ Give, and [gifts] will be given to you; good measure, pressed down, shaken toget
 
 
 
-He further told them [^ae]a proverb: Can a blind [man] guide _and_ direct a blind [man]? Will they not both stumble into a ditch _or_ a [^af]hole in the ground? 
+He further told them [^ae]a proverb: Can a blind [man] guide and direct a blind [man]? Will they not both stumble into a ditch or a [^af]hole in the ground? 
 
 
 
@@ -868,7 +868,7 @@ A pupil is not superior to his teacher, but everyone [when he is] completely tra
 
 
 
-Why do you see the speck that is in your brother's eye but do not notice _or_ consider the beam [of timber] that is in your own eye? 
+Why do you see the speck that is in your brother's eye but do not notice or consider the beam [of timber] that is in your own eye? 
 
 
 
@@ -931,7 +931,7 @@ For there is no good (healthy) tree that bears decayed (worthless, stale) fruit,
 
 
 
-For each tree is known _and_ identified by its own fruit; for figs are not gathered from thornbushes, nor is a cluster of grapes picked from a bramblebush. 
+For each tree is known and identified by its own fruit; for figs are not gathered from thornbushes, nor is a cluster of grapes picked from a bramblebush. 
 
 
 
@@ -1015,7 +1015,7 @@ For everyone who comes to Me and listens to My words [in order to heed their tea
 
 
 
-He is like a man building a house, who dug and went down deep and laid a foundation upon the rock; and when a flood arose, the torrent broke against that house and could not shake _or_ move it, because it had been securely built _or_ [^ag]_founded on a rock_. 
+He is like a man building a house, who dug and went down deep and laid a foundation upon the rock; and when a flood arose, the torrent broke against that house and could not shake or move it, because it had been securely built or [^ag]founded on a rock. 
 
 
 
@@ -1036,4 +1036,4 @@ He is like a man building a house, who dug and went down deep and laid a foundat
 
 
 
-But he who merely hears and does not practice doing My words is like a man who built a house on the ground without a foundation, against which the torrent burst, and immediately it collapsed _and_ fell, and the breaking _and_ ruin of that house was great.
+But he who merely hears and does not practice doing My words is like a man who built a house on the ground without a foundation, against which the torrent burst, and immediately it collapsed and fell, and the breaking and ruin of that house was great.

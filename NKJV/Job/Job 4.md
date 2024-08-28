@@ -13,7 +13,7 @@ next: ['Job 5']
 Then Eliphaz the Temanite answered and said: 
 
 ###### 2 
-"_If_ one attempts a word with you, will you become weary? But who can withhold himself from speaking? 
+"If one attempts a word with you, will you become weary? But who can withhold himself from speaking? 
 
 ###### 3 
 Surely you have instructed many, And you have strengthened weak hands. 
@@ -25,10 +25,10 @@ Your words have upheld him who was stumbling, And you have strengthened the feeb
 But now it comes upon you, and you are weary; It touches you, and you are troubled. 
 
 ###### 6 
-_Is_ not your reverence your confidence? And the integrity of your ways your hope? 
+Is not your reverence your confidence? And the integrity of your ways your hope? 
 
 ###### 7 
-"Remember now, who _ever_ perished being innocent? Or where were the upright _ever_ cut off? 
+"Remember now, who ever perished being innocent? Or where were the upright ever cut off? 
 
 ###### 8 
 Even as I have seen, Those who plow iniquity And sow trouble reap the same. 
@@ -55,16 +55,16 @@ Fear came upon me, and trembling, Which made all my bones shake.
 Then a spirit passed before my face; The hair on my body stood up. 
 
 ###### 16 
-It stood still, But I could not discern its appearance. A form _was_ before my eyes; _There was_ silence; Then I heard a voice _saying:_ 
+It stood still, But I could not discern its appearance. A form was before my eyes; There was silence; Then I heard a voice saying: 
 
 ###### 17 
 'Can a mortal be more righteous than God? Can a man be more pure than his Maker? 
 
 ###### 18 
-If He puts no trust in His servants, _If_ He charges His angels with error, 
+If He puts no trust in His servants, If He charges His angels with error, 
 
 ###### 19 
-How much more those who dwell in houses of clay, Whose foundation is in the dust, _Who_ are crushed before a moth? 
+How much more those who dwell in houses of clay, Whose foundation is in the dust, Who are crushed before a moth? 
 
 ###### 20 
 They are broken in pieces from morning till evening; They perish forever, with no one regarding. 

@@ -16,16 +16,16 @@ next: ['Deut 29']
 And all these blessings shall come upon you and overtake you, because you obey the voice of the Lord your God: 
 
 ###### 3 
-"Blessed _shall_ you _be_ in the city, and blessed _shall_ you _be_ in the country. 
+"Blessed shall you be in the city, and blessed shall you be in the country. 
 
 ###### 4 
-"Blessed _shall be_ the fruit of your body, the produce of your ground and the increase of your herds, the increase of your cattle and the offspring of your flocks. 
+"Blessed shall be the fruit of your body, the produce of your ground and the increase of your herds, the increase of your cattle and the offspring of your flocks. 
 
 ###### 5 
-"Blessed _shall be_ your basket and your kneading bowl. 
+"Blessed shall be your basket and your kneading bowl. 
 
 ###### 6 
-"Blessed _shall_ you _be_ when you come in, and blessed _shall_ you _be_ when you go out. 
+"Blessed shall you be when you come in, and blessed shall you be when you go out. 
 
 ###### 7 
 "The Lord will cause your enemies who rise against you to be defeated before your face; they shall come out against you one way and flee before you seven ways. 
@@ -46,10 +46,10 @@ And the Lord will grant you plenty of goods, in the fruit of your body, in the i
 The Lord will open to you His good treasure, the heavens, to give the rain to your land in its season, and to bless all the work of your hand. You shall lend to many nations, but you shall not borrow. 
 
 ###### 13 
-And the Lord will make you the head and not the tail; you shall be above only, and not be beneath, if you heed the commandments of the Lord your God, which I command you today, and are careful to observe _them._ 
+And the Lord will make you the head and not the tail; you shall be above only, and not be beneath, if you heed the commandments of the Lord your God, which I command you today, and are careful to observe them. 
 
 ###### 14 
-So you shall not turn aside from any of the words which I command you this day, _to_ the right or the left, to go after other gods to serve them.
+So you shall not turn aside from any of the words which I command you this day, to the right or the left, to go after other gods to serve them.
 
 ## Curses on Disobedience 
 
@@ -57,16 +57,16 @@ So you shall not turn aside from any of the words which I command you this day, 
 "But it shall come to pass, if you do not obey the voice of the Lord your God, to observe carefully all His commandments and His statutes which I command you today, that all these curses will come upon you and overtake you: 
 
 ###### 16 
-"Cursed _shall_ you _be_ in the city, and cursed _shall_ you _be_ in the country. 
+"Cursed shall you be in the city, and cursed shall you be in the country. 
 
 ###### 17 
-"Cursed _shall be_ your basket and your kneading bowl. 
+"Cursed shall be your basket and your kneading bowl. 
 
 ###### 18 
-"Cursed _shall be_ the fruit of your body and the produce of your land, the increase of your cattle and the offspring of your flocks. 
+"Cursed shall be the fruit of your body and the produce of your land, the increase of your cattle and the offspring of your flocks. 
 
 ###### 19 
-"Cursed _shall_ you _be_ when you come in, and cursed _shall_ you _be_ when you go out. 
+"Cursed shall you be when you come in, and cursed shall you be when you go out. 
 
 ###### 20 
 "The Lord will send on you cursing, confusion, and rebuke in all that you set your hand to do, until you are destroyed and until you perish quickly, because of the wickedness of your doings in which you have forsaken Me. 
@@ -78,7 +78,7 @@ The Lord will make the plague cling to you until He has consumed you from the la
 The Lord will strike you with consumption, with fever, with inflammation, with severe burning fever, with the sword, with scorching, and with mildew; they shall pursue you until you perish. 
 
 ###### 23 
-And your heavens which _are_ over your head shall be bronze, and the earth which is under you _shall be_ iron. 
+And your heavens which are over your head shall be bronze, and the earth which is under you shall be iron. 
 
 ###### 24 
 The Lord will change the rain of your land to powder and dust; from the heaven it shall come down on you until you are destroyed. 
@@ -87,7 +87,7 @@ The Lord will change the rain of your land to powder and dust; from the heaven i
 "The Lord will cause you to be defeated before your enemies; you shall go out one way against them and flee seven ways before them; and you shall become troublesome to all the kingdoms of the earth. 
 
 ###### 26 
-Your carcasses shall be food for all the birds of the air and the beasts of the earth, and no one shall frighten _them_ away. 
+Your carcasses shall be food for all the birds of the air and the beasts of the earth, and no one shall frighten them away. 
 
 ###### 27 
 The Lord will strike you with the boils of Egypt, with tumors, with the scab, and with the itch, from which you cannot be healed. 
@@ -96,16 +96,16 @@ The Lord will strike you with the boils of Egypt, with tumors, with the scab, an
 The Lord will strike you with madness and blindness and confusion of heart. 
 
 ###### 29 
-And you shall grope at noonday, as a blind man gropes in darkness; you shall not prosper in your ways; you shall be only oppressed and plundered continually, and no one shall save _you._ 
+And you shall grope at noonday, as a blind man gropes in darkness; you shall not prosper in your ways; you shall be only oppressed and plundered continually, and no one shall save you. 
 
 ###### 30 
 "You shall betroth a wife, but another man shall lie with her; you shall build a house, but you shall not dwell in it; you shall plant a vineyard, but shall not gather its grapes. 
 
 ###### 31 
-Your ox _shall be_ slaughtered before your eyes, but you shall not eat of it; your donkey _shall be_ violently taken away from before you, and shall not be restored to you; your sheep _shall be_ given to your enemies, and you shall have no one to rescue _them._ 
+Your ox shall be slaughtered before your eyes, but you shall not eat of it; your donkey shall be violently taken away from before you, and shall not be restored to you; your sheep shall be given to your enemies, and you shall have no one to rescue them. 
 
 ###### 32 
-Your sons and your daughters _shall be_ given to another people, and your eyes shall look and fail _with longing_ for them all day long; and _there shall be_ no strength in your hand. 
+Your sons and your daughters shall be given to another people, and your eyes shall look and fail with longing for them all day long; and there shall be no strength in your hand. 
 
 ###### 33 
 A nation whom you have not known shall eat the fruit of your land and the produce of your labor, and you shall be only oppressed and crushed continually. 
@@ -126,10 +126,10 @@ And you shall become an astonishment, a proverb, and a byword among all nations 
 "You shall carry much seed out to the field but gather little in, for the locust shall consume it. 
 
 ###### 39 
-You shall plant vineyards and tend _them,_ but you shall neither drink _of_ the wine nor gather the _grapes;_ for the worms shall eat them. 
+You shall plant vineyards and tend them, but you shall neither drink of the wine nor gather the grapes; for the worms shall eat them. 
 
 ###### 40 
-You shall have olive trees throughout all your territory, but you shall not anoint _yourself_ with the oil; for your olives shall drop off. 
+You shall have olive trees throughout all your territory, but you shall not anoint yourself with the oil; for your olives shall drop off. 
 
 ###### 41 
 You shall beget sons and daughters, but they shall not be yours; for they shall go into captivity. 
@@ -138,7 +138,7 @@ You shall beget sons and daughters, but they shall not be yours; for they shall 
 Locusts shall consume all your trees and the produce of your land. 
 
 ###### 43 
-"The alien who _is_ among you shall rise higher and higher above you, and you shall come down lower and lower. 
+"The alien who is among you shall rise higher and higher above you, and you shall come down lower and lower. 
 
 ###### 44 
 He shall lend to you, but you shall not lend to him; he shall be the head, and you shall be the tail. 
@@ -156,13 +156,13 @@ And they shall be upon you for a sign and a wonder, and on your descendants fore
 therefore you shall serve your enemies, whom the Lord will send against you, in hunger, in thirst, in nakedness, and in need of everything; and He will put a yoke of iron on your neck until He has destroyed you. 
 
 ###### 49 
-The Lord will bring a nation against you from afar, from the end of the earth, _as swift_ as the eagle flies, a nation whose language you will not understand, 
+The Lord will bring a nation against you from afar, from the end of the earth, as swift as the eagle flies, a nation whose language you will not understand, 
 
 ###### 50 
 a nation of fierce countenance, which does not respect the elderly nor show favor to the young. 
 
 ###### 51 
-And they shall eat the increase of your livestock and the produce of your land, until you are destroyed; they shall not leave you grain or new wine or oil, _or_ the increase of your cattle or the offspring of your flocks, until they have destroyed you. 
+And they shall eat the increase of your livestock and the produce of your land, until you are destroyed; they shall not leave you grain or new wine or oil, or the increase of your cattle or the offspring of your flocks, until they have destroyed you. 
 
 ###### 52 
 "They shall besiege you at all your gates until your high and fortified walls, in which you trust, come down throughout all your land; and they shall besiege you at all your gates throughout all your land which the Lord your God has given you. 
@@ -192,13 +192,13 @@ then the Lord will bring upon you and your descendants extraordinary plagues--gr
 Moreover He will bring back on you all the diseases of Egypt, of which you were afraid, and they shall cling to you. 
 
 ###### 61 
-Also every sickness and every plague, which _is_ not written in this Book of the Law, will the Lord bring upon you until you are destroyed. 
+Also every sickness and every plague, which is not written in this Book of the Law, will the Lord bring upon you until you are destroyed. 
 
 ###### 62 
 You shall be left few in number, whereas you were as the stars of heaven in multitude, because you would not obey the voice of the Lord your God. 
 
 ###### 63 
-And it shall be, _that_ just as the Lord rejoiced over you to do you good and multiply you, so the Lord will rejoice over you to destroy you and bring you to nothing; and you shall be plucked from off the land which you go to possess. 
+And it shall be, that just as the Lord rejoiced over you to do you good and multiply you, so the Lord will rejoice over you to destroy you and bring you to nothing; and you shall be plucked from off the land which you go to possess. 
 
 ###### 64 
 "Then the Lord will scatter you among all peoples, from one end of the earth to the other, and there you shall serve other gods, which neither you nor your fathers have known--wood and stone. 
@@ -213,4 +213,4 @@ Your life shall hang in doubt before you; you shall fear day and night, and have
 In the morning you shall say, 'Oh, that it were evening!' And at evening you shall say, 'Oh, that it were morning!' because of the fear which terrifies your heart, and because of the sight which your eyes see. 
 
 ###### 68 
-"And the Lord will take you back to Egypt in ships, by the way of which I said to you, 'You shall never see it again.' And there you shall be offered for sale to your enemies as male and female slaves, but no one will buy _you._"
+"And the Lord will take you back to Egypt in ships, by the way of which I said to you, 'You shall never see it again.' And there you shall be offered for sale to your enemies as male and female slaves, but no one will buy you."

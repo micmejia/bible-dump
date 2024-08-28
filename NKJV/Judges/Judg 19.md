@@ -10,13 +10,13 @@ next: ['Judg 20']
 
 
 ###### 1 
-And it came to pass in those days, when _there was_ no king in Israel, that there was a certain Levite staying in the remote mountains of Ephraim. He took for himself a concubine from Bethlehem in Judah. 
+And it came to pass in those days, when there was no king in Israel, that there was a certain Levite staying in the remote mountains of Ephraim. He took for himself a concubine from Bethlehem in Judah. 
 
 ###### 2 
 But his concubine played the harlot against him, and went away from him to her father's house at Bethlehem in Judah, and was there four whole months. 
 
 ###### 3 
-Then her husband arose and went after her, to speak kindly to her _and_ bring her back, having his servant and a couple of donkeys with him. So she brought him into her father's house; and when the father of the young woman saw him, he was glad to meet him. 
+Then her husband arose and went after her, to speak kindly to her and bring her back, having his servant and a couple of donkeys with him. So she brought him into her father's house; and when the father of the young woman saw him, he was glad to meet him. 
 
 ###### 4 
 Now his father-in-law, the young woman's father, detained him; and he stayed with him three days. So they ate and drank and lodged there. 
@@ -37,13 +37,13 @@ Then he arose early in the morning on the fifth day to depart, but the young wom
 And when the man stood to depart--he and his concubine and his servant--his father-in-law, the young woman's father, said to him, "Look, the day is now drawing toward evening; please spend the night. See, the day is coming to an end; lodge here, that your heart may be merry. Tomorrow go your way early, so that you may get home." 
 
 ###### 10 
-However, the man was not willing to spend that night; so he rose and departed, and came opposite Jebus (that _is,_ Jerusalem). With him were the two saddled donkeys; his concubine _was_ also with him. 
+However, the man was not willing to spend that night; so he rose and departed, and came opposite Jebus (that is, Jerusalem). With him were the two saddled donkeys; his concubine was also with him. 
 
 ###### 11 
-They _were_ near Jebus, and the day was far spent; and the servant said to his master, "Come, please, and let us turn aside into this city of the Jebusites and lodge in it." 
+They were near Jebus, and the day was far spent; and the servant said to his master, "Come, please, and let us turn aside into this city of the Jebusites and lodge in it." 
 
 ###### 12 
-But his master said to him, "We will not turn aside here into a city of foreigners, who _are_ not of the children of Israel; we will go on to Gibeah." 
+But his master said to him, "We will not turn aside here into a city of foreigners, who are not of the children of Israel; we will go on to Gibeah." 
 
 ###### 13 
 So he said to his servant, "Come, let us draw near to one of these places, and spend the night in Gibeah or in Ramah." 
@@ -52,22 +52,22 @@ So he said to his servant, "Come, let us draw near to one of these places, and s
 And they passed by and went their way; and the sun went down on them near Gibeah, which belongs to Benjamin. 
 
 ###### 15 
-They turned aside there to go in to lodge in Gibeah. And when he went in, he sat down in the open square of the city, for no one would take them into _his_ house to spend the night. 
+They turned aside there to go in to lodge in Gibeah. And when he went in, he sat down in the open square of the city, for no one would take them into his house to spend the night. 
 
 ###### 16 
-Just then an old man came in from his work in the field at evening, who also _was_ from the mountains of Ephraim; he was staying in Gibeah, whereas the men of the place _were_ Benjamites. 
+Just then an old man came in from his work in the field at evening, who also was from the mountains of Ephraim; he was staying in Gibeah, whereas the men of the place were Benjamites. 
 
 ###### 17 
 And when he raised his eyes, he saw the traveler in the open square of the city; and the old man said, "Where are you going, and where do you come from?" 
 
 ###### 18 
-So he said to him, "We _are_ passing from Bethlehem in Judah toward the remote mountains of Ephraim; I _am_ from there. I went to Bethlehem in Judah; _now_ I am going to the house of the Lord. But there _is_ no one who will take me into his house, 
+So he said to him, "We are passing from Bethlehem in Judah toward the remote mountains of Ephraim; I am from there. I went to Bethlehem in Judah; now I am going to the house of the Lord. But there is no one who will take me into his house, 
 
 ###### 19 
-although we have both straw and fodder for our donkeys, and bread and wine for myself, for your female servant, and for the young man _who is_ with your servant; _there is_ no lack of anything." 
+although we have both straw and fodder for our donkeys, and bread and wine for myself, for your female servant, and for the young man who is with your servant; there is no lack of anything." 
 
 ###### 20 
-And the old man said, "Peace _be_ with you! However, _let_ all your needs _be_ my responsibility; only do not spend the night in the open square." 
+And the old man said, "Peace be with you! However, let all your needs be my responsibility; only do not spend the night in the open square." 
 
 ###### 21 
 So he brought him into his house, and gave fodder to the donkeys. And they washed their feet, and ate and drank.
@@ -75,22 +75,22 @@ So he brought him into his house, and gave fodder to the donkeys. And they washe
 ## Gibeah's Crime 
 
 ###### 22 
-As they were enjoying themselves, suddenly certain men of the city, perverted men, surrounded the house _and_ beat on the door. They spoke to the master of the house, the old man, saying, "Bring out the man who came to your house, that we may know him _carnally!_" 
+As they were enjoying themselves, suddenly certain men of the city, perverted men, surrounded the house and beat on the door. They spoke to the master of the house, the old man, saying, "Bring out the man who came to your house, that we may know him carnally!" 
 
 ###### 23 
-But the man, the master of the house, went out to them and said to them, "No, my brethren! I beg you, do not act _so_ wickedly! Seeing this man has come into my house, do not commit this outrage. 
+But the man, the master of the house, went out to them and said to them, "No, my brethren! I beg you, do not act so wickedly! Seeing this man has come into my house, do not commit this outrage. 
 
 ###### 24 
-Look, _here is_ my virgin daughter and _the man's_ concubine; let me bring them out now. Humble them, and do with them as you please; but to this man do not do such a vile thing!" 
+Look, here is my virgin daughter and the man's concubine; let me bring them out now. Humble them, and do with them as you please; but to this man do not do such a vile thing!" 
 
 ###### 25 
-But the men would not heed him. So the man took his concubine and brought _her_ out to them. And they knew her and abused her all night until morning; and when the day began to break, they let her go. 
+But the men would not heed him. So the man took his concubine and brought her out to them. And they knew her and abused her all night until morning; and when the day began to break, they let her go. 
 
 ###### 26 
-Then the woman came as the day was dawning, and fell down at the door of the man's house where her master _was,_ till it was light. 
+Then the woman came as the day was dawning, and fell down at the door of the man's house where her master was, till it was light. 
 
 ###### 27 
-When her master arose in the morning, and opened the doors of the house and went out to go his way, there was his concubine, fallen _at_ the door of the house with her hands on the threshold. 
+When her master arose in the morning, and opened the doors of the house and went out to go his way, there was his concubine, fallen at the door of the house with her hands on the threshold. 
 
 ###### 28 
 And he said to her, "Get up and let us be going." But there was no answer. So the man lifted her onto the donkey; and the man got up and went to his place. 

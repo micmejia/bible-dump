@@ -49,7 +49,7 @@ And when Jeremiah had finished speaking to all the people all these words of the
 
 
 
-Then Azariah son of Hoshaiah and Johanan son of Kareah and all the proud _and_ insolent men said to Jeremiah, You are not telling the truth! The Lord our God has not sent you to say, Do not go into Egypt to dwell there temporarily. 
+Then Azariah son of Hoshaiah and Johanan son of Kareah and all the proud and insolent men said to Jeremiah, You are not telling the truth! The Lord our God has not sent you to say, Do not go into Egypt to dwell there temporarily. 
 
 
 
@@ -280,4 +280,4 @@ And I [through him] will kindle a fire in the temples of the gods of Egypt; and 
 
 
 
-[Nebuchadrezzar] shall break also the images _and_ obelisks of Heliopolis [called On or Beth-shemesh--house of the sun] in the land of Egypt, and the temples of the gods of Egypt shall he burn with fire.
+[Nebuchadrezzar] shall break also the images and obelisks of Heliopolis [called On or Beth-shemesh--house of the sun] in the land of Egypt, and the temples of the gods of Egypt shall he burn with fire.

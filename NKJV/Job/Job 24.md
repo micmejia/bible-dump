@@ -10,10 +10,10 @@ next: ['Job 25']
 
 
 ###### 1 
-"_Since_ times are not hidden from the Almighty, Why do those who know Him see not His days? 
+"Since times are not hidden from the Almighty, Why do those who know Him see not His days? 
 
 ###### 2 
-"_Some_ remove landmarks; They seize flocks violently and feed _on them;_ 
+"Some remove landmarks; They seize flocks violently and feed on them; 
 
 ###### 3 
 They drive away the donkey of the fatherless; They take the widow's ox as a pledge. 
@@ -22,7 +22,7 @@ They drive away the donkey of the fatherless; They take the widow's ox as a pled
 They push the needy off the road; All the poor of the land are forced to hide. 
 
 ###### 5 
-Indeed, _like_ wild donkeys in the desert, They go out to their work, searching for food. The wilderness _yields_ food for them _and_ for _their_ children. 
+Indeed, like wild donkeys in the desert, They go out to their work, searching for food. The wilderness yields food for them and for their children. 
 
 ###### 6 
 They gather their fodder in the field And glean in the vineyard of the wicked. 
@@ -34,16 +34,16 @@ They spend the night naked, without clothing, And have no covering in the cold.
 They are wet with the showers of the mountains, And huddle around the rock for want of shelter. 
 
 ###### 9 
-"_Some_ snatch the fatherless from the breast, And take a pledge from the poor. 
+"Some snatch the fatherless from the breast, And take a pledge from the poor. 
 
 ###### 10 
-They cause _the poor_ to go naked, without clothing; And they take away the sheaves from the hungry. 
+They cause the poor to go naked, without clothing; And they take away the sheaves from the hungry. 
 
 ###### 11 
 They press out oil within their walls, And tread winepresses, yet suffer thirst. 
 
 ###### 12 
-The dying groan in the city, And the souls of the wounded cry out; Yet God does not charge _them_ with wrong. 
+The dying groan in the city, And the souls of the wounded cry out; Yet God does not charge them with wrong. 
 
 ###### 13 
 "There are those who rebel against the light; They do not know its ways Nor abide in its paths. 
@@ -52,34 +52,34 @@ The dying groan in the city, And the souls of the wounded cry out; Yet God does 
 The murderer rises with the light; He kills the poor and needy; And in the night he is like a thief. 
 
 ###### 15 
-The eye of the adulterer waits for the twilight, Saying, 'No eye will see me'; And he disguises _his_ face. 
+The eye of the adulterer waits for the twilight, Saying, 'No eye will see me'; And he disguises his face. 
 
 ###### 16 
 In the dark they break into houses Which they marked for themselves in the daytime; They do not know the light. 
 
 ###### 17 
-For the morning is the same to them as the shadow of death; If _someone_ recognizes _them,_ _They are in_ the terrors of the shadow of death. 
+For the morning is the same to them as the shadow of death; If someone recognizes them, They are in the terrors of the shadow of death. 
 
 ###### 18 
-"They _should be_ swift on the face of the waters, Their portion _should be_ cursed in the earth, _So that_ no _one would_ turn into the way of their vineyards. 
+"They should be swift on the face of the waters, Their portion should be cursed in the earth, So that no one would turn into the way of their vineyards. 
 
 ###### 19 
-As drought and heat consume the snow waters, _So_ the grave _consumes those who_ have sinned. 
+As drought and heat consume the snow waters, So the grave consumes those who have sinned. 
 
 ###### 20 
-The womb _should_ forget him, The worm _should_ feed sweetly on him; He _should_ be remembered no more, And wickedness _should_ be broken like a tree. 
+The womb should forget him, The worm should feed sweetly on him; He should be remembered no more, And wickedness should be broken like a tree. 
 
 ###### 21 
-For he preys on the barren _who_ do not bear, And does no good for the widow. 
+For he preys on the barren who do not bear, And does no good for the widow. 
 
 ###### 22 
-"But _God_ draws the mighty away with His power; He rises up, but no _man_ is sure of life. 
+"But God draws the mighty away with His power; He rises up, but no man is sure of life. 
 
 ###### 23 
-He gives them security, and they rely _on it;_ Yet His eyes _are_ on their ways. 
+He gives them security, and they rely on it; Yet His eyes are on their ways. 
 
 ###### 24 
-They are exalted for a little while, Then they are gone. They are brought low; They are taken out of the way like all _others;_ They dry out like the heads of grain. 
+They are exalted for a little while, Then they are gone. They are brought low; They are taken out of the way like all others; They dry out like the heads of grain. 
 
 ###### 25 
-"Now if _it is_ not _so,_ who will prove me a liar, And make my speech worth nothing?"
+"Now if it is not so, who will prove me a liar, And make my speech worth nothing?"

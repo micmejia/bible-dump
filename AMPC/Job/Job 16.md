@@ -49,7 +49,7 @@ Then Job answered,
 
 
 
-I have heard many such things; wearisome _and_ miserable comforters are you all! 
+I have heard many such things; wearisome and miserable comforters are you all! 
 
 
 
@@ -112,7 +112,7 @@ I also could speak as you do, if you were in my stead; I could join words togeth
 
 
 
-[But] I would strengthen _and_ encourage you with [the words of] my mouth, and the consolation of my lips would soothe your suffering. 
+[But] I would strengthen and encourage you with [the words of] my mouth, and the consolation of my lips would soothe your suffering. 
 
 
 
@@ -133,7 +133,7 @@ I also could speak as you do, if you were in my stead; I could join words togeth
 
 
 
-If I speak [to you miserable comforters], my sorrow is not soothed _or_ lessened; and if I refrain [from speaking], in what way am I eased? [I hardly know whether to answer you or be silent.] 
+If I speak [to you miserable comforters], my sorrow is not soothed or lessened; and if I refrain [from speaking], in what way am I eased? [I hardly know whether to answer you or be silent.] 
 
 
 
@@ -154,7 +154,7 @@ If I speak [to you miserable comforters], my sorrow is not soothed _or_ lessened
 
 
 
-But now [God] has taken away my strength. You [O Lord] have made desolate all my family _and_ associates. 
+But now [God] has taken away my strength. You [O Lord] have made desolate all my family and associates. 
 
 
 
@@ -175,7 +175,7 @@ But now [God] has taken away my strength. You [O Lord] have made desolate all my
 
 
 
-You have laid firm hold on me _and_ have shriveled me up, which is a witness against me; and my leanness [and wretched state of body] are further evidence [against me]; [they] testify to my face. 
+You have laid firm hold on me and have shriveled me up, which is a witness against me; and my leanness [and wretched state of body] are further evidence [against me]; [they] testify to my face. 
 
 
 
@@ -196,7 +196,7 @@ You have laid firm hold on me _and_ have shriveled me up, which is a witness aga
 
 
 
-[My adversary Satan] has torn [me] in his wrath and hated _and_ persecuted me; he has gnashed upon me with his teeth; my adversary sharpens his eyes against me. 
+[My adversary Satan] has torn [me] in his wrath and hated and persecuted me; he has gnashed upon me with his teeth; my adversary sharpens his eyes against me. 
 
 
 
@@ -217,7 +217,7 @@ You have laid firm hold on me _and_ have shriveled me up, which is a witness aga
 
 
 
-[The forces of evil] have gaped at me with their mouths; they have struck me upon the cheek insolently; they massed themselves together _and_ conspired unanimously against me. 
+[The forces of evil] have gaped at me with their mouths; they have struck me upon the cheek insolently; they massed themselves together and conspired unanimously against me. 
 
 
 
@@ -259,7 +259,7 @@ God has delivered me to the ungodly (to the evil one) and cast me [headlong] int
 
 
 
-I was living at ease, but [Satan] crushed me _and_ broke me apart; yes, he seized me by the neck and dashed me in pieces; then he set me up for his target. 
+I was living at ease, but [Satan] crushed me and broke me apart; yes, he seized me by the neck and dashed me in pieces; then he set me up for his target. 
 
 
 
@@ -301,7 +301,7 @@ I was living at ease, but [Satan] crushed me _and_ broke me apart; yes, he seize
 
 
 
-[Satan] stabs me, making breach after breach _and_ attacking again and again; he runs at me like a giant _and_ irresistible warrior. 
+[Satan] stabs me, making breach after breach and attacking again and again; he runs at me like a giant and irresistible warrior. 
 
 
 
@@ -343,7 +343,7 @@ I have sewed sackcloth over my skin [as a sign of mourning] and have defiled my 
 
 
 
-My face is red _and_ swollen with weeping, and on my eyelids is the shadow of death [my eyes are dimmed], 
+My face is red and swollen with weeping, and on my eyelids is the shadow of death [my eyes are dimmed], 
 
 
 
@@ -364,7 +364,7 @@ My face is red _and_ swollen with weeping, and on my eyelids is the shadow of de
 
 
 
-Although there is no guilt _or_ violence in my hands and my prayer is pure. 
+Although there is no guilt or violence in my hands and my prayer is pure. 
 
 
 
@@ -448,7 +448,7 @@ My friends scorn me, but my eye pours out tears to God.
 
 
 
-Oh, that there might be one who would plead for a man with God _and_ that he would maintain his right with Him, as a son of man pleads with _or_ for his neighbor! 
+Oh, that there might be one who would plead for a man with God and that he would maintain his right with Him, as a son of man pleads with or for his neighbor! 
 
 
 

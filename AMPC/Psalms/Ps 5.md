@@ -28,7 +28,7 @@ next: ['Ps 6']
 
 
 
-Listen to my words, O Lord, give heed to my sighing _and_ groaning. 
+Listen to my words, O Lord, give heed to my sighing and groaning. 
 
 
 
@@ -70,7 +70,7 @@ Hear the sound of my cry, my King and my God, for to You do I pray.
 
 
 
-In the morning You hear my voice, O Lord; in the morning I prepare [a prayer, a sacrifice] for You and watch _and_ wait [for You to speak to my heart]. 
+In the morning You hear my voice, O Lord; in the morning I prepare [a prayer, a sacrifice] for You and watch and wait [for You to speak to my heart]. 
 
 
 
@@ -154,7 +154,7 @@ You will destroy those who speak lies; the Lord abhors [and rejects] the bloodth
 
 
 
-But as for me, I will enter Your house through the abundance of Your steadfast love _and_ mercy; I will worship toward _and_ at Your holy temple in reverent fear _and_ awe of You. 
+But as for me, I will enter Your house through the abundance of Your steadfast love and mercy; I will worship toward and at Your holy temple in reverent fear and awe of You. 
 
 
 
@@ -196,7 +196,7 @@ Lead me, O Lord, in Your righteousness because of my enemies; make Your way leve
 
 
 
-For there is nothing trustworthy _or_ steadfast _or_ truthful in their talk; their heart is destruction [or a destructive chasm, a yawning gulf]; their throat is an open sepulcher; they flatter and make smooth with their tongue. 
+For there is nothing trustworthy or steadfast or truthful in their talk; their heart is destruction [or a destructive chasm, a yawning gulf]; their throat is an open sepulcher; they flatter and make smooth with their tongue. 
 
 
 
@@ -217,7 +217,7 @@ For there is nothing trustworthy _or_ steadfast _or_ truthful in their talk; the
 
 
 
-Hold them guilty, O God; let them fall by their own designs _and_ counsels; cast them out because of the multitude of their transgressions, for they have rebelled against You. 
+Hold them guilty, O God; let them fall by their own designs and counsels; cast them out because of the multitude of their transgressions, for they have rebelled against You. 
 
 
 
@@ -238,7 +238,7 @@ Hold them guilty, O God; let them fall by their own designs _and_ counsels; cast
 
 
 
-But let all those who take refuge _and_ put their trust in You rejoice; let them ever sing _and_ shout for joy, because You make a covering over them _and_ defend them; let those also who love Your name be joyful in You _and_ be in high spirits. 
+But let all those who take refuge and put their trust in You rejoice; let them ever sing and shout for joy, because You make a covering over them and defend them; let those also who love Your name be joyful in You and be in high spirits. 
 
 
 

@@ -70,7 +70,7 @@ Nothing is [so closely] covered up that it will not be revealed, or hidden that 
 
 
 
-Whatever you have spoken in the darkness shall be heard _and_ listened to in the light, and what you have whispered in [people's] ears and behind closed doors will be proclaimed upon the housetops. 
+Whatever you have spoken in the darkness shall be heard and listened to in the light, and what you have whispered in [people's] ears and behind closed doors will be proclaimed upon the housetops. 
 
 
 
@@ -91,7 +91,7 @@ Whatever you have spoken in the darkness shall be heard _and_ listened to in the
 
 
 
-I tell you, My friends, do not dread _and_ be afraid of those who kill the body and after that have nothing more that they can do. 
+I tell you, My friends, do not dread and be afraid of those who kill the body and after that have nothing more that they can do. 
 
 
 
@@ -133,7 +133,7 @@ But I will warn you whom you should fear: fear Him Who, after killing, has power
 
 
 
-Are not five sparrows sold for two pennies? And [yet] not one of them is forgotten _or_ uncared for in the presence of God. 
+Are not five sparrows sold for two pennies? And [yet] not one of them is forgotten or uncared for in the presence of God. 
 
 
 
@@ -154,7 +154,7 @@ Are not five sparrows sold for two pennies? And [yet] not one of them is forgott
 
 
 
-But [even] the very hairs of your head are all numbered. Do not be struck with fear _or_ seized with alarm; you are of greater worth than many [flocks] of sparrows. 
+But [even] the very hairs of your head are all numbered. Do not be struck with fear or seized with alarm; you are of greater worth than many [flocks] of sparrows. 
 
 
 
@@ -175,7 +175,7 @@ But [even] the very hairs of your head are all numbered. Do not be struck with f
 
 
 
-And I tell you, Whoever declares openly [speaking out freely] _and_ confesses that he is My worshiper _and_ acknowledges Me before men, the Son of Man also will declare _and_ confess _and_ acknowledge him before the angels of God. 
+And I tell you, Whoever declares openly [speaking out freely] and confesses that he is My worshiper and acknowledges Me before men, the Son of Man also will declare and confess and acknowledge him before the angels of God. 
 
 
 
@@ -196,7 +196,7 @@ And I tell you, Whoever declares openly [speaking out freely] _and_ confesses th
 
 
 
-But he who disowns _and_ denies _and_ rejects _and_ refuses to acknowledge Me before men will be disowned _and_ denied _and_ rejected _and_ refused acknowledgement in the presence of the angels of God. 
+But he who disowns and denies and rejects and refuses to acknowledge Me before men will be disowned and denied and rejected and refused acknowledgement in the presence of the angels of God. 
 
 
 
@@ -217,7 +217,7 @@ But he who disowns _and_ denies _and_ rejects _and_ refuses to acknowledge Me be
 
 
 
-And everyone who makes a statement _or_ speaks a word against the Son of Man, it will be forgiven him; but he who blasphemes against the Holy Spirit [that is, whoever intentionally comes short of the reverence due the Holy Spirit], it will not be forgiven him [for him there is no forgiveness]. 
+And everyone who makes a statement or speaks a word against the Son of Man, it will be forgiven him; but he who blasphemes against the Holy Spirit [that is, whoever intentionally comes short of the reverence due the Holy Spirit], it will not be forgiven him [for him there is no forgiveness]. 
 
 
 
@@ -259,7 +259,7 @@ And when they bring you before the synagogues and the magistrates and the author
 
 
 
-For the Holy Spirit will teach you in that very hour _and_ moment what [you] ought to say. 
+For the Holy Spirit will teach you in that very hour and moment what [you] ought to say. 
 
 
 
@@ -280,7 +280,7 @@ For the Holy Spirit will teach you in that very hour _and_ moment what [you] oug
 
 
 
-Someone from the crowd said to Him, Master, order my brother to divide the inheritance _and_ share it with me. 
+Someone from the crowd said to Him, Master, order my brother to divide the inheritance and share it with me. 
 
 
 
@@ -301,7 +301,7 @@ Someone from the crowd said to Him, Master, order my brother to divide the inher
 
 
 
-But He told him, Man, who has appointed Me a judge or umpire _and_ divider over you? 
+But He told him, Man, who has appointed Me a judge or umpire and divider over you? 
 
 
 
@@ -322,7 +322,7 @@ But He told him, Man, who has appointed Me a judge or umpire _and_ divider over 
 
 
 
-And He said to them, Guard yourselves and keep free from all covetousness (the immoderate desire for wealth, the greedy longing to have more); for a man's life does not consist in _and_ is not derived from possessing overflowing abundance _or_ that which is over and above his needs. 
+And He said to them, Guard yourselves and keep free from all covetousness (the immoderate desire for wealth, the greedy longing to have more); for a man's life does not consist in and is not derived from possessing overflowing abundance or that which is over and above his needs. 
 
 
 
@@ -343,7 +343,7 @@ And He said to them, Guard yourselves and keep free from all covetousness (the i
 
 
 
-Then He told them a parable, saying, The land of a rich man was fertile _and_ yielded plentifully. 
+Then He told them a parable, saying, The land of a rich man was fertile and yielded plentifully. 
 
 
 
@@ -364,7 +364,7 @@ Then He told them a parable, saying, The land of a rich man was fertile _and_ yi
 
 
 
-And he considered _and_ debated within himself, What shall I do? I have no place [in which] to gather together my harvest. 
+And he considered and debated within himself, What shall I do? I have no place [in which] to gather together my harvest. 
 
 
 
@@ -385,7 +385,7 @@ And he considered _and_ debated within himself, What shall I do? I have no place
 
 
 
-And he said, I will do this: I will pull down my storehouses and build larger ones, and there I will store all my grain _or produce_ and my goods. 
+And he said, I will do this: I will pull down my storehouses and build larger ones, and there I will store all my grain or produce and my goods. 
 
 
 
@@ -406,7 +406,7 @@ And he said, I will do this: I will pull down my storehouses and build larger on
 
 
 
-And I will say to my soul, Soul, you have many good things laid up, [enough] for many years. Take your ease; eat, drink, _and_ enjoy yourself merrily. 
+And I will say to my soul, Soul, you have many good things laid up, [enough] for many years. Take your ease; eat, drink, and enjoy yourself merrily. 
 
 
 
@@ -448,7 +448,7 @@ But God said to him, You fool! This very night  they [the messengers of God] wil
 
 
 
-So it is with the one who continues to lay up _and_ hoard possessions for himself and is not rich [in his relation] to God [this is how he fares]. 
+So it is with the one who continues to lay up and hoard possessions for himself and is not rich [in his relation] to God [this is how he fares]. 
 
 
 
@@ -469,7 +469,7 @@ So it is with the one who continues to lay up _and_ hoard possessions for himsel
 
 
 
-And [Jesus] said to His disciples, Therefore I tell you, do not be anxious _and_ troubled [with cares] about your life, as to what you will [have to] eat; or about your body, as to what you will [have to] wear. 
+And [Jesus] said to His disciples, Therefore I tell you, do not be anxious and troubled [with cares] about your life, as to what you will [have to] eat; or about your body, as to what you will [have to] wear. 
 
 
 
@@ -511,7 +511,7 @@ For life is more than food, and the body [more] than clothes.
 
 
 
-Observe _and_ consider the ravens; for they neither sow nor reap, they have neither storehouse nor barn; and [yet] God feeds them. Of how much more worth are you than the birds! 
+Observe and consider the ravens; for they neither sow nor reap, they have neither storehouse nor barn; and [yet] God feeds them. Of how much more worth are you than the birds! 
 
 
 
@@ -532,7 +532,7 @@ Observe _and_ consider the ravens; for they neither sow nor reap, they have neit
 
 
 
-And which of you by being overly anxious _and_ troubled with cares can add a cubit to his stature _or_ a moment [unit] of time to his age [the length of his life]? 
+And which of you by being overly anxious and troubled with cares can add a cubit to his stature or a moment [unit] of time to his age [the length of his life]? 
 
 
 
@@ -553,7 +553,7 @@ And which of you by being overly anxious _and_ troubled with cares can add a cub
 
 
 
-If then you are not able to do such a little thing as that, why are you anxious _and_ troubled with cares about the rest? 
+If then you are not able to do such a little thing as that, why are you anxious and troubled with cares about the rest? 
 
 
 
@@ -574,7 +574,7 @@ If then you are not able to do such a little thing as that, why are you anxious 
 
 
 
-Consider the lilies, how they grow. They neither [wearily] toil nor spin _nor_ _weave_; yet I tell you, even Solomon in all his glory (his splendor and magnificence) was not arrayed like one of these. 
+Consider the lilies, how they grow. They neither [wearily] toil nor spin nor weave; yet I tell you, even Solomon in all his glory (his splendor and magnificence) was not arrayed like one of these. 
 
 
 
@@ -658,7 +658,7 @@ For all the pagan world is [greedily] seeking these things, and your Father know
 
 
 
-Only aim at _and_ strive for _and_ seek His kingdom, and all these things shall be supplied to you also. 
+Only aim at and strive for and seek His kingdom, and all these things shall be supplied to you also. 
 
 
 
@@ -679,7 +679,7 @@ Only aim at _and_ strive for _and_ seek His kingdom, and all these things shall 
 
 
 
-Do not be seized with alarm _and_ struck with fear, little flock, for it is your Father's good pleasure to give you the kingdom! 
+Do not be seized with alarm and struck with fear, little flock, for it is your Father's good pleasure to give you the kingdom! 
 
 
 
@@ -700,7 +700,7 @@ Do not be seized with alarm _and_ struck with fear, little flock, for it is your
 
 
 
-Sell what you possess and give donations to the poor; provide yourselves with purses _and_ handbags that do not grow old, an unfailing _and_ inexhaustible treasure in the heavens, where no thief comes near and no moth destroys. 
+Sell what you possess and give donations to the poor; provide yourselves with purses and handbags that do not grow old, an unfailing and inexhaustible treasure in the heavens, where no thief comes near and no moth destroys. 
 
 
 
@@ -784,7 +784,7 @@ And be like men who are waiting for their master to return home from the marriag
 
 
 
-Blessed (happy, fortunate, and to be envied) are those servants whom the master finds awake _and_ alert _and_ watching when he comes. Truly I say to you, he will gird himself and have them recline at table and will come and serve them! 
+Blessed (happy, fortunate, and to be envied) are those servants whom the master finds awake and alert and watching when he comes. Truly I say to you, he will gird himself and have them recline at table and will come and serve them! 
 
 
 
@@ -826,7 +826,7 @@ If he comes in the second watch (before midnight) or the third watch (after midn
 
 
 
-But of this be assured: if the householder had known at what time the burglar was coming, he would have been awake _and_ alert _and_ watching and would not have permitted his house to be dug through _and_ broken into. 
+But of this be assured: if the householder had known at what time the burglar was coming, he would have been awake and alert and watching and would not have permitted his house to be dug through and broken into. 
 
 
 
@@ -847,7 +847,7 @@ But of this be assured: if the householder had known at what time the burglar wa
 
 
 
-You also must be ready, for the Son of Man is coming at an hour _and_ a moment when you do not anticipate it. 
+You also must be ready, for the Son of Man is coming at an hour and a moment when you do not anticipate it. 
 
 
 
@@ -973,7 +973,7 @@ But if that servant says in his heart, My master is late in coming, and begins t
 
 
 
-The master of that servant will come on a day when he does not expect him and at an hour of which he does not know, and will punish him _and_ cut him off and assign his lot with the unfaithful. 
+The master of that servant will come on a day when he does not expect him and at an hour of which he does not know, and will punish him and cut him off and assign his lot with the unfaithful. 
 
 
 
@@ -1015,7 +1015,7 @@ And that servant who knew his master's will but did not get ready or act as he w
 
 
 
-But he who did not know and did things worthy of a beating shall be beaten with few [lashes]. For everyone to whom much is given, of him shall much be required; and of him to whom men entrust much, they will require _and_ demand all the more. 
+But he who did not know and did things worthy of a beating shall be beaten with few [lashes]. For everyone to whom much is given, of him shall much be required; and of him to whom men entrust much, they will require and demand all the more. 
 
 
 
@@ -1057,7 +1057,7 @@ I have come to cast fire upon the earth, and how I wish that it were already kin
 
 
 
-I have a baptism with which to be baptized, and how greatly _and_ sorely I am urged on (impelled, constrained) until it is accomplished! 
+I have a baptism with which to be baptized, and how greatly and sorely I am urged on (impelled, constrained) until it is accomplished! 
 
 
 
@@ -1183,7 +1183,7 @@ And when [you see that] a south wind is blowing, you say, There will be severe h
 
 
 
-You playactors (hypocrites)! You know how [intelligently] to discern _and_ interpret _and_ prove the looks of the earth and sky; but how is it that you do not know how to discern _and_ interpret _and_ apply the proof to this present time? 
+You playactors (hypocrites)! You know how [intelligently] to discern and interpret and prove the looks of the earth and sky; but how is it that you do not know how to discern and interpret and apply the proof to this present time? 
 
 
 
@@ -1204,7 +1204,7 @@ You playactors (hypocrites)! You know how [intelligently] to discern _and_ inter
 
 
 
-And why do you not judge what is just _and_ personally decide what is right? 
+And why do you not judge what is just and personally decide what is right? 
 
 
 
@@ -1225,7 +1225,7 @@ And why do you not judge what is just _and_ personally decide what is right?
 
 
 
-Then as you go with your accuser before a magistrate, on the way make a diligent effort to settle _and_ be quit (free) of him, lest he drag you to the judge, and the judge turn you over to the officer, and the officer put you in prison. 
+Then as you go with your accuser before a magistrate, on the way make a diligent effort to settle and be quit (free) of him, lest he drag you to the judge, and the judge turn you over to the officer, and the officer put you in prison. 
 
 
 

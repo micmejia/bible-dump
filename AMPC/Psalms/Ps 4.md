@@ -28,7 +28,7 @@ next: ['Ps 5']
 
 
 
-Answer me when I call, O God of my righteousness (uprightness, justice, and right standing with You)! You have freed me when I was hemmed in _and_ enlarged me when I was in distress; have mercy upon me and hear my prayer. 
+Answer me when I call, O God of my righteousness (uprightness, justice, and right standing with You)! You have freed me when I was hemmed in and enlarged me when I was in distress; have mercy upon me and hear my prayer. 
 
 
 
@@ -49,7 +49,7 @@ Answer me when I call, O God of my righteousness (uprightness, justice, and righ
 
 
 
-O you sons of men, how long will you turn my honor _and_ glory into shame? How long will you love vanity _and_ futility _and_ seek after lies? Selah [pause, and calmly think of that]! 
+O you sons of men, how long will you turn my honor and glory into shame? How long will you love vanity and futility and seek after lies? Selah [pause, and calmly think of that]! 
 
 
 
@@ -70,7 +70,7 @@ O you sons of men, how long will you turn my honor _and_ glory into shame? How l
 
 
 
-But know that the Lord has set apart for Himself [and given distinction to] him who is godly [the man of loving-kindness]. The Lord listens _and_ heeds when I call to Him. 
+But know that the Lord has set apart for Himself [and given distinction to] him who is godly [the man of loving-kindness]. The Lord listens and heeds when I call to Him. 
 
 
 
@@ -112,7 +112,7 @@ Be angry [or stand in awe] and sin not; commune with your own hearts upon your b
 
 
 
-Offer just _and_ right sacrifices; trust (lean on and be confident) in the Lord. 
+Offer just and right sacrifices; trust (lean on and be confident) in the Lord. 
 
 
 
@@ -154,7 +154,7 @@ Many say, Oh, that we might see some good! Lift up the light of Your countenance
 
 
 
-You have put more joy _and_ rejoicing in my heart than [they know] when their wheat and new wine have yielded abundantly. 
+You have put more joy and rejoicing in my heart than [they know] when their wheat and new wine have yielded abundantly. 
 
 
 
@@ -175,4 +175,4 @@ You have put more joy _and_ rejoicing in my heart than [they know] when their wh
 
 
 
-In peace I will both lie down and sleep, for You, Lord, alone make me dwell in safety _and_ confident trust.
+In peace I will both lie down and sleep, for You, Lord, alone make me dwell in safety and confident trust.

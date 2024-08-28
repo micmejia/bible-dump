@@ -28,7 +28,7 @@ next: ['Gen 12']
 
 
 
-And the whole earth was of one language and of one accent _and_ mode of expression. 
+And the whole earth was of one language and of one accent and mode of expression. 
 
 
 
@@ -49,7 +49,7 @@ And the whole earth was of one language and of one accent _and_ mode of expressi
 
 
 
-And as they journeyed eastward, they found a plain (valley) in the land of Shinar, and they settled _and_ dwelt there. 
+And as they journeyed eastward, they found a plain (valley) in the land of Shinar, and they settled and dwelt there. 
 
 
 

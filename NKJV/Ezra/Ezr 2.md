@@ -10,10 +10,10 @@ next: ['Ezr 3']
 
 
 ###### 1 
-Now these _are_ the people of the province who came back from the captivity, of those who had been carried away, whom Nebuchadnezzar the king of Babylon had carried away to Babylon, and who returned to Jerusalem and Judah, everyone to his _own_ city. 
+Now these are the people of the province who came back from the captivity, of those who had been carried away, whom Nebuchadnezzar the king of Babylon had carried away to Babylon, and who returned to Jerusalem and Judah, everyone to his own city. 
 
 ###### 2 
-_Those_ who came with Zerubbabel _were_ Jeshua, Nehemiah, Seraiah, Reelaiah, Mordecai, Bilshan, Mispar, Bigvai, Rehum, _and_ Baanah. The number of the men of the people of Israel: 
+Those who came with Zerubbabel were Jeshua, Nehemiah, Seraiah, Reelaiah, Mordecai, Bilshan, Mispar, Bigvai, Rehum, and Baanah. The number of the men of the people of Israel: 
 
 ###### 3 
 the people of Parosh, two thousand one hundred and seventy-two; 
@@ -25,7 +25,7 @@ the people of Shephatiah, three hundred and seventy-two;
 the people of Arah, seven hundred and seventy-five; 
 
 ###### 6 
-the people of Pahath-Moab, of the people of Jeshua _and_ Joab, two thousand eight hundred and twelve; 
+the people of Pahath-Moab, of the people of Jeshua and Joab, two thousand eight hundred and twelve; 
 
 ###### 7 
 the people of Elam, one thousand two hundred and fifty-four; 
@@ -133,7 +133,7 @@ The Levites: the sons of Jeshua and Kadmiel, of the sons of Hodaviah, seventy-fo
 The singers: the sons of Asaph, one hundred and twenty-eight. 
 
 ###### 42 
-The sons of the gatekeepers: the sons of Shallum, the sons of Ater, the sons of Talmon, the sons of Akkub, the sons of Hatita, and the sons of Shobai, one hundred and thirty-nine _in_ all. 
+The sons of the gatekeepers: the sons of Shallum, the sons of Ater, the sons of Talmon, the sons of Akkub, the sons of Hatita, and the sons of Shobai, one hundred and thirty-nine in all. 
 
 ###### 43 
 The Nethinim: the sons of Ziha, the sons of Hasupha, the sons of Tabbaoth, 
@@ -184,7 +184,7 @@ the sons of Shephatiah, the sons of Hattil, the sons of Pochereth of Zebaim, and
 All the Nethinim and the children of Solomon's servants were three hundred and ninety-two. 
 
 ###### 59 
-And these _were_ the ones who came up from Tel Melah, Tel Harsha, Cherub, Addan, and Immer; but they could not identify their father's house or their genealogy, whether they _were_ of Israel: 
+And these were the ones who came up from Tel Melah, Tel Harsha, Cherub, Addan, and Immer; but they could not identify their father's house or their genealogy, whether they were of Israel: 
 
 ###### 60 
 the sons of Delaiah, the sons of Tobiah, and the sons of Nekoda, six hundred and fifty-two; 
@@ -193,28 +193,28 @@ the sons of Delaiah, the sons of Tobiah, and the sons of Nekoda, six hundred and
 and of the sons of the priests: the sons of Habaiah, the sons of Koz, and the sons of Barzillai, who took a wife of the daughters of Barzillai the Gileadite, and was called by their name. 
 
 ###### 62 
-These sought their listing _among_ those who were registered by genealogy, but they were not found; therefore they _were excluded_ from the priesthood as defiled. 
+These sought their listing among those who were registered by genealogy, but they were not found; therefore they were excluded from the priesthood as defiled. 
 
 ###### 63 
 And the governor said to them that they should not eat of the most holy things till a priest could consult with the Urim and Thummim. 
 
 ###### 64 
-The whole assembly together _was_ forty-two thousand three hundred _and_ sixty, 
+The whole assembly together was forty-two thousand three hundred and sixty, 
 
 ###### 65 
-besides their male and female servants, of whom _there were_ seven thousand three hundred and thirty-seven; and they had two hundred men and women singers. 
+besides their male and female servants, of whom there were seven thousand three hundred and thirty-seven; and they had two hundred men and women singers. 
 
 ###### 66 
-Their horses _were_ seven hundred and thirty-six, their mules two hundred and forty-five, 
+Their horses were seven hundred and thirty-six, their mules two hundred and forty-five, 
 
 ###### 67 
-their camels four hundred and thirty-five, and _their_ donkeys six thousand seven hundred and twenty. 
+their camels four hundred and thirty-five, and their donkeys six thousand seven hundred and twenty. 
 
 ###### 68 
-_Some_ of the heads of the fathers' _houses,_ when they came to the house of the Lord which _is_ in Jerusalem, offered freely for the house of God, to erect it in its place: 
+Some of the heads of the fathers' houses, when they came to the house of the Lord which is in Jerusalem, offered freely for the house of God, to erect it in its place: 
 
 ###### 69 
 According to their ability, they gave to the treasury for the work sixty-one thousand gold drachmas, five thousand minas of silver, and one hundred priestly garments. 
 
 ###### 70 
-So the priests and the Levites, _some_ of the people, the singers, the gatekeepers, and the Nethinim, dwelt in their cities, and all Israel in their cities.
+So the priests and the Levites, some of the people, the singers, the gatekeepers, and the Nethinim, dwelt in their cities, and all Israel in their cities.

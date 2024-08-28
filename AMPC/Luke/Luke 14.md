@@ -70,7 +70,7 @@ And behold, [just] in front of Him there was a man who had dropsy.
 
 
 
-And Jesus asked the lawyers and the Pharisees, Is it lawful _and_ right to cure on the Sabbath or not? 
+And Jesus asked the lawyers and the Pharisees, Is it lawful and right to cure on the Sabbath or not? 
 
 
 
@@ -112,7 +112,7 @@ But they kept silent. Then He took hold [of the man] and cured him and sent him 
 
 
 
-And He said to them, Which of you, having a son _or a donkey_ or an ox that has fallen into a well, will not at once pull him out on the Sabbath day? 
+And He said to them, Which of you, having a son or a donkey or an ox that has fallen into a well, will not at once pull him out on the Sabbath day? 
 
 
 
@@ -196,7 +196,7 @@ When you are invited by anyone to a marriage feast, do not recline on the chief 
 
 
 
-And he who invited both of you will come to you and say, Let this man have the place [you have taken]. Then, with humiliation _and_ a guilty sense of impropriety, you will begin to take the lowest place. 
+And he who invited both of you will come to you and say, Let this man have the place [you have taken]. Then, with humiliation and a guilty sense of impropriety, you will begin to take the lowest place. 
 
 
 
@@ -280,7 +280,7 @@ Jesus also said to the man who had invited Him, When you give a dinner or a supp
 
 
 
-But when you give a banquet _or_ a reception, invite the poor, the disabled, the lame, and the blind. 
+But when you give a banquet or a reception, invite the poor, the disabled, the lame, and the blind. 
 
 
 
@@ -385,7 +385,7 @@ And at the hour for the supper he sent his servant to say to those who had been 
 
 
 
-But they all alike began to make excuses _and_ to beg off. The first said to him, I have bought a piece of land, and I have to go out and see it; I beg you, have me excused. 
+But they all alike began to make excuses and to beg off. The first said to him, I have bought a piece of land, and I have to go out and see it; I beg you, have me excused. 
 
 
 
@@ -406,7 +406,7 @@ But they all alike began to make excuses _and_ to beg off. The first said to him
 
 
 
-And another said, I have bought five yoke of oxen, and I am going to examine _and_ put my approval on them; I beg you, have me excused. 
+And another said, I have bought five yoke of oxen, and I am going to examine and put my approval on them; I beg you, have me excused. 
 
 
 
@@ -490,7 +490,7 @@ And the servant [returning] said, Sir, what you have commanded me to do has been
 
 
 
-Then the master said to the servant, Go out into the highways and hedges and urge _and_ constrain [them] to yield _and_ come in, so that my house may be filled. 
+Then the master said to the servant, Go out into the highways and hedges and urge and constrain [them] to yield and come in, so that my house may be filled. 
 
 
 
@@ -574,7 +574,7 @@ If anyone comes to Me and does not hate his [own] father and mother [in the sens
 
 
 
-Whoever does not persevere _and_ carry his own cross and come after (follow) Me cannot be My disciple. 
+Whoever does not persevere and carry his own cross and come after (follow) Me cannot be My disciple. 
 
 
 
@@ -616,7 +616,7 @@ For which of you, wishing to build a farm building, does not first sit down and 
 
 
 
-Otherwise, when he has laid the foundation and is unable to complete [the building], all who see it will begin to mock _and_ jeer at him, 
+Otherwise, when he has laid the foundation and is unable to complete [the building], all who see it will begin to mock and jeer at him, 
 
 
 
@@ -658,7 +658,7 @@ Saying, This man began to build and was not able (worth enough) to finish.
 
 
 
-Or what king, going out to engage in conflict with another king, will not first sit down and consider _and_ take counsel whether he is able with ten thousand [men] to meet him who comes against him with twenty thousand? 
+Or what king, going out to engage in conflict with another king, will not first sit down and consider and take counsel whether he is able with ten thousand [men] to meet him who comes against him with twenty thousand? 
 
 
 
@@ -721,7 +721,7 @@ So then, any of you who does not forsake (renounce, surrender claim to, give up,
 
 
 
-Salt is good [an excellent thing], but if salt has lost its strength _and_ has become saltless (insipid, flat), how shall its saltness be restored? 
+Salt is good [an excellent thing], but if salt has lost its strength and has become saltless (insipid, flat), how shall its saltness be restored? 
 
 
 
@@ -742,4 +742,4 @@ Salt is good [an excellent thing], but if salt has lost its strength _and_ has b
 
 
 
-It is fit neither for the land nor for the manure heap; men throw it away. He who has ears to hear, let him listen _and_ consider _and_ comprehend by hearing!
+It is fit neither for the land nor for the manure heap; men throw it away. He who has ears to hear, let him listen and consider and comprehend by hearing!

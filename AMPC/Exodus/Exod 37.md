@@ -49,7 +49,7 @@ Bezalel made the ark of acacia wood--two cubits and a half was the length of it,
 
 
 
-He overlaid it with pure gold within and without and made a molding _or_ crown of gold to go around the top of it. 
+He overlaid it with pure gold within and without and made a molding or crown of gold to go around the top of it. 
 
 
 

@@ -10,13 +10,13 @@ next: ['Exod 22']
 
 
 ###### 1 
-"Now these _are_ the judgments which you shall set before them: 
+"Now these are the judgments which you shall set before them: 
 
 ###### 2 
 If you buy a Hebrew servant, he shall serve six years; and in the seventh he shall go out free and pay nothing. 
 
 ###### 3 
-If he comes in by himself, he shall go out by himself; if he _comes in_ married, then his wife shall go out with him. 
+If he comes in by himself, he shall go out by himself; if he comes in married, then his wife shall go out with him. 
 
 ###### 4 
 If his master has given him a wife, and she has borne him sons or daughters, the wife and her children shall be her master's, and he shall go out by himself. 
@@ -37,10 +37,10 @@ If she does not please her master, who has betrothed her to himself, then he sha
 And if he has betrothed her to his son, he shall deal with her according to the custom of daughters. 
 
 ###### 10 
-If he takes another _wife,_ he shall not diminish her food, her clothing, and her marriage rights. 
+If he takes another wife, he shall not diminish her food, her clothing, and her marriage rights. 
 
 ###### 11 
-And if he does not do these three for her, then she shall go out free, without _paying_ money.
+And if he does not do these three for her, then she shall go out free, without paying money.
 
 ## The Law Concerning Violence 
 
@@ -48,7 +48,7 @@ And if he does not do these three for her, then she shall go out free, without _
 "He who strikes a man so that he dies shall surely be put to death. 
 
 ###### 13 
-However, if he did not lie in wait, but God delivered _him_ into his hand, then I will appoint for you a place where he may flee. 
+However, if he did not lie in wait, but God delivered him into his hand, then I will appoint for you a place where he may flee. 
 
 ###### 14 
 "But if a man acts with premeditation against his neighbor, to kill him by treachery, you shall take him from My altar, that he may die. 
@@ -63,22 +63,22 @@ However, if he did not lie in wait, but God delivered _him_ into his hand, then 
 "And he who curses his father or his mother shall surely be put to death. 
 
 ###### 18 
-"If men contend with each other, and one strikes the other with a stone or with _his_ fist, and he does not die but is confined to _his_ bed, 
+"If men contend with each other, and one strikes the other with a stone or with his fist, and he does not die but is confined to his bed, 
 
 ###### 19 
-if he rises again and walks about outside with his staff, then he who struck _him_ shall be acquitted. He shall only pay _for_ the loss of his time, and shall provide _for him_ to be thoroughly healed. 
+if he rises again and walks about outside with his staff, then he who struck him shall be acquitted. He shall only pay for the loss of his time, and shall provide for him to be thoroughly healed. 
 
 ###### 20 
 "And if a man beats his male or female servant with a rod, so that he dies under his hand, he shall surely be punished. 
 
 ###### 21 
-Notwithstanding, if he remains alive a day or two, he shall not be punished; for he _is_ his property. 
+Notwithstanding, if he remains alive a day or two, he shall not be punished; for he is his property. 
 
 ###### 22 
-"If men fight, and hurt a woman with child, so that she gives birth prematurely, yet no harm follows, he shall surely be punished accordingly as the woman's husband imposes on him; and he shall pay as the judges _determine._ 
+"If men fight, and hurt a woman with child, so that she gives birth prematurely, yet no harm follows, he shall surely be punished accordingly as the woman's husband imposes on him; and he shall pay as the judges determine. 
 
 ###### 23 
-But if _any_ harm follows, then you shall give life for life, 
+But if any harm follows, then you shall give life for life, 
 
 ###### 24 
 eye for eye, tooth for tooth, hand for hand, foot for foot, 
@@ -95,7 +95,7 @@ And if he knocks out the tooth of his male or female servant, he shall let him g
 ## Animal Control Laws 
 
 ###### 28 
-"If an ox gores a man or a woman to death, then the ox shall surely be stoned, and its flesh shall not be eaten; but the owner of the ox _shall be_ acquitted. 
+"If an ox gores a man or a woman to death, then the ox shall surely be stoned, and its flesh shall not be eaten; but the owner of the ox shall be acquitted. 
 
 ###### 29 
 But if the ox tended to thrust with its horn in times past, and it has been made known to his owner, and he has not kept it confined, so that it has killed a man or a woman, the ox shall be stoned and its owner also shall be put to death. 
@@ -113,10 +113,10 @@ If the ox gores a male or female servant, he shall give to their master thirty s
 "And if a man opens a pit, or if a man digs a pit and does not cover it, and an ox or a donkey falls in it, 
 
 ###### 34 
-the owner of the pit shall make _it_ good; he shall give money to their owner, but the dead _animal_ shall be his. 
+the owner of the pit shall make it good; he shall give money to their owner, but the dead animal shall be his. 
 
 ###### 35 
-"If one man's ox hurts another's, so that it dies, then they shall sell the live ox and divide the money from it; and the dead _ox_ they shall also divide. 
+"If one man's ox hurts another's, so that it dies, then they shall sell the live ox and divide the money from it; and the dead ox they shall also divide. 
 
 ###### 36 
 Or if it was known that the ox tended to thrust in time past, and its owner has not kept it confined, he shall surely pay ox for ox, and the dead animal shall be his own.

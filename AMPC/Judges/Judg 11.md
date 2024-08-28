@@ -658,7 +658,7 @@ And Jephthah made a vow to the Lord and said, If You will indeed give the Ammoni
 
 
 
-Then whatever _or_ whoever comes forth from the doors of my house to meet me when I return in peace from the Ammonites, it shall be the Lord's, and I will offer it _or_ him up as a burnt offering. 
+Then whatever or whoever comes forth from the doors of my house to meet me when I return in peace from the Ammonites, it shall be the Lord's, and I will offer it or him up as a burnt offering. 
 
 
 

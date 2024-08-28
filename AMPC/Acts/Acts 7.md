@@ -154,7 +154,7 @@ And this is [in effect] what God told him: That his descendants would be aliens 
 
 
 
-But I will judge the nation to whom they will be slaves, said God, and after that they will escape _and_ come forth and worship Me in this [very] place. 
+But I will judge the nation to whom they will be slaves, said God, and after that they will escape and come forth and worship Me in this [very] place. 
 
 
 
@@ -196,7 +196,7 @@ And [God] made with Abraham a covenant (an agreement to be religiously observed)
 
 
 
-And the patriarchs [Jacob's sons], boiling with envy _and_ hatred _and_ anger, sold Joseph into slavery in Egypt; but God was with him, 
+And the patriarchs [Jacob's sons], boiling with envy and hatred and anger, sold Joseph into slavery in Egypt; but God was with him, 
 
 
 
@@ -217,7 +217,7 @@ And the patriarchs [Jacob's sons], boiling with envy _and_ hatred _and_ anger, s
 
 
 
-And delivered him from all his distressing afflictions and won him goodwill _and_ favor and wisdom _and_ understanding in the sight of Pharaoh, king of Egypt, who made him governor over Egypt and all his house. 
+And delivered him from all his distressing afflictions and won him goodwill and favor and wisdom and understanding in the sight of Pharaoh, king of Egypt, who made him governor over Egypt and all his house. 
 
 
 
@@ -238,7 +238,7 @@ And delivered him from all his distressing afflictions and won him goodwill _and
 
 
 
-Then there came a famine over all of Egypt and Canaan, with great distress, and our forefathers could find no fodder [for the cattle] _or_ vegetable sustenance [for their households]. 
+Then there came a famine over all of Egypt and Canaan, with great distress, and our forefathers could find no fodder [for the cattle] or vegetable sustenance [for their households]. 
 
 
 
@@ -280,7 +280,7 @@ But when Jacob heard that there was grain in Egypt, he sent forth our forefather
 
 
 
-And on their second visit Joseph revealed himself to his brothers, and the family of Joseph became known to Pharaoh _and_ his origin _and_ race. 
+And on their second visit Joseph revealed himself to his brothers, and the family of Joseph became known to Pharaoh and his origin and race. 
 
 
 
@@ -385,7 +385,7 @@ But as the time for the fulfillment of the promise drew near which God had made 
 
 
 
-Until [the time when] there arose over Egypt another _and_ a different king who did not know Joseph [neither knowing his history and services nor recognizing his merits]. 
+Until [the time when] there arose over Egypt another and a different king who did not know Joseph [neither knowing his history and services nor recognizing his merits]. 
 
 
 
@@ -406,7 +406,7 @@ Until [the time when] there arose over Egypt another _and_ a different king who 
 
 
 
-He dealt treacherously with _and_ defrauded our race; he abused _and_ oppressed our forefathers, forcing them to expose their babies so that they might not be kept alive. 
+He dealt treacherously with and defrauded our race; he abused and oppressed our forefathers, forcing them to expose their babies so that they might not be kept alive. 
 
 
 
@@ -448,7 +448,7 @@ At this juncture Moses was born, and was exceedingly beautiful in God's sight. F
 
 
 
-Then when he was exposed [to perish], the daughter of Pharaoh rescued him and took him _and_ reared him as her own son. 
+Then when he was exposed [to perish], the daughter of Pharaoh rescued him and took him and reared him as her own son. 
 
 
 
@@ -469,7 +469,7 @@ Then when he was exposed [to perish], the daughter of Pharaoh rescued him and to
 
 
 
-So Moses was educated in all the wisdom _and_ culture of the Egyptians, and he was mighty (powerful) in his speech and deeds. 
+So Moses was educated in all the wisdom and culture of the Egyptians, and he was mighty (powerful) in his speech and deeds. 
 
 
 
@@ -511,7 +511,7 @@ And when he was in his fortieth year, it came into his heart to visit his kinsme
 
 
 
-And on seeing one of them being unjustly treated, he defended the oppressed man and avenged him by striking down the Egyptian _and_ slaying [him]. 
+And on seeing one of them being unjustly treated, he defended the oppressed man and avenged him by striking down the Egyptian and slaying [him]. 
 
 
 
@@ -553,7 +553,7 @@ He expected his brethren to understand that God was granting them deliverance by
 
 
 
-Then on the next day he suddenly appeared to some who were quarreling _and_ fighting among themselves, and he urged them to make peace _and_ become reconciled, saying, Men, you are brethren; why do you abuse _and_ wrong one another? 
+Then on the next day he suddenly appeared to some who were quarreling and fighting among themselves, and he urged them to make peace and become reconciled, saying, Men, you are brethren; why do you abuse and wrong one another? 
 
 
 
@@ -616,7 +616,7 @@ Do you intend to slay me as you slew the Egyptian yesterday?
 
 
 
-At that reply Moses sought safety by flight and he was an exile _and_ an alien in the country of Midian, where he became the father of two sons. 
+At that reply Moses sought safety by flight and he was an exile and an alien in the country of Midian, where he became the father of two sons. 
 
 
 
@@ -658,7 +658,7 @@ And when forty years had gone by, there appeared to him in the wilderness (deser
 
 
 
-When Moses saw it, he was astonished _and_ marveled at the sight; but when he went close to investigate, there came to him the voice of the Lord, saying, 
+When Moses saw it, he was astonished and marveled at the sight; but when he went close to investigate, there came to him the voice of the Lord, saying, 
 
 
 
@@ -679,7 +679,7 @@ When Moses saw it, he was astonished _and_ marveled at the sight; but when he we
 
 
 
-I am the God of your forefathers, the God of Abraham and of Isaac and of Jacob. And Moses trembled _and_ was so terrified that he did not venture to look. 
+I am the God of your forefathers, the God of Abraham and of Isaac and of Jacob. And Moses trembled and was so terrified that he did not venture to look. 
 
 
 
@@ -700,7 +700,7 @@ I am the God of your forefathers, the God of Abraham and of Isaac and of Jacob. 
 
 
 
-Then the Lord said to him, Remove the sandals from your feet, for the place where you are standing is holy ground _and_ worthy of veneration. 
+Then the Lord said to him, Remove the sandals from your feet, for the place where you are standing is holy ground and worthy of veneration. 
 
 
 
@@ -721,7 +721,7 @@ Then the Lord said to him, Remove the sandals from your feet, for the place wher
 
 
 
-Because I have most assuredly seen the abuse _and_ oppression of My people in Egypt and have heard their sighing _and_ groaning, I have come down to rescue them. So, now come! I will send you back to Egypt [as My messenger]. 
+Because I have most assuredly seen the abuse and oppression of My people in Egypt and have heard their sighing and groaning, I have come down to rescue them. So, now come! I will send you back to Egypt [as My messenger]. 
 
 
 
@@ -742,7 +742,7 @@ Because I have most assuredly seen the abuse _and_ oppression of My people in Eg
 
 
 
-It was this very Moses whom they had denied (disowned and rejected), saying, Who made you our ruler (referee) and judge? whom God sent to be a ruler and deliverer _and_ redeemer, by _and_ with the [protecting and helping] hand of the Angel that appeared to him in the bramblebush. 
+It was this very Moses whom they had denied (disowned and rejected), saying, Who made you our ruler (referee) and judge? whom God sent to be a ruler and deliverer and redeemer, by and with the [protecting and helping] hand of the Angel that appeared to him in the bramblebush. 
 
 
 
@@ -826,7 +826,7 @@ This is he who in the assembly in the wilderness (desert) was the go-between for
 
 
 
-[And yet] our forefathers determined not to be subject to him [refusing to listen to _or_ obey him]; but thrusting him aside they rejected him, and in their hearts yearned for _and_ turned back to Egypt. 
+[And yet] our forefathers determined not to be subject to him [refusing to listen to or obey him]; but thrusting him aside they rejected him, and in their hearts yearned for and turned back to Egypt. 
 
 
 
@@ -868,7 +868,7 @@ And they said to Aaron, Make us gods who shall [be our leaders and] go before us
 
 
 
-And they [even] made a calf in those days, and offered sacrifice to the idol and made merry _and_ exulted in the work of their [own] hands. 
+And they [even] made a calf in those days, and offered sacrifice to the idol and made merry and exulted in the work of their [own] hands. 
 
 
 
@@ -889,7 +889,7 @@ And they [even] made a calf in those days, and offered sacrifice to the idol and
 
 
 
-But God turned [away from them] and delivered them up to worship _and_ serve the host (stars) of heaven, as it is written in the book of the prophets: Did you [really] offer to Me slain beasts and sacrifices for forty years in the wilderness (desert), O house of Israel? 
+But God turned [away from them] and delivered them up to worship and serve the host (stars) of heaven, as it is written in the book of the prophets: Did you [really] offer to Me slain beasts and sacrifices for forty years in the wilderness (desert), O house of Israel? 
 
 
 
@@ -910,7 +910,7 @@ But God turned [away from them] and delivered them up to worship _and_ serve the
 
 
 
-[No!] You took up the tent (the portable temple) of Moloch _and_ carried it [with you], and the star of the god Rephan, the images which you [yourselves] made that you might worship them; and I will remove you [carrying you away into exile] beyond Babylon. 
+[No!] You took up the tent (the portable temple) of Moloch and carried it [with you], and the star of the god Rephan, the images which you [yourselves] made that you might worship them; and I will remove you [carrying you away into exile] beyond Babylon. 
 
 
 
@@ -931,7 +931,7 @@ But God turned [away from them] and delivered them up to worship _and_ serve the
 
 
 
-Our forefathers had the tent (tabernacle) of witness in the wilderness, even as He Who directed Moses to make it had ordered, according to the pattern _and_ model he had seen. 
+Our forefathers had the tent (tabernacle) of witness in the wilderness, even as He Who directed Moses to make it had ordered, according to the pattern and model he had seen. 
 
 
 
@@ -1015,7 +1015,7 @@ But it was Solomon who built a house for Him.
 
 
 
-However, the Most High does not dwell in houses _and_ temples made with hands; as the prophet says, 
+However, the Most High does not dwell in houses and temples made with hands; as the prophet says, 
 
 
 
@@ -1078,7 +1078,7 @@ Was it not My hand that made all these things?
 
 
 
-You stubborn _and_ stiff-necked people, still heathen _and_ uncircumcised in heart and ears, you are always actively resisting the Holy Spirit. As your forefathers [were], so you [are and so you do]! 
+You stubborn and stiff-necked people, still heathen and uncircumcised in heart and ears, you are always actively resisting the Holy Spirit. As your forefathers [were], so you [are and so you do]! 
 
 
 
@@ -1120,7 +1120,7 @@ Which of the prophets did your forefathers not persecute? And they slew those wh
 
 
 
-You who received the Law as it was ordained _and_ set in order _and_ delivered by angels, and [yet] you did not obey it! 
+You who received the Law as it was ordained and set in order and delivered by angels, and [yet] you did not obey it! 
 
 
 
@@ -1141,7 +1141,7 @@ You who received the Law as it was ordained _and_ set in order _and_ delivered b
 
 
 
-Now upon hearing these things, they [the Jews] were cut to the heart _and_ infuriated, and they ground their teeth against [Stephen]. 
+Now upon hearing these things, they [the Jews] were cut to the heart and infuriated, and they ground their teeth against [Stephen]. 
 
 
 
@@ -1162,7 +1162,7 @@ Now upon hearing these things, they [the Jews] were cut to the heart _and_ infur
 
 
 
-But he, full of the Holy Spirit _and_ controlled by Him, gazed into heaven and saw the glory (the splendor and majesty) of God, and Jesus standing at God's right hand; 
+But he, full of the Holy Spirit and controlled by Him, gazed into heaven and saw the glory (the splendor and majesty) of God, and Jesus standing at God's right hand; 
 
 
 
@@ -1246,7 +1246,7 @@ Then they dragged him out of the city and began to stone him, and the witnesses 
 
 
 
-And while they were stoning Stephen, he prayed, Lord Jesus, receive _and_ accept _and_ welcome my spirit! 
+And while they were stoning Stephen, he prayed, Lord Jesus, receive and accept and welcome my spirit! 
 
 
 

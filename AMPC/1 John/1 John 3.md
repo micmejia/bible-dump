@@ -12,13 +12,13 @@ next: ['1 John 4']
 ###### 1 
 
 
-See what [an incredible] quality of love the Father has given (shown, bestowed on) us, that we should [be permitted to] be named _and_ called _and_ counted the children of God! And so we are! The reason that the world does not know (recognize, acknowledge) us is that it does not know (recognize, acknowledge) Him. 
+See what [an incredible] quality of love the Father has given (shown, bestowed on) us, that we should [be permitted to] be named and called and counted the children of God! And so we are! The reason that the world does not know (recognize, acknowledge) us is that it does not know (recognize, acknowledge) Him. 
 
 
 ###### 2 
 
 
-Beloved, we are [even here and] now God's children; it is not yet disclosed (made clear) what we shall be [hereafter], but we know that when He comes _and_ is manifested, we shall [as God's children] resemble _and_ be like Him, for we shall see Him just as He [really] is. 
+Beloved, we are [even here and] now God's children; it is not yet disclosed (made clear) what we shall be [hereafter], but we know that when He comes and is manifested, we shall [as God's children] resemble and be like Him, for we shall see Him just as He [really] is. 
 
 
 ###### 3 
@@ -36,19 +36,19 @@ Everyone who commits (practices) sin is guilty of lawlessness; for [that is what
 ###### 5 
 
 
-You know that He appeared in visible form _and_ became Man to take away [upon Himself] sins, and in Him there is no sin [essentially and forever]. 
+You know that He appeared in visible form and became Man to take away [upon Himself] sins, and in Him there is no sin [essentially and forever]. 
 
 
 ###### 6 
 
 
-No one who abides in Him [who lives and remains in communion with and in obedience to Him--deliberately, knowingly, and habitually] commits (practices) sin. No one who [habitually] sins has either seen _or_ known Him [recognized, perceived, or understood Him, or has had an experiential acquaintance with Him]. 
+No one who abides in Him [who lives and remains in communion with and in obedience to Him--deliberately, knowingly, and habitually] commits (practices) sin. No one who [habitually] sins has either seen or known Him [recognized, perceived, or understood Him, or has had an experiential acquaintance with Him]. 
 
 
 ###### 7 
 
 
-Boys (lads), let no one deceive _and_ lead you astray. He who practices righteousness [who is upright, conforming to the divine will in purpose, thought, and action, living a consistently conscientious life] is righteous, even as He is righteous. 
+Boys (lads), let no one deceive and lead you astray. He who practices righteousness [who is upright, conforming to the divine will in purpose, thought, and action, living a consistently conscientious life] is righteous, even as He is righteous. 
 
 
 ###### 8 
@@ -66,7 +66,7 @@ No one born (begotten) of God [deliberately, knowingly, and habitually] practice
 ###### 10 
 
 
-By this it is made clear who take their nature from God _and_ are His children and who take their nature from the devil _and_ are his children: no one who does not practice righteousness [who does not conform to God's will in purpose, thought, and action] is of God; neither is anyone who does not love his brother (his fellow believer in Christ). 
+By this it is made clear who take their nature from God and are His children and who take their nature from the devil and are his children: no one who does not practice righteousness [who does not conform to God's will in purpose, thought, and action] is of God; neither is anyone who does not love his brother (his fellow believer in Christ). 
 
 
 ###### 11 
@@ -78,13 +78,13 @@ For this is the message (the announcement) which you have heard from the first, 
 ###### 12 
 
 
-[And] not be like Cain who [took his nature and got his motivation] from the evil one and slew his brother. And why did he slay him? Because his deeds (activities, works) were wicked _and_ malicious and his brother's were righteous (virtuous). 
+[And] not be like Cain who [took his nature and got his motivation] from the evil one and slew his brother. And why did he slay him? Because his deeds (activities, works) were wicked and malicious and his brother's were righteous (virtuous). 
 
 
 ###### 13 
 
 
-Do not be surprised _and_ wonder, brethren, that the world detests _and_ pursues you with hatred. 
+Do not be surprised and wonder, brethren, that the world detests and pursues you with hatred. 
 
 
 ###### 14 
@@ -108,13 +108,13 @@ By this we come to know (progressively to recognize, to perceive, to understand)
 ###### 17 
 
 
-But if anyone has this world's goods (resources for sustaining life) and sees his brother _and_ fellow believer in need, yet closes his heart of compassion against him, how can the love of God live _and_ remain in him? 
+But if anyone has this world's goods (resources for sustaining life) and sees his brother and fellow believer in need, yet closes his heart of compassion against him, how can the love of God live and remain in him? 
 
 
 ###### 18 
 
 
-Little children, let us not love [merely] in theory _or_ in speech but in deed and in truth (in practice and in sincerity). 
+Little children, let us not love [merely] in theory or in speech but in deed and in truth (in practice and in sincerity). 
 
 
 ###### 19 
@@ -126,7 +126,7 @@ By this we shall come to know (perceive, recognize, and understand) that we are 
 ###### 20 
 
 
-Whenever our hearts in [tormenting] self-accusation make us feel guilty _and_ condemn us. [For we are in God's hands.] For He is above _and_ greater than our consciences (our hearts), and He knows (perceives and understands) everything [nothing is hidden from Him]. 
+Whenever our hearts in [tormenting] self-accusation make us feel guilty and condemn us. [For we are in God's hands.] For He is above and greater than our consciences (our hearts), and He knows (perceives and understands) everything [nothing is hidden from Him]. 
 
 
 ###### 21 
@@ -138,7 +138,7 @@ And, beloved, if our consciences (our hearts) do not accuse us [if they do not m
 ###### 22 
 
 
-And we receive from Him whatever we ask, because we [watchfully] obey His orders [observe His suggestions and injunctions, follow His plan for us] _and_ [habitually] practice what is pleasing to Him. 
+And we receive from Him whatever we ask, because we [watchfully] obey His orders [observe His suggestions and injunctions, follow His plan for us] and [habitually] practice what is pleasing to Him. 
 
 
 ###### 23 
@@ -150,4 +150,4 @@ And this is His order (His command, His injunction): that we should believe in (
 ###### 24 
 
 
-All who keep His commandments [who obey His orders and follow His plan, live and continue to live, to stay and] abide in Him, and He in them. [They let Christ be a home to them and they are the home of Christ.] And by this we know _and_ understand _and_ have the proof that He [really] lives _and_ makes His home in us: by the [Holy] Spirit Whom He has given us.
+All who keep His commandments [who obey His orders and follow His plan, live and continue to live, to stay and] abide in Him, and He in them. [They let Christ be a home to them and they are the home of Christ.] And by this we know and understand and have the proof that He [really] lives and makes His home in us: by the [Holy] Spirit Whom He has given us.

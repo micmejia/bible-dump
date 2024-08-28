@@ -28,7 +28,7 @@ next: ['Lev 11']
 
 
 
-And Nadab and Abihu, the sons of Aaron, each took his censer and put fire in it, and put incense on it, and offered strange _and_ unholy fire before the Lord, as He had not commanded them. 
+And Nadab and Abihu, the sons of Aaron, each took his censer and put fire in it, and put incense on it, and offered strange and unholy fire before the Lord, as He had not commanded them. 
 
 
 
@@ -133,7 +133,7 @@ So they drew near and carried them in their undertunics [stripped of their pries
 
 
 
-And Moses said to Aaron and Eleazar and Ithamar, his sons [the father and brothers of the two priests whom God had slain for offering false fire], Do not uncover your heads _or_ let your hair go loose or tear your clothes, lest you die [also] and lest God's wrath should come upon all the congregation; but let your brethren, the whole house of Israel, bewail the burning which the Lord has kindled. 
+And Moses said to Aaron and Eleazar and Ithamar, his sons [the father and brothers of the two priests whom God had slain for offering false fire], Do not uncover your heads or let your hair go loose or tear your clothes, lest you die [also] and lest God's wrath should come upon all the congregation; but let your brethren, the whole house of Israel, bewail the burning which the Lord has kindled. 
 
 
 
@@ -217,7 +217,7 @@ Do not drink wine or strong drink, you or your sons, when you go into the Tent o
 
 
 
-You shall make a distinction _and_ recognize a difference between the holy and the common _or_ unholy, and between the unclean and the clean; 
+You shall make a distinction and recognize a difference between the holy and the common or unholy, and between the unclean and the clean; 
 
 
 
@@ -322,7 +322,7 @@ But the breast that is waved and the thigh that is offered you shall eat in a cl
 
 
 
-The thigh that is offered and the breast that is waved they shall bring with the offerings made by fire of the fat, to wave for a wave offering before the Lord; and it shall be yours and your sons' with you as a portion _or_ due perpetually, as the Lord has commanded. 
+The thigh that is offered and the breast that is waved they shall bring with the offerings made by fire of the fat, to wave for a wave offering before the Lord; and it shall be yours and your sons' with you as a portion or due perpetually, as the Lord has commanded. 
 
 
 
@@ -364,7 +364,7 @@ And Moses diligently tried to find [what had become of] the goat [that had been 
 
 
 
-Why have you not eaten the sin offering in the Holy Place? It is most holy; and God has given it to you to bear _and_ take away the iniquity of the congregation, to make atonement for them before the Lord. 
+Why have you not eaten the sin offering in the Holy Place? It is most holy; and God has given it to you to bear and take away the iniquity of the congregation, to make atonement for them before the Lord. 
 
 
 

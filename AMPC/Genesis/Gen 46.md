@@ -112,7 +112,7 @@ I will go down with you to Egypt, and I will also surely bring you [your people 
 
 
 
-So Jacob arose _and_ set out from Beersheba, and Israel's sons conveyed their father, their little ones, and their wives in the wagons that Pharaoh had sent to carry him. 
+So Jacob arose and set out from Beersheba, and Israel's sons conveyed their father, their little ones, and their wives in the wagons that Pharaoh had sent to carry him. 
 
 
 
@@ -595,7 +595,7 @@ And the sons of Joseph, who were born to him in Egypt, were two persons. All the
 
 
 
-And he sent Judah before him to Joseph, to direct him to Goshen _and_ meet him there; and they came into the land of Goshen. 
+And he sent Judah before him to Joseph, to direct him to Goshen and meet him there; and they came into the land of Goshen. 
 
 
 
@@ -616,7 +616,7 @@ And he sent Judah before him to Joseph, to direct him to Goshen _and_ meet him t
 
 
 
-Then Joseph made ready his chariot and went up to meet Israel his father in Goshen; and he presented himself _and_ gave distinct evidence of himself to him [that he was Joseph], and [each] fell on the [other's] neck and wept on his neck a good while. 
+Then Joseph made ready his chariot and went up to meet Israel his father in Goshen; and he presented himself and gave distinct evidence of himself to him [that he was Joseph], and [each] fell on the [other's] neck and wept on his neck a good while. 
 
 
 

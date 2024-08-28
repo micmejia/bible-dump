@@ -112,7 +112,7 @@ Then I will leave you [Egypt] upon the shore; I will cast you on the open field 
 
 
 
-And I will scatter your flesh upon the mountains and fill the valleys with your high heap of corpses _and_ their worms. 
+And I will scatter your flesh upon the mountains and fill the valleys with your high heap of corpses and their worms. 
 
 
 
@@ -133,7 +133,7 @@ And I will scatter your flesh upon the mountains and fill the valleys with your 
 
 
 
-I will also water with your flowing blood the land, even to the mountains, and the hollows _and_ water channels shall be full of you. 
+I will also water with your flowing blood the land, even to the mountains, and the hollows and water channels shall be full of you. 
 
 
 
@@ -196,7 +196,7 @@ All the bright lights of the heavens I will make dark over you and set darkness 
 
 
 
-I will also trouble _and_ vex the hearts of many peoples when I bring your breaking _and_ trembling _and_ destruction _and_ carry you captive among the nations, into the countries which you have not known. 
+I will also trouble and vex the hearts of many peoples when I bring your breaking and trembling and destruction and carry you captive among the nations, into the countries which you have not known. 
 
 
 
@@ -217,7 +217,7 @@ I will also trouble _and_ vex the hearts of many peoples when I bring your break
 
 
 
-I will make many peoples amazed _and_ appalled at you [Egypt], and their kings shall shudder _and_ be horribly afraid because of you when I brandish My sword before them; they shall tremble every moment, every man for his own life, in the day of your downfall. 
+I will make many peoples amazed and appalled at you [Egypt], and their kings shall shudder and be horribly afraid because of you when I brandish My sword before them; they shall tremble every moment, every man for his own life, in the day of your downfall. 
 
 
 
@@ -259,7 +259,7 @@ For thus says the Lord God: The sword of the king of Babylon shall come upon you
 
 
 
-I will cause your multitude, your tumult, _and_ your store [of wealth, strength, and glory] to fall by the swords of the mighty--the most terrible among the nations are they all. And they shall bring to nothing the pomp _and_ pride of Egypt, and all its multitude [with its activity and its wealth in every sphere] shall be destroyed. 
+I will cause your multitude, your tumult, and your store [of wealth, strength, and glory] to fall by the swords of the mighty--the most terrible among the nations are they all. And they shall bring to nothing the pomp and pride of Egypt, and all its multitude [with its activity and its wealth in every sphere] shall be destroyed. 
 
 
 
@@ -280,7 +280,7 @@ I will cause your multitude, your tumult, _and_ your store [of wealth, strength,
 
 
 
-I will destroy also all its beasts from beside many _and_ great waters, and no foot of man shall trouble them any more, nor shall the hoofs of beasts trouble them. 
+I will destroy also all its beasts from beside many and great waters, and no foot of man shall trouble them any more, nor shall the hoofs of beasts trouble them. 
 
 
 
@@ -322,7 +322,7 @@ Then will I make their waters sink down (subside, be quiet, and become clear); t
 
 
 
-When I make the land of Egypt desolate, and the country is stripped _and_ destitute of all that of which it was full when I smite all those who dwell in it, then will they know, understand, _and_ realize that I am the Lord [the Sovereign Ruler, Who requires and calls forth loyalty and obedient service]. 
+When I make the land of Egypt desolate, and the country is stripped and destitute of all that of which it was full when I smite all those who dwell in it, then will they know, understand, and realize that I am the Lord [the Sovereign Ruler, Who requires and calls forth loyalty and obedient service]. 
 
 
 
@@ -343,7 +343,7 @@ When I make the land of Egypt desolate, and the country is stripped _and_ destit
 
 
 
-This is the lamentation with which they shall intone _or_ chant the lament for her; the daughters of the nations shall chant their lament with it; over Egypt and over all her multitude, her tumult, _and_ her wealth in every sphere shall they chant it, says the Lord God. 
+This is the lamentation with which they shall intone or chant the lament for her; the daughters of the nations shall chant their lament with it; over Egypt and over all her multitude, her tumult, and her wealth in every sphere shall they chant it, says the Lord God. 
 
 
 
@@ -385,7 +385,7 @@ In the twelfth year [after King Jehoiachin of Judah was taken into exile], on th
 
 
 
-Son of man, wail over the multitude of Egypt and cast them down, even her and the daughters of the famous _and_ majestic nations, to the netherworld, with those who go down to the pit; 
+Son of man, wail over the multitude of Egypt and cast them down, even her and the daughters of the famous and majestic nations, to the netherworld, with those who go down to the pit; 
 
 
 
@@ -679,4 +679,4 @@ When Pharaoh sees them, he will comfort himself for all his multitude--even Phar
 
 
 
-For I have put his _and_ My terror in the land of the living, and he shall be laid in the midst of the uncircumcised (the heathen) with those slain by the sword, even Pharaoh and all his multitude, says the Lord God.
+For I have put his and My terror in the land of the living, and he shall be laid in the midst of the uncircumcised (the heathen) with those slain by the sword, even Pharaoh and all his multitude, says the Lord God.

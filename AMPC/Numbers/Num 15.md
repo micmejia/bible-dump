@@ -70,7 +70,7 @@ Say to the Israelites, When you come into the land where you are to live, which 
 
 
 
-And will make an offering by fire to the Lord from the herd or from the flock, a burnt offering or a sacrifice to fulfill a special vow or as a freewill offering or in your set feasts, to make a pleasant _and_ soothing fragrance to the Lord, 
+And will make an offering by fire to the Lord from the herd or from the flock, a burnt offering or a sacrifice to fulfill a special vow or as a freewill offering or in your set feasts, to make a pleasant and soothing fragrance to the Lord, 
 
 
 
@@ -154,7 +154,7 @@ Or for a ram you shall prepare for a cereal offering two tenths of an ephah of f
 
 
 
-And for the drink offering you shall offer a third of a hin of wine, for a sweet _and_ pleasing odor to the Lord. 
+And for the drink offering you shall offer a third of a hin of wine, for a sweet and pleasing odor to the Lord. 
 
 
 
@@ -217,7 +217,7 @@ Then shall one offer with the bull a cereal offering of three tenths of an ephah
 
 
 
-And you shall bring for the drink offering half a hin of wine for an offering made by fire, of a pleasant _and_ soothing fragrance to the Lord. 
+And you shall bring for the drink offering half a hin of wine for an offering made by fire, of a pleasant and soothing fragrance to the Lord. 
 
 
 
@@ -280,7 +280,7 @@ According to the number that you shall prepare, so shall you do to everyone acco
 
 
 
-All who are native-born shall do these things in this way in bringing an offering made by fire of a sweet _and_ pleasant odor to the Lord. 
+All who are native-born shall do these things in this way in bringing an offering made by fire of a sweet and pleasant odor to the Lord. 
 
 
 
@@ -301,7 +301,7 @@ All who are native-born shall do these things in this way in bringing an offerin
 
 
 
-And if a stranger sojourns with you or whoever may be among you throughout your generations, and he wishes to offer an offering made by fire, of a pleasing _and_ soothing fragrance to the Lord, as you do, so shall he do. 
+And if a stranger sojourns with you or whoever may be among you throughout your generations, and he wishes to offer an offering made by fire, of a pleasing and soothing fragrance to the Lord, as you do, so shall he do. 
 
 
 
@@ -427,7 +427,7 @@ Then, when you eat of the food of the land, you shall set apart a portion for a 
 
 
 
-You shall set apart a cake made of the first of your coarse meal as a gift [to the Lord]; as an offering set apart from the threshing floor, so shall you lift it out _or_ heave it. 
+You shall set apart a cake made of the first of your coarse meal as a gift [to the Lord]; as an offering set apart from the threshing floor, so shall you lift it out or heave it. 
 
 
 
@@ -511,7 +511,7 @@ Even all that the Lord has commanded you through Moses, from the day that the Lo
 
 
 
-Then it shall be, if it was done unwittingly _or_ in error without the knowledge of the congregation, that all the congregation shall offer one young bull for a burnt offering, for a pleasant _and_ soothing fragrance to the Lord, with its cereal offering and its drink offering, according to the ordinance, and one male goat for a sin offering. 
+Then it shall be, if it was done unwittingly or in error without the knowledge of the congregation, that all the congregation shall offer one young bull for a burnt offering, for a pleasant and soothing fragrance to the Lord, with its cereal offering and its drink offering, according to the ordinance, and one male goat for a sin offering. 
 
 
 
@@ -574,7 +574,7 @@ And all the congregation of the Israelites shall be forgiven and the stranger wh
 
 
 
-And if any person sins unknowingly _or_ unintentionally, he shall offer a female goat a year old for a sin offering. 
+And if any person sins unknowingly or unintentionally, he shall offer a female goat a year old for a sin offering. 
 
 
 
@@ -595,7 +595,7 @@ And if any person sins unknowingly _or_ unintentionally, he shall offer a female
 
 
 
-And the priest shall make atonement before the Lord for the person who commits an error when he sins unknowingly _or_ unintentionally, to make atonement for him; and he shall be forgiven. 
+And the priest shall make atonement before the Lord for the person who commits an error when he sins unknowingly or unintentionally, to make atonement for him; and he shall be forgiven. 
 
 
 
@@ -616,7 +616,7 @@ And the priest shall make atonement before the Lord for the person who commits a
 
 
 
-You shall have one law for him who sins unknowingly _or_ unintentionally, whether he is native born among the Israelites or a stranger who is sojourning among them. 
+You shall have one law for him who sins unknowingly or unintentionally, whether he is native born among the Israelites or a stranger who is sojourning among them. 
 
 
 
@@ -637,7 +637,7 @@ You shall have one law for him who sins unknowingly _or_ unintentionally, whethe
 
 
 
-But the person who does anything [wrong] willfully _and_ openly, whether he is native-born or a stranger, that one reproaches, reviles, _and_ blasphemes the Lord, and that person shall be cut off from among his people [that the atonement made for them may not include him]. 
+But the person who does anything [wrong] willfully and openly, whether he is native-born or a stranger, that one reproaches, reviles, and blasphemes the Lord, and that person shall be cut off from among his people [that the atonement made for them may not include him]. 
 
 
 
@@ -721,7 +721,7 @@ Those who found him gathering sticks brought him to Moses and Aaron and to all t
 
 
 
-They put him in custody, because it was not certain _or_ clear what should be done to him. 
+They put him in custody, because it was not certain or clear what should be done to him. 
 
 
 
@@ -805,7 +805,7 @@ And the Lord said to Moses,
 
 
 
-Speak to the Israelites and bid them make fringes _or_ tassels on the corners in the borders of their garments throughout their generations, and put upon the fringe of the borders _or_ upon the tassel of each corner a cord of blue. 
+Speak to the Israelites and bid them make fringes or tassels on the corners in the borders of their garments throughout their generations, and put upon the fringe of the borders or upon the tassel of each corner a cord of blue. 
 
 
 
@@ -826,7 +826,7 @@ Speak to the Israelites and bid them make fringes _or_ tassels on the corners in
 
 
 
-And it shall be to you a fringe _or_ tassel that you may look upon and remember all the commandments of the Lord and do them, that you may not spy out _and_ follow after [the desires of] your own heart and your own eyes, after which you used to follow _and_ play the harlot [spiritually, if not physically], 
+And it shall be to you a fringe or tassel that you may look upon and remember all the commandments of the Lord and do them, that you may not spy out and follow after [the desires of] your own heart and your own eyes, after which you used to follow and play the harlot [spiritually, if not physically], 
 
 
 

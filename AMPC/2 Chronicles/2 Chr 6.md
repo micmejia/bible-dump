@@ -154,7 +154,7 @@ But I have chosen Jerusalem, that My Name [and the symbol of My presence] might 
 
 
 
-Now it was in the heart of David my father to build a house for the Name _and_ renown of the Lord, the God of Israel. 
+Now it was in the heart of David my father to build a house for the Name and renown of the Lord, the God of Israel. 
 
 
 
@@ -175,7 +175,7 @@ Now it was in the heart of David my father to build a house for the Name _and_ r
 
 
 
-But the Lord said to David my father, Since it was in your heart to build a house for My Name _and_ renown, you did well that it was in your heart. 
+But the Lord said to David my father, Since it was in your heart to build a house for My Name and renown, you did well that it was in your heart. 
 
 
 
@@ -301,7 +301,7 @@ For he had made a bronze scaffold, five cubits square and three cubits high, and
 
 
 
-And said, O Lord, God of Israel, there is no God like You in the heavens or in the earth, keeping covenant and showing mercy _and_ loving-kindness to Your servants who walk before You with all their hearts, 
+And said, O Lord, God of Israel, there is no God like You in the heavens or in the earth, keeping covenant and showing mercy and loving-kindness to Your servants who walk before You with all their hearts, 
 
 
 
@@ -427,7 +427,7 @@ Yet have respect for the prayer of Your servant and for his supplication, O Lord
 
 
 
-That Your eyes may be open upon this house day and night, toward the place in which You have said You would put Your Name [and the symbol of your presence], to listen to _and_ heed the prayer which Your servant prays facing this place. 
+That Your eyes may be open upon this house day and night, toward the place in which You have said You would put Your Name [and the symbol of your presence], to listen to and heed the prayer which Your servant prays facing this place. 
 
 
 
@@ -448,7 +448,7 @@ That Your eyes may be open upon this house day and night, toward the place in wh
 
 
 
-So listen to _and_ heed the requests of Your servant and Your people Israel which they shall make facing this place. Hear from Your dwelling place, heaven; and when You hear, forgive. 
+So listen to and heed the requests of Your servant and Your people Israel which they shall make facing this place. Hear from Your dwelling place, heaven; and when You hear, forgive. 
 
 
 
@@ -868,7 +868,7 @@ Now, O my God, I beseech You, let Your eyes be open and Your ears attentive to t
 
 
 
-So now arise, O Lord God, and come into Your resting place, You and the ark of Your strength _and_ power. Let Your priests, O Lord God, be clothed with salvation, and let Your saints (Your zealous ones) rejoice in good _and_ in Your goodness. 
+So now arise, O Lord God, and come into Your resting place, You and the ark of Your strength and power. Let Your priests, O Lord God, be clothed with salvation, and let Your saints (Your zealous ones) rejoice in good and in Your goodness. 
 
 
 
@@ -889,4 +889,4 @@ So now arise, O Lord God, and come into Your resting place, You and the ark of Y
 
 
 
-O Lord God, turn not away the face of [me] Your anointed one; [earnestly] remember Your good deeds, mercy, _and_ steadfast love for David Your servant.
+O Lord God, turn not away the face of [me] Your anointed one; [earnestly] remember Your good deeds, mercy, and steadfast love for David Your servant.

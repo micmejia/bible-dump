@@ -28,7 +28,7 @@ next: ['Dan 4']
 
 
 
-Nebuchadnezzar the king [caused to be] made an image of gold, whose height was sixty cubits _or_ ninety feet and its breadth six cubits _or_ nine feet. He set it up on the plain of Dura in the province of Babylon. 
+Nebuchadnezzar the king [caused to be] made an image of gold, whose height was sixty cubits or ninety feet and its breadth six cubits or nine feet. He set it up on the plain of Dura in the province of Babylon. 
 
 
 
@@ -49,7 +49,7 @@ Nebuchadnezzar the king [caused to be] made an image of gold, whose height was s
 
 
 
-Then Nebuchadnezzar the king sent to gather together the satraps, the deputies, the governors, the judges _and_ chief stargazers, the treasurers, the counselors, the sheriffs _and_ lawyers, and all the chief officials of the provinces to come to the dedication of the image which King Nebuchadnezzar had [caused to be] set up. 
+Then Nebuchadnezzar the king sent to gather together the satraps, the deputies, the governors, the judges and chief stargazers, the treasurers, the counselors, the sheriffs and lawyers, and all the chief officials of the provinces to come to the dedication of the image which King Nebuchadnezzar had [caused to be] set up. 
 
 
 
@@ -70,7 +70,7 @@ Then Nebuchadnezzar the king sent to gather together the satraps, the deputies, 
 
 
 
-Then the satraps, the deputies, the governors, the judges _and_ chief stargazers, the treasurers, the counselors, the sheriffs _and_ lawyers, and all the chief officials of the provinces were gathered together for the dedication of the image that King Nebuchadnezzar had set up, and they stood before the image that Nebuchadnezzar had set up. 
+Then the satraps, the deputies, the governors, the judges and chief stargazers, the treasurers, the counselors, the sheriffs and lawyers, and all the chief officials of the provinces were gathered together for the dedication of the image that King Nebuchadnezzar had set up, and they stood before the image that Nebuchadnezzar had set up. 
 
 
 
@@ -112,7 +112,7 @@ Then the herald cried aloud, You are commanded, O peoples, nations, and language
 
 
 
-That when you hear the sound of the horn, pipe, lyre, trigon, harp, dulcimer _or_ bagpipe, and every kind of music, you are to fall down and worship the golden image that King Nebuchadnezzar has set up. 
+That when you hear the sound of the horn, pipe, lyre, trigon, harp, dulcimer or bagpipe, and every kind of music, you are to fall down and worship the golden image that King Nebuchadnezzar has set up. 
 
 
 
@@ -154,7 +154,7 @@ And whoever does not fall down and worship shall that very hour be cast into the
 
 
 
-Therefore, when all the peoples heard the sound of the horn, pipe, lyre, trigon, dulcimer _or_ bagpipe, and every kind of music, all the peoples, nations, and languages fell down and worshiped the golden image that King Nebuchadnezzar had set up. 
+Therefore, when all the peoples heard the sound of the horn, pipe, lyre, trigon, dulcimer or bagpipe, and every kind of music, all the peoples, nations, and languages fell down and worshiped the golden image that King Nebuchadnezzar had set up. 
 
 
 
@@ -217,7 +217,7 @@ They said to King Nebuchadnezzar, O king, live forever!
 
 
 
-You, O king, have made a decree that every man who hears the sound of the horn, pipe, lyre, trigon, harp, dulcimer _or_ bagpipe, and every kind of music shall fall down and worship the golden image, 
+You, O king, have made a decree that every man who hears the sound of the horn, pipe, lyre, trigon, harp, dulcimer or bagpipe, and every kind of music shall fall down and worship the golden image, 
 
 
 
@@ -259,7 +259,7 @@ And that whoever does not fall down and worship shall be cast into the midst of 
 
 
 
-There are certain Jews whom you have appointed _and_ set over the affairs of the province of Babylon--Shadrach, Meshach, and Abednego. These men, O king, pay no attention to you; they do not serve your gods or worship the golden image which you have set up. 
+There are certain Jews whom you have appointed and set over the affairs of the province of Babylon--Shadrach, Meshach, and Abednego. These men, O king, pay no attention to you; they do not serve your gods or worship the golden image which you have set up. 
 
 
 
@@ -322,7 +322,7 @@ Then Nebuchadnezzar in rage and fury commanded to bring Shadrach, Meshach, and A
 
 
 
-Now if you are ready when you hear the sound of the horn, pipe, lyre, trigon, harp, dulcimer _or_ bagpipe, and every kind of music to fall down and worship the image which I have made, very good. But if you do not worship, you shall be cast at once into the midst of a burning fiery furnace, and who is that god who can deliver you out of my hands? 
+Now if you are ready when you hear the sound of the horn, pipe, lyre, trigon, harp, dulcimer or bagpipe, and every kind of music to fall down and worship the image which I have made, very good. But if you do not worship, you shall be cast at once into the midst of a burning fiery furnace, and who is that god who can deliver you out of my hands? 
 
 
 
@@ -448,7 +448,7 @@ And he commanded the strongest men in his army to bind Shadrach, Meshach, and Ab
 
 
 
-Then these [three] men were bound in their cloaks, their tunics _or_ undergarments, their turbans, and their other clothing, and they were cast into the midst of the burning fiery furnace. 
+Then these [three] men were bound in their cloaks, their tunics or undergarments, their turbans, and their other clothing, and they were cast into the midst of the burning fiery furnace. 
 
 
 
@@ -469,7 +469,7 @@ Then these [three] men were bound in their cloaks, their tunics _or_ undergarmen
 
 
 
-Therefore because the king's commandment was urgent and the furnace exceedingly hot, the flame _and_ sparks from the fire killed those men who handled Shadrach, Meshach, and Abednego. 
+Therefore because the king's commandment was urgent and the furnace exceedingly hot, the flame and sparks from the fire killed those men who handled Shadrach, Meshach, and Abednego. 
 
 
 
@@ -574,7 +574,7 @@ Then Nebuchadnezzar came near to the mouth of the burning fiery furnace and said
 
 
 
-And the satraps, the deputies, the governors, and the king's counselors gathered around together and saw these men--that the fire had no power upon their bodies, nor was the hair of their head singed; neither were their garments scorched _or_ changed in color _or_ condition, nor had even the smell of smoke clung to them. 
+And the satraps, the deputies, the governors, and the king's counselors gathered around together and saw these men--that the fire had no power upon their bodies, nor was the hair of their head singed; neither were their garments scorched or changed in color or condition, nor had even the smell of smoke clung to them. 
 
 
 
@@ -595,7 +595,7 @@ And the satraps, the deputies, the governors, and the king's counselors gathered
 
 
 
-Then Nebuchadnezzar said, Blessed be the God of Shadrach, Meshach, and Abednego, Who has sent His angel and delivered His servants who believed in, trusted in, _and_ relied on Him! And they set aside the king's command and yielded their bodies rather than serve or worship any god except their own God. 
+Then Nebuchadnezzar said, Blessed be the God of Shadrach, Meshach, and Abednego, Who has sent His angel and delivered His servants who believed in, trusted in, and relied on Him! And they set aside the king's command and yielded their bodies rather than serve or worship any god except their own God. 
 
 
 

@@ -49,7 +49,7 @@ And the Lord said to Moses,
 
 
 
-Send men to explore _and_ scout out [for yourselves] the land of Canaan, which I give to the Israelites. From each tribe of their fathers you shall send a man, every one a leader _or_ head among them. 
+Send men to explore and scout out [for yourselves] the land of Canaan, which I give to the Israelites. From each tribe of their fathers you shall send a man, every one a leader or head among them. 
 
 
 
@@ -343,7 +343,7 @@ Of the tribe of Gad, Geuel son of Machi.
 
 
 
-These are the names of the men whom Moses sent to explore _and_ scout out the land. And Moses called Hoshea son of Nun, Joshua. 
+These are the names of the men whom Moses sent to explore and scout out the land. And Moses called Hoshea son of Nun, Joshua. 
 
 
 
@@ -595,7 +595,7 @@ They told Moses, We came to the land to which you sent us; surely it flows with 
 
 
 
-But the people who dwell there are strong, and the cities are fortified _and_ very large; moreover, there we saw the sons of Anak [of great stature and courage]. 
+But the people who dwell there are strong, and the cities are fortified and very large; moreover, there we saw the sons of Anak [of great stature and courage]. 
 
 
 

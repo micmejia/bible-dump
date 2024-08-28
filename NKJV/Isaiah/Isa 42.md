@@ -10,10 +10,10 @@ next: ['Isa 43']
 
 
 ###### 1 
-"Behold! My Servant whom I uphold, My Elect One _in whom_ My soul delights! I have put My Spirit upon Him; He will bring forth justice to the Gentiles. 
+"Behold! My Servant whom I uphold, My Elect One in whom My soul delights! I have put My Spirit upon Him; He will bring forth justice to the Gentiles. 
 
 ###### 2 
-He will not cry out, nor raise _His voice,_ Nor cause His voice to be heard in the street. 
+He will not cry out, nor raise His voice, Nor cause His voice to be heard in the street. 
 
 ###### 3 
 A bruised reed He will not break, And smoking flax He will not quench; He will bring forth justice for truth. 
@@ -31,7 +31,7 @@ Thus says God the Lord, Who created the heavens and stretched them out, Who spre
 To open blind eyes, To bring out prisoners from the prison, Those who sit in darkness from the prison house. 
 
 ###### 8 
-I _am_ the Lord, that _is_ My name; And My glory I will not give to another, Nor My praise to carved images. 
+I am the Lord, that is My name; And My glory I will not give to another, Nor My praise to carved images. 
 
 ###### 9 
 Behold, the former things have come to pass, And new things I declare; Before they spring forth I tell you of them." 
@@ -39,21 +39,21 @@ Behold, the former things have come to pass, And new things I declare; Before th
 ## Praise to the Lord 
 
 ###### 10 
-Sing to the Lord a new song, _And_ His praise from the ends of the earth, You who go down to the sea, and all that is in it, You coastlands and you inhabitants of them! 
+Sing to the Lord a new song, And His praise from the ends of the earth, You who go down to the sea, and all that is in it, You coastlands and you inhabitants of them! 
 
 ###### 11 
-Let the wilderness and its cities lift up _their voice,_ The villages _that_ Kedar inhabits. Let the inhabitants of Sela sing, Let them shout from the top of the mountains. 
+Let the wilderness and its cities lift up their voice, The villages that Kedar inhabits. Let the inhabitants of Sela sing, Let them shout from the top of the mountains. 
 
 ###### 12 
 Let them give glory to the Lord, And declare His praise in the coastlands. 
 
 ###### 13 
-The Lord shall go forth like a mighty man; He shall stir up _His_ zeal like a man of war. He shall cry out, yes, shout aloud; He shall prevail against His enemies.
+The Lord shall go forth like a mighty man; He shall stir up His zeal like a man of war. He shall cry out, yes, shout aloud; He shall prevail against His enemies.
 
 ## Promise of the Lord's Help 
 
 ###### 14 
-"I have held My peace a long time, I have been still and restrained Myself. _Now_ I will cry like a woman in labor, I will pant and gasp at once. 
+"I have held My peace a long time, I have been still and restrained Myself. Now I will cry like a woman in labor, I will pant and gasp at once. 
 
 ###### 15 
 I will lay waste the mountains and hills, And dry up all their vegetation; I will make the rivers coastlands, And I will dry up the pools. 
@@ -62,13 +62,13 @@ I will lay waste the mountains and hills, And dry up all their vegetation; I wil
 I will bring the blind by a way they did not know; I will lead them in paths they have not known. I will make darkness light before them, And crooked places straight. These things I will do for them, And not forsake them. 
 
 ###### 17 
-They shall be turned back, They shall be greatly ashamed, Who trust in carved images, Who say to the molded images, 'You _are_ our gods.' 
+They shall be turned back, They shall be greatly ashamed, Who trust in carved images, Who say to the molded images, 'You are our gods.' 
 
 ###### 18 
 "Hear, you deaf; And look, you blind, that you may see. 
 
 ###### 19 
-Who _is_ blind but My servant, Or deaf as My messenger _whom_ I send? Who _is_ blind as _he who is_ perfect, And blind as the Lord's servant? 
+Who is blind but My servant, Or deaf as My messenger whom I send? Who is blind as he who is perfect, And blind as the Lord's servant? 
 
 ###### 20 
 Seeing many things, but you do not observe; Opening the ears, but he does not hear." 
@@ -76,16 +76,16 @@ Seeing many things, but you do not observe; Opening the ears, but he does not he
 ## Israel's Obstinate Disobedience 
 
 ###### 21 
-The Lord is well pleased for His righteousness' sake; He will exalt the law and make _it_ honorable. 
+The Lord is well pleased for His righteousness' sake; He will exalt the law and make it honorable. 
 
 ###### 22 
-But this _is_ a people robbed and plundered; All of them are snared in holes, And they are hidden in prison houses; They are for prey, and no one delivers; For plunder, and no one says, "Restore!" 
+But this is a people robbed and plundered; All of them are snared in holes, And they are hidden in prison houses; They are for prey, and no one delivers; For plunder, and no one says, "Restore!" 
 
 ###### 23 
-Who among you will give ear to this? _Who_ will listen and hear for the time to come? 
+Who among you will give ear to this? Who will listen and hear for the time to come? 
 
 ###### 24 
 Who gave Jacob for plunder, and Israel to the robbers? Was it not the Lord, He against whom we have sinned? For they would not walk in His ways, Nor were they obedient to His law. 
 
 ###### 25 
-Therefore He has poured on him the fury of His anger And the strength of battle; It has set him on fire all around, Yet he did not know; And it burned him, Yet he did not take _it_ to heart.
+Therefore He has poured on him the fury of His anger And the strength of battle; It has set him on fire all around, Yet he did not know; And it burned him, Yet he did not take it to heart.

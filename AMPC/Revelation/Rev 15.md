@@ -24,13 +24,13 @@ Then I saw what seemed to be a glassy sea blended with fire, and those who had c
 ###### 3 
 
 
-And they sang the song of Moses the servant of God and the song of the Lamb, saying, Mighty and marvelous are Your works, O Lord God the Omnipotent! Righteous (just) and true are Your ways, O Sovereign of the ages (King of the _nations_)! 
+And they sang the song of Moses the servant of God and the song of the Lamb, saying, Mighty and marvelous are Your works, O Lord God the Omnipotent! Righteous (just) and true are Your ways, O Sovereign of the ages (King of the nations)! 
 
 
 ###### 4 
 
 
-Who shall not reverence and glorify Your name, O Lord [giving You honor and praise in worship]? For You only are holy. All the nations shall come and pay homage _and_ adoration to You, for Your just judgments (Your righteous sentences and deeds) have been made known _and_ displayed. 
+Who shall not reverence and glorify Your name, O Lord [giving You honor and praise in worship]? For You only are holy. All the nations shall come and pay homage and adoration to You, for Your just judgments (Your righteous sentences and deeds) have been made known and displayed. 
 
 
 ###### 5 
@@ -48,10 +48,10 @@ And there came out of the temple sanctuary the seven angels bringing the seven p
 ###### 7 
 
 
-And one of the four living creatures [then] gave the seven angels seven golden bowls full of the wrath _and_ indignation of God, Who lives forever and ever (in the eternities of the eternities). 
+And one of the four living creatures [then] gave the seven angels seven golden bowls full of the wrath and indignation of God, Who lives forever and ever (in the eternities of the eternities). 
 
 
 ###### 8 
 
 
-And the sanctuary was filled with smoke from the glory (the radiance, the splendor) of God and from His might _and_ power, and no one was able to go into the sanctuary until the seven plagues (afflictions, calamities) of the seven angels were ended.
+And the sanctuary was filled with smoke from the glory (the radiance, the splendor) of God and from His might and power, and no one was able to go into the sanctuary until the seven plagues (afflictions, calamities) of the seven angels were ended.

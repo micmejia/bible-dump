@@ -28,7 +28,7 @@ next: ['Prov 21']
 
 
 
-Wine is a mocker, strong drink a riotous brawler; and whoever errs _or_ reels because of it is not wise. 
+Wine is a mocker, strong drink a riotous brawler; and whoever errs or reels because of it is not wise. 
 
 
 
@@ -49,7 +49,7 @@ Wine is a mocker, strong drink a riotous brawler; and whoever errs _or_ reels be
 
 
 
-The terror of a king is as the roaring of a lion; whoever provokes him to anger _or_ angers himself against him sins against his own life. 
+The terror of a king is as the roaring of a lion; whoever provokes him to anger or angers himself against him sins against his own life. 
 
 
 
@@ -70,7 +70,7 @@ The terror of a king is as the roaring of a lion; whoever provokes him to anger 
 
 
 
-It is an honor for a man to cease from strife _and_ keep aloof from it, but every fool will quarrel. 
+It is an honor for a man to cease from strife and keep aloof from it, but every fool will quarrel. 
 
 
 
@@ -133,7 +133,7 @@ Counsel in the heart of man is like water in a deep well, but a man of understan
 
 
 
-Many a man proclaims his own loving-kindness _and_ goodness, but a faithful man who can find? 
+Many a man proclaims his own loving-kindness and goodness, but a faithful man who can find? 
 
 
 
@@ -217,7 +217,7 @@ Who can say, I have made my heart clean, I am pure from my sin?
 
 
 
-Diverse weights [one for buying and another for selling] and diverse measures--both of them are exceedingly offensive _and_ abhorrent to the Lord. 
+Diverse weights [one for buying and another for selling] and diverse measures--both of them are exceedingly offensive and abhorrent to the Lord. 
 
 
 
@@ -385,7 +385,7 @@ Food gained by deceit is sweet to a man, but afterward his mouth will be filled 
 
 
 
-Purposes _and_ plans are established by counsel; and [only] with good advice make _or_ carry on war. 
+Purposes and plans are established by counsel; and [only] with good advice make or carry on war. 
 
 
 
@@ -490,7 +490,7 @@ Do not say, I will repay evil; wait [expectantly] for the Lord, and He will resc
 
 
 
-Diverse _and_ deceitful weights are shamefully vile _and_ abhorrent to the Lord, and false scales are not good. 
+Diverse and deceitful weights are shamefully vile and abhorrent to the Lord, and false scales are not good. 
 
 
 
@@ -595,7 +595,7 @@ The spirit of man [that factor in human personality which proceeds immediately f
 
 
 
-Loving-kindness _and_ mercy, truth _and_ faithfulness, preserve the king, and his throne is upheld by [the people's] loyalty. 
+Loving-kindness and mercy, truth and faithfulness, preserve the king, and his throne is upheld by [the people's] loyalty. 
 
 
 

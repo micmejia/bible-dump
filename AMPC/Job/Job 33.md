@@ -133,7 +133,7 @@ Answer me now, if you can; set your words in order before me; take your stand.
 
 
 
-Behold, I am toward God _and_ before Him even as you are; I also am formed out of the clay [though I speak with abnormal wisdom because of a divine illumination]. 
+Behold, I am toward God and before Him even as you are; I also am formed out of the clay [though I speak with abnormal wisdom because of a divine illumination]. 
 
 
 
@@ -217,7 +217,7 @@ I am clean, without transgression; I am innocent, neither is there iniquity in m
 
 
 
-But behold, God finds occasions against me _and_ causes of alienation _and_ indifference; He counts me as His enemy. 
+But behold, God finds occasions against me and causes of alienation and indifference; He counts me as His enemy. 
 
 
 
@@ -406,7 +406,7 @@ He holds him back from the pit [of destruction], and his life from perishing by 
 
 
 
-[God's voice may be heard by man when] he is chastened with pain upon his bed and with continual strife in his bones _or_ while all his bones are firmly set, 
+[God's voice may be heard by man when] he is chastened with pain upon his bed and with continual strife in his bones or while all his bones are firmly set, 
 
 
 
@@ -490,7 +490,7 @@ Yes, his soul draws near to corruption, and his life to the inflicters of death 
 
 
 
-[God's voice may be heard] if there is for the hearer a messenger _or_ an angel, an interpreter, one among a thousand, to show to man what is right for him [how to be upright and in right standing with God], 
+[God's voice may be heard] if there is for the hearer a messenger or an angel, an interpreter, one among a thousand, to show to man what is right for him [how to be upright and in right standing with God], 
 
 
 
@@ -532,7 +532,7 @@ Then [God] is gracious to him and says, Deliver him from going down into the pit
 
 
 
-[Then the man's] flesh shall be restored; it becomes fresher _and_ more tender than a child's; he returns to the days of his youth. 
+[Then the man's] flesh shall be restored; it becomes fresher and more tender than a child's; he returns to the days of his youth. 
 
 
 
@@ -574,7 +574,7 @@ He prays to God, and He is favorable to him, so that he sees His face with joy; 
 
 
 
-He looks upon other men _or_ sings out to them, I have sinned and perverted that which was right, and it did not profit me, _or_ He did not requite me [according to my iniquity]! 
+He looks upon other men or sings out to them, I have sinned and perverted that which was right, and it did not profit me, or He did not requite me [according to my iniquity]! 
 
 
 

@@ -13,10 +13,10 @@ next: ['Job 32']
 "I have made a covenant with my eyes; Why then should I look upon a young woman? 
 
 ###### 2 
-For what _is_ the allotment of God from above, And the inheritance of the Almighty from on high? 
+For what is the allotment of God from above, And the inheritance of the Almighty from on high? 
 
 ###### 3 
-_Is_ it not destruction for the wicked, And disaster for the workers of iniquity? 
+Is it not destruction for the wicked, And disaster for the workers of iniquity? 
 
 ###### 4 
 Does He not see my ways, And count all my steps? 
@@ -31,19 +31,19 @@ Let me be weighed on honest scales, That God may know my integrity.
 If my step has turned from the way, Or my heart walked after my eyes, Or if any spot adheres to my hands, 
 
 ###### 8 
-_Then_ let me sow, and another eat; Yes, let my harvest be rooted out. 
+Then let me sow, and another eat; Yes, let my harvest be rooted out. 
 
 ###### 9 
-"If my heart has been enticed by a woman, Or _if_ I have lurked at my neighbor's door, 
+"If my heart has been enticed by a woman, Or if I have lurked at my neighbor's door, 
 
 ###### 10 
-_Then_ let my wife grind for another, And let others bow down over her. 
+Then let my wife grind for another, And let others bow down over her. 
 
 ###### 11 
-For that _would be_ wickedness; Yes, it _would be_ iniquity _deserving of_ judgment. 
+For that would be wickedness; Yes, it would be iniquity deserving of judgment. 
 
 ###### 12 
-For that _would be_ a fire _that_ consumes to destruction, And would root out all my increase. 
+For that would be a fire that consumes to destruction, And would root out all my increase. 
 
 ###### 13 
 "If I have despised the cause of my male or female servant When they complained against me, 
@@ -55,43 +55,43 @@ What then shall I do when God rises up? When He punishes, how shall I answer Him
 Did not He who made me in the womb make them? Did not the same One fashion us in the womb? 
 
 ###### 16 
-"If I have kept the poor from _their_ desire, Or caused the eyes of the widow to fail, 
+"If I have kept the poor from their desire, Or caused the eyes of the widow to fail, 
 
 ###### 17 
 Or eaten my morsel by myself, So that the fatherless could not eat of it 
 
 ###### 18 
-(But from my youth I reared him as a father, And from my mother's womb I guided _the widow_); 
+(But from my youth I reared him as a father, And from my mother's womb I guided the widow); 
 
 ###### 19 
-If I have seen anyone perish for lack of clothing, Or any poor _man_ without covering; 
+If I have seen anyone perish for lack of clothing, Or any poor man without covering; 
 
 ###### 20 
-If his heart has not blessed me, And _if_ he was _not_ warmed with the fleece of my sheep; 
+If his heart has not blessed me, And if he was not warmed with the fleece of my sheep; 
 
 ###### 21 
 If I have raised my hand against the fatherless, When I saw I had help in the gate; 
 
 ###### 22 
-_Then_ let my arm fall from my shoulder, Let my arm be torn from the socket. 
+Then let my arm fall from my shoulder, Let my arm be torn from the socket. 
 
 ###### 23 
-For destruction _from_ God _is_ a terror to me, And because of His magnificence I cannot endure. 
+For destruction from God is a terror to me, And because of His magnificence I cannot endure. 
 
 ###### 24 
-"If I have made gold my hope, Or said to fine gold, '_You are_ my confidence'; 
+"If I have made gold my hope, Or said to fine gold, 'You are my confidence'; 
 
 ###### 25 
-If I have rejoiced because my wealth _was_ great, And because my hand had gained much; 
+If I have rejoiced because my wealth was great, And because my hand had gained much; 
 
 ###### 26 
-If I have observed the sun when it shines, Or the moon moving _in_ brightness, 
+If I have observed the sun when it shines, Or the moon moving in brightness, 
 
 ###### 27 
 So that my heart has been secretly enticed, And my mouth has kissed my hand; 
 
 ###### 28 
-This also _would be_ an iniquity _deserving of_ judgment, For I would have denied God _who is_ above. 
+This also would be an iniquity deserving of judgment, For I would have denied God who is above. 
 
 ###### 29 
 "If I have rejoiced at the destruction of him who hated me, Or lifted myself up when evil found him 
@@ -103,19 +103,19 @@ This also _would be_ an iniquity _deserving of_ judgment, For I would have denie
 If the men of my tent have not said, 'Who is there that has not been satisfied with his meat?' 
 
 ###### 32 
-(_But_ no sojourner had to lodge in the street, _For_ I have opened my doors to the traveler); 
+(But no sojourner had to lodge in the street, For I have opened my doors to the traveler); 
 
 ###### 33 
 If I have covered my transgressions as Adam, By hiding my iniquity in my bosom, 
 
 ###### 34 
-Because I feared the great multitude, And dreaded the contempt of families, So that I kept silence _And_ did not go out of the door-- 
+Because I feared the great multitude, And dreaded the contempt of families, So that I kept silence And did not go out of the door-- 
 
 ###### 35 
-Oh, that I had one to hear me! Here is my mark. _Oh,_ _that_ the Almighty would answer me, _That_ my Prosecutor had written a book! 
+Oh, that I had one to hear me! Here is my mark. Oh, that the Almighty would answer me, That my Prosecutor had written a book! 
 
 ###### 36 
-Surely I would carry it on my shoulder, _And_ bind it on me _like_ a crown; 
+Surely I would carry it on my shoulder, And bind it on me like a crown; 
 
 ###### 37 
 I would declare to Him the number of my steps; Like a prince I would approach Him. 
@@ -127,4 +127,4 @@ I would declare to Him the number of my steps; Like a prince I would approach Hi
 If I have eaten its fruit without money, Or caused its owners to lose their lives; 
 
 ###### 40 
-_Then_ let thistles grow instead of wheat, And weeds instead of barley." The words of Job are ended.
+Then let thistles grow instead of wheat, And weeds instead of barley." The words of Job are ended.

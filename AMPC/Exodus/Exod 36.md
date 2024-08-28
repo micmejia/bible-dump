@@ -49,7 +49,7 @@ Bezalel and Aholiab and every wisehearted man in whom the Lord has put wisdom an
 
 
 
-And Moses called Bezalel and Aholiab and every able _and_ wisehearted man in whose mind the Lord had put wisdom _and_ ability, everyone whose heart stirred him up to come to do the work; 
+And Moses called Bezalel and Aholiab and every able and wisehearted man in whose mind the Lord had put wisdom and ability, everyone whose heart stirred him up to come to do the work; 
 
 
 
@@ -91,7 +91,7 @@ And they received from Moses all the freewill offerings which the Israelites had
 
 
 
-And all the wise _and_ able men who were doing the work on the sanctuary came, every man from the work he was doing, 
+And all the wise and able men who were doing the work on the sanctuary came, every man from the work he was doing, 
 
 
 
@@ -175,7 +175,7 @@ For the stuff they had was sufficient to do all the work and more.
 
 
 
-And all the able _and_ wisehearted men among them who did the work on the tabernacle made ten curtains of fine twined linen and blue, purple, and scarlet [stuff], with cherubim skillfully worked on them. 
+And all the able and wisehearted men among them who did the work on the tabernacle made ten curtains of fine twined linen and blue, purple, and scarlet [stuff], with cherubim skillfully worked on them. 
 
 
 
@@ -406,7 +406,7 @@ He made fifty clasps of bronze to couple the tent together into one whole.
 
 
 
-He made a covering for the tent of rams' skins tanned red, and above it a covering of dolphin _or_ porpoise skins. 
+He made a covering for the tent of rams' skins tanned red, and above it a covering of dolphin or porpoise skins. 
 
 
 
@@ -511,7 +511,7 @@ And he made thus the boards [for frames] for the tabernacle: twenty boards for t
 
 
 
-And he made under the twenty boards forty sockets _or_ bases of silver, two sockets under one board for its two tenons _or_ hands, and two sockets under another board for its two tenons. 
+And he made under the twenty boards forty sockets or bases of silver, two sockets under one board for its two tenons or hands, and two sockets under another board for its two tenons. 
 
 
 
@@ -553,7 +553,7 @@ For the other side of the tabernacle, the north side, he made twenty boards
 
 
 
-And their forty sockets _or_ bases of silver, two sockets under [the end of] each board. 
+And their forty sockets or bases of silver, two sockets under [the end of] each board. 
 
 
 
@@ -637,7 +637,7 @@ They were separate below but linked together at the top with one ring; thus he m
 
 
 
-There were eight boards with sixteen sockets _or_ bases of silver, and under [the end of] each board two sockets. 
+There were eight boards with sixteen sockets or bases of silver, and under [the end of] each board two sockets. 
 
 
 
@@ -763,7 +763,7 @@ And he made the veil of blue, purple, and scarlet [stuff] and fine twined linen,
 
 
 
-For [the veil] he made four pillars of acacia [wood] and overlaid them with gold; their hooks were of gold, and he cast for them four sockets _or_ bases of silver. 
+For [the veil] he made four pillars of acacia [wood] and overlaid them with gold; their hooks were of gold, and he cast for them four sockets or bases of silver. 
 
 
 

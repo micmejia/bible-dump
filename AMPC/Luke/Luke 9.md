@@ -49,7 +49,7 @@ Then Jesus called together the Twelve [apostles] and gave them power and authori
 
 
 
-And He sent them out to announce _and_ preach the kingdom of God and to bring healing. 
+And He sent them out to announce and preach the kingdom of God and to bring healing. 
 
 
 
@@ -112,7 +112,7 @@ And whatever house you enter, stay there until you go away [from that place].
 
 
 
-And wherever they do not receive _and_ accept _and_ welcome you, when you leave that town shake off [even] the dust from your feet, as a testimony against them. 
+And wherever they do not receive and accept and welcome you, when you leave that town shake off [even] the dust from your feet, as a testimony against them. 
 
 
 
@@ -154,7 +154,7 @@ And departing, they went about from village to village, preaching the Gospel and
 
 
 
-Now Herod the tetrarch heard of all that was being done by [Jesus], and he was [thoroughly] perplexed _and_ troubled, because it was said by some that John [the Baptist] had been raised from the dead, 
+Now Herod the tetrarch heard of all that was being done by [Jesus], and he was [thoroughly] perplexed and troubled, because it was said by some that John [the Baptist] had been raised from the dead, 
 
 
 
@@ -259,7 +259,7 @@ But when the crowds learned of it, [they] followed Him; and He welcomed them and
 
 
 
-Now the day began to decline, and the Twelve came and said to Him, Dismiss the crowds _and_ send them away, so that they may go to the neighboring hamlets _and_ villages and the surrounding country and find lodging and get a supply of provisions, for we are here in an uninhabited (barren, solitary) place. 
+Now the day began to decline, and the Twelve came and said to Him, Dismiss the crowds and send them away, so that they may go to the neighboring hamlets and villages and the surrounding country and find lodging and get a supply of provisions, for we are here in an uninhabited (barren, solitary) place. 
 
 
 
@@ -343,7 +343,7 @@ And they did so, and made them all recline.
 
 
 
-And taking the five loaves and the two fish, He looked up to heaven and [praising God] gave thanks _and_ asked Him to bless them [to their use]. Then He broke them and gave them to the disciples to place before the multitude. 
+And taking the five loaves and the two fish, He looked up to heaven and [praising God] gave thanks and asked Him to bless them [to their use]. Then He broke them and gave them to the disciples to place before the multitude. 
 
 
 
@@ -469,7 +469,7 @@ But He strictly charged and sharply commanded them [under penalty] to tell this 
 
 
 
-Saying, The Son of Man must suffer many things and be [deliberately] disapproved _and_ repudiated _and_ rejected on the part of the elders and chief priests and scribes, and be put to death and on the third day be raised [again]. 
+Saying, The Son of Man must suffer many things and be [deliberately] disapproved and repudiated and rejected on the part of the elders and chief priests and scribes, and be put to death and on the third day be raised [again]. 
 
 
 
@@ -511,7 +511,7 @@ And He said to all, If any person wills to come after Me, let him deny himself [
 
 
 
-For whoever would preserve his life _and_ save it will lose _and_ destroy it, but whoever loses his life for My sake, he will preserve _and_ save it [from the penalty of eternal death]. 
+For whoever would preserve his life and save it will lose and destroy it, but whoever loses his life for My sake, he will preserve and save it [from the penalty of eternal death]. 
 
 
 
@@ -658,7 +658,7 @@ And behold, two men were conversing with Him--Moses and Elijah,
 
 
 
-Who appeared in splendor _and_ majesty _and_ brightness and were speaking of His exit [from life], which He was about to bring to realization at Jerusalem. 
+Who appeared in splendor and majesty and brightness and were speaking of His exit [from life], which He was about to bring to realization at Jerusalem. 
 
 
 
@@ -700,7 +700,7 @@ Now Peter and those with him were weighed down with sleep, but when they fully a
 
 
 
-And it occurred as the men were parting from Him that Peter said to Jesus, Master, it is delightful _and_ good that we are here; and let us construct three booths _or_ huts--one for You and one for Moses and one for Elijah! not noticing _or_ knowing what he was saying. 
+And it occurred as the men were parting from Him that Peter said to Jesus, Master, it is delightful and good that we are here; and let us construct three booths or huts--one for You and one for Moses and one for Elijah! not noticing or knowing what he was saying. 
 
 
 
@@ -721,7 +721,7 @@ And it occurred as the men were parting from Him that Peter said to Jesus, Maste
 
 
 
-But even as he was saying this, a cloud came and began to overshadow them, and they were seized with alarm _and_ struck with fear as they entered into the cloud. 
+But even as he was saying this, a cloud came and began to overshadow them, and they were seized with alarm and struck with fear as they entered into the cloud. 
 
 
 
@@ -742,7 +742,7 @@ But even as he was saying this, a cloud came and began to overshadow them, and t
 
 
 
-Then there came a voice out of the cloud, saying, This is My Son, My Chosen One _or_ _My Beloved_; listen to _and_ yield to _and_ obey Him! 
+Then there came a voice out of the cloud, saying, This is My Son, My Chosen One or My Beloved; listen to and yield to and obey Him! 
 
 
 
@@ -868,7 +868,7 @@ And I implored Your disciples to drive it out, but they could not.
 
 
 
-Jesus answered, O [faithless ones] unbelieving _and_ without trust in God, a perverse (wayward, crooked and warped) generation! Until when _and_ how long am I to be with you and bear with you? Bring your son here [to Me]. 
+Jesus answered, O [faithless ones] unbelieving and without trust in God, a perverse (wayward, crooked and warped) generation! Until when and how long am I to be with you and bear with you? Bring your son here [to Me]. 
 
 
 
@@ -889,7 +889,7 @@ Jesus answered, O [faithless ones] unbelieving _and_ without trust in God, a per
 
 
 
-And even while he was coming, the demon threw him down and [completely] convulsed him. But Jesus censured _and_ severely rebuked the unclean spirit and healed the child and restored him to his father. 
+And even while he was coming, the demon threw him down and [completely] convulsed him. But Jesus censured and severely rebuked the unclean spirit and healed the child and restored him to his father. 
 
 
 
@@ -910,7 +910,7 @@ And even while he was coming, the demon threw him down and [completely] convulse
 
 
 
-And all were astounded at the evidence of God's mighty power _and_ His majesty _and_ magnificence. But [while] they were all marveling at everything Jesus was doing, He said to His disciples, 
+And all were astounded at the evidence of God's mighty power and His majesty and magnificence. But [while] they were all marveling at everything Jesus was doing, He said to His disciples, 
 
 
 
@@ -952,7 +952,7 @@ Let these words sink into your ears: the Son of Man is about to be delivered int
 
 
 
-However, they did not comprehend this saying; and it was kept hidden from them, so that they should not grasp it _and_ understand, and they were afraid to ask Him about the statement. 
+However, they did not comprehend this saying; and it was kept hidden from them, so that they should not grasp it and understand, and they were afraid to ask Him about the statement. 
 
 
 
@@ -1015,7 +1015,7 @@ But Jesus, as He perceived the thoughts of their hearts, took a little child and
 
 
 
-And told them, Whoever receives _and_ accepts _and_ welcomes this child in My name _and_ for My sake receives _and_ accepts _and_ welcomes Me; and whoever so receives Me so also receives Him Who sent Me. For he who is least _and_ lowliest among you all--he is [the one who is truly] great. 
+And told them, Whoever receives and accepts and welcomes this child in My name and for My sake receives and accepts and welcomes Me; and whoever so receives Me so also receives Him Who sent Me. For he who is least and lowliest among you all--he is [the one who is truly] great. 
 
 
 
@@ -1078,7 +1078,7 @@ But Jesus told him, Do not forbid [such people]; for whoever is not against you 
 
 
 
-Now when the time was almost come for Jesus to be received up [to heaven], He steadfastly _and_ determinedly set His face to go to Jerusalem. 
+Now when the time was almost come for Jesus to be received up [to heaven], He steadfastly and determinedly set His face to go to Jerusalem. 
 
 
 
@@ -1120,7 +1120,7 @@ And He sent messengers before Him; and they reached and entered a Samaritan vill
 
 
 
-But [the people] would not welcome _or_ receive _or_ accept Him, because His face was [set as if He was] going to Jerusalem. 
+But [the people] would not welcome or receive or accept Him, because His face was [set as if He was] going to Jerusalem. 
 
 
 
@@ -1141,7 +1141,7 @@ But [the people] would not welcome _or_ receive _or_ accept Him, because His fac
 
 
 
-And when His disciples James and John observed this, they said, Lord, do You wish us to command fire to come down from heaven and consume them, _even as Elijah did_? 
+And when His disciples James and John observed this, they said, Lord, do You wish us to command fire to come down from heaven and consume them, even as Elijah did? 
 
 
 
@@ -1162,7 +1162,7 @@ And when His disciples James and John observed this, they said, Lord, do You wis
 
 
 
-But He turned and rebuked _and_ severely censured them. _He said, You do not know of what sort of spirit you are,_ 
+But He turned and rebuked and severely censured them. He said, You do not know of what sort of spirit you are, 
 
 
 
@@ -1183,7 +1183,7 @@ But He turned and rebuked _and_ severely censured them. _He said, You do not kno
 
 
 
-_For the Son of Man did not come to destroy men's lives, but to save them_ _[from the penalty of eternal death]_. And they journeyed on to another village. 
+For the Son of Man did not come to destroy men's lives, but to save them [from the penalty of eternal death]. And they journeyed on to another village. 
 
 
 
@@ -1204,7 +1204,7 @@ _For the Son of Man did not come to destroy men's lives, but to save them_ _[fro
 
 
 
-And it occurred that as they were going along the road, a man said to Him, _Lord_, I will follow You wherever You go. 
+And it occurred that as they were going along the road, a man said to Him, Lord, I will follow You wherever You go. 
 
 
 
@@ -1225,7 +1225,7 @@ And it occurred that as they were going along the road, a man said to Him, _Lord
 
 
 
-And Jesus told him, Foxes have lurking holes and the birds of the air have roosts _and_ nests, but the Son of Man has no place to lay His head. 
+And Jesus told him, Foxes have lurking holes and the birds of the air have roosts and nests, but the Son of Man has no place to lay His head. 
 
 
 
@@ -1246,7 +1246,7 @@ And Jesus told him, Foxes have lurking holes and the birds of the air have roost
 
 
 
-And He said to another, Become My disciple, side with My party, and accompany Me! But he replied, _Lord_, permit me first to go and bury (await the death of) my father. 
+And He said to another, Become My disciple, side with My party, and accompany Me! But he replied, Lord, permit me first to go and bury (await the death of) my father. 
 
 
 
@@ -1267,7 +1267,7 @@ And He said to another, Become My disciple, side with My party, and accompany Me
 
 
 
-But Jesus said to him, Allow the dead to bury their own dead; but as for you, go _and_ publish abroad throughout all regions the kingdom of God. 
+But Jesus said to him, Allow the dead to bury their own dead; but as for you, go and publish abroad throughout all regions the kingdom of God. 
 
 
 
@@ -1288,7 +1288,7 @@ But Jesus said to him, Allow the dead to bury their own dead; but as for you, go
 
 
 
-Another also said, I will follow You, Lord, _and_ become Your disciple _and_ side with Your party; but let me first say good-bye to those at my home. 
+Another also said, I will follow You, Lord, and become Your disciple and side with Your party; but let me first say good-bye to those at my home. 
 
 
 

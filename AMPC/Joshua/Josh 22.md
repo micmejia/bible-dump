@@ -112,7 +112,7 @@ But now the Lord your God has given rest to your brethren, as He promised them; 
 
 
 
-But take diligent heed to do the commandment and the law which Moses the servant of the Lord charged you: to love the Lord your God and to walk in all His ways and to keep His commandments and to cling to _and_ unite with Him and to serve Him with all your heart and soul [your very life]. 
+But take diligent heed to do the commandment and the law which Moses the servant of the Lord charged you: to love the Lord your God and to walk in all His ways and to keep His commandments and to cling to and unite with Him and to serve Him with all your heart and soul [your very life]. 
 
 
 
@@ -427,7 +427,7 @@ But now, if your land is unclean, pass over into the Lord's land, where the Lord
 
 
 
-Did not Achan son of Zerah commit a trespass in the matter of taking accursed things [devoted to destruction] and wrath fall on all the congregation of Israel? And he did not perish alone in his perversity _and_ iniquity. 
+Did not Achan son of Zerah commit a trespass in the matter of taking accursed things [devoted to destruction] and wrath fall on all the congregation of Israel? And he did not perish alone in his perversity and iniquity. 
 
 
 
@@ -658,7 +658,7 @@ And when Phinehas the priest and the chiefs of the congregation and heads of the
 
 
 
-Phinehas son of Eleazar, the priest, said to the Reubenites, Gadites, and Manassites, Today we know the Lord is among us, because you have not committed this trespass _and_ treachery against the Lord; now you have saved the Israelites from the Lord's hand. 
+Phinehas son of Eleazar, the priest, said to the Reubenites, Gadites, and Manassites, Today we know the Lord is among us, because you have not committed this trespass and treachery against the Lord; now you have saved the Israelites from the Lord's hand. 
 
 
 

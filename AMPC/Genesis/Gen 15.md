@@ -28,7 +28,7 @@ next: ['Gen 16']
 
 
 
-After these things, the word of the Lord came to Abram in a vision, saying, Fear not, Abram, I am your Shield, your abundant compensation, _and_ your reward shall be exceedingly great. 
+After these things, the word of the Lord came to Abram in a vision, saying, Fear not, Abram, I am your Shield, your abundant compensation, and your reward shall be exceedingly great. 
 
 
 
@@ -49,7 +49,7 @@ After these things, the word of the Lord came to Abram in a vision, saying, Fear
 
 
 
-And Abram said, Lord God, what can You give me, since I am going on [from this world] childless and he who shall be the owner _and_ heir of my house is this [steward] Eliezer of Damascus? 
+And Abram said, Lord God, what can You give me, since I am going on [from this world] childless and he who shall be the owner and heir of my house is this [steward] Eliezer of Damascus? 
 
 
 
@@ -259,7 +259,7 @@ And when the birds of prey swooped down upon the carcasses, Abram drove them awa
 
 
 
-When the sun was setting, a deep sleep overcame Abram, and a horror (a terror, a shuddering fear) of great darkness assailed _and_ oppressed him. 
+When the sun was setting, a deep sleep overcame Abram, and a horror (a terror, a shuddering fear) of great darkness assailed and oppressed him. 
 
 
 
@@ -280,7 +280,7 @@ When the sun was setting, a deep sleep overcame Abram, and a horror (a terror, a
 
 
 
-And [God] said to Abram, Know positively that your descendants will be strangers dwelling as temporary residents in a land that is not theirs [Egypt], and they will be slaves there and will be afflicted _and_ oppressed for 400 years. [Fulfilled in Exod. 12:40.] 
+And [God] said to Abram, Know positively that your descendants will be strangers dwelling as temporary residents in a land that is not theirs [Egypt], and they will be slaves there and will be afflicted and oppressed for 400 years. [Fulfilled in Exod. 12:40.] 
 
 
 
@@ -343,7 +343,7 @@ And you shall go to your fathers in peace; you shall be buried at a good old (ho
 
 
 
-And in the fourth generation they [your descendants] shall come back here [to Canaan] again, for the iniquity of the Amorites is not yet full _and_ complete. 
+And in the fourth generation they [your descendants] shall come back here [to Canaan] again, for the iniquity of the Amorites is not yet full and complete. 
 
 
 

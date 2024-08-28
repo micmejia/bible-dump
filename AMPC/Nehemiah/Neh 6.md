@@ -175,7 +175,7 @@ Also you have set up prophets to announce concerning you in Jerusalem, There is 
 
 
 
-I replied to him, No such things as you say have been done; you are inventing them out of your own heart _and_ mind. 
+I replied to him, No such things as you say have been done; you are inventing them out of your own heart and mind. 
 
 
 
@@ -280,7 +280,7 @@ And behold, I saw that God had not sent him, but he made this prophecy against m
 
 
 
-He was hired that I should be made afraid and do as he said and sin, that they might have matter for an evil report with which to taunt _and_ reproach me. 
+He was hired that I should be made afraid and do as he said and sin, that they might have matter for an evil report with which to taunt and reproach me. 
 
 
 

@@ -70,7 +70,7 @@ Even if I am not considered an apostle (a special messenger) by others, at least
 
 
 
-This is my [real ground of] defense (my vindication of myself) to those who would put me on trial _and_ cross-examine me. 
+This is my [real ground of] defense (my vindication of myself) to those who would put me on trial and cross-examine me. 
 
 
 
@@ -175,7 +175,7 @@ Or is it only Barnabas and I who have no right to refrain from doing manual labo
 
 
 
-Do I say this only on human authority _and_ as a man reasons? Does not the Law endorse the same principle? 
+Do I say this only on human authority and as a man reasons? Does not the Law endorse the same principle? 
 
 
 
@@ -217,7 +217,7 @@ For in the Law of Moses it is written, You shall not muzzle an ox when it is tre
 
 
 
-Or does He speak certainly _and_ entirely for our sakes? [Assuredly] it is written for our sakes, because the plowman ought to plow in hope, and the thresher ought to thresh in expectation of partaking of the harvest. 
+Or does He speak certainly and entirely for our sakes? [Assuredly] it is written for our sakes, because the plowman ought to plow in hope, and the thresher ought to thresh in expectation of partaking of the harvest. 
 
 
 
@@ -322,7 +322,7 @@ Do you not know that those men who are employed in the services of the temple ge
 
 
 
-But I have not made use of any of these privileges, nor am I writing this [to suggest] that any such provision be made for me [now]. For it would be better for me to die than to have anyone make void _and_ deprive me of my [ground for] glorifying [in this matter]. 
+But I have not made use of any of these privileges, nor am I writing this [to suggest] that any such provision be made for me [now]. For it would be better for me to die than to have anyone make void and deprive me of my [ground for] glorifying [in this matter]. 
 
 
 
@@ -364,7 +364,7 @@ For if I [merely] preach the Gospel, that gives me no reason to boast, for I fee
 
 
 
-For if I do this work of my own free will, then I have my pay (my reward); but if it is not of my own will, but is done reluctantly _and_ under compulsion, I am [still] entrusted with a [sacred] trusteeship _and_ commission. 
+For if I do this work of my own free will, then I have my pay (my reward); but if it is not of my own will, but is done reluctantly and under compulsion, I am [still] entrusted with a [sacred] trusteeship and commission. 
 
 
 
@@ -385,7 +385,7 @@ For if I do this work of my own free will, then I have my pay (my reward); but i
 
 
 
-What then is the [actual] reward that I get? Just this: that in my preaching the good news (the Gospel), I may offer it [absolutely] free of expense [to anybody], not taking advantage of my rights _and_ privileges [as a preacher] of the Gospel. 
+What then is the [actual] reward that I get? Just this: that in my preaching the good news (the Gospel), I may offer it [absolutely] free of expense [to anybody], not taking advantage of my rights and privileges [as a preacher] of the Gospel. 
 
 
 
@@ -448,7 +448,7 @@ To the Jews I became as a Jew, that I might win Jews; to men under the Law, [I b
 
 
 
-To those without (outside) law I became as one without law, not that I am without the law of God _and_ lawless toward Him, but that I am [especially keeping] within _and_ committed to the law of Christ, that I might win those who are without law. 
+To those without (outside) law I became as one without law, not that I am without the law of God and lawless toward Him, but that I am [especially keeping] within and committed to the law of Christ, that I might win those who are without law. 
 
 
 
@@ -469,7 +469,7 @@ To those without (outside) law I became as one without law, not that I am withou
 
 
 
-To the weak (wanting in discernment) I have become weak (wanting in discernment) that I might win the weak _and_ overscrupulous. I have [in short] become all things to all men, that I might by all means (at all costs and in any and every way) save some [by winning them to faith in Jesus Christ]. 
+To the weak (wanting in discernment) I have become weak (wanting in discernment) that I might win the weak and overscrupulous. I have [in short] become all things to all men, that I might by all means (at all costs and in any and every way) save some [by winning them to faith in Jesus Christ]. 
 
 
 
@@ -490,7 +490,7 @@ To the weak (wanting in discernment) I have become weak (wanting in discernment)
 
 
 
-And I do this for the sake of the good news (the Gospel), in order that I may become a participator in it _and_ share in its [blessings along with you]. 
+And I do this for the sake of the good news (the Gospel), in order that I may become a participator in it and share in its [blessings along with you]. 
 
 
 
@@ -511,7 +511,7 @@ And I do this for the sake of the good news (the Gospel), in order that I may be
 
 
 
-Do you not know that in a race all the runners compete, but [only] one receives the prize? So run [your race] that you may lay hold [of the prize] _and_ make it yours. 
+Do you not know that in a race all the runners compete, but [only] one receives the prize? So run [your race] that you may lay hold [of the prize] and make it yours. 
 
 
 
@@ -532,7 +532,7 @@ Do you not know that in a race all the runners compete, but [only] one receives 
 
 
 
-Now every athlete who goes into training conducts himself temperately _and_ restricts himself in all things. They do it to win a wreath that will soon wither, but we [do it to receive a crown of eternal blessedness] that cannot wither. 
+Now every athlete who goes into training conducts himself temperately and restricts himself in all things. They do it to win a wreath that will soon wither, but we [do it to receive a crown of eternal blessedness] that cannot wither. 
 
 
 
@@ -553,7 +553,7 @@ Now every athlete who goes into training conducts himself temperately _and_ rest
 
 
 
-Therefore I do not run uncertainly (without definite aim). I do not box like one beating the air _and_ striking without an adversary. 
+Therefore I do not run uncertainly (without definite aim). I do not box like one beating the air and striking without an adversary. 
 
 
 
@@ -574,4 +574,4 @@ Therefore I do not run uncertainly (without definite aim). I do not box like one
 
 
 
-But [like a boxer] I buffet my body [handle it roughly, discipline it by hardships] and subdue it, for fear that after proclaiming to others the Gospel _and_ things pertaining to it, I myself should become unfit [not stand the test, be unapproved and rejected as a counterfeit].
+But [like a boxer] I buffet my body [handle it roughly, discipline it by hardships] and subdue it, for fear that after proclaiming to others the Gospel and things pertaining to it, I myself should become unfit [not stand the test, be unapproved and rejected as a counterfeit].

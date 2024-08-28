@@ -238,7 +238,7 @@ The son of Jediael: Bilhan. The sons of Bilhan: Jeush, Benjamin, Ehud, Chenaanah
 
 
 
-All these were the sons of Jediael, according to the heads of their fathers' houses, mighty men of valor, 17,200, able _and_ fit for service in war. 
+All these were the sons of Jediael, according to the heads of their fathers' houses, mighty men of valor, 17,200, able and fit for service in war. 
 
 
 

@@ -70,7 +70,7 @@ Moses recorded their starting places, as the Lord commanded, stage by stage; and
 
 
 
-They set out from Rameses on the fifteenth day of the first month; on the day after the Passover the Israelites went out [of Egypt] with a high hand _and_ triumphantly in the sight of all the Egyptians, 
+They set out from Rameses on the fifteenth day of the first month; on the day after the Passover the Israelites went out [of Egypt] with a high hand and triumphantly in the sight of all the Egyptians, 
 
 
 

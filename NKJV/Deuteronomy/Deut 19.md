@@ -19,13 +19,13 @@ you shall separate three cities for yourself in the midst of your land which the
 You shall prepare roads for yourself, and divide into three parts the territory of your land which the Lord your God is giving you to inherit, that any manslayer may flee there. 
 
 ###### 4 
-"And this _is_ the case of the manslayer who flees there, that he may live: Whoever kills his neighbor unintentionally, not having hated him in time past-- 
+"And this is the case of the manslayer who flees there, that he may live: Whoever kills his neighbor unintentionally, not having hated him in time past-- 
 
 ###### 5 
-as when _a man_ goes to the woods with his neighbor to cut timber, and his hand swings a stroke with the ax to cut down the tree, and the head slips from the handle and strikes his neighbor so that he dies--he shall flee to one of these cities and live; 
+as when a man goes to the woods with his neighbor to cut timber, and his hand swings a stroke with the ax to cut down the tree, and the head slips from the handle and strikes his neighbor so that he dies--he shall flee to one of these cities and live; 
 
 ###### 6 
-lest the avenger of blood, while his anger is hot, pursue the manslayer and overtake him, because the way is long, and kill him, though he _was_ not deserving of death, since he had not hated the victim in time past. 
+lest the avenger of blood, while his anger is hot, pursue the manslayer and overtake him, because the way is long, and kill him, though he was not deserving of death, since he had not hated the victim in time past. 
 
 ###### 7 
 Therefore I command you, saying, 'You shall separate three cities for yourself.' 
@@ -37,7 +37,7 @@ Therefore I command you, saying, 'You shall separate three cities for yourself.'
 and if you keep all these commandments and do them, which I command you today, to love the Lord your God and to walk always in His ways, then you shall add three more cities for yourself besides these three, 
 
 ###### 10 
-lest innocent blood be shed in the midst of your land which the Lord your God is giving you _as_ an inheritance, and _thus_ guilt of bloodshed be upon you. 
+lest innocent blood be shed in the midst of your land which the Lord your God is giving you as an inheritance, and thus guilt of bloodshed be upon you. 
 
 ###### 11 
 "But if anyone hates his neighbor, lies in wait for him, rises against him and strikes him mortally, so that he dies, and he flees to one of these cities, 
@@ -46,7 +46,7 @@ lest innocent blood be shed in the midst of your land which the Lord your God is
 then the elders of his city shall send and bring him from there, and deliver him over to the hand of the avenger of blood, that he may die. 
 
 ###### 13 
-Your eye shall not pity him, but you shall put away _the guilt of_ innocent blood from Israel, that it may go well with you.
+Your eye shall not pity him, but you shall put away the guilt of innocent blood from Israel, that it may go well with you.
 
 ## Property Boundaries 
 
@@ -65,7 +65,7 @@ If a false witness rises against any man to testify against him of wrongdoing,
 then both men in the controversy shall stand before the Lord, before the priests and the judges who serve in those days. 
 
 ###### 18 
-And the judges shall make careful inquiry, and indeed, _if_ the witness _is_ a false witness, who has testified falsely against his brother, 
+And the judges shall make careful inquiry, and indeed, if the witness is a false witness, who has testified falsely against his brother, 
 
 ###### 19 
 then you shall do to him as he thought to have done to his brother; so you shall put away the evil from among you. 
@@ -74,4 +74,4 @@ then you shall do to him as he thought to have done to his brother; so you shall
 And those who remain shall hear and fear, and hereafter they shall not again commit such evil among you. 
 
 ###### 21 
-Your eye shall not pity: life _shall be_ for life, eye for eye, tooth for tooth, hand for hand, foot for foot.
+Your eye shall not pity: life shall be for life, eye for eye, tooth for tooth, hand for hand, foot for foot.

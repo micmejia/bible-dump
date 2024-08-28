@@ -10,7 +10,7 @@ next: ['Gen 20']
 
 
 ###### 1 
-Now the two angels came to Sodom in the evening, and Lot was sitting in the gate of Sodom. When Lot saw _them,_ he rose to meet them, and he bowed himself with his face toward the ground. 
+Now the two angels came to Sodom in the evening, and Lot was sitting in the gate of Sodom. When Lot saw them, he rose to meet them, and he bowed himself with his face toward the ground. 
 
 ###### 2 
 And he said, "Here now, my lords, please turn in to your servant's house and spend the night, and wash your feet; then you may rise early and go on your way." And they said, "No, but we will spend the night in the open square." 
@@ -22,7 +22,7 @@ But he insisted strongly; so they turned in to him and entered his house. Then h
 Now before they lay down, the men of the city, the men of Sodom, both old and young, all the people from every quarter, surrounded the house. 
 
 ###### 5 
-And they called to Lot and said to him, "Where are the men who came to you tonight? Bring them out to us that we may know them _carnally._" 
+And they called to Lot and said to him, "Where are the men who came to you tonight? Bring them out to us that we may know them carnally." 
 
 ###### 6 
 So Lot went out to them through the doorway, shut the door behind him, 
@@ -34,18 +34,18 @@ and said, "Please, my brethren, do not do so wickedly!
 See now, I have two daughters who have not known a man; please, let me bring them out to you, and you may do to them as you wish; only do nothing to these men, since this is the reason they have come under the shadow of my roof." 
 
 ###### 9 
-And they said, "Stand back!" Then they said, "This one came in to stay _here,_ and he keeps acting as a judge; now we will deal worse with you than with them." So they pressed hard against the man Lot, and came near to break down the door. 
+And they said, "Stand back!" Then they said, "This one came in to stay here, and he keeps acting as a judge; now we will deal worse with you than with them." So they pressed hard against the man Lot, and came near to break down the door. 
 
 ###### 10 
 But the men reached out their hands and pulled Lot into the house with them, and shut the door. 
 
 ###### 11 
-And they struck the men who _were_ at the doorway of the house with blindness, both small and great, so that they became weary _trying_ to find the door.
+And they struck the men who were at the doorway of the house with blindness, both small and great, so that they became weary trying to find the door.
 
 ## Sodom and Gomorrah Destroyed 
 
 ###### 12 
-Then the men said to Lot, "Have you anyone else here? Son-in-law, your sons, your daughters, and whomever you have in the city--take _them_ out of this place! 
+Then the men said to Lot, "Have you anyone else here? Son-in-law, your sons, your daughters, and whomever you have in the city--take them out of this place! 
 
 ###### 13 
 For we will destroy this place, because the outcry against them has grown great before the face of the Lord, and the Lord has sent us to destroy it." 
@@ -69,7 +69,7 @@ Then Lot said to them, "Please, no, my lords!
 Indeed now, your servant has found favor in your sight, and you have increased your mercy which you have shown me by saving my life; but I cannot escape to the mountains, lest some evil overtake me and I die. 
 
 ###### 20 
-See now, this city _is_ near _enough_ to flee to, and it _is_ a little one; please let me escape there (_is_ it not a little one?) and my soul shall live." 
+See now, this city is near enough to flee to, and it is a little one; please let me escape there (is it not a little one?) and my soul shall live." 
 
 ###### 21 
 And he said to him, "See, I have favored you concerning this thing also, in that I will not overthrow this city for which you have spoken. 
@@ -104,7 +104,7 @@ And it came to pass, when God destroyed the cities of the plain, that God rememb
 Then Lot went up out of Zoar and dwelt in the mountains, and his two daughters were with him; for he was afraid to dwell in Zoar. And he and his two daughters dwelt in a cave. 
 
 ###### 31 
-Now the firstborn said to the younger, "Our father _is_ old, and _there is_ no man on the earth to come in to us as is the custom of all the earth. 
+Now the firstborn said to the younger, "Our father is old, and there is no man on the earth to come in to us as is the custom of all the earth. 
 
 ###### 32 
 Come, let us make our father drink wine, and we will lie with him, that we may preserve the lineage of our father." 
@@ -113,7 +113,7 @@ Come, let us make our father drink wine, and we will lie with him, that we may p
 So they made their father drink wine that night. And the firstborn went in and lay with her father, and he did not know when she lay down or when she arose. 
 
 ###### 34 
-It happened on the next day that the firstborn said to the younger, "Indeed I lay with my father last night; let us make him drink wine tonight also, and you go in _and_ lie with him, that we may preserve the lineage of our father." 
+It happened on the next day that the firstborn said to the younger, "Indeed I lay with my father last night; let us make him drink wine tonight also, and you go in and lie with him, that we may preserve the lineage of our father." 
 
 ###### 35 
 Then they made their father drink wine that night also. And the younger arose and lay with him, and he did not know when she lay down or when she arose. 
@@ -122,7 +122,7 @@ Then they made their father drink wine that night also. And the younger arose an
 Thus both the daughters of Lot were with child by their father. 
 
 ###### 37 
-The firstborn bore a son and called his name Moab; he _is_ the father of the Moabites to this day. 
+The firstborn bore a son and called his name Moab; he is the father of the Moabites to this day. 
 
 ###### 38 
-And the younger, she also bore a son and called his name Ben-Ammi; he _is_ the father of the people of Ammon to this day.
+And the younger, she also bore a son and called his name Ben-Ammi; he is the father of the people of Ammon to this day.

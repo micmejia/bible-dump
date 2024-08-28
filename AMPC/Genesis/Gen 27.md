@@ -196,7 +196,7 @@ So now, my son, do exactly as I command you.
 
 
 
-Go now to the flock, and from it bring me two good _and_ suitable kids; and I will make them into appetizing meat for your father, such as he loves. 
+Go now to the flock, and from it bring me two good and suitable kids; and I will make them into appetizing meat for your father, such as he loves. 
 
 
 
@@ -259,7 +259,7 @@ But Jacob said to Rebekah his mother, Listen, Esau my brother is a hairy man and
 
 
 
-Suppose my father feels me; I will seem to him to be a cheat _and_ an imposter, and I will bring [his] curse on me and not [his] blessing. 
+Suppose my father feels me; I will seem to him to be a cheat and an imposter, and I will bring [his] curse on me and not [his] blessing. 
 
 
 
@@ -448,7 +448,7 @@ And Isaac said to his son, How is it that you have found the game so quickly, my
 
 
 
-But Isaac said to Jacob, Come close to me, I beg of you, that I may feel you, my son, _and_ know whether you really are my son Esau or not. 
+But Isaac said to Jacob, Come close to me, I beg of you, that I may feel you, my son, and know whether you really are my son Esau or not. 
 
 
 
@@ -700,7 +700,7 @@ And Isaac his father said to him, Who are you? And he replied, I am your son, yo
 
 
 
-Then Isaac trembled _and_ shook violently, and he said, Who? Where is he who has hunted game and brought it to me, and I ate of it all before you came and I have blessed him? Yes, and he shall be blessed. 
+Then Isaac trembled and shook violently, and he said, Who? Where is he who has hunted game and brought it to me, and I ate of it all before you came and I have blessed him? Yes, and he shall be blessed. 
 
 
 
@@ -742,7 +742,7 @@ When Esau heard the words of his father, he cried out with a great and bitter cr
 
 
 
-[Isaac] said, Your brother came with crafty cunning _and_ treacherous deceit and has taken your blessing. 
+[Isaac] said, Your brother came with crafty cunning and treacherous deceit and has taken your blessing. 
 
 
 
@@ -847,7 +847,7 @@ Then Isaac his father answered, Your [blessing and] dwelling shall all come from
 
 
 
-By your sword you shall live and serve your brother. But [the time shall come] when you will grow restive _and_ break loose, and you shall tear his yoke from off your neck. 
+By your sword you shall live and serve your brother. But [the time shall come] when you will grow restive and break loose, and you shall tear his yoke from off your neck. 
 
 
 

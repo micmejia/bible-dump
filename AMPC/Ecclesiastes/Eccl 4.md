@@ -49,7 +49,7 @@ Then I returned and considered all the oppressions that are practiced under the 
 
 
 
-So I praised _and_ thought more fortunate those who have been long dead than the living, who are still alive. 
+So I praised and thought more fortunate those who have been long dead than the living, who are still alive. 
 
 
 
@@ -91,7 +91,7 @@ But better than them both [I thought] is he who has not yet been born, who has n
 
 
 
-Then I saw that all painful effort in labor and all skill in work comes from man's rivalry with his neighbor. This is also vanity, a vain striving after the wind _and_ a feeding on it. 
+Then I saw that all painful effort in labor and all skill in work comes from man's rivalry with his neighbor. This is also vanity, a vain striving after the wind and a feeding on it. 
 
 
 
@@ -133,7 +133,7 @@ The fool folds his hands together and eats his own flesh [destroying himself by 
 
 
 
-Better is a handful with quietness than both hands full with painful effort, a vain striving after the wind _and_ a feeding on it. 
+Better is a handful with quietness than both hands full with painful effort, a vain striving after the wind and a feeding on it. 
 
 
 
@@ -175,7 +175,7 @@ Then I returned, and I saw vanity under the sun [in one of its peculiar forms].
 
 
 
-Here is one alone--no one with him; he neither has child nor brother. Yet there is no end to all his labor, neither is his eye satisfied with riches, neither does he ask, For whom do I labor and deprive myself of good? This is also vanity (emptiness, falsity, and futility); yes, it is a painful effort _and_ an unhappy business. 
+Here is one alone--no one with him; he neither has child nor brother. Yet there is no end to all his labor, neither is his eye satisfied with riches, neither does he ask, For whom do I labor and deprive myself of good? This is also vanity (emptiness, falsity, and futility); yes, it is a painful effort and an unhappy business. 
 
 
 
@@ -343,4 +343,4 @@ I saw all the living who walk under the sun with the youth who was to stand up i
 
 
 
-There was no end to all the people; he was over all of them. Yet those who come later will not rejoice in him. Surely this also is vanity (emptiness, falsity, vainglory) and a striving after the wind _and_ a feeding on it.
+There was no end to all the people; he was over all of them. Yet those who come later will not rejoice in him. Surely this also is vanity (emptiness, falsity, vainglory) and a striving after the wind and a feeding on it.

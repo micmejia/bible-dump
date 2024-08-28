@@ -19,31 +19,31 @@ The mighty man and the man of war, The judge and the prophet, And the diviner an
 The captain of fifty and the honorable man, The counselor and the skillful artisan, And the expert enchanter. 
 
 ###### 4 
-"I will give children _to be_ their princes, And babes shall rule over them. 
+"I will give children to be their princes, And babes shall rule over them. 
 
 ###### 5 
 The people will be oppressed, Every one by another and every one by his neighbor; The child will be insolent toward the elder, And the base toward the honorable." 
 
 ###### 6 
-When a man takes hold of his brother In the house of his father, _saying,_ "You have clothing; You be our ruler, And _let_ these ruins _be_ under your power," 
+When a man takes hold of his brother In the house of his father, saying, "You have clothing; You be our ruler, And let these ruins be under your power," 
 
 ###### 7 
-In that day he will protest, saying, "I cannot cure _your_ ills, For in my house _is_ neither food nor clothing; Do not make me a ruler of the people." 
+In that day he will protest, saying, "I cannot cure your ills, For in my house is neither food nor clothing; Do not make me a ruler of the people." 
 
 ###### 8 
-For Jerusalem stumbled, And Judah is fallen, Because their tongue and their doings _Are_ against the Lord, To provoke the eyes of His glory. 
+For Jerusalem stumbled, And Judah is fallen, Because their tongue and their doings Are against the Lord, To provoke the eyes of His glory. 
 
 ###### 9 
-The look on their countenance witnesses against them, And they declare their sin as Sodom; They do not hide _it._ Woe to their soul! For they have brought evil upon themselves. 
+The look on their countenance witnesses against them, And they declare their sin as Sodom; They do not hide it. Woe to their soul! For they have brought evil upon themselves. 
 
 ###### 10 
-"Say to the righteous that _it shall be_ well _with them,_ For they shall eat the fruit of their doings. 
+"Say to the righteous that it shall be well with them, For they shall eat the fruit of their doings. 
 
 ###### 11 
-Woe to the wicked! _It shall be_ ill _with him,_ For the reward of his hands shall be given him. 
+Woe to the wicked! It shall be ill with him, For the reward of his hands shall be given him. 
 
 ###### 12 
-_As for_ My people, children _are_ their oppressors, And women rule over them. O My people! Those who lead you cause _you_ to err, And destroy the way of your paths." 
+As for My people, children are their oppressors, And women rule over them. O My people! Those who lead you cause you to err, And destroy the way of your paths." 
 
 ## Oppression and Luxury Condemned 
 
@@ -51,13 +51,13 @@ _As for_ My people, children _are_ their oppressors, And women rule over them. O
 The Lord stands up to plead, And stands to judge the people. 
 
 ###### 14 
-The Lord will enter into judgment With the elders of His people And His princes: "For you have eaten up the vineyard; The plunder of the poor _is_ in your houses. 
+The Lord will enter into judgment With the elders of His people And His princes: "For you have eaten up the vineyard; The plunder of the poor is in your houses. 
 
 ###### 15 
 What do you mean by crushing My people And grinding the faces of the poor?" Says the Lord God of hosts. 
 
 ###### 16 
-Moreover the Lord says: "Because the daughters of Zion are haughty, And walk with outstretched necks And wanton eyes, Walking and mincing _as_ they go, Making a jingling with their feet, 
+Moreover the Lord says: "Because the daughters of Zion are haughty, And walk with outstretched necks And wanton eyes, Walking and mincing as they go, Making a jingling with their feet, 
 
 ###### 17 
 Therefore the Lord will strike with a scab The crown of the head of the daughters of Zion, And the Lord will uncover their secret parts." 
@@ -87,4 +87,4 @@ And so it shall be: Instead of a sweet smell there will be a stench; Instead of 
 Your men shall fall by the sword, And your mighty in the war. 
 
 ###### 26 
-Her gates shall lament and mourn, And she _being_ desolate shall sit on the ground.
+Her gates shall lament and mourn, And she being desolate shall sit on the ground.

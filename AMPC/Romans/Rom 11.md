@@ -28,7 +28,7 @@ next: ['Rom 12']
 
 
 
-I ask then: Has God totally rejected _and_ disowned His people? Of course not! Why, I myself am an Israelite, a descendant of Abraham, a member of the tribe of Benjamin! 
+I ask then: Has God totally rejected and disowned His people? Of course not! Why, I myself am an Israelite, a descendant of Abraham, a member of the tribe of Benjamin! 
 
 
 
@@ -49,7 +49,7 @@ I ask then: Has God totally rejected _and_ disowned His people? Of course not! W
 
 
 
-No, God has not rejected _and_ disowned His people [whose destiny] He had marked out _and_ appointed _and_ foreknown from the beginning. Do you not know what the Scripture says of Elijah, how he pleads with God against Israel? 
+No, God has not rejected and disowned His people [whose destiny] He had marked out and appointed and foreknown from the beginning. Do you not know what the Scripture says of Elijah, how he pleads with God against Israel? 
 
 
 
@@ -238,7 +238,7 @@ Let their eyes be darkened (dimmed) so that they cannot see, and make them bend 
 
 
 
-So I ask, Have they stumbled so as to fall [to their utter spiritual ruin, irretrievably]? By no means! But through their false step _and_ transgression salvation [has come] to the Gentiles, so as to arouse Israel [to see and feel what they forfeited] and so to make them jealous. 
+So I ask, Have they stumbled so as to fall [to their utter spiritual ruin, irretrievably]? By no means! But through their false step and transgression salvation [has come] to the Gentiles, so as to arouse Israel [to see and feel what they forfeited] and so to make them jealous. 
 
 
 
@@ -259,7 +259,7 @@ So I ask, Have they stumbled so as to fall [to their utter spiritual ruin, irret
 
 
 
-Now if their stumbling (their lapse, their transgression) has so enriched the world [at large], and if [Israel's] failure means such riches for the Gentiles, think what an enrichment _and_ greater advantage will follow their full reinstatement! 
+Now if their stumbling (their lapse, their transgression) has so enriched the world [at large], and if [Israel's] failure means such riches for the Gentiles, think what an enrichment and greater advantage will follow their full reinstatement! 
 
 
 
@@ -280,7 +280,7 @@ Now if their stumbling (their lapse, their transgression) has so enriched the wo
 
 
 
-But now I am speaking to you who are Gentiles. Inasmuch then as I am an apostle to the Gentiles, I lay great stress on my ministry _and_ magnify my office, 
+But now I am speaking to you who are Gentiles. Inasmuch then as I am an apostle to the Gentiles, I lay great stress on my ministry and magnify my office, 
 
 
 
@@ -322,7 +322,7 @@ In the hope of making my fellow Jews jealous [in order to stir them up to imitat
 
 
 
-For if their rejection _and_ exclusion from the benefits of salvation were [overruled] for the reconciliation of a world to God, what will their acceptance _and_ admission mean? [It will be nothing short of] life from the dead! 
+For if their rejection and exclusion from the benefits of salvation were [overruled] for the reconciliation of a world to God, what will their acceptance and admission mean? [It will be nothing short of] life from the dead! 
 
 
 
@@ -385,7 +385,7 @@ But if some of the branches were broken off, while you, a wild olive shoot, were
 
 
 
-Do not boast over the branches _and_ pride yourself at their expense. If you do boast _and_ feel superior, remember it is not you that support the root, but the root [that supports] you. 
+Do not boast over the branches and pride yourself at their expense. If you do boast and feel superior, remember it is not you that support the root, but the root [that supports] you. 
 
 
 
@@ -427,7 +427,7 @@ You will say then, Branches were broken (pruned) off so that I might be grafted 
 
 
 
-That is true. But they were broken (pruned) off because of their unbelief (their lack of real faith), and you are established through faith [because you do believe]. So do not become proud _and_ conceited, but rather stand in awe _and_ be reverently afraid. 
+That is true. But they were broken (pruned) off because of their unbelief (their lack of real faith), and you are established through faith [because you do believe]. So do not become proud and conceited, but rather stand in awe and be reverently afraid. 
 
 
 
@@ -469,7 +469,7 @@ For if God did not spare the natural branches [because of unbelief], neither wil
 
 
 
-Then note _and_ appreciate the gracious kindness and the severity of God: severity toward those who have fallen, but God's gracious kindness to you--provided you continue in His grace _and_ abide in His kindness; otherwise you too will be cut off (pruned away). 
+Then note and appreciate the gracious kindness and the severity of God: severity toward those who have fallen, but God's gracious kindness to you--provided you continue in His grace and abide in His kindness; otherwise you too will be cut off (pruned away). 
 
 
 
@@ -532,7 +532,7 @@ For if you have been cut from what is by nature a wild olive tree, and against n
 
 
 
-Lest you be self-opinionated (wise in your own conceits), I do not want you to miss this hidden truth _and_ mystery, brethren: a hardening (insensibility) has [temporarily] befallen a part of Israel [to last] until the full number of the ingathering of the Gentiles has come in, 
+Lest you be self-opinionated (wise in your own conceits), I do not want you to miss this hidden truth and mystery, brethren: a hardening (insensibility) has [temporarily] befallen a part of Israel [to last] until the full number of the ingathering of the Gentiles has come in, 
 
 
 
@@ -595,7 +595,7 @@ And this will be My covenant (My agreement) with them when I shall take away the
 
 
 
-From the point of view of the Gospel (good news), they [the Jews, at present] are enemies [of God], which is for your advantage _and_ benefit. But from the point of view of God's choice (of election, of divine selection), they are still the beloved (dear to Him) for the sake of their forefathers. 
+From the point of view of the Gospel (good news), they [the Jews, at present] are enemies [of God], which is for your advantage and benefit. But from the point of view of God's choice (of election, of divine selection), they are still the beloved (dear to Him) for the sake of their forefathers. 
 
 
 
@@ -637,7 +637,7 @@ For God's gifts and His call are irrevocable. [He never withdraws them when once
 
 
 
-Just as you were once disobedient _and_ rebellious toward God but now have obtained [His] mercy, through their disobedience, 
+Just as you were once disobedient and rebellious toward God but now have obtained [His] mercy, through their disobedience, 
 
 
 
@@ -721,7 +721,7 @@ Oh, the depth of the riches and wisdom and knowledge of God! How unfathomable (i
 
 
 
-For who has known the mind of the Lord _and_ who has understood His thoughts, or who has [ever] been His counselor? 
+For who has known the mind of the Lord and who has understood His thoughts, or who has [ever] been His counselor? 
 
 
 
@@ -742,7 +742,7 @@ For who has known the mind of the Lord _and_ who has understood His thoughts, or
 
 
 
-Or who has first given God anything that he might be paid back _or_ that he could claim a recompense? 
+Or who has first given God anything that he might be paid back or that he could claim a recompense? 
 
 
 

@@ -18,7 +18,7 @@ What, my son? And what, son of my womb? And what, son of my vows?
 Do not give your strength to women, Nor your ways to that which destroys kings. 
 
 ###### 4 
-_It is_ not for kings, O Lemuel, _It is_ not for kings to drink wine, Nor for princes intoxicating drink; 
+It is not for kings, O Lemuel, It is not for kings to drink wine, Nor for princes intoxicating drink; 
 
 ###### 5 
 Lest they drink and forget the law, And pervert the justice of all the afflicted. 
@@ -30,7 +30,7 @@ Give strong drink to him who is perishing, And wine to those who are bitter of h
 Let him drink and forget his poverty, And remember his misery no more. 
 
 ###### 8 
-Open your mouth for the speechless, In the cause of all _who are_ appointed to die. 
+Open your mouth for the speechless, In the cause of all who are appointed to die. 
 
 ###### 9 
 Open your mouth, judge righteously, And plead the cause of the poor and needy.
@@ -38,7 +38,7 @@ Open your mouth, judge righteously, And plead the cause of the poor and needy.
 ## The Virtuous Wife 
 
 ###### 10 
-Who can find a virtuous wife? For her worth _is_ far above rubies. 
+Who can find a virtuous wife? For her worth is far above rubies. 
 
 ###### 11 
 The heart of her husband safely trusts her; So he will have no lack of gain. 
@@ -62,7 +62,7 @@ She considers a field and buys it; From her profits she plants a vineyard.
 She girds herself with strength, And strengthens her arms. 
 
 ###### 18 
-She perceives that her merchandise _is_ good, And her lamp does not go out by night. 
+She perceives that her merchandise is good, And her lamp does not go out by night. 
 
 ###### 19 
 She stretches out her hands to the distaff, And her hand holds the spindle. 
@@ -71,34 +71,34 @@ She stretches out her hands to the distaff, And her hand holds the spindle.
 She extends her hand to the poor, Yes, she reaches out her hands to the needy. 
 
 ###### 21 
-She is not afraid of snow for her household, For all her household _is_ clothed with scarlet. 
+She is not afraid of snow for her household, For all her household is clothed with scarlet. 
 
 ###### 22 
-She makes tapestry for herself; Her clothing _is_ fine linen and purple. 
+She makes tapestry for herself; Her clothing is fine linen and purple. 
 
 ###### 23 
 Her husband is known in the gates, When he sits among the elders of the land. 
 
 ###### 24 
-She makes linen garments and sells _them,_ And supplies sashes for the merchants. 
+She makes linen garments and sells them, And supplies sashes for the merchants. 
 
 ###### 25 
-Strength and honor _are_ her clothing; She shall rejoice in time to come. 
+Strength and honor are her clothing; She shall rejoice in time to come. 
 
 ###### 26 
-She opens her mouth with wisdom, And on her tongue _is_ the law of kindness. 
+She opens her mouth with wisdom, And on her tongue is the law of kindness. 
 
 ###### 27 
 She watches over the ways of her household, And does not eat the bread of idleness. 
 
 ###### 28 
-Her children rise up and call her blessed; Her husband _also,_ and he praises her: 
+Her children rise up and call her blessed; Her husband also, and he praises her: 
 
 ###### 29 
 "Many daughters have done well, But you excel them all." 
 
 ###### 30 
-Charm _is_ deceitful and beauty _is_ passing, But a woman _who_ fears the Lord, she shall be praised. 
+Charm is deceitful and beauty is passing, But a woman who fears the Lord, she shall be praised. 
 
 ###### 31 
 Give her of the fruit of her hands, And let her own works praise her in the gates.

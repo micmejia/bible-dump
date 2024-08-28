@@ -49,7 +49,7 @@ After Jesus had finished all that He had to say in the hearing of the people [on
 
 
 
-Now a centurion had a bond servant who was held in honor _and_ highly valued by him, who was sick and at the point of death. 
+Now a centurion had a bond servant who was held in honor and highly valued by him, who was sick and at the point of death. 
 
 
 
@@ -217,7 +217,7 @@ Now when Jesus heard this, He marveled at him, and He turned and said to the cro
 
 
 
-And when the messengers who had been sent returned to the house, they found the bond servant _who had been ill_ quite well again. 
+And when the messengers who had been sent returned to the house, they found the bond servant who had been ill quite well again. 
 
 
 
@@ -343,7 +343,7 @@ And the man [who was] dead sat up and began to speak. And [Jesus] gave him [back
 
 
 
-Profound _and_ reverent fear seized them all, and they began to recognize God _and_ praise _and_ give thanks, saying, A great Prophet has appeared among us! And God has visited His people [in order to help and care for and provide for them]! 
+Profound and reverent fear seized them all, and they began to recognize God and praise and give thanks, saying, A great Prophet has appeared among us! And God has visited His people [in order to help and care for and provide for them]! 
 
 
 
@@ -490,7 +490,7 @@ So He replied to them, Go and tell John what you have seen and heard: the blind 
 
 
 
-And blessed (happy--with life-joy and satisfaction in God's favor and salvation, apart from outward conditions--and to be envied) is he who takes no offense in Me _and_ who is not hurt _or_ resentful _or_ annoyed _or_ repelled _or_ made to stumble [whatever may occur]. 
+And blessed (happy--with life-joy and satisfaction in God's favor and salvation, apart from outward conditions--and to be envied) is he who takes no offense in Me and who is not hurt or resentful or annoyed or repelled or made to stumble [whatever may occur]. 
 
 
 
@@ -511,7 +511,7 @@ And blessed (happy--with life-joy and satisfaction in God's favor and salvation,
 
 
 
-And the messengers of John having departed, Jesus began to speak to the crowds about John: What did you go out into the desert to gaze on? A reed shaken _and_ swayed by the wind? 
+And the messengers of John having departed, Jesus began to speak to the crowds about John: What did you go out into the desert to gaze on? A reed shaken and swayed by the wind? 
 
 
 
@@ -532,7 +532,7 @@ And the messengers of John having departed, Jesus began to speak to the crowds a
 
 
 
-Then what did you go out to see? A man dressed up in soft garments? Behold, those who wear fine apparel and live in luxury are in the courts _or_ palaces of kings. 
+Then what did you go out to see? A man dressed up in soft garments? Behold, those who wear fine apparel and live in luxury are in the courts or palaces of kings. 
 
 
 
@@ -637,7 +637,7 @@ And all the people who heard Him, even the tax collectors, acknowledged the just
 
 
 
-But the Pharisees and the lawyers [of the Mosaic Law] annulled _and_ rejected _and_ brought to nothing God's purpose concerning themselves, by [refusing and] not being baptized by him [John]. 
+But the Pharisees and the lawyers [of the Mosaic Law] annulled and rejected and brought to nothing God's purpose concerning themselves, by [refusing and] not being baptized by him [John]. 
 
 
 
@@ -679,7 +679,7 @@ So to what shall I compare the men of this generation? And what are they like?
 
 
 
-They are like little children sitting in the marketplace, calling to one another and saying, We piped to you [playing wedding], and you did not dance; we sang dirges _and_ wailed [playing funeral], and you did not weep. 
+They are like little children sitting in the marketplace, calling to one another and saying, We piped to you [playing wedding], and you did not dance; we sang dirges and wailed [playing funeral], and you did not weep. 
 
 
 
@@ -910,7 +910,7 @@ When they had no means of paying, he freely forgave them both. Now which of them
 
 
 
-Simon answered, The one, I take it, for whom he forgave _and_ cancelled more. And Jesus said to him, You have decided correctly. 
+Simon answered, The one, I take it, for whom he forgave and cancelled more. And Jesus said to him, You have decided correctly. 
 
 
 
@@ -952,7 +952,7 @@ Then turning toward the woman, He said to Simon, Do you see this woman? When I c
 
 
 
-You gave Me no kiss, but she from the moment I came in has not ceased [intermittently] to kiss My feet tenderly _and_ caressingly. 
+You gave Me no kiss, but she from the moment I came in has not ceased [intermittently] to kiss My feet tenderly and caressingly. 
 
 
 

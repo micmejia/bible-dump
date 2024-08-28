@@ -49,7 +49,7 @@ And [Jesus] left there [Capernaum] and went to the region of Judea and beyond [e
 
 
 
-And some Pharisees came up, and, in order to test Him _and_ try to find a weakness in Him, asked, Is it lawful for a man to dismiss _and_ repudiate _and_ divorce his wife? 
+And some Pharisees came up, and, in order to test Him and try to find a weakness in Him, asked, Is it lawful for a man to dismiss and repudiate and divorce his wife? 
 
 
 
@@ -154,7 +154,7 @@ But from the beginning of creation God made them male and female.
 
 
 
-For this reason a man shall leave [behind] his father and his mother _and be_ _joined to his wife and cleave closely to her permanently_, 
+For this reason a man shall leave [behind] his father and his mother and be joined to his wife and cleave closely to her permanently, 
 
 
 
@@ -196,7 +196,7 @@ And the two shall become one flesh, so that they are no longer two, but one fles
 
 
 
-What therefore God has united (joined together), let not man separate _or_ divide. 
+What therefore God has united (joined together), let not man separate or divide. 
 
 
 
@@ -301,7 +301,7 @@ And they kept bringing young children to Him that He might touch them, and the d
 
 
 
-But when Jesus saw [it], He was indignant _and_ pained and said to them, Allow the children to come to Me--do not forbid _or_ prevent _or_ hinder them--for to such belongs the kingdom of God. 
+But when Jesus saw [it], He was indignant and pained and said to them, Allow the children to come to Me--do not forbid or prevent or hinder them--for to such belongs the kingdom of God. 
 
 
 
@@ -322,7 +322,7 @@ But when Jesus saw [it], He was indignant _and_ pained and said to them, Allow t
 
 
 
-Truly I tell you, whoever does not receive _and_ accept _and_ welcome the kingdom of God like a little child [does] positively shall not enter it at all. 
+Truly I tell you, whoever does not receive and accept and welcome the kingdom of God like a little child [does] positively shall not enter it at all. 
 
 
 
@@ -427,7 +427,7 @@ You know the commandments: Do not kill, do not commit adultery, do not steal, do
 
 
 
-And he replied to Him, Teacher, I have carefully guarded _and_ observed all these _and_ taken care not to violate them from my boyhood. 
+And he replied to Him, Teacher, I have carefully guarded and observed all these and taken care not to violate them from my boyhood. 
 
 
 
@@ -469,7 +469,7 @@ And Jesus, looking upon him, loved him, and He said to him, You lack one thing; 
 
 
 
-At that saying the man's countenance fell _and_ was gloomy, and he went away grieved _and_ sorrowing, for he was holding great possessions. 
+At that saying the man's countenance fell and was gloomy, and he went away grieved and sorrowing, for he was holding great possessions. 
 
 
 
@@ -490,7 +490,7 @@ At that saying the man's countenance fell _and_ was gloomy, and he went away gri
 
 
 
-And Jesus looked around and said to His disciples, With what difficulty will those who possess wealth _and_ keep on holding it enter the kingdom of God! 
+And Jesus looked around and said to His disciples, With what difficulty will those who possess wealth and keep on holding it enter the kingdom of God! 
 
 
 
@@ -511,7 +511,7 @@ And Jesus looked around and said to His disciples, With what difficulty will tho
 
 
 
-And the disciples were amazed _and_ bewildered _and_ perplexed at His words. But Jesus said to them again, Children, how hard it is _for those who trust (place their confidence, their sense of safety) in riches_ to enter the kingdom of God! 
+And the disciples were amazed and bewildered and perplexed at His words. But Jesus said to them again, Children, how hard it is for those who trust (place their confidence, their sense of safety) in riches to enter the kingdom of God! 
 
 
 
@@ -553,7 +553,7 @@ It is easier for a camel to go through the eye of a needle than for a rich man t
 
 
 
-And they were shocked _and_ exceedingly astonished, and said to Him _and_ _to one another_, Then who can be saved? 
+And they were shocked and exceedingly astonished, and said to Him and to one another, Then who can be saved? 
 
 
 
@@ -595,7 +595,7 @@ Jesus glanced around at them and said, With men [it is] impossible, but not with
 
 
 
-Peter started to say to Him, Behold, we have yielded up _and_ abandoned everything [once and for all and joined You as Your disciples, siding with Your party] and accompanied You [walking the same road that You walk]. 
+Peter started to say to Him, Behold, we have yielded up and abandoned everything [once and for all and joined You as Your disciples, siding with Your party] and accompanied You [walking the same road that You walk]. 
 
 
 
@@ -616,7 +616,7 @@ Peter started to say to Him, Behold, we have yielded up _and_ abandoned everythi
 
 
 
-Jesus said, Truly I tell you, there is no one who has given up _and_ left house or brothers or sisters or mother or father or children or lands for My sake and for the Gospel's 
+Jesus said, Truly I tell you, there is no one who has given up and left house or brothers or sisters or mother or father or children or lands for My sake and for the Gospel's 
 
 
 
@@ -679,7 +679,7 @@ But many [who are now] first will be last [then], and many [who are now] last wi
 
 
 
-They were on the way going up to Jerusalem, and Jesus was walking on in front of them; and they were bewildered _and_ perplexed _and_ greatly astonished, and those [who were still] following were seized with alarm _and_ were afraid. And He took the Twelve [apostles] again and began to tell them what was about to happen to Him, 
+They were on the way going up to Jerusalem, and Jesus was walking on in front of them; and they were bewildered and perplexed and greatly astonished, and those [who were still] following were seized with alarm and were afraid. And He took the Twelve [apostles] again and began to tell them what was about to happen to Him, 
 
 
 
@@ -700,7 +700,7 @@ They were on the way going up to Jerusalem, and Jesus was walking on in front of
 
 
 
-[Saying], Behold, we are going up to Jerusalem, and the Son of Man will be turned over to the chief priests and the scribes; and they will condemn _and_ sentence Him to death and turn Him over to the Gentiles. 
+[Saying], Behold, we are going up to Jerusalem, and the Son of Man will be turned over to the chief priests and the scribes; and they will condemn and sentence Him to death and turn Him over to the Gentiles. 
 
 
 
@@ -847,7 +847,7 @@ And they replied to Him, We are able. And Jesus told them, The cup that I drink 
 
 
 
-But to sit at My right hand or at My left hand is not Mine to give; but [it will be given to those] for whom it is ordained _and_ prepared. 
+But to sit at My right hand or at My left hand is not Mine to give; but [it will be given to those] for whom it is ordained and prepared. 
 
 
 
@@ -889,7 +889,7 @@ And when the other ten [apostles] heard it, they began to be indignant with Jame
 
 
 
-But Jesus called them to [Him] and said to them, You know that those who are recognized as governing _and_ are supposed to rule the Gentiles (the nations) lord it over them [ruling with absolute power, holding them in subjection], and their great men exercise authority _and_ dominion over them. 
+But Jesus called them to [Him] and said to them, You know that those who are recognized as governing and are supposed to rule the Gentiles (the nations) lord it over them [ruling with absolute power, holding them in subjection], and their great men exercise authority and dominion over them. 
 
 
 
@@ -931,7 +931,7 @@ But this is not to be so among you; instead, whoever desires to be great among y
 
 
 
-And whoever wishes to be most important _and_ first in rank among you must be slave of all. 
+And whoever wishes to be most important and first in rank among you must be slave of all. 
 
 
 
@@ -994,7 +994,7 @@ Then they came to Jericho. And as He was leaving Jericho with His disciples and 
 
 
 
-And when he heard that it was Jesus of Nazareth, he began to shout, saying, Jesus, Son of David, have pity _and_ mercy on me [now]! 
+And when he heard that it was Jesus of Nazareth, he began to shout, saying, Jesus, Son of David, have pity and mercy on me [now]! 
 
 
 
@@ -1015,7 +1015,7 @@ And when he heard that it was Jesus of Nazareth, he began to shout, saying, Jesu
 
 
 
-And many [^aa]severely censured _and_ reproved him, telling him to keep still, but he kept on shouting out all the more, You Son of David, have pity _and_ mercy on me [now]! 
+And many [^aa]severely censured and reproved him, telling him to keep still, but he kept on shouting out all the more, You Son of David, have pity and mercy on me [now]! 
 
 
 

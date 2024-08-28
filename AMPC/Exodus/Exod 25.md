@@ -49,7 +49,7 @@ And the Lord said to Moses,
 
 
 
-Speak to the Israelites, that they take for Me an offering. From every man who gives it willingly _and_ ungrudgingly with his heart you shall take My offering. 
+Speak to the Israelites, that they take for Me an offering. From every man who gives it willingly and ungrudgingly with his heart you shall take My offering. 
 
 
 
@@ -112,7 +112,7 @@ Blue, purple, and scarlet [stuff] and fine twined linen and goats' hair,
 
 
 
-Rams' skins tanned red, goatskins, dolphin _or_ porpoise skins, acacia wood, 
+Rams' skins tanned red, goatskins, dolphin or porpoise skins, acacia wood, 
 
 
 
@@ -196,7 +196,7 @@ Let them make Me a sanctuary, that I may dwell among them.
 
 
 
-And you shall make it according to all that I show you, the pattern of the tabernacle _or_ dwelling and the pattern of all the furniture of it. 
+And you shall make it according to all that I show you, the pattern of the tabernacle or dwelling and the pattern of all the furniture of it. 
 
 
 
@@ -238,7 +238,7 @@ They shall make an ark of acacia wood: two and a half cubits long, a cubit and a
 
 
 
-You shall overlay the ark with pure gold, inside and out, and make a gold crown, a rim _or_ border, around its top. 
+You shall overlay the ark with pure gold, inside and out, and make a gold crown, a rim or border, around its top. 
 
 
 
@@ -511,7 +511,7 @@ Also, make a table of acacia wood, two cubits long, one cubit wide, and a cubit 
 
 
 
-You shall overlay it with pure gold and make a crown, a rim _or_ molding, of gold around the top of it; 
+You shall overlay it with pure gold and make a crown, a rim or molding, of gold around the top of it; 
 
 
 
@@ -532,7 +532,7 @@ You shall overlay it with pure gold and make a crown, a rim _or_ molding, of gol
 
 
 
-And make a frame of a handbreadth around _and_ below the top of it and put around it a gold molding as a border. 
+And make a frame of a handbreadth around and below the top of it and put around it a gold molding as a border. 
 
 
 
@@ -658,7 +658,7 @@ And you shall set the showbread (the bread of the Presence) on the table before 
 
 
 
-You shall make a lampstand of pure gold. Of beaten _and_ turned work shall the lampstand be made, both its base and its shaft; its cups, its knobs, and its flowers shall be of one piece with it. 
+You shall make a lampstand of pure gold. Of beaten and turned work shall the lampstand be made, both its base and its shaft; its cups, its knobs, and its flowers shall be of one piece with it. 
 
 
 

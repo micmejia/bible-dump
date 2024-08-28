@@ -301,7 +301,7 @@ And 400 pomegranates for the two networks, two rows of pomegranates for each net
 
 
 
-He made also bases _or_ stands and lavers upon the bases; 
+He made also bases or stands and lavers upon the bases; 
 
 
 

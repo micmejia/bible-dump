@@ -112,7 +112,7 @@ So shall the king of Assyria lead away the Egyptian captives and the Ethiopian e
 
 
 
-And they shall be dismayed and confounded because of Ethiopia their hope _and_ expectation and Egypt their glory _and_ boast. 
+And they shall be dismayed and confounded because of Ethiopia their hope and expectation and Egypt their glory and boast. 
 
 
 
@@ -133,4 +133,4 @@ And they shall be dismayed and confounded because of Ethiopia their hope _and_ e
 
 
 
-And the inhabitants of this coastland [the Israelites and their neighbors] will say in that day, See! This is what comes to those in whom we trusted _and_ hoped, to whom we fled for help to deliver us from the king of Assyria! But we, how shall we escape [captivity and exile]?
+And the inhabitants of this coastland [the Israelites and their neighbors] will say in that day, See! This is what comes to those in whom we trusted and hoped, to whom we fled for help to deliver us from the king of Assyria! But we, how shall we escape [captivity and exile]?

@@ -154,7 +154,7 @@ Take wives and have sons and daughters; take wives for your sons and give your d
 
 
 
-And seek (inquire for, require, and request) the peace _and_ welfare of the city to which I have caused you to be carried away captive; and pray to the Lord for it, for in the welfare of [the city in which you live] you will have welfare. 
+And seek (inquire for, require, and request) the peace and welfare of the city to which I have caused you to be carried away captive; and pray to the Lord for it, for in the welfare of [the city in which you live] you will have welfare. 
 
 
 
@@ -175,7 +175,7 @@ And seek (inquire for, require, and request) the peace _and_ welfare of the city
 
 
 
-For thus says the Lord of hosts, the God of Israel: Let not your [false] prophets and your diviners who are in your midst deceive you; pay no attention _and_ attach no significance to your dreams which you dream _or_ to theirs, 
+For thus says the Lord of hosts, the God of Israel: Let not your [false] prophets and your diviners who are in your midst deceive you; pay no attention and attach no significance to your dreams which you dream or to theirs, 
 
 
 
@@ -238,7 +238,7 @@ For thus says the Lord, When seventy years are completed for Babylon, I will vis
 
 
 
-For I know the thoughts _and_ plans that I have for you, says the Lord, thoughts _and_ plans for welfare _and_ peace and not for evil, to give you hope in your final outcome. 
+For I know the thoughts and plans that I have for you, says the Lord, thoughts and plans for welfare and peace and not for evil, to give you hope in your final outcome. 
 
 
 
@@ -259,7 +259,7 @@ For I know the thoughts _and_ plans that I have for you, says the Lord, thoughts
 
 
 
-Then you will call upon Me, and you will come and pray to Me, and I will hear _and_ heed you. 
+Then you will call upon Me, and you will come and pray to Me, and I will hear and heed you. 
 
 
 
@@ -280,7 +280,7 @@ Then you will call upon Me, and you will come and pray to Me, and I will hear _a
 
 
 
-Then you will seek Me, inquire for, _and_ require Me [as a vital necessity] and find Me when you search for Me with all your heart. 
+Then you will seek Me, inquire for, and require Me [as a vital necessity] and find Me when you search for Me with all your heart. 
 
 
 
@@ -385,7 +385,7 @@ Thus says the Lord of hosts: Behold, I am sending on them the sword, famine, and
 
 
 
-And I will pursue them with the sword, famine, and pestilence and will give them up to be tossed to and fro _and_ to be a horror to all the kingdoms of the earth, to be a curse, an astonishment, _and_ a terror, a hissing and a reproach among all the nations to which I have driven them, 
+And I will pursue them with the sword, famine, and pestilence and will give them up to be tossed to and fro and to be a horror to all the kingdoms of the earth, to be a curse, an astonishment, and a terror, a hissing and a reproach among all the nations to which I have driven them, 
 
 
 
@@ -406,7 +406,7 @@ And I will pursue them with the sword, famine, and pestilence and will give them
 
 
 
-Because they have not listened to _and_ heeded My words, says the Lord, which I sent to them persistently by My servants the prophets; but you [exiles] would not listen [either], says the Lord. 
+Because they have not listened to and heeded My words, says the Lord, which I sent to them persistently by My servants the prophets; but you [exiles] would not listen [either], says the Lord. 
 
 
 
@@ -469,7 +469,7 @@ Thus says the Lord of hosts, the God of Israel, concerning Ahab son of Kolaiah a
 
 
 
-And because of them, this curse shall be taken up _and_ used by all from Judah who are in captivity in Babylon: The Lord make you like Zedekiah and like Ahab, whom the king of Babylon roasted in the fire-- 
+And because of them, this curse shall be taken up and used by all from Judah who are in captivity in Babylon: The Lord make you like Zedekiah and like Ahab, whom the king of Babylon roasted in the fire-- 
 
 
 
@@ -511,7 +511,7 @@ Because they have committed folly in Israel and have committed adultery with the
 
 
 
-Also you shall say this concerning _and_ to Shemaiah of Nehelam [among the exiles in Babylon]: 
+Also you shall say this concerning and to Shemaiah of Nehelam [among the exiles in Babylon]: 
 
 
 
@@ -679,4 +679,4 @@ Send [this message] to all those in captivity, saying, Thus says the Lord concer
 
 
 
-Therefore thus says the Lord: Behold, I will punish Shemaiah of Nehelam and his offspring. He will not have anyone [born] to dwell among this people, nor will he see the good that I will do to My people, says the Lord, because he has spoken _and_ taught rebellion against the Lord.
+Therefore thus says the Lord: Behold, I will punish Shemaiah of Nehelam and his offspring. He will not have anyone [born] to dwell among this people, nor will he see the good that I will do to My people, says the Lord, because he has spoken and taught rebellion against the Lord.

@@ -28,7 +28,7 @@ next: ['Isa 50']
 
 
 
-Listen to me, O isles _and_ coastlands, and hearken, you peoples from afar. The Lord has called me from the womb; from the body of my mother He has named my name. 
+Listen to me, O isles and coastlands, and hearken, you peoples from afar. The Lord has called me from the womb; from the body of my mother He has named my name. 
 
 
 
@@ -49,7 +49,7 @@ Listen to me, O isles _and_ coastlands, and hearken, you peoples from afar. The 
 
 
 
-And He has made my mouth like a sharp sword; in the shadow of His hand has He hid me and made me a polished arrow; in His quiver has He kept me close _and_ concealed me. 
+And He has made my mouth like a sharp sword; in the shadow of His hand has He hid me and made me a polished arrow; in His quiver has He kept me close and concealed me. 
 
 
 
@@ -112,7 +112,7 @@ Then I said, I have labored in vain, I have spent my strength for nothing and in
 
 
 
-And now, says the Lord--Who formed me from the womb to be His servant to bring Jacob back to Him and that Israel might be gathered to Him _and_ not be swept away, for I am honorable in the eyes of the Lord and my God has become my strength-- 
+And now, says the Lord--Who formed me from the womb to be His servant to bring Jacob back to Him and that Israel might be gathered to Him and not be swept away, for I am honorable in the eyes of the Lord and my God has become my strength-- 
 
 
 
@@ -154,7 +154,7 @@ He says, It is too light a thing that you should be My servant to raise up the t
 
 
 
-Thus says the Lord, the Redeemer of Israel, Israel's Holy One, to him whom man rejects _and_ despises, to him whom the nations abhor, to the servant of rulers: Kings shall see you and arise; princes, and they shall prostrate themselves, because of the Lord, Who is faithful, the Holy One of Israel, Who has chosen you. 
+Thus says the Lord, the Redeemer of Israel, Israel's Holy One, to him whom man rejects and despises, to him whom the nations abhor, to the servant of rulers: Kings shall see you and arise; princes, and they shall prostrate themselves, because of the Lord, Who is faithful, the Holy One of Israel, Who has chosen you. 
 
 
 
@@ -175,7 +175,7 @@ Thus says the Lord, the Redeemer of Israel, Israel's Holy One, to him whom man r
 
 
 
-Thus says the Lord, In an acceptable _and_ favorable time I have heard _and_ answered you, and in a day of salvation I have helped you; and I will preserve you and give you for a covenant to the people, to raise up _and_ establish the land [from its present state of ruin] and to apportion _and_ cause them to inherit the desolate [moral wastes of heathenism, their] heritages, 
+Thus says the Lord, In an acceptable and favorable time I have heard and answered you, and in a day of salvation I have helped you; and I will preserve you and give you for a covenant to the people, to raise up and establish the land [from its present state of ruin] and to apportion and cause them to inherit the desolate [moral wastes of heathenism, their] heritages, 
 
 
 
@@ -364,7 +364,7 @@ Behold, I have indelibly imprinted (tattooed a picture of) you on the palm of ea
 
 
 
-Your children _and_ your builders make haste; your destroyers and those who laid you waste go forth from you. 
+Your children and your builders make haste; your destroyers and those who laid you waste go forth from you. 
 
 
 
@@ -448,7 +448,7 @@ The children of your bereavement [born during your captivity] shall yet say in y
 
 
 
-Then [Zion], you will say in your heart, Who has borne me all these children, seeing that I lost my offspring and am alone _and_ barren _and_ unfruitful, an exile put away and wandering hither and thither? And who brought them up? Behold, I was left alone [put away by the Lord, my Husband]; from where then did all these children come? 
+Then [Zion], you will say in your heart, Who has borne me all these children, seeing that I lost my offspring and am alone and barren and unfruitful, an exile put away and wandering hither and thither? And who brought them up? Behold, I was left alone [put away by the Lord, my Husband]; from where then did all these children come? 
 
 
 
@@ -469,7 +469,7 @@ Then [Zion], you will say in your heart, Who has borne me all these children, se
 
 
 
-Thus says the Lord God: Behold, I will lift up My hand to the Gentile nations and set up My standard _and_ raise high My signal banner to the peoples; and they will bring your sons in the bosom of their garments, and your daughters will be carried upon their shoulders. 
+Thus says the Lord God: Behold, I will lift up My hand to the Gentile nations and set up My standard and raise high My signal banner to the peoples; and they will bring your sons in the bosom of their garments, and your daughters will be carried upon their shoulders. 
 
 
 
@@ -490,7 +490,7 @@ Thus says the Lord God: Behold, I will lift up My hand to the Gentile nations an
 
 
 
-And kings shall be your foster fathers _and_ guardians, and their queens your nursing mothers. They shall bow down to you with their faces to the earth and lick up the dust of your feet; and you shall know [with an acquaintance and understanding based on and grounded in personal experience] that I am the Lord; for they shall not be put to shame who wait for, look for, hope for, _and_ expect Me. 
+And kings shall be your foster fathers and guardians, and their queens your nursing mothers. They shall bow down to you with their faces to the earth and lick up the dust of your feet; and you shall know [with an acquaintance and understanding based on and grounded in personal experience] that I am the Lord; for they shall not be put to shame who wait for, look for, hope for, and expect Me. 
 
 
 
@@ -532,7 +532,7 @@ Shall the prey be taken from the mighty, or the lawful captives of the just be d
 
 
 
-For thus says the Lord: Even the captives of the mighty will be taken away, and the prey of the terrible will be delivered; for I will contend with him who contends with you, and I will give safety to your children _and_ ease them. 
+For thus says the Lord: Even the captives of the mighty will be taken away, and the prey of the terrible will be delivered; for I will contend with him who contends with you, and I will give safety to your children and ease them. 
 
 
 

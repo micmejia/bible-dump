@@ -12,37 +12,37 @@ next: ['1 Pet 3']
 ###### 1 
 
 
-So be done with every trace of wickedness (depravity, malignity) and all deceit and insincerity (pretense, hypocrisy) and grudges (envy, jealousy) and slander _and_ evil speaking of every kind. 
+So be done with every trace of wickedness (depravity, malignity) and all deceit and insincerity (pretense, hypocrisy) and grudges (envy, jealousy) and slander and evil speaking of every kind. 
 
 
 ###### 2 
 
 
-Like newborn babies you should crave (thirst for, earnestly desire) the pure (unadulterated) spiritual milk, that by it you may be nurtured _and_ grow unto [completed] salvation, 
+Like newborn babies you should crave (thirst for, earnestly desire) the pure (unadulterated) spiritual milk, that by it you may be nurtured and grow unto [completed] salvation, 
 
 
 ###### 3 
 
 
-Since you have [already] tasted the goodness _and_ kindness of the Lord. 
+Since you have [already] tasted the goodness and kindness of the Lord. 
 
 
 ###### 4 
 
 
-Come to Him [then, to that] Living Stone which men tried _and_ threw away, but which is chosen [and] precious in God's sight. 
+Come to Him [then, to that] Living Stone which men tried and threw away, but which is chosen [and] precious in God's sight. 
 
 
 ###### 5 
 
 
-[Come] and, like living stones, be yourselves built [into] a spiritual house, for a holy (dedicated, consecrated) priesthood, to offer up [those] spiritual sacrifices [that are] acceptable _and_ pleasing to God through Jesus Christ. 
+[Come] and, like living stones, be yourselves built [into] a spiritual house, for a holy (dedicated, consecrated) priesthood, to offer up [those] spiritual sacrifices [that are] acceptable and pleasing to God through Jesus Christ. 
 
 
 ###### 6 
 
 
-For thus it stands in Scripture: Behold, I am laying in Zion a chosen (honored), precious chief Cornerstone, and he who believes in Him [who adheres to, trusts in, and relies on Him] shall never be disappointed _or_ put to shame. 
+For thus it stands in Scripture: Behold, I am laying in Zion a chosen (honored), precious chief Cornerstone, and he who believes in Him [who adheres to, trusts in, and relies on Him] shall never be disappointed or put to shame. 
 
 
 ###### 7 
@@ -54,25 +54,25 @@ To you then who believe (who adhere to, trust in, and rely on Him) is the precio
 ###### 8 
 
 
-And, A Stone that will cause stumbling and a Rock that will give [men] offense; they stumble because they disobey _and_ disbelieve [God's] Word, as those [who reject Him] were destined (appointed) to do. 
+And, A Stone that will cause stumbling and a Rock that will give [men] offense; they stumble because they disobey and disbelieve [God's] Word, as those [who reject Him] were destined (appointed) to do. 
 
 
 ###### 9 
 
 
-But you are a chosen race, a royal priesthood, a dedicated nation, [God's] own purchased, special people, that you may set forth the wonderful deeds _and_ display the virtues and perfections of Him Who called you out of darkness into His marvelous light. 
+But you are a chosen race, a royal priesthood, a dedicated nation, [God's] own purchased, special people, that you may set forth the wonderful deeds and display the virtues and perfections of Him Who called you out of darkness into His marvelous light. 
 
 
 ###### 10 
 
 
-Once you were not a people [at all], but now you are God's people; once you were unpitied, but now you are pitied _and_ have received mercy. 
+Once you were not a people [at all], but now you are God's people; once you were unpitied, but now you are pitied and have received mercy. 
 
 
 ###### 11 
 
 
-Beloved, I implore you as aliens and strangers _and_ exiles [in this world] to abstain from the sensual urges (the evil desires, the passions of the flesh, your lower nature) that wage war against the soul. 
+Beloved, I implore you as aliens and strangers and exiles [in this world] to abstain from the sensual urges (the evil desires, the passions of the flesh, your lower nature) that wage war against the soul. 
 
 
 ###### 12 
@@ -84,7 +84,7 @@ Conduct yourselves properly (honorably, righteously) among the Gentiles, so that
 ###### 13 
 
 
-Be submissive to every human institution _and_ authority for the sake of the Lord, whether it be to the emperor as supreme, 
+Be submissive to every human institution and authority for the sake of the Lord, whether it be to the emperor as supreme, 
 
 
 ###### 14 
@@ -96,7 +96,7 @@ Or to governors as sent by him to bring vengeance (punishment, justice) to those
 ###### 15 
 
 
-For it is God's will _and_ intention that by doing right [your good and honest lives] should silence (muzzle, gag) the ignorant charges _and_ ill-informed criticisms of foolish persons. 
+For it is God's will and intention that by doing right [your good and honest lives] should silence (muzzle, gag) the ignorant charges and ill-informed criticisms of foolish persons. 
 
 
 ###### 16 
@@ -114,7 +114,7 @@ Show respect for all men [treat them honorably]. Love the brotherhood (the Chris
 ###### 18 
 
 
-[You who are] household servants, be submissive to your masters with all [proper] respect, not only to those who are kind and considerate _and_ reasonable, but also to those who are surly (overbearing, unjust, and crooked). 
+[You who are] household servants, be submissive to your masters with all [proper] respect, not only to those who are kind and considerate and reasonable, but also to those who are surly (overbearing, unjust, and crooked). 
 
 
 ###### 19 
@@ -126,7 +126,7 @@ For one is regarded favorably (is approved, acceptable, and thankworthy) if, as 
 ###### 20 
 
 
-[After all] what kind of glory [is there in it] if, when you do wrong and are punished for it, you take it patiently? But if you bear patiently with suffering [which results] when you do right _and_ that is undeserved, it is acceptable _and_ pleasing to God. 
+[After all] what kind of glory [is there in it] if, when you do wrong and are punished for it, you take it patiently? But if you bear patiently with suffering [which results] when you do right and that is undeserved, it is acceptable and pleasing to God. 
 
 
 ###### 21 
@@ -144,7 +144,7 @@ He was guilty of no sin, neither was deceit (guile) ever found on His lips.
 ###### 23 
 
 
-When He was reviled _and_ insulted, He did not revile _or_ offer insult in return; [when] He was abused _and_ suffered, He made no threats [of vengeance]; but he trusted [Himself and everything] to Him Who judges fairly. 
+When He was reviled and insulted, He did not revile or offer insult in return; [when] He was abused and suffered, He made no threats [of vengeance]; but he trusted [Himself and everything] to Him Who judges fairly. 
 
 
 ###### 24 

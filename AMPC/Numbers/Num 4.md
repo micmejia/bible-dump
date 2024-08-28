@@ -133,7 +133,7 @@ When the camp prepares to set forward, Aaron and his sons shall take down the ve
 
 
 
-And shall put on it the covering of dolphin _or_ porpoise skin, and shall spread over that a cloth wholly of blue, and shall put in place the poles of the ark. 
+And shall put on it the covering of dolphin or porpoise skin, and shall spread over that a cloth wholly of blue, and shall put in place the poles of the ark. 
 
 
 
@@ -175,7 +175,7 @@ And upon the table of showbread they shall spread a cloth of blue and put on it 
 
 
 
-And they shall spread over them a cloth of scarlet, and put over that a covering of dolphin _or_ porpoise skin, and put in place the poles [for carrying]. 
+And they shall spread over them a cloth of scarlet, and put over that a covering of dolphin or porpoise skin, and put in place the poles [for carrying]. 
 
 
 
@@ -217,7 +217,7 @@ And they shall take a cloth of blue and cover the lampstand for the light and it
 
 
 
-And they shall put the lampstand and all its utensils within a covering of dolphin _or_ porpoise skin and shall put it upon the frame [for carrying]. 
+And they shall put the lampstand and all its utensils within a covering of dolphin or porpoise skin and shall put it upon the frame [for carrying]. 
 
 
 
@@ -238,7 +238,7 @@ And they shall put the lampstand and all its utensils within a covering of dolph
 
 
 
-And upon the golden [incense] altar they shall spread a cloth of blue, and cover it with a covering of dolphin _or_ porpoise skin, and shall put in place its poles [for carrying]. 
+And upon the golden [incense] altar they shall spread a cloth of blue, and cover it with a covering of dolphin or porpoise skin, and shall put in place its poles [for carrying]. 
 
 
 
@@ -259,7 +259,7 @@ And upon the golden [incense] altar they shall spread a cloth of blue, and cover
 
 
 
-And they shall take all the utensils of the service with which they minister in the sanctuary, and put them in a cloth of blue, and cover them with a covering of dolphin _or_ porpoise skin, and shall put them on the frame [for carrying]. 
+And they shall take all the utensils of the service with which they minister in the sanctuary, and put them in a cloth of blue, and cover them with a covering of dolphin or porpoise skin, and shall put them on the frame [for carrying]. 
 
 
 
@@ -301,7 +301,7 @@ And they shall take away the ashes from the altar [of burnt offering] and spread
 
 
 
-And they shall put upon it all its vessels _and_ utensils with which they minister there, the firepans, the fleshhooks _or_ forks, the shovels, the basins, and all the vessels _and_ utensils of the altar, and they shall spread over it all a covering of dolphin _or_ porpoise skin, and shall put in its poles [for carrying]. 
+And they shall put upon it all its vessels and utensils with which they minister there, the firepans, the fleshhooks or forks, the shovels, the basins, and all the vessels and utensils of the altar, and they shall spread over it all a covering of dolphin or porpoise skin, and shall put in its poles [for carrying]. 
 
 
 
@@ -427,7 +427,7 @@ But deal thus with them, that they may live and not die when they approach the m
 
 
 
-But [the Kohathites] shall not go in to see the sanctuary [the Holy Place and the Holy of Holies] _or_ its holy things, even for an instant, lest they die. 
+But [the Kohathites] shall not go in to see the sanctuary [the Holy Place and the Holy of Holies] or its holy things, even for an instant, lest they die. 
 
 
 
@@ -532,7 +532,7 @@ This is the service of the families of the Gershonites, in serving and in bearin
 
 
 
-And they shall carry the curtains of the tabernacle, and the Tent of Meeting, its covering, and the covering of dolphin _or_ porpoise skin that is on top of it, and the hanging _or_ screen for the door of the Tent of Meeting, 
+And they shall carry the curtains of the tabernacle, and the Tent of Meeting, its covering, and the covering of dolphin or porpoise skin that is on top of it, and the hanging or screen for the door of the Tent of Meeting, 
 
 
 
@@ -553,7 +553,7 @@ And they shall carry the curtains of the tabernacle, and the Tent of Meeting, it
 
 
 
-And the hangings of the court, and the hanging _or_ screen for the entrance of the gate of the court which is around the tabernacle and the altar [of burnt offering], and their cords, and all the equipment for their service; whatever needs to be done with them, that they shall do. 
+And the hangings of the court, and the hanging or screen for the entrance of the gate of the court which is around the tabernacle and the altar [of burnt offering], and their cords, and all the equipment for their service; whatever needs to be done with them, that they shall do. 
 
 
 
@@ -658,7 +658,7 @@ From thirty years old up to fifty years old you shall number them, everyone who 
 
 
 
-And this is what they are assigned to carry _and_ to guard [on the march], according to all their service in the Tent of Meeting: the boards _or_ frames of the tabernacle, and its bars, and its pillars, and its sockets _or_ bases, 
+And this is what they are assigned to carry and to guard [on the march], according to all their service in the Tent of Meeting: the boards or frames of the tabernacle, and its bars, and its pillars, and its sockets or bases, 
 
 
 
@@ -679,7 +679,7 @@ And this is what they are assigned to carry _and_ to guard [on the march], accor
 
 
 
-And the pillars of the court round about with their sockets _or_ bases, and pegs, and cords, with all their equipment and all their accessories for service; and you shall assign to them by name the articles which they are to carry [on the march]. 
+And the pillars of the court round about with their sockets or bases, and pegs, and cords, with all their equipment and all their accessories for service; and you shall assign to them by name the articles which they are to carry [on the march]. 
 
 
 

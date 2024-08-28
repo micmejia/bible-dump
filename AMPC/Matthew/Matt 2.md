@@ -70,7 +70,7 @@ Where is He Who has been born King of the Jews? For we have seen His star in the
 
 
 
-When Herod the king heard this, he was disturbed _and_ troubled, and the whole of Jerusalem with him. 
+When Herod the king heard this, he was disturbed and troubled, and the whole of Jerusalem with him. 
 
 
 
@@ -133,7 +133,7 @@ They replied to him, In Bethlehem of Judea, for so it is written by the prophet:
 
 
 
-And you Bethlehem, in the land of Judah, you are not in any way least _or_ insignificant among the chief cities of Judah; for from you shall come a Ruler (Leader) Who will govern _and_ shepherd My people Israel. 
+And you Bethlehem, in the land of Judah, you are not in any way least or insignificant among the chief cities of Judah; for from you shall come a Ruler (Leader) Who will govern and shepherd My people Israel. 
 
 
 
@@ -175,7 +175,7 @@ Then Herod sent for the wise men [astrologers] secretly, and accurately to the l
 
 
 
-Then he sent them to Bethlehem, saying, Go and search for the Child carefully _and_ diligently, and when you have found Him, bring me word, that I too may come and worship Him. 
+Then he sent them to Bethlehem, saying, Go and search for the Child carefully and diligently, and when you have found Him, bring me word, that I too may come and worship Him. 
 
 
 
@@ -259,7 +259,7 @@ And on going into the house, they saw the Child with Mary His mother, and they f
 
 
 
-And receiving an answer to their asking, they were divinely instructed _and_ warned in a dream not to go back to Herod; so they departed to their own country by a different way. 
+And receiving an answer to their asking, they were divinely instructed and warned in a dream not to go back to Herod; so they departed to their own country by a different way. 
 
 
 
@@ -280,7 +280,7 @@ And receiving an answer to their asking, they were divinely instructed _and_ war
 
 
 
-Now after they had gone, behold, an angel of the Lord appeared to Joseph in a dream and said, Get up! [Tenderly] take _unto you_ the young Child and His mother and flee to Egypt; and remain there till I tell you [otherwise], for Herod intends to search for the Child in order to destroy Him. 
+Now after they had gone, behold, an angel of the Lord appeared to Joseph in a dream and said, Get up! [Tenderly] take unto you the young Child and His mother and flee to Egypt; and remain there till I tell you [otherwise], for Herod intends to search for the Child in order to destroy Him. 
 
 
 
@@ -343,7 +343,7 @@ And remained there until Herod's death. This was to fulfill what the Lord had sp
 
 
 
-Then Herod, when he realized that he had been misled by the wise men, was furiously enraged, and he sent and put to death all the male children in Bethlehem and in all that territory who were two years old and under, reckoning according to the date which he had investigated diligently _and_ had learned exactly from the wise men. 
+Then Herod, when he realized that he had been misled by the wise men, was furiously enraged, and he sent and put to death all the male children in Bethlehem and in all that territory who were two years old and under, reckoning according to the date which he had investigated diligently and had learned exactly from the wise men. 
 
 
 
@@ -427,7 +427,7 @@ But when Herod died, behold, an angel of the Lord appeared in a dream to Joseph 
 
 
 
-And said, Rise, [tenderly] take _unto you_ the Child and His mother and go to the land of Israel, for those who sought the Child's life are dead. 
+And said, Rise, [tenderly] take unto you the Child and His mother and go to the land of Israel, for those who sought the Child's life are dead. 
 
 
 

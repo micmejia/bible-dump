@@ -49,7 +49,7 @@ And I [Micah] said, Hear, I pray you, you heads of Jacob and rulers of the house
 
 
 
-You who hate the good and love the evil, who pluck _and_ steal the skin from off [My people] and their flesh from off their bones; 
+You who hate the good and love the evil, who pluck and steal the skin from off [My people] and their flesh from off their bones; 
 
 
 
@@ -154,7 +154,7 @@ Therefore it shall be night to you, so that you shall have no vision; yes, it sh
 
 
 
-And the seers shall be put to shame and the diviners shall blush _and_ be confounded; yes, they shall all cover their lips, for there is no answer from God. 
+And the seers shall be put to shame and the diviners shall blush and be confounded; yes, they shall all cover their lips, for there is no answer from God. 
 
 
 
@@ -196,7 +196,7 @@ But truly I [Micah] am full of power, of the Spirit of the Lord, and of justice 
 
 
 
-Hear this, I pray you, you heads of the house of Jacob and rulers of the house of Israel, who abhor _and_ reject justice and pervert all equity, 
+Hear this, I pray you, you heads of the house of Jacob and rulers of the house of Israel, who abhor and reject justice and pervert all equity, 
 
 
 
@@ -238,7 +238,7 @@ Who build up Zion with blood and Jerusalem with iniquity.
 
 
 
-Its heads judge for reward _and_ a bribe and its priests teach for hire and its prophets divine for money; yet they lean on the Lord and say, Is not the Lord among us? No evil can come upon us. 
+Its heads judge for reward and a bribe and its priests teach for hire and its prophets divine for money; yet they lean on the Lord and say, Is not the Lord among us? No evil can come upon us. 
 
 
 

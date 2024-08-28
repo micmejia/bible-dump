@@ -91,7 +91,7 @@ So ten of Joseph's brethren went to buy grain in Egypt.
 
 
 
-But Benjamin, Joseph's [full] brother, Jacob did not send with his brothers; for he said, Lest perhaps some harm _or_ injury should befall him. 
+But Benjamin, Joseph's [full] brother, Jacob did not send with his brothers; for he said, Lest perhaps some harm or injury should befall him. 
 
 
 
@@ -112,7 +112,7 @@ But Benjamin, Joseph's [full] brother, Jacob did not send with his brothers; for
 
 
 
-So the sons of Israel came to buy grain among those who came, for there was hunger _and_ general lack of food in the land of Canaan. 
+So the sons of Israel came to buy grain among those who came, for there was hunger and general lack of food in the land of Canaan. 
 
 
 
@@ -196,7 +196,7 @@ Joseph knew his brethren, but they did not know him.
 
 
 
-And Joseph remembered the dreams he had dreamed about them and said to them, You are spies _and_ with unfriendly purpose you have come to observe [secretly] the nakedness of the land. 
+And Joseph remembered the dreams he had dreamed about them and said to them, You are spies and with unfriendly purpose you have come to observe [secretly] the nakedness of the land. 
 
 
 
@@ -385,7 +385,7 @@ Then he put them all in custody for three days.
 
 
 
-And Joseph said to them on the third day, Do this and live! I reverence _and_ fear God. 
+And Joseph said to them on the third day, Do this and live! I reverence and fear God. 
 
 
 
@@ -448,7 +448,7 @@ But bring your youngest brother to me, so your words will be verified and you sh
 
 
 
-And they said one to another, We are truly guilty about our brother, for we saw the distress _and_ anguish of his soul when he begged us [to let him go], and we would not hear. So this distress _and_ difficulty has come upon us. 
+And they said one to another, We are truly guilty about our brother, for we saw the distress and anguish of his soul when he begged us [to let him go], and we would not hear. So this distress and difficulty has come upon us. 
 
 
 
@@ -595,7 +595,7 @@ And as one of them opened his sack to give his donkey fodder at the lodging plac
 
 
 
-And he said to his brothers, My money is restored! Here it is in my sack! And their hearts failed them and they were afraid _and_ turned trembling one to another, saying, What is this that God has done to us? 
+And he said to his brothers, My money is restored! Here it is in my sack! And their hearts failed them and they were afraid and turned trembling one to another, saying, What is this that God has done to us? 
 
 
 
@@ -805,4 +805,4 @@ And Reuben said to his father, Slay my two sons if I do not bring [Benjamin] bac
 
 
 
-But [Jacob] said, My son shall not go down with you, for his brother is dead and he alone is left [of his mother's children]; if harm _or_ accident should befall him on the journey you are to take, you would bring my hoary head down to Sheol (the place of the dead) with grief.
+But [Jacob] said, My son shall not go down with you, for his brother is dead and he alone is left [of his mother's children]; if harm or accident should befall him on the journey you are to take, you would bring my hoary head down to Sheol (the place of the dead) with grief.

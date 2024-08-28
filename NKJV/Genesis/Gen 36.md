@@ -10,7 +10,7 @@ next: ['Gen 37']
 
 
 ###### 1 
-Now this _is_ the genealogy of Esau, who is Edom. 
+Now this is the genealogy of Esau, who is Edom. 
 
 ###### 2 
 Esau took his wives from the daughters of Canaan: Adah the daughter of Elon the Hittite; Aholibamah the daughter of Anah, the daughter of Zibeon the Hivite; 
@@ -22,7 +22,7 @@ and Basemath, Ishmael's daughter, sister of Nebajoth.
 Now Adah bore Eliphaz to Esau, and Basemath bore Reuel. 
 
 ###### 5 
-And Aholibamah bore Jeush, Jaalam, and Korah. These _were_ the sons of Esau who were born to him in the land of Canaan. 
+And Aholibamah bore Jeush, Jaalam, and Korah. These were the sons of Esau who were born to him in the land of Canaan. 
 
 ###### 6 
 Then Esau took his wives, his sons, his daughters, and all the persons of his household, his cattle and all his animals, and all his goods which he had gained in the land of Canaan, and went to a country away from the presence of his brother Jacob. 
@@ -31,22 +31,22 @@ Then Esau took his wives, his sons, his daughters, and all the persons of his ho
 For their possessions were too great for them to dwell together, and the land where they were strangers could not support them because of their livestock. 
 
 ###### 8 
-So Esau dwelt in Mount Seir. Esau _is_ Edom. 
+So Esau dwelt in Mount Seir. Esau is Edom. 
 
 ###### 9 
-And this _is_ the genealogy of Esau the father of the Edomites in Mount Seir. 
+And this is the genealogy of Esau the father of the Edomites in Mount Seir. 
 
 ###### 10 
-These _were_ the names of Esau's sons: Eliphaz the son of Adah the wife of Esau, and Reuel the son of Basemath the wife of Esau. 
+These were the names of Esau's sons: Eliphaz the son of Adah the wife of Esau, and Reuel the son of Basemath the wife of Esau. 
 
 ###### 11 
 And the sons of Eliphaz were Teman, Omar, Zepho, Gatam, and Kenaz. 
 
 ###### 12 
-Now Timna was the concubine of Eliphaz, Esau's son, and she bore Amalek to Eliphaz. These _were_ the sons of Adah, Esau's wife. 
+Now Timna was the concubine of Eliphaz, Esau's son, and she bore Amalek to Eliphaz. These were the sons of Adah, Esau's wife. 
 
 ###### 13 
-These _were_ the sons of Reuel: Nahath, Zerah, Shammah, and Mizzah. These were the sons of Basemath, Esau's wife. 
+These were the sons of Reuel: Nahath, Zerah, Shammah, and Mizzah. These were the sons of Basemath, Esau's wife. 
 
 ###### 14 
 These were the sons of Aholibamah, Esau's wife, the daughter of Anah, the daughter of Zibeon. And she bore to Esau: Jeush, Jaalam, and Korah.
@@ -54,62 +54,62 @@ These were the sons of Aholibamah, Esau's wife, the daughter of Anah, the daught
 ## The Chiefs of Edom 
 
 ###### 15 
-These _were_ the chiefs of the sons of Esau. The sons of Eliphaz, the firstborn _son_ of Esau, were Chief Teman, Chief Omar, Chief Zepho, Chief Kenaz, 
+These were the chiefs of the sons of Esau. The sons of Eliphaz, the firstborn son of Esau, were Chief Teman, Chief Omar, Chief Zepho, Chief Kenaz, 
 
 ###### 16 
-Chief Korah, Chief Gatam, _and_ Chief Amalek. These _were_ the chiefs of Eliphaz in the land of Edom. They _were_ the sons of Adah. 
+Chief Korah, Chief Gatam, and Chief Amalek. These were the chiefs of Eliphaz in the land of Edom. They were the sons of Adah. 
 
 ###### 17 
-These _were_ the sons of Reuel, Esau's son: Chief Nahath, Chief Zerah, Chief Shammah, and Chief Mizzah. These _were_ the chiefs of Reuel in the land of Edom. These _were_ the sons of Basemath, Esau's wife. 
+These were the sons of Reuel, Esau's son: Chief Nahath, Chief Zerah, Chief Shammah, and Chief Mizzah. These were the chiefs of Reuel in the land of Edom. These were the sons of Basemath, Esau's wife. 
 
 ###### 18 
-And these _were_ the sons of Aholibamah, Esau's wife: Chief Jeush, Chief Jaalam, and Chief Korah. These _were_ the chiefs _who descended_ from Aholibamah, Esau's wife, the daughter of Anah. 
+And these were the sons of Aholibamah, Esau's wife: Chief Jeush, Chief Jaalam, and Chief Korah. These were the chiefs who descended from Aholibamah, Esau's wife, the daughter of Anah. 
 
 ###### 19 
-These _were_ the sons of Esau, who is Edom, and these _were_ their chiefs.
+These were the sons of Esau, who is Edom, and these were their chiefs.
 
 ## The Sons of Seir 
 
 ###### 20 
-These _were_ the sons of Seir the Horite who inhabited the land: Lotan, Shobal, Zibeon, Anah, 
+These were the sons of Seir the Horite who inhabited the land: Lotan, Shobal, Zibeon, Anah, 
 
 ###### 21 
-Dishon, Ezer, and Dishan. These _were_ the chiefs of the Horites, the sons of Seir, in the land of Edom. 
+Dishon, Ezer, and Dishan. These were the chiefs of the Horites, the sons of Seir, in the land of Edom. 
 
 ###### 22 
-And the sons of Lotan were Hori and Hemam. Lotan's sister _was_ Timna. 
+And the sons of Lotan were Hori and Hemam. Lotan's sister was Timna. 
 
 ###### 23 
-These _were_ the sons of Shobal: Alvan, Manahath, Ebal, Shepho, and Onam. 
+These were the sons of Shobal: Alvan, Manahath, Ebal, Shepho, and Onam. 
 
 ###### 24 
-These _were_ the sons of Zibeon: both Ajah and Anah. This _was the_ Anah who found the water in the wilderness as he pastured the donkeys of his father Zibeon. 
+These were the sons of Zibeon: both Ajah and Anah. This was the Anah who found the water in the wilderness as he pastured the donkeys of his father Zibeon. 
 
 ###### 25 
-These _were_ the children of Anah: Dishon and Aholibamah the daughter of Anah. 
+These were the children of Anah: Dishon and Aholibamah the daughter of Anah. 
 
 ###### 26 
-These _were_ the sons of Dishon: Hemdan, Eshban, Ithran, and Cheran. 
+These were the sons of Dishon: Hemdan, Eshban, Ithran, and Cheran. 
 
 ###### 27 
-These _were_ the sons of Ezer: Bilhan, Zaavan, and Akan. 
+These were the sons of Ezer: Bilhan, Zaavan, and Akan. 
 
 ###### 28 
-These _were_ the sons of Dishan: Uz and Aran. 
+These were the sons of Dishan: Uz and Aran. 
 
 ###### 29 
-These _were_ the chiefs of the Horites: Chief Lotan, Chief Shobal, Chief Zibeon, Chief Anah, 
+These were the chiefs of the Horites: Chief Lotan, Chief Shobal, Chief Zibeon, Chief Anah, 
 
 ###### 30 
-Chief Dishon, Chief Ezer, and Chief Dishan. These _were_ the chiefs of the Horites, according to their chiefs in the land of Seir.
+Chief Dishon, Chief Ezer, and Chief Dishan. These were the chiefs of the Horites, according to their chiefs in the land of Seir.
 
 ## The Kings of Edom 
 
 ###### 31 
-Now these _were_ the kings who reigned in the land of Edom before any king reigned over the children of Israel: 
+Now these were the kings who reigned in the land of Edom before any king reigned over the children of Israel: 
 
 ###### 32 
-Bela the son of Beor reigned in Edom, and the name of his city _was_ Dinhabah. 
+Bela the son of Beor reigned in Edom, and the name of his city was Dinhabah. 
 
 ###### 33 
 And when Bela died, Jobab the son of Zerah of Bozrah reigned in his place. 
@@ -118,24 +118,24 @@ And when Bela died, Jobab the son of Zerah of Bozrah reigned in his place.
 When Jobab died, Husham of the land of the Temanites reigned in his place. 
 
 ###### 35 
-And when Husham died, Hadad the son of Bedad, who attacked Midian in the field of Moab, reigned in his place. And the name of his city _was_ Avith. 
+And when Husham died, Hadad the son of Bedad, who attacked Midian in the field of Moab, reigned in his place. And the name of his city was Avith. 
 
 ###### 36 
 When Hadad died, Samlah of Masrekah reigned in his place. 
 
 ###### 37 
-And when Samlah died, Saul of Rehoboth-_by_-the-River reigned in his place. 
+And when Samlah died, Saul of Rehoboth-by-the-River reigned in his place. 
 
 ###### 38 
 When Saul died, Baal-Hanan the son of Achbor reigned in his place. 
 
 ###### 39 
-And when Baal-Hanan the son of Achbor died, Hadar reigned in his place; and the name of his city _was_ Pau. His wife's name _was_ Mehetabel, the daughter of Matred, the daughter of Mezahab.
+And when Baal-Hanan the son of Achbor died, Hadar reigned in his place; and the name of his city was Pau. His wife's name was Mehetabel, the daughter of Matred, the daughter of Mezahab.
 
 ## The Chiefs of Esau 
 
 ###### 40 
-And these _were_ the names of the chiefs of Esau, according to their families and their places, by their names: Chief Timnah, Chief Alvah, Chief Jetheth, 
+And these were the names of the chiefs of Esau, according to their families and their places, by their names: Chief Timnah, Chief Alvah, Chief Jetheth, 
 
 ###### 41 
 Chief Aholibamah, Chief Elah, Chief Pinon, 
@@ -144,4 +144,4 @@ Chief Aholibamah, Chief Elah, Chief Pinon,
 Chief Kenaz, Chief Teman, Chief Mibzar, 
 
 ###### 43 
-Chief Magdiel, and Chief Iram. These _were_ the chiefs of Edom, according to their dwelling places in the land of their possession. Esau _was_ the father of the Edomites.
+Chief Magdiel, and Chief Iram. These were the chiefs of Edom, according to their dwelling places in the land of their possession. Esau was the father of the Edomites.

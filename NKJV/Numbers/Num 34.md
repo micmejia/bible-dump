@@ -13,7 +13,7 @@ next: ['Num 35']
 Then the Lord spoke to Moses, saying, 
 
 ###### 2 
-"Command the children of Israel, and say to them: 'When you come into the land of Canaan, this _is_ the land that shall fall to you as an inheritance--the land of Canaan to its boundaries. 
+"Command the children of Israel, and say to them: 'When you come into the land of Canaan, this is the land that shall fall to you as an inheritance--the land of Canaan to its boundaries. 
 
 ###### 3 
 Your southern border shall be from the Wilderness of Zin along the border of Edom; then your southern border shall extend eastward to the end of the Salt Sea; 
@@ -28,10 +28,10 @@ the border shall turn from Azmon to the Brook of Egypt, and it shall end at the 
 'As for the western border, you shall have the Great Sea for a border; this shall be your western border. 
 
 ###### 7 
-'And this shall be your northern border: From the Great Sea you shall mark out your _border_ line to Mount Hor; 
+'And this shall be your northern border: From the Great Sea you shall mark out your border line to Mount Hor; 
 
 ###### 8 
-from Mount Hor you shall mark out _your border_ to the entrance of Hamath; then the direction of the border shall be toward Zedad; 
+from Mount Hor you shall mark out your border to the entrance of Hamath; then the direction of the border shall be toward Zedad; 
 
 ###### 9 
 the border shall proceed to Ziphron, and it shall end at Hazar Enan. This shall be your northern border. 
@@ -46,13 +46,13 @@ the border shall go down from Shepham to Riblah on the east side of Ain; the bor
 the border shall go down along the Jordan, and it shall end at the Salt Sea. This shall be your land with its surrounding boundaries.' " 
 
 ###### 13 
-Then Moses commanded the children of Israel, saying: "This _is_ the land which you shall inherit by lot, which the Lord has commanded to give to the nine tribes and to the half-tribe. 
+Then Moses commanded the children of Israel, saying: "This is the land which you shall inherit by lot, which the Lord has commanded to give to the nine tribes and to the half-tribe. 
 
 ###### 14 
-For the tribe of the children of Reuben according to the house of their fathers, and the tribe of the children of Gad according to the house of their fathers, have received _their inheritance;_ and the half-tribe of Manasseh has received its inheritance. 
+For the tribe of the children of Reuben according to the house of their fathers, and the tribe of the children of Gad according to the house of their fathers, have received their inheritance; and the half-tribe of Manasseh has received its inheritance. 
 
 ###### 15 
-The two tribes and the half-tribe have received their inheritance on this side of the Jordan, _across from_ Jericho eastward, toward the sunrise." 
+The two tribes and the half-tribe have received their inheritance on this side of the Jordan, across from Jericho eastward, toward the sunrise." 
 
 ## The Leaders Appointed to Divide the Land 
 
@@ -60,13 +60,13 @@ The two tribes and the half-tribe have received their inheritance on this side o
 And the Lord spoke to Moses, saying, 
 
 ###### 17 
-"These _are_ the names of the men who shall divide the land among you as an inheritance: Eleazar the priest and Joshua the son of Nun. 
+"These are the names of the men who shall divide the land among you as an inheritance: Eleazar the priest and Joshua the son of Nun. 
 
 ###### 18 
 And you shall take one leader of every tribe to divide the land for the inheritance. 
 
 ###### 19 
-These _are_ the names of the men: from the tribe of Judah, Caleb the son of Jephunneh; 
+These are the names of the men: from the tribe of Judah, Caleb the son of Jephunneh; 
 
 ###### 20 
 from the tribe of the children of Simeon, Shemuel the son of Ammihud; 
@@ -96,4 +96,4 @@ a leader from the tribe of the children of Asher, Ahihud the son of Shelomi;
 and a leader from the tribe of the children of Naphtali, Pedahel the son of Ammihud." 
 
 ###### 29 
-These _are_ the ones the Lord commanded to divide the inheritance among the children of Israel in the land of Canaan.
+These are the ones the Lord commanded to divide the inheritance among the children of Israel in the land of Canaan.

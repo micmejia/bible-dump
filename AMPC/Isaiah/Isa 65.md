@@ -91,7 +91,7 @@ A people who provoke Me to My face continually, sacrificing [to idols] in garden
 
 
 
-Who sit among the graves [trying to talk with the dead] and lodge among the secret places [or caves where familiar spirits were thought to dwell]; who eat swine's flesh, and the broth of abominable _and_ loathsome things is in their vessels; 
+Who sit among the graves [trying to talk with the dead] and lodge among the secret places [or caves where familiar spirits were thought to dwell]; who eat swine's flesh, and the broth of abominable and loathsome things is in their vessels; 
 
 
 
@@ -154,7 +154,7 @@ Behold, it is written before Me: I will not keep silence but will repay; yes, I 
 
 
 
-Both your own iniquities and the iniquities of your fathers, says the Lord. Because they too burned incense upon the mountains and reviled _and_ blasphemed Me upon the hills, therefore will I measure _and_ stretch out their former doings into their own bosom. 
+Both your own iniquities and the iniquities of your fathers, says the Lord. Because they too burned incense upon the mountains and reviled and blasphemed Me upon the hills, therefore will I measure and stretch out their former doings into their own bosom. 
 
 
 
@@ -196,7 +196,7 @@ Thus says the Lord: As the juice [of the grape] is found in the cluster, and one
 
 
 
-And I will bring forth an offspring from Jacob, and from Judah an inheritor of My mountains; My chosen _and_ elect will inherit it, and My servants will dwell there. 
+And I will bring forth an offspring from Jacob, and from Judah an inheritor of My mountains; My chosen and elect will inherit it, and My servants will dwell there. 
 
 
 
@@ -217,7 +217,7 @@ And I will bring forth an offspring from Jacob, and from Judah an inheritor of M
 
 
 
-And [the plain of] Sharon shall be a pasture _and_ fold for flocks, and the Valley of Achor a place for herds to lie down, for My people who seek Me, inquire of Me, _and_ require Me [by right of their necessity and by right of My invitation]. 
+And [the plain of] Sharon shall be a pasture and fold for flocks, and the Valley of Achor a place for herds to lie down, for My people who seek Me, inquire of Me, and require Me [by right of their necessity and by right of My invitation]. 
 
 
 
@@ -238,7 +238,7 @@ And [the plain of] Sharon shall be a pasture _and_ fold for flocks, and the Vall
 
 
 
-But you who forsake the Lord, who forget _and_ ignore My holy Mount [Zion], who prepare a table for Gad [the Babylonian god of fortune] and who furnish mixed drinks for Meni [the god of destiny]-- 
+But you who forsake the Lord, who forget and ignore My holy Mount [Zion], who prepare a table for Gad [the Babylonian god of fortune] and who furnish mixed drinks for Meni [the god of destiny]-- 
 
 
 
@@ -259,7 +259,7 @@ But you who forsake the Lord, who forget _and_ ignore My holy Mount [Zion], who 
 
 
 
-I will destine you [says the Lord] for the sword, and you shall all bow down to the slaughter, because when I called, you did not answer; when I spoke, you did not listen _or_ obey. But you did what was evil in My eyes, and you chose that in which I did not delight. 
+I will destine you [says the Lord] for the sword, and you shall all bow down to the slaughter, because when I called, you did not answer; when I spoke, you did not listen or obey. But you did what was evil in My eyes, and you chose that in which I did not delight. 
 
 
 
@@ -301,7 +301,7 @@ Therefore thus says the Lord God: Behold, My servants shall eat, but you shall b
 
 
 
-Behold, My servants shall sing for joy of heart, but you shall cry out for pain _and_ sorrow of heart and shall wail _and_ howl for anguish, vexation, _and_ breaking of spirit. 
+Behold, My servants shall sing for joy of heart, but you shall cry out for pain and sorrow of heart and shall wail and howl for anguish, vexation, and breaking of spirit. 
 
 
 
@@ -343,7 +343,7 @@ And you will leave your name to My chosen [to those who will use it] for a curse
 
 
 
-So [it shall be] that he who invokes a blessing on himself in the land shall do so by saying, May the God of truth _and_ fidelity [the Amen] bless me; and he who takes an oath in the land shall swear by the God of truth _and_ faithfulness to His promises [the Amen], because the former troubles are forgotten and because they are hidden from My eyes. 
+So [it shall be] that he who invokes a blessing on himself in the land shall do so by saying, May the God of truth and fidelity [the Amen] bless me; and he who takes an oath in the land shall swear by the God of truth and faithfulness to His promises [the Amen], because the former troubles are forgotten and because they are hidden from My eyes. 
 
 
 
@@ -469,7 +469,7 @@ They shall build houses and inhabit them, and they shall plant vineyards and eat
 
 
 
-They shall not build and another inhabit; they shall not plant and another eat [the fruit]. For as the days of a tree, so shall be the days of My people, and My chosen _and_ elect shall long make use of _and_ enjoy the work of their hands. 
+They shall not build and another inhabit; they shall not plant and another eat [the fruit]. For as the days of a tree, so shall be the days of My people, and My chosen and elect shall long make use of and enjoy the work of their hands. 
 
 
 
@@ -490,7 +490,7 @@ They shall not build and another inhabit; they shall not plant and another eat [
 
 
 
-They shall not labor in vain or bring forth [children] for sudden terror _or_ calamity; for they shall be the descendants of the blessed of the Lord, and their offspring with them. 
+They shall not labor in vain or bring forth [children] for sudden terror or calamity; for they shall be the descendants of the blessed of the Lord, and their offspring with them. 
 
 
 

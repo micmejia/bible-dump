@@ -364,7 +364,7 @@ No straw is given to your servants, yet they say to us, Make bricks! And behold,
 
 
 
-But [Pharaoh] said, You are idle, lazy _and_ idle! That is why you say, Let us go and sacrifice to the Lord. 
+But [Pharaoh] said, You are idle, lazy and idle! That is why you say, Let us go and sacrifice to the Lord. 
 
 
 

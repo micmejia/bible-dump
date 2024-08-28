@@ -280,7 +280,7 @@ From there they journeyed and encamped in the Valley of Zared.
 
 
 
-From there they journeyed and encamped on the other side of [the river] Arnon, which is in the desert _or_ wilderness that extends from the frontier of the Amorites; for [the river] Arnon is the boundary of Moab, between Moab and the Amorites. 
+From there they journeyed and encamped on the other side of [the river] Arnon, which is in the desert or wilderness that extends from the frontier of the Amorites; for [the river] Arnon is the boundary of Moab, between Moab and the Amorites. 
 
 
 
@@ -385,7 +385,7 @@ Then Israel sang this song, Spring up, O well! Let all sing to it,
 
 
 
-The fountain that the princes opened, that the nobles of the people hollowed out from their staves. And from the wilderness _or_ desert [Israel journeyed] to Mattanah, 
+The fountain that the princes opened, that the nobles of the people hollowed out from their staves. And from the wilderness or desert [Israel journeyed] to Mattanah, 
 
 
 
@@ -427,7 +427,7 @@ And from Mattanah to Nahaliel, and from Nahaliel to Bamoth,
 
 
 
-And from Bamoth to the valley that is in the field of Moab, to the top of Pisgah which looks down upon Jeshimon _and_ the desert. 
+And from Bamoth to the valley that is in the field of Moab, to the top of Pisgah which looks down upon Jeshimon and the desert. 
 
 
 

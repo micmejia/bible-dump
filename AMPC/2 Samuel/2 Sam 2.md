@@ -112,7 +112,7 @@ And the men of Judah came and there they anointed David king over the house of J
 
 
 
-And David sent messengers to the men of Jabesh-gilead, saying, May the Lord bless you because you showed kindness _and_ loyalty to Saul your king and buried him. 
+And David sent messengers to the men of Jabesh-gilead, saying, May the Lord bless you because you showed kindness and loyalty to Saul your king and buried him. 
 
 
 
@@ -385,7 +385,7 @@ A very fierce battle followed, and Abner and the men of Israel were beaten befor
 
 
 
-Three sons of Zeruiah [the half sister of David] were there: Joab, Abishai, and Asahel. Now Asahel was as light of foot as a wild roe _or_ antelope. 
+Three sons of Zeruiah [the half sister of David] were there: Joab, Abishai, and Asahel. Now Asahel was as light of foot as a wild roe or antelope. 
 
 
 

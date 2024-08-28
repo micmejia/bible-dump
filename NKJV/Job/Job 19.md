@@ -16,31 +16,31 @@ Then Job answered and said:
 "How long will you torment my soul, And break me in pieces with words? 
 
 ###### 3 
-These ten times you have reproached me; You are not ashamed _that_ you have wronged me. 
+These ten times you have reproached me; You are not ashamed that you have wronged me. 
 
 ###### 4 
 And if indeed I have erred, My error remains with me. 
 
 ###### 5 
-If indeed you exalt _yourselves_ against me, And plead my disgrace against me, 
+If indeed you exalt yourselves against me, And plead my disgrace against me, 
 
 ###### 6 
 Know then that God has wronged me, And has surrounded me with His net. 
 
 ###### 7 
-"If I cry out concerning wrong, I am not heard. If I cry aloud, _there is_ no justice. 
+"If I cry out concerning wrong, I am not heard. If I cry aloud, there is no justice. 
 
 ###### 8 
 He has fenced up my way, so that I cannot pass; And He has set darkness in my paths. 
 
 ###### 9 
-He has stripped me of my glory, And taken the crown _from_ my head. 
+He has stripped me of my glory, And taken the crown from my head. 
 
 ###### 10 
 He breaks me down on every side, And I am gone; My hope He has uprooted like a tree. 
 
 ###### 11 
-He has also kindled His wrath against me, And He counts me as _one of_ His enemies. 
+He has also kindled His wrath against me, And He counts me as one of His enemies. 
 
 ###### 12 
 His troops come together And build up their road against me; They encamp all around my tent. 
@@ -73,7 +73,7 @@ My bone clings to my skin and to my flesh, And I have escaped by the skin of my 
 "Have pity on me, have pity on me, O you my friends, For the hand of God has struck me! 
 
 ###### 22 
-Why do you persecute me as God _does,_ And are not satisfied with my flesh? 
+Why do you persecute me as God does, And are not satisfied with my flesh? 
 
 ###### 23 
 "Oh, that my words were written! Oh, that they were inscribed in a book! 
@@ -82,16 +82,16 @@ Why do you persecute me as God _does,_ And are not satisfied with my flesh?
 That they were engraved on a rock With an iron pen and lead, forever! 
 
 ###### 25 
-For I know _that_ my Redeemer lives, And He shall stand at last on the earth; 
+For I know that my Redeemer lives, And He shall stand at last on the earth; 
 
 ###### 26 
-And after my skin is destroyed, this _I know,_ That in my flesh I shall see God, 
+And after my skin is destroyed, this I know, That in my flesh I shall see God, 
 
 ###### 27 
-Whom I shall see for myself, And my eyes shall behold, and not another. _How_ my heart yearns within me! 
+Whom I shall see for myself, And my eyes shall behold, and not another. How my heart yearns within me! 
 
 ###### 28 
 If you should say, 'How shall we persecute him?'-- Since the root of the matter is found in me, 
 
 ###### 29 
-Be afraid of the sword for yourselves; For wrath _brings_ the punishment of the sword, That you may know _there is_ a judgment."
+Be afraid of the sword for yourselves; For wrath brings the punishment of the sword, That you may know there is a judgment."

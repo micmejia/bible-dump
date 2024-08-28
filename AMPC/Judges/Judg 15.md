@@ -91,7 +91,7 @@ And Samson said of them, This time shall I be blameless as regards the Philistin
 
 
 
-So Samson went and caught 300 foxes _or_ jackals and took torches and turning the foxes tail to tail, he put a torch between each pair of tails. 
+So Samson went and caught 300 foxes or jackals and took torches and turning the foxes tail to tail, he put a torch between each pair of tails. 
 
 
 

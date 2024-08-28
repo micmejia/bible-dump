@@ -49,7 +49,7 @@ And Zedekiah son of Josiah, whom Nebuchadrezzar king of Babylon made king in the
 
 
 
-But neither he nor his servants nor the people of the land listened to _and_ obeyed the words of the Lord which He spoke through the prophet Jeremiah. 
+But neither he nor his servants nor the people of the land listened to and obeyed the words of the Lord which He spoke through the prophet Jeremiah. 
 
 
 
@@ -112,7 +112,7 @@ Now Jeremiah was coming in and going out among the people, for they had not [yet
 
 
 
-And Pharaoh's army had come forth out of Egypt, and when the Chaldeans who were besieging Jerusalem heard the news about them, they withdrew from Jerusalem _and_ departed. 
+And Pharaoh's army had come forth out of Egypt, and when the Chaldeans who were besieging Jerusalem heard the news about them, they withdrew from Jerusalem and departed. 
 
 
 
@@ -217,7 +217,7 @@ Thus says the Lord: Do not deceive yourselves, saying, The Chaldeans will surely
 
 
 
-For though you should defeat the whole army of the Chaldeans who fight against you, and there remained only the wounded _and_ men stricken through among them, every man confined to his tent, yet they would rise up and burn this city with fire. 
+For though you should defeat the whole army of the Chaldeans who fight against you, and there remained only the wounded and men stricken through among them, every man confined to his tent, yet they would rise up and burn this city with fire. 
 
 
 
@@ -427,7 +427,7 @@ Where now are your prophets who prophesied to you, saying, The king of Babylon s
 
 
 
-Therefore hear now, I pray you, O my lord the king. Let my supplication, I pray you, come before you _and_ be acceptable, that you do not cause me to return to the house of Jonathan the scribe, lest I die there. 
+Therefore hear now, I pray you, O my lord the king. Let my supplication, I pray you, come before you and be acceptable, that you do not cause me to return to the house of Jonathan the scribe, lest I die there. 
 
 
 

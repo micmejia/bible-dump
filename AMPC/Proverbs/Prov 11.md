@@ -28,7 +28,7 @@ next: ['Prov 12']
 
 
 
-A false balance _and_ unrighteous dealings are extremely offensive _and_ shamefully sinful to the Lord, but a just weight is His delight. 
+A false balance and unrighteous dealings are extremely offensive and shamefully sinful to the Lord, but a just weight is His delight. 
 
 
 
@@ -49,7 +49,7 @@ A false balance _and_ unrighteous dealings are extremely offensive _and_ shamefu
 
 
 
-When swelling _and_ pride come, then emptiness _and_ shame come also, but with the humble (those who are lowly, who have been pruned or chiseled by trial, and renounce self) are skillful _and_ godly Wisdom _and_ soundness. 
+When swelling and pride come, then emptiness and shame come also, but with the humble (those who are lowly, who have been pruned or chiseled by trial, and renounce self) are skillful and godly Wisdom and soundness. 
 
 
 
@@ -70,7 +70,7 @@ When swelling _and_ pride come, then emptiness _and_ shame come also, but with t
 
 
 
-The integrity of the upright shall guide them, but the willful contrariness _and_ crookedness of the treacherous shall destroy them. 
+The integrity of the upright shall guide them, but the willful contrariness and crookedness of the treacherous shall destroy them. 
 
 
 
@@ -91,7 +91,7 @@ The integrity of the upright shall guide them, but the willful contrariness _and
 
 
 
-Riches provide no security in any day of wrath _and_ judgment, but righteousness (uprightness and right standing with God) delivers from death. 
+Riches provide no security in any day of wrath and judgment, but righteousness (uprightness and right standing with God) delivers from death. 
 
 
 
@@ -112,7 +112,7 @@ Riches provide no security in any day of wrath _and_ judgment, but righteousness
 
 
 
-The righteousness of the blameless shall rectify _and_ make plain their way _and_ keep it straight, but the wicked shall fall by their own wickedness. 
+The righteousness of the blameless shall rectify and make plain their way and keep it straight, but the wicked shall fall by their own wickedness. 
 
 
 
@@ -133,7 +133,7 @@ The righteousness of the blameless shall rectify _and_ make plain their way _and
 
 
 
-The righteousness of the upright [their rectitude in every area and relation] shall deliver them, but the treacherous shall be taken in their own iniquity _and_ greedy desire. 
+The righteousness of the upright [their rectitude in every area and relation] shall deliver them, but the treacherous shall be taken in their own iniquity and greedy desire. 
 
 
 
@@ -196,7 +196,7 @@ The [uncompromisingly] righteous is delivered out of trouble, and the wicked get
 
 
 
-With his mouth the godless man destroys his neighbor, but through knowledge _and_ superior discernment shall the righteous be delivered. 
+With his mouth the godless man destroys his neighbor, but through knowledge and superior discernment shall the righteous be delivered. 
 
 
 
@@ -238,7 +238,7 @@ When it goes well with the [uncompromisingly] righteous, the city rejoices, but 
 
 
 
-By the blessing of the influence of the upright _and_ God's favor [because of them] the city is exalted, but it is overthrown by the mouth of the wicked. 
+By the blessing of the influence of the upright and God's favor [because of them] the city is exalted, but it is overthrown by the mouth of the wicked. 
 
 
 
@@ -259,7 +259,7 @@ By the blessing of the influence of the upright _and_ God's favor [because of th
 
 
 
-He who belittles _and_ despises his neighbor lacks sense, but a man of understanding keeps silent. 
+He who belittles and despises his neighbor lacks sense, but a man of understanding keeps silent. 
 
 
 
@@ -280,7 +280,7 @@ He who belittles _and_ despises his neighbor lacks sense, but a man of understan
 
 
 
-He who goes about as a talebearer reveals secrets, but he who is trustworthy _and_ faithful in spirit keeps the matter hidden. 
+He who goes about as a talebearer reveals secrets, but he who is trustworthy and faithful in spirit keeps the matter hidden. 
 
 
 
@@ -343,7 +343,7 @@ He who becomes security for an outsider shall smart for it, but he who hates sur
 
 
 
-A gracious _and_ good woman wins honor [for her husband], and violent men win riches _but_ _a woman who hates righteousness is a throne of dishonor for him_. 
+A gracious and good woman wins honor [for her husband], and violent men win riches but a woman who hates righteousness is a throne of dishonor for him. 
 
 
 
@@ -364,7 +364,7 @@ A gracious _and_ good woman wins honor [for her husband], and violent men win ri
 
 
 
-The merciful, kind, _and_ generous man benefits himself [for his deeds return to bless him], but he who is cruel _and_ callous [to the wants of others] brings on himself retribution. 
+The merciful, kind, and generous man benefits himself [for his deeds return to bless him], but he who is cruel and callous [to the wants of others] brings on himself retribution. 
 
 
 
@@ -427,7 +427,7 @@ He who is steadfast in righteousness (uprightness and right standing with God) a
 
 
 
-They who are willfully contrary in heart are extremely disgusting _and_ shamefully vile in the eyes of the Lord, but such as are blameless _and_ wholehearted in their ways are His delight! 
+They who are willfully contrary in heart are extremely disgusting and shamefully vile in the eyes of the Lord, but such as are blameless and wholehearted in their ways are His delight! 
 
 
 
@@ -511,7 +511,7 @@ The desire of the [consistently] righteous brings only good, but the expectation
 
 
 
-There are those who [generously] scatter abroad, and yet increase more; there are those who withhold more than is fitting _or_ what is justly due, but it results only in want. 
+There are those who [generously] scatter abroad, and yet increase more; there are those who withhold more than is fitting or what is justly due, but it results only in want. 
 
 
 
@@ -595,7 +595,7 @@ He who diligently seeks good seeks [God's] favor, but he who searches after evil
 
 
 
-He who leans on, trusts in, _and_ is confident in his riches shall fall, but the [uncompromisingly] righteous shall flourish like a green bough. 
+He who leans on, trusts in, and is confident in his riches shall fall, but the [uncompromisingly] righteous shall flourish like a green bough. 
 
 
 
@@ -658,4 +658,4 @@ The fruit of the [uncompromisingly] righteous is a tree of life, and he who is w
 
 
 
-Behold, the [uncompromisingly] righteous shall be recompensed on earth; how much more the wicked and the sinner! _And_ _if the righteous are barely saved, what will become of the ungodly and wicked_?
+Behold, the [uncompromisingly] righteous shall be recompensed on earth; how much more the wicked and the sinner! And if the righteous are barely saved, what will become of the ungodly and wicked?

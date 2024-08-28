@@ -70,7 +70,7 @@ Oh, that I had in the wilderness a lodging place (a mere shelter) for wayfaring 
 
 
 
-And they bend their tongue, [which is] their bow for the lies [they shoot]. And not according to faithfulness do they rule _and_ become strong in the land; for they proceed from evil to evil, and they do not know _and_ understand _and_ acknowledge Me, says the Lord. 
+And they bend their tongue, [which is] their bow for the lies [they shoot]. And not according to faithfulness do they rule and become strong in the land; for they proceed from evil to evil, and they do not know and understand and acknowledge Me, says the Lord. 
 
 
 
@@ -91,7 +91,7 @@ And they bend their tongue, [which is] their bow for the lies [they shoot]. And 
 
 
 
-Let everyone beware of his neighbor and put no trust in any brother. For every brother is an utter _and_ complete supplanter (one who takes by the heel and trips up, a deceiver, a Jacob), and every neighbor goes about as a slanderer. 
+Let everyone beware of his neighbor and put no trust in any brother. For every brother is an utter and complete supplanter (one who takes by the heel and trips up, a deceiver, a Jacob), and every neighbor goes about as a slanderer. 
 
 
 
@@ -112,7 +112,7 @@ Let everyone beware of his neighbor and put no trust in any brother. For every b
 
 
 
-And they deceive _and_ mock every one his neighbor and do not speak the truth. They have taught their tongues to speak lies; they weary themselves committing iniquity. 
+And they deceive and mock every one his neighbor and do not speak the truth. They have taught their tongues to speak lies; they weary themselves committing iniquity. 
 
 
 
@@ -133,7 +133,7 @@ And they deceive _and_ mock every one his neighbor and do not speak the truth. T
 
 
 
-Your habitation is in the midst of deceit [oppression upon oppression and deceit upon deceit]; through deceit they refuse to know _and_ understand Me, says the Lord. 
+Your habitation is in the midst of deceit [oppression upon oppression and deceit upon deceit]; through deceit they refuse to know and understand Me, says the Lord. 
 
 
 
@@ -217,7 +217,7 @@ Shall I not punish them for these things? says the Lord. Shall I not avenge Myse
 
 
 
-For the mountains I will take up a weeping and wailing and for the pastures of the wilderness a lament, because they are burned up _and_ desolated, so that no one passes through [them]; neither can men hear [any longer] the lowing of cattle. Both the fowls of the air and the beasts have fled, they are gone! 
+For the mountains I will take up a weeping and wailing and for the pastures of the wilderness a lament, because they are burned up and desolated, so that no one passes through [them]; neither can men hear [any longer] the lowing of cattle. Both the fowls of the air and the beasts have fled, they are gone! 
 
 
 
@@ -259,7 +259,7 @@ I will make Jerusalem heaps [of ruins], a dwelling place of jackals; and I will 
 
 
 
-Who is the wise man who may understand this? To whom has the mouth of the Lord spoken, that he may declare it? Why is the land ruined _and_ laid waste like a wilderness, so that no one passes through it? 
+Who is the wise man who may understand this? To whom has the mouth of the Lord spoken, that he may declare it? Why is the land ruined and laid waste like a wilderness, so that no one passes through it? 
 
 
 
@@ -280,7 +280,7 @@ Who is the wise man who may understand this? To whom has the mouth of the Lord s
 
 
 
-And the Lord says, Because they have forsaken My law, which I set before them, and have not listened to _and_ obeyed My voice or walked in accordance with it 
+And the Lord says, Because they have forsaken My law, which I set before them, and have not listened to and obeyed My voice or walked in accordance with it 
 
 
 
@@ -322,7 +322,7 @@ But have walked stubbornly after their own hearts and after the Baals, as their 
 
 
 
-Therefore thus says the Lord of hosts, the God of Israel: Behold, I will feed them, even this people, with wormwood and give them bitter _and_ poisonous water to drink. 
+Therefore thus says the Lord of hosts, the God of Israel: Behold, I will feed them, even this people, with wormwood and give them bitter and poisonous water to drink. 
 
 
 
@@ -343,7 +343,7 @@ Therefore thus says the Lord of hosts, the God of Israel: Behold, I will feed th
 
 
 
-I will scatter them also among nations that neither they nor their fathers have known, and I will send the sword among them _and_ after them until I have consumed them. 
+I will scatter them also among nations that neither they nor their fathers have known, and I will send the sword among them and after them until I have consumed them. 
 
 
 
@@ -385,7 +385,7 @@ Thus says the Lord of hosts: Consider and call for the mourning women to come; s
 
 
 
-Let them make haste and raise a wailing over us _and_ for us, that our eyes may run down with tears and our eyelids gush with water. 
+Let them make haste and raise a wailing over us and for us, that our eyes may run down with tears and our eyelids gush with water. 
 
 
 
@@ -406,7 +406,7 @@ Let them make haste and raise a wailing over us _and_ for us, that our eyes may 
 
 
 
-For a sound of wailing is heard [coming] out of Zion: How we are plundered _and_ ruined! We are greatly confounded _and_ utterly put to shame, because we have forsaken the land, because they have cast down our dwellings [our dwellings that have cast us out]. 
+For a sound of wailing is heard [coming] out of Zion: How we are plundered and ruined! We are greatly confounded and utterly put to shame, because we have forsaken the land, because they have cast down our dwellings [our dwellings that have cast us out]. 
 
 
 
@@ -490,7 +490,7 @@ Speak, Thus says the Lord: The dead bodies of men shall fall like dung on the op
 
 
 
-Thus says the Lord: Let not the wise _and_ skillful person glory _and_ boast in his wisdom _and_ skill; let not the mighty _and_ powerful person glory _and_ boast in his strength _and_ power; let not the person who is rich [in physical gratification and earthly wealth] glory _and_ boast in his [temporal satisfactions and earthly] riches; 
+Thus says the Lord: Let not the wise and skillful person glory and boast in his wisdom and skill; let not the mighty and powerful person glory and boast in his strength and power; let not the person who is rich [in physical gratification and earthly wealth] glory and boast in his [temporal satisfactions and earthly] riches; 
 
 
 
@@ -553,4 +553,4 @@ Behold, the days are coming, says the Lord, when I will punish all who though ci
 
 
 
-Egypt, Judah, Edom, the children of Ammon, Moab [all of whom are related except Egypt], and all who live in the desert and who clip off the corners of their hair _and_ beards; for all these nations are uncircumcised [in heart], and all the house of Israel is uncircumcised in heart.
+Egypt, Judah, Edom, the children of Ammon, Moab [all of whom are related except Egypt], and all who live in the desert and who clip off the corners of their hair and beards; for all these nations are uncircumcised [in heart], and all the house of Israel is uncircumcised in heart.

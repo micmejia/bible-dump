@@ -154,7 +154,7 @@ Abraham said to him, See to it that you do not take my son back there.
 
 
 
-The Lord, the God of heaven, Who took me from my father's house, from the land of my family _and_ my birth, Who spoke to me and swore to me, saying, To your offspring I will give this land--He will send His Angel before you, and you will take a wife from there for my son. 
+The Lord, the God of heaven, Who took me from my father's house, from the land of my family and my birth, Who spoke to me and swore to me, saying, To your offspring I will give this land--He will send His Angel before you, and you will take a wife from there for my son. 
 
 
 
@@ -301,7 +301,7 @@ See, I stand here by the well of water, and the daughters of the men of the city
 
 
 
-And let it so be that the girl to whom I say, I pray you, let down your jar that I may drink, and she replies, Drink, and I will give your camels drink also--let her be the one whom You have selected _and_ appointed _and_ indicated for Your servant Isaac [to be a wife to him]; and by it I shall know that You have shown kindness _and_ faithfulness to my master. 
+And let it so be that the girl to whom I say, I pray you, let down your jar that I may drink, and she replies, Drink, and I will give your camels drink also--let her be the one whom You have selected and appointed and indicated for Your servant Isaac [to be a wife to him]; and by it I shall know that You have shown kindness and faithfulness to my master. 
 
 
 
@@ -343,7 +343,7 @@ Before he had finished speaking, behold, out came Rebekah, who was the daughter 
 
 
 
-And the girl was very beautiful _and_ attractive, chaste _and_ modest, and unmarried. And she went down to the well, filled her water jar, and came up. 
+And the girl was very beautiful and attractive, chaste and modest, and unmarried. And she went down to the well, filled her water jar, and came up. 
 
 
 
@@ -469,7 +469,7 @@ The man stood gazing at her in silence, waiting to know if the Lord had made his
 
 
 
-And when the camels had finished drinking, the man took a gold earring _or_ nose ring of half a shekel in weight, and for her hands two bracelets of ten shekels in weight in gold, 
+And when the camels had finished drinking, the man took a gold earring or nose ring of half a shekel in weight, and for her hands two bracelets of ten shekels in weight in gold, 
 
 
 
@@ -574,7 +574,7 @@ The man bowed down his head and worshiped the Lord
 
 
 
-And said, Blessed be the Lord, the God of my master Abraham, Who has not left my master bereft _and_ destitute of His loving-kindness and steadfastness. As for me, going on the way [of obedience and faith] the Lord led me to the house of my master's kinsmen. 
+And said, Blessed be the Lord, the God of my master Abraham, Who has not left my master bereft and destitute of His loving-kindness and steadfastness. As for me, going on the way [of obedience and faith] the Lord led me to the house of my master's kinsmen. 
 
 
 
@@ -637,7 +637,7 @@ Now Rebekah had a brother whose name was Laban, and Laban ran out to the man at 
 
 
 
-For when he saw the earring _or_ nose ring, and the bracelets on his sister's arms, and when he heard Rebekah his sister saying, The man said this to me, he went to the man and found him standing by the camels at the well. 
+For when he saw the earring or nose ring, and the bracelets on his sister's arms, and when he heard Rebekah his sister saying, The man said this to me, he went to the man and found him standing by the camels at the well. 
 
 
 
@@ -658,7 +658,7 @@ For when he saw the earring _or_ nose ring, and the bracelets on his sister's ar
 
 
 
-He cried, Come in, you blessed of the Lord! Why do you stand outside? For I have made the house ready _and_ have prepared a place for the camels. 
+He cried, Come in, you blessed of the Lord! Why do you stand outside? For I have made the house ready and have prepared a place for the camels. 
 
 
 
@@ -868,7 +868,7 @@ And he said to me, The Lord, in Whose presence I walk [habitually], will send Hi
 
 
 
-Then you shall be clear from my oath, when you come to my kindred; and if they do not give her to you, you shall be free _and_ innocent of my oath. 
+Then you shall be clear from my oath, when you come to my kindred; and if they do not give her to you, you shall be free and innocent of my oath. 
 
 
 
@@ -931,7 +931,7 @@ See, I am standing by the well of water; now let it be that when the maiden come
 
 
 
-And if she says to me, You drink, and I will draw water for your camels also, let that same woman be the one whom the Lord has selected _and_ indicated for my master's son. 
+And if she says to me, You drink, and I will draw water for your camels also, let that same woman be the one whom the Lord has selected and indicated for my master's son. 
 
 
 
@@ -994,7 +994,7 @@ And she quickly let down her [water] jar from her shoulder and said, Drink, and 
 
 
 
-I asked her, Whose daughter are you? She said, The daughter of Bethuel, Nahor's son, whom Milcah bore to him. And I put the earring _or_ nose ring on her face and the bracelets on her arms. 
+I asked her, Whose daughter are you? She said, The daughter of Bethuel, Nahor's son, whom Milcah bore to him. And I put the earring or nose ring on her face and the bracelets on her arms. 
 
 
 
@@ -1183,7 +1183,7 @@ But [Rebekah's] brother and mother said, Let the girl stay with us a few days--a
 
 
 
-But [the servant] said to them, Do not hinder _and_ delay me, seeing that the Lord has caused me to go prosperously on my way. Send me away, that I may go to my master. 
+But [the servant] said to them, Do not hinder and delay me, seeing that the Lord has caused me to go prosperously on my way. Send me away, that I may go to my master. 
 
 
 
@@ -1330,7 +1330,7 @@ Now Isaac had returned from going to the well Beer-lahai-roi [A well to the Livi
 
 
 
-And Isaac went out to meditate _and_ bow down [in prayer] in the open country in the evening; and he looked up and saw that, behold, the camels were coming. 
+And Isaac went out to meditate and bow down [in prayer] in the open country in the evening; and he looked up and saw that, behold, the camels were coming. 
 
 
 

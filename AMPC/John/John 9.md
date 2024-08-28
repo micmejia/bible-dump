@@ -91,7 +91,7 @@ Jesus answered, It was not that this man or his parents sinned, but he was born 
 
 
 
-We must work the works of Him Who sent Me _and_ be busy with His business while it is daylight; night is coming on, when no man can work. 
+We must work the works of Him Who sent Me and be busy with His business while it is daylight; night is coming on, when no man can work. 
 
 
 
@@ -343,7 +343,7 @@ So now again the Pharisees asked him how he received his sight. And he said to t
 
 
 
-Then some of the Pharisees said, This Man [Jesus] is not from God, because He does not observe the Sabbath. But others said, How can a man who is a sinner (a bad man) do such signs _and_ miracles? So there was a difference of opinion among them. 
+Then some of the Pharisees said, This Man [Jesus] is not from God, because He does not observe the Sabbath. But others said, How can a man who is a sinner (a bad man) do such signs and miracles? So there was a difference of opinion among them. 
 
 
 
@@ -448,7 +448,7 @@ His parents answered, We know that this is our son, and that he was born blind.
 
 
 
-But as to how he can now see, we do not know; or who has opened his eyes, we do not know. He is of age. Ask him; let him speak for himself _and_ give his own account of it. 
+But as to how he can now see, we do not know; or who has opened his eyes, we do not know. He is of age. Ask him; let him speak for himself and give his own account of it. 
 
 
 
@@ -469,7 +469,7 @@ But as to how he can now see, we do not know; or who has opened his eyes, we do 
 
 
 
-His parents said this because they feared [the leaders of] the Jews; for the Jews had already agreed that if anyone should acknowledge Jesus to be the Christ, he should be expelled _and_ excluded from the synagogue. 
+His parents said this because they feared [the leaders of] the Jews; for the Jews had already agreed that if anyone should acknowledge Jesus to be the Christ, he should be expelled and excluded from the synagogue. 
 
 
 
@@ -532,7 +532,7 @@ So the second time they summoned the man who had been born blind, and said to hi
 
 
 
-Then he answered, I do not know whether He is a sinner _and_ wicked or not. But one thing I do know, that whereas I was blind before, now I see. 
+Then he answered, I do not know whether He is a sinner and wicked or not. But one thing I do know, that whereas I was blind before, now I see. 
 
 
 
@@ -658,7 +658,7 @@ The man replied, Well, this is astonishing! Here a Man has opened my eyes, and y
 
 
 
-We know that God does not listen to sinners; but if anyone is God-fearing _and_ a worshiper of Him and does His will, He listens to him. 
+We know that God does not listen to sinners; but if anyone is God-fearing and a worshiper of Him and does His will, He listens to him. 
 
 
 
@@ -742,7 +742,7 @@ They retorted, You were wholly born in sin [from head to foot]; and do you [pres
 
 
 
-Jesus heard that they had put him out, and meeting him He said, Do you believe in _and_ adhere to the Son of Man _or the Son of God_? 
+Jesus heard that they had put him out, and meeting him He said, Do you believe in and adhere to the Son of Man or the Son of God? 
 
 
 
@@ -763,7 +763,7 @@ Jesus heard that they had put him out, and meeting him He said, Do you believe i
 
 
 
-He answered, Who is He, Sir? Tell me, that I may believe in _and_ adhere to Him. 
+He answered, Who is He, Sir? Tell me, that I may believe in and adhere to Him. 
 
 
 

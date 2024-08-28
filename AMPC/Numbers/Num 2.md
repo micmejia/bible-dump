@@ -49,7 +49,7 @@ The Lord said to Moses and Aaron,
 
 
 
-The Israelites shall encamp, each by his own [tribal] standard _or_ banner with the ensign of his father's house, opposite the Tent of Meeting _and_ facing it on every side. 
+The Israelites shall encamp, each by his own [tribal] standard or banner with the ensign of his father's house, opposite the Tent of Meeting and facing it on every side. 
 
 
 

@@ -49,7 +49,7 @@ The word that came to Jeremiah from the Lord:
 
 
 
-Hear the words of this covenant _or_ solemn pledge, and speak to the men of Judah and the inhabitants of Jerusalem. 
+Hear the words of this covenant or solemn pledge, and speak to the men of Judah and the inhabitants of Jerusalem. 
 
 
 
@@ -70,7 +70,7 @@ Hear the words of this covenant _or_ solemn pledge, and speak to the men of Juda
 
 
 
-Say to them, Thus says the Lord, the God of Israel: Cursed is the man who does not heed the words of this covenant _or_ solemn pledge 
+Say to them, Thus says the Lord, the God of Israel: Cursed is the man who does not heed the words of this covenant or solemn pledge 
 
 
 
@@ -133,7 +133,7 @@ That I may perform the oath which I swore to your fathers, to give them a land f
 
 
 
-And the Lord said to me, Proclaim all these words in the cities of Judah and in the streets of Jerusalem: Hear the words of this covenant _or_ solemn pledge and do them. 
+And the Lord said to me, Proclaim all these words in the cities of Judah and in the streets of Jerusalem: Hear the words of this covenant or solemn pledge and do them. 
 
 
 
@@ -154,7 +154,7 @@ And the Lord said to me, Proclaim all these words in the cities of Judah and in 
 
 
 
-For I earnestly protested to _and_ warned your fathers at the time that I brought them up out of the land of Egypt, even to this day, protesting to _and_ warning them persistently, saying, Obey My voice. 
+For I earnestly protested to and warned your fathers at the time that I brought them up out of the land of Egypt, even to this day, protesting to and warning them persistently, saying, Obey My voice. 
 
 
 
@@ -175,7 +175,7 @@ For I earnestly protested to _and_ warned your fathers at the time that I brough
 
 
 
-Yet they did not obey or incline their ear [to Me], but everyone walked in the stubbornness of his own evil heart. Therefore I brought upon them all [the calamities threatened in] the words of this covenant _or_ solemn pledge, which I had commanded, but they did not do. 
+Yet they did not obey or incline their ear [to Me], but everyone walked in the stubbornness of his own evil heart. Therefore I brought upon them all [the calamities threatened in] the words of this covenant or solemn pledge, which I had commanded, but they did not do. 
 
 
 
@@ -217,7 +217,7 @@ And the Lord said to me, A conspiracy is found among the men of Judah and among 
 
 
 
-They have turned back to the iniquities of their forefathers, who refused to hear My words; they have gone after other gods to serve them. The house of Israel and the house of Judah have broken My covenant _or_ solemn pledge which I made with their fathers. 
+They have turned back to the iniquities of their forefathers, who refused to hear My words; they have gone after other gods to serve them. The house of Israel and the house of Judah have broken My covenant or solemn pledge which I made with their fathers. 
 
 
 
@@ -238,7 +238,7 @@ They have turned back to the iniquities of their forefathers, who refused to hea
 
 
 
-Therefore thus says the Lord: Behold, I am bringing evil _and_ calamity upon them which they will not be able to escape; though they cry to Me, I will not listen to them. 
+Therefore thus says the Lord: Behold, I am bringing evil and calamity upon them which they will not be able to escape; though they cry to Me, I will not listen to them. 
 
 
 
@@ -322,7 +322,7 @@ Therefore do not pray for this people or lift up a cry or prayer for them, for I
 
 
 
-What right has My beloved [to be] in My house when she has wrought lewdness _and_ done treacherously many times? Can vows _and_ the holy flesh [of your sacrifices] remove from you your wickedness _and_ avert your calamity? Can you by these [escape your doom and] rejoice exultantly? 
+What right has My beloved [to be] in My house when she has wrought lewdness and done treacherously many times? Can vows and the holy flesh [of your sacrifices] remove from you your wickedness and avert your calamity? Can you by these [escape your doom and] rejoice exultantly? 
 
 
 
@@ -343,7 +343,7 @@ What right has My beloved [to be] in My house when she has wrought lewdness _and
 
 
 
-The Lord [acknowledged you once to be worthy to be] called a green olive tree, fair _and_ of good fruit; but with the roar of a great tempest He will set fire to it, and its branches will be consumed. 
+The Lord [acknowledged you once to be worthy to be] called a green olive tree, fair and of good fruit; but with the roar of a great tempest He will set fire to it, and its branches will be consumed. 
 
 
 
@@ -364,7 +364,7 @@ The Lord [acknowledged you once to be worthy to be] called a green olive tree, f
 
 
 
-For the Lord of hosts, Who planted you, has pronounced evil _and_ calamity against you because of the evil which the house of Israel and the house of Judah have done against themselves in provoking Me to anger by offering incense to Baal. 
+For the Lord of hosts, Who planted you, has pronounced evil and calamity against you because of the evil which the house of Israel and the house of Judah have done against themselves in provoking Me to anger by offering incense to Baal. 
 
 
 
@@ -406,7 +406,7 @@ And the Lord gave me [Jeremiah] knowledge of it [their plot], and I knew it; the
 
 
 
-But I was like a tame lamb that is brought to the slaughter; I did not know that they had devised inventions _and_ schemes against me, saying, Let us destroy the tree with its fruit; let us cut him off from the land of the living, that his name may be no more remembered. 
+But I was like a tame lamb that is brought to the slaughter; I did not know that they had devised inventions and schemes against me, saying, Let us destroy the tree with its fruit; let us cut him off from the land of the living, that his name may be no more remembered. 
 
 
 
@@ -427,7 +427,7 @@ But I was like a tame lamb that is brought to the slaughter; I did not know that
 
 
 
-But, O Lord of hosts, Who judges rightly _and_ justly, Who tests the heart and the mind, let me see Your vengeance on them, for to You I have revealed _and_ committed my cause [rolling it upon You]. 
+But, O Lord of hosts, Who judges rightly and justly, Who tests the heart and the mind, let me see Your vengeance on them, for to You I have revealed and committed my cause [rolling it upon You]. 
 
 
 
@@ -490,4 +490,4 @@ Therefore thus says the Lord of hosts: Behold, I will punish them. Their young m
 
 
 
-And there will be no remnant [of the conspirators] left, for I will bring evil _and_ calamity upon the men of Anathoth in the year of their punishment.
+And there will be no remnant [of the conspirators] left, for I will bring evil and calamity upon the men of Anathoth in the year of their punishment.

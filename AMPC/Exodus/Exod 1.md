@@ -237,7 +237,7 @@ Come, let us deal shrewdly with them, lest they multiply more and, should war be
 
 
 
-So they set over [the Israelites] taskmasters to afflict _and_ oppress them with [increased] burdens. And [the Israelites] built Pithom and Rameses as store cities for Pharaoh. 
+So they set over [the Israelites] taskmasters to afflict and oppress them with [increased] burdens. And [the Israelites] built Pithom and Rameses as store cities for Pharaoh. 
 
 
 
@@ -258,7 +258,7 @@ So they set over [the Israelites] taskmasters to afflict _and_ oppress them with
 
 
 
-But the more [the Egyptians] oppressed them, the more they multiplied and expanded, so that [the Egyptians] were vexed _and_ alarmed because of the Israelites. 
+But the more [the Egyptians] oppressed them, the more they multiplied and expanded, so that [the Egyptians] were vexed and alarmed because of the Israelites. 
 
 
 
@@ -300,7 +300,7 @@ And the Egyptians reduced the Israelites to severe slavery.
 
 
 
-They made their lives bitter with hard service in mortar, brick, and all kinds of work in the field. All their service was with harshness _and_ severity. 
+They made their lives bitter with hard service in mortar, brick, and all kinds of work in the field. All their service was with harshness and severity. 
 
 
 
@@ -447,7 +447,7 @@ So God dealt well with the midwives and the people multiplied and became very st
 
 
 
-And because the midwives revered _and_ feared God, He made them households [of their own]. 
+And because the midwives revered and feared God, He made them households [of their own]. 
 
 
 

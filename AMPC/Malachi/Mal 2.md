@@ -91,7 +91,7 @@ Behold, I will rebuke your seed [grain--which will prevent due harvest], and I w
 
 
 
-And you shall know, recognize, _and_ understand that I have sent this [new] decree to you priests, to be My [new] covenant with Levi [the priestly tribe], says the Lord of hosts. 
+And you shall know, recognize, and understand that I have sent this [new] decree to you priests, to be My [new] covenant with Levi [the priestly tribe], says the Lord of hosts. 
 
 
 
@@ -154,7 +154,7 @@ The law of truth was in [Levi's] mouth, and unrighteousness was not found in his
 
 
 
-For the priest's lips should guard _and_ keep pure the knowledge [of My law], and the people should seek (inquire for and require) instruction at his mouth; for he is the messenger of the Lord of hosts. 
+For the priest's lips should guard and keep pure the knowledge [of My law], and the people should seek (inquire for and require) instruction at his mouth; for he is the messenger of the Lord of hosts. 
 
 
 
@@ -238,7 +238,7 @@ Have we not all one Father? Has not one God created us? Why then do we deal fait
 
 
 
-Judah has been faithless _and_ dealt treacherously, and an abomination has been committed in Israel and in Jerusalem; for Judah [that is, Jewish men] has profaned the holy sanctuary of the Lord which He loves, and has married the daughter of a foreign god [having divorced his Jewish wife]. 
+Judah has been faithless and dealt treacherously, and an abomination has been committed in Israel and in Jerusalem; for Judah [that is, Jewish men] has profaned the holy sanctuary of the Lord which He loves, and has married the daughter of a foreign god [having divorced his Jewish wife]. 
 
 
 
@@ -301,7 +301,7 @@ And this you do with double guilt; you cover the altar of the Lord with tears [s
 
 
 
-Yet you ask, Why does He reject it? Because the Lord was witness [to the covenant made at your marriage] between you and the wife of your youth, against whom you have dealt treacherously _and_ to whom you were faithless. Yet she is your companion and the wife of your covenant [made by your marriage vows]. 
+Yet you ask, Why does He reject it? Because the Lord was witness [to the covenant made at your marriage] between you and the wife of your youth, against whom you have dealt treacherously and to whom you were faithless. Yet she is your companion and the wife of your covenant [made by your marriage vows]. 
 
 
 
@@ -322,7 +322,7 @@ Yet you ask, Why does He reject it? Because the Lord was witness [to the covenan
 
 
 
-And did not God make [you and your wife] one [flesh]? Did not One make you and preserve your spirit alive? And why [did God make you two] one? Because He sought a godly offspring [from your union]. Therefore take heed to yourselves, and let no one deal treacherously _and_ be faithless to the wife of his youth. 
+And did not God make [you and your wife] one [flesh]? Did not One make you and preserve your spirit alive? And why [did God make you two] one? Because He sought a godly offspring [from your union]. Therefore take heed to yourselves, and let no one deal treacherously and be faithless to the wife of his youth. 
 
 
 
@@ -343,7 +343,7 @@ And did not God make [you and your wife] one [flesh]? Did not One make you and p
 
 
 
-For the Lord, the God of Israel, says: I hate divorce _and_ marital separation and him who covers his garment [his wife] with violence. Therefore keep a watch upon your spirit [that it may be controlled by My Spirit], that you deal not treacherously _and_ faithlessly [with your marriage mate]. 
+For the Lord, the God of Israel, says: I hate divorce and marital separation and him who covers his garment [his wife] with violence. Therefore keep a watch upon your spirit [that it may be controlled by My Spirit], that you deal not treacherously and faithlessly [with your marriage mate]. 
 
 
 

@@ -12,19 +12,19 @@ next: ['1 Thess 5']
 ###### 1 
 
 
-Furthermore, brethren, we beg and admonish you in [virtue of our union with] the Lord Jesus, that [you follow the instructions which] you learned from us about how you ought to walk so as to please _and_ gratify God, as indeed you are doing, [and] that you do so even more and more abundantly [attaining yet greater perfection in living this life]. 
+Furthermore, brethren, we beg and admonish you in [virtue of our union with] the Lord Jesus, that [you follow the instructions which] you learned from us about how you ought to walk so as to please and gratify God, as indeed you are doing, [and] that you do so even more and more abundantly [attaining yet greater perfection in living this life]. 
 
 
 ###### 2 
 
 
-For you know what charges _and_ precepts we gave you [on the authority and by the inspiration of] the Lord Jesus. 
+For you know what charges and precepts we gave you [on the authority and by the inspiration of] the Lord Jesus. 
 
 
 ###### 3 
 
 
-For this is the will of God, that you should be consecrated (separated and set apart for pure and holy living): that you should abstain _and_ shrink from all sexual vice, 
+For this is the will of God, that you should be consecrated (separated and set apart for pure and holy living): that you should abstain and shrink from all sexual vice, 
 
 
 ###### 4 
@@ -36,13 +36,13 @@ That each one of you should know how to possess (control, manage) his own body i
 ###### 5 
 
 
-Not [to be used] in the passion of lust like the heathen, who are ignorant of the true God _and_ have no knowledge of His will, 
+Not [to be used] in the passion of lust like the heathen, who are ignorant of the true God and have no knowledge of His will, 
 
 
 ###### 6 
 
 
-That no man transgress and overreach his brother _and_ defraud him in this matter _or_ defraud his brother in business. For the Lord is an avenger in all these things, as we have already warned you solemnly _and_ told you plainly. 
+That no man transgress and overreach his brother and defraud him in this matter or defraud his brother in business. For the Lord is an avenger in all these things, as we have already warned you solemnly and told you plainly. 
 
 
 ###### 7 
@@ -66,19 +66,19 @@ But concerning brotherly love [for all other Christians], you have no need to ha
 ###### 10 
 
 
-And indeed you already are [extending and displaying your love] to all the brethren throughout Macedonia. But we beseech _and_ earnestly exhort you, brethren, that you excel [in this matter] more and more, 
+And indeed you already are [extending and displaying your love] to all the brethren throughout Macedonia. But we beseech and earnestly exhort you, brethren, that you excel [in this matter] more and more, 
 
 
 ###### 11 
 
 
-To make it your ambition _and_ definitely endeavor to live quietly _and_ peacefully, to mind your own affairs, and to work with your hands, as we charged you, 
+To make it your ambition and definitely endeavor to live quietly and peacefully, to mind your own affairs, and to work with your hands, as we charged you, 
 
 
 ###### 12 
 
 
-So that you may bear yourselves becomingly _and_ be correct _and_ honorable _and_ command the respect of the outside world, being dependent on nobody [self-supporting] _and_ having need of nothing. 
+So that you may bear yourselves becomingly and be correct and honorable and command the respect of the outside world, being dependent on nobody [self-supporting] and having need of nothing. 
 
 
 ###### 13 
@@ -96,7 +96,7 @@ For since we believe that Jesus died and rose again, even so God will also bring
 ###### 15 
 
 
-For this we declare to you by the Lord's [own] word, that we who are alive and remain until the coming of the Lord shall in no way precede [into His presence] _or_ have any advantage at all over those who have previously fallen asleep [in Him in death]. 
+For this we declare to you by the Lord's [own] word, that we who are alive and remain until the coming of the Lord shall in no way precede [into His presence] or have any advantage at all over those who have previously fallen asleep [in Him in death]. 
 
 
 ###### 16 
@@ -114,4 +114,4 @@ Then we, the living ones who remain [on the earth], shall simultaneously be caug
 ###### 18 
 
 
-Therefore comfort _and_ encourage one another with these words.
+Therefore comfort and encourage one another with these words.

@@ -154,7 +154,7 @@ For the Lord of hosts has said, Hew down her trees and cast up a siege mound aga
 
 
 
-As a fountain wells up _and_ casts forth its waters _and_ keeps them fresh, so she is [continually] casting forth [fresh] wickedness. Violence and destruction are heard within her; sickness and wounds are continually before Me. 
+As a fountain wells up and casts forth its waters and keeps them fresh, so she is [continually] casting forth [fresh] wickedness. Violence and destruction are heard within her; sickness and wounds are continually before Me. 
 
 
 
@@ -175,7 +175,7 @@ As a fountain wells up _and_ casts forth its waters _and_ keeps them fresh, so s
 
 
 
-Be corrected, reformed, instructed, _and_ warned, O Jerusalem, lest I be alienated _and_ parted from you, lest I make you a desolation, an uninhabited land. 
+Be corrected, reformed, instructed, and warned, O Jerusalem, lest I be alienated and parted from you, lest I make you a desolation, an uninhabited land. 
 
 
 
@@ -196,7 +196,7 @@ Be corrected, reformed, instructed, _and_ warned, O Jerusalem, lest I be alienat
 
 
 
-Thus says the Lord of hosts: They shall thoroughly glean as a vine what is left of Israel; turn back your hand again _and_ again [O minister of destruction] into the baskets, like a grape gatherer, _and_ strip the tendrils [of the vine]. 
+Thus says the Lord of hosts: They shall thoroughly glean as a vine what is left of Israel; turn back your hand again and again [O minister of destruction] into the baskets, like a grape gatherer, and strip the tendrils [of the vine]. 
 
 
 
@@ -217,7 +217,7 @@ Thus says the Lord of hosts: They shall thoroughly glean as a vine what is left 
 
 
 
-To whom shall I [Jeremiah] speak and give warning, that they may hear? Behold, their ears are uncircumcised [never brought into covenant with God or consecrated to His service], and they cannot hear _or_ obey. Behold, the word of the Lord has become to them a reproach _and_ the object of their scorn; they have no delight in it. 
+To whom shall I [Jeremiah] speak and give warning, that they may hear? Behold, their ears are uncircumcised [never brought into covenant with God or consecrated to His service], and they cannot hear or obey. Behold, the word of the Lord has become to them a reproach and the object of their scorn; they have no delight in it. 
 
 
 
@@ -301,7 +301,7 @@ For from the least of them even to the greatest of them, everyone is given to co
 
 
 
-They have healed also the wound of the daughter of My people lightly _and_ neglectfully, saying, Peace, peace, when there is no peace. 
+They have healed also the wound of the daughter of My people lightly and neglectfully, saying, Peace, peace, when there is no peace. 
 
 
 
@@ -364,7 +364,7 @@ Thus says the Lord: Stand by the roads and look; and ask for the eternal paths, 
 
 
 
-Also I set watchmen over you, saying, Hear _and_ obey the sound of the trumpet! But they said, We will not listen _or_ obey. 
+Also I set watchmen over you, saying, Hear and obey the sound of the trumpet! But they said, We will not listen or obey. 
 
 
 
@@ -406,7 +406,7 @@ Therefore hear, O [Gentile] nations, and know, O congregation [of believing ones
 
 
 
-Hear, O earth: behold, I am bringing evil upon this people, the fruit of their thoughts (their schemes and devices) because they have not listened _and_ obeyed My words, and as for My law, they have rejected it. 
+Hear, O earth: behold, I am bringing evil upon this people, the fruit of their thoughts (their schemes and devices) because they have not listened and obeyed My words, and as for My law, they have rejected it. 
 
 
 
@@ -427,7 +427,7 @@ Hear, O earth: behold, I am bringing evil upon this people, the fruit of their t
 
 
 
-To what purpose does frankincense come to Me from Sheba [in southwestern Arabia] and the sweet cane from a far country? Your burnt offerings are not acceptable, nor are your sacrifices sweet _or_ pleasing to Me. 
+To what purpose does frankincense come to Me from Sheba [in southwestern Arabia] and the sweet cane from a far country? Your burnt offerings are not acceptable, nor are your sacrifices sweet or pleasing to Me. 
 
 
 
@@ -511,7 +511,7 @@ They lay hold on bow and spear; they are cruel (ruthless and inhuman) and have n
 
 
 
-We have heard the report of it; our hands become feeble _and_ helpless. Anguish has taken hold of us, pangs like that of a woman in childbirth. 
+We have heard the report of it; our hands become feeble and helpless. Anguish has taken hold of us, pangs like that of a woman in childbirth. 
 
 
 
@@ -574,7 +574,7 @@ O daughter of my people [says Jeremiah], gird yourself with sackcloth and wallow
 
 
 
-I [says the Lord] have set you [Jeremiah] as an assayer _and_ a prover of ore among My people, that you may know and try their doings and be like a watchtower. 
+I [says the Lord] have set you [Jeremiah] as an assayer and a prover of ore among My people, that you may know and try their doings and be like a watchtower. 
 
 
 
@@ -595,7 +595,7 @@ I [says the Lord] have set you [Jeremiah] as an assayer _and_ a prover of ore am
 
 
 
-They are all the worst [kind] of rebels _and_ utter and total revolters against God, going about publishing slander. They are [not gold and silver ore, but] bronze and iron; they are all corrupters. 
+They are all the worst [kind] of rebels and utter and total revolters against God, going about publishing slander. They are [not gold and silver ore, but] bronze and iron; they are all corrupters. 
 
 
 
@@ -637,4 +637,4 @@ The bellows blow fiercely, the lead is consumed by the fire; in vain do they con
 
 
 
-Men will call them reprobate _and_ rejected silver [only dross, without good metal], because the Lord has rejected them.
+Men will call them reprobate and rejected silver [only dross, without good metal], because the Lord has rejected them.

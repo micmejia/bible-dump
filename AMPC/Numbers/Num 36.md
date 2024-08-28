@@ -69,7 +69,7 @@ They said, The Lord commanded [you] my lord to give the land for inheritance by 
 
 
 
-But if they are married to any of the sons of the other tribes of the Israelites, then their inheritance will be taken from that of our fathers and added to the inheritance of the tribe to which they are received _and_ belong; so it will be taken out of the lot of our inheritance. 
+But if they are married to any of the sons of the other tribes of the Israelites, then their inheritance will be taken from that of our fathers and added to the inheritance of the tribe to which they are received and belong; so it will be taken out of the lot of our inheritance. 
 
 
 
@@ -90,7 +90,7 @@ But if they are married to any of the sons of the other tribes of the Israelites
 
 
 
-And when the Jubilee of the Israelites comes, then their inheritance will be added to that of the tribe to which they are received _and_ belong; so will their inheritance be taken away from that of the tribe of our fathers. 
+And when the Jubilee of the Israelites comes, then their inheritance will be added to that of the tribe to which they are received and belong; so will their inheritance be taken away from that of the tribe of our fathers. 
 
 
 

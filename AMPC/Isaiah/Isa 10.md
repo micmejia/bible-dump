@@ -28,7 +28,7 @@ next: ['Isa 11']
 
 
 
-Woe to those [judges] who issue unrighteous decrees, and to the magistrates who keep causing unjust _and_ oppressive decisions to be recorded, 
+Woe to those [judges] who issue unrighteous decrees, and to the magistrates who keep causing unjust and oppressive decisions to be recorded, 
 
 
 
@@ -70,7 +70,7 @@ To turn aside the needy from justice and to make plunder of the rightful claims 
 
 
 
-And what will you do in the day of visitation [of God's wrath], and in the desolation which shall come from afar? To whom will you flee for help? And where will you deposit [for safekeeping] your wealth _and_ with whom leave your glory? 
+And what will you do in the day of visitation [of God's wrath], and in the desolation which shall come from afar? To whom will you flee for help? And where will you deposit [for safekeeping] your wealth and with whom leave your glory? 
 
 
 
@@ -112,7 +112,7 @@ Without Me they shall bow down among the prisoners, and they shall fall [overwhe
 
 
 
-Woe to the Assyrian, the rod of My anger, the staff in whose hand is My indignation _and_ fury [against Israel's disobedience]! 
+Woe to the Assyrian, the rod of My anger, the staff in whose hand is My indignation and fury [against Israel's disobedience]! 
 
 
 
@@ -133,7 +133,7 @@ Woe to the Assyrian, the rod of My anger, the staff in whose hand is My indignat
 
 
 
-I send [the Assyrian] against a hypocritical _and_ godless nation and against the people of My wrath; I command him to take the spoil and to seize the prey and to tread them down like the mire in the streets. 
+I send [the Assyrian] against a hypocritical and godless nation and against the people of My wrath; I command him to take the spoil and to seize the prey and to tread them down like the mire in the streets. 
 
 
 
@@ -154,7 +154,7 @@ I send [the Assyrian] against a hypocritical _and_ godless nation and against th
 
 
 
-However, this is not his intention [nor is the Assyrian aware that he is doing this at My bidding], neither does his mind so think _and_ plan; but it is in his mind to destroy and cut off many nations. 
+However, this is not his intention [nor is the Assyrian aware that he is doing this at My bidding], neither does his mind so think and plan; but it is in his mind to destroy and cut off many nations. 
 
 
 
@@ -175,7 +175,7 @@ However, this is not his intention [nor is the Assyrian aware that he is doing t
 
 
 
-For [the Assyrian] says, Are not my officers all either [subjugated] kings _or_ their equal? 
+For [the Assyrian] says, Are not my officers all either [subjugated] kings or their equal? 
 
 
 
@@ -217,7 +217,7 @@ Is not Calno [of Babylonia conquered] like Carchemish [on the Euphrates]? Is not
 
 
 
-As my hand has reached to the kingdoms of the idols [which were unable to defend them,] whose graven images were more to be feared _and_ dreaded _and_ more mighty than those of Jerusalem and of Samaria-- 
+As my hand has reached to the kingdoms of the idols [which were unable to defend them,] whose graven images were more to be feared and dreaded and more mighty than those of Jerusalem and of Samaria-- 
 
 
 
@@ -259,7 +259,7 @@ Shall I not be able to do to Jerusalem and her images as I have done to Samaria 
 
 
 
-Therefore when the Lord has completed all His work [of chastisement and purification to be executed] on Mount Zion and on Jerusalem, it shall be that He will inflict punishment on the fruit [the thoughts, words, and deeds] of the stout _and_ arrogant heart of the king of Assyria and the haughtiness of his pride. 
+Therefore when the Lord has completed all His work [of chastisement and purification to be executed] on Mount Zion and on Jerusalem, it shall be that He will inflict punishment on the fruit [the thoughts, words, and deeds] of the stout and arrogant heart of the king of Assyria and the haughtiness of his pride. 
 
 
 
@@ -280,7 +280,7 @@ Therefore when the Lord has completed all His work [of chastisement and purifica
 
 
 
-For [the Assyrian king] has said, I have done it solely by the power of my own hand and wisdom, for I have insight _and_ understanding. I have removed the boundaries of the peoples and have robbed their treasures; and like a bull I have brought down those who sat on thrones _and_ the inhabitants. 
+For [the Assyrian king] has said, I have done it solely by the power of my own hand and wisdom, for I have insight and understanding. I have removed the boundaries of the peoples and have robbed their treasures; and like a bull I have brought down those who sat on thrones and the inhabitants. 
 
 
 
@@ -343,7 +343,7 @@ Shall the ax boast itself against him who chops with it? Or shall the saw magnif
 
 
 
-Therefore will the Lord, the Lord of hosts, send leanness among [the Assyrian's] fat ones; and instead of his glory _or_ under it He will kindle a burning like the burning of fire. 
+Therefore will the Lord, the Lord of hosts, send leanness among [the Assyrian's] fat ones; and instead of his glory or under it He will kindle a burning like the burning of fire. 
 
 
 
@@ -385,7 +385,7 @@ And the Light of Israel shall become a fire and His Holy One a flame, and it wil
 
 
 
-[The Lord] will consume the glory of the [Assyrian's] forest and of his fruitful field, both soul and body; and it shall be as when a sick man pines away _or_ a standard-bearer faints. 
+[The Lord] will consume the glory of the [Assyrian's] forest and of his fruitful field, both soul and body; and it shall be as when a sick man pines away or a standard-bearer faints. 
 
 
 
@@ -469,7 +469,7 @@ A remnant will return [Shear-jashub, name of Isaiah's son], a remnant of Jacob, 
 
 
 
-For though your population, O Israel, be as the sand of the sea, only a remnant of it will return [and survive]. The [fully completed] destruction is decreed (decided upon and brought to an issue); it overflows with justice _and_ righteousness [the infliction of just punishment]. 
+For though your population, O Israel, be as the sand of the sea, only a remnant of it will return [and survive]. The [fully completed] destruction is decreed (decided upon and brought to an issue); it overflows with justice and righteousness [the infliction of just punishment]. 
 
 
 
@@ -490,7 +490,7 @@ For though your population, O Israel, be as the sand of the sea, only a remnant 
 
 
 
-For the Lord, the Lord of hosts, will make a full end, whatever is determined _or_ decreed [in Israel], in the midst of all the earth. 
+For the Lord, the Lord of hosts, will make a full end, whatever is determined or decreed [in Israel], in the midst of all the earth. 
 
 
 
@@ -553,7 +553,7 @@ For yet a little while and My indignation against you shall be accomplished, and
 
 
 
-And the Lord of hosts shall stir up _and_ brandish a scourge against them as when He smote Midian at the rock of Oreb; and as His rod was over the [Red] Sea, so shall He lift it up as He did in [the flight from] Egypt. 
+And the Lord of hosts shall stir up and brandish a scourge against them as when He smote Midian at the rock of Oreb; and as His rod was over the [Red] Sea, so shall He lift it up as He did in [the flight from] Egypt. 
 
 
 
@@ -616,7 +616,7 @@ And it shall be in that day that the burden of [the Assyrian] shall depart from 
 
 
 
-They go through the pass, they make Geba their camping place for the night; Ramah is afraid _and_ trembles, Gibeah [the city] of [King] Saul flees. 
+They go through the pass, they make Geba their camping place for the night; Ramah is afraid and trembles, Gibeah [the city] of [King] Saul flees. 
 
 
 
@@ -658,7 +658,7 @@ Cry aloud [in consternation], O Daughter of Gallim! Hearken, O Laishah! [Answer 
 
 
 
-Madmenah is in flight; the inhabitants of Gebim seize their belongings _and_ make their households flee for safety. 
+Madmenah is in flight; the inhabitants of Gebim seize their belongings and make their households flee for safety. 
 
 
 
@@ -721,4 +721,4 @@ This very day [the Assyrian] will halt at Nob [the city of priests], shaking his
 
 
 
-And He will cut down the thickets of the forest with an ax, and Lebanon [the Assyrian] with its majestic trees shall fall by the Mighty One _and_ mightily.
+And He will cut down the thickets of the forest with an ax, and Lebanon [the Assyrian] with its majestic trees shall fall by the Mighty One and mightily.

@@ -70,7 +70,7 @@ And the word of the Lord came to me:
 
 
 
-Son of man, these men have set up their idols in their hearts and put the stumbling block of their iniquity _and_ guilt before their faces; should I permit Myself to be inquired of at all by them? 
+Son of man, these men have set up their idols in their hearts and put the stumbling block of their iniquity and guilt before their faces; should I permit Myself to be inquired of at all by them? 
 
 
 
@@ -112,7 +112,7 @@ Therefore speak to them and say to them, Thus says the Lord God: Every man of th
 
 
 
-That I may lay hold of the house of Israel in the thoughts of their own mind _and_ heart, because they are all estranged from Me through their idols. 
+That I may lay hold of the house of Israel in the thoughts of their own mind and heart, because they are all estranged from Me through their idols. 
 
 
 
@@ -133,7 +133,7 @@ That I may lay hold of the house of Israel in the thoughts of their own mind _an
 
 
 
-Therefore say to the house of Israel, Thus says the Lord God: Repent _and_ turn away from your idols, and turn away your faces from all your abominations. 
+Therefore say to the house of Israel, Thus says the Lord God: Repent and turn away from your idols, and turn away your faces from all your abominations. 
 
 
 
@@ -154,7 +154,7 @@ Therefore say to the house of Israel, Thus says the Lord God: Repent _and_ turn 
 
 
 
-For anyone of the house of Israel or of the strangers who sojourn in Israel who separates himself from Me, taking his idols into his heart and putting the stumbling block of his iniquity _and_ guilt before his face, and [yet] comes to the prophet to inquire for himself of Me, I the Lord will answer him Myself! 
+For anyone of the house of Israel or of the strangers who sojourn in Israel who separates himself from Me, taking his idols into his heart and putting the stumbling block of his iniquity and guilt before his face, and [yet] comes to the prophet to inquire for himself of Me, I the Lord will answer him Myself! 
 
 
 
@@ -322,7 +322,7 @@ Even if these three men, Noah, Daniel, and Job were in it, they would save but t
 
 
 
-If I cause ferocious _and_ evil wild animals to pass through the land and they ravage _and_ bereave it, and it becomes desolate so that no man may pass through because of the beasts; 
+If I cause ferocious and evil wild animals to pass through the land and they ravage and bereave it, and it becomes desolate so that no man may pass through because of the beasts; 
 
 
 

@@ -91,7 +91,7 @@ In their streets they gird themselves with sackcloth; on the tops of their house
 
 
 
-And Heshbon and Elealeh [cities in possession of Moab] cry out; their voice is heard even to Jahaz. Therefore the armed soldiers of Moab cry out; [Moab's] life is grievous _and_ trembles within him. 
+And Heshbon and Elealeh [cities in possession of Moab] cry out; their voice is heard even to Jahaz. Therefore the armed soldiers of Moab cry out; [Moab's] life is grievous and trembles within him. 
 
 
 
@@ -112,7 +112,7 @@ And Heshbon and Elealeh [cities in possession of Moab] cry out; their voice is h
 
 
 
-My heart cries out for Moab; his nobles _and_ other fugitives flee to Zoar, to Eglath-shelishiyah [like a heifer three years old]. For with weeping they go up the ascent of Luhith; for on the road to Horonaim they raise a cry of destruction. 
+My heart cries out for Moab; his nobles and other fugitives flee to Zoar, to Eglath-shelishiyah [like a heifer three years old]. For with weeping they go up the ascent of Luhith; for on the road to Horonaim they raise a cry of destruction. 
 
 
 
@@ -154,7 +154,7 @@ For the waters of Nimrim are desolations, for the grass is withered away and the
 
 
 
-Therefore the abundance [of possessions] they have acquired and stored away they [now] carry over the willow brook _and_ to the valley of the Arabians. 
+Therefore the abundance [of possessions] they have acquired and stored away they [now] carry over the willow brook and to the valley of the Arabians. 
 
 
 
@@ -175,7 +175,7 @@ Therefore the abundance [of possessions] they have acquired and stored away they
 
 
 
-For the cry [of distress] has gone round the borders of Moab; the wailing has reached to Eglaim, and the prolonged _and_ mournful cry to Beer-elim. 
+For the cry [of distress] has gone round the borders of Moab; the wailing has reached to Eglaim, and the prolonged and mournful cry to Beer-elim. 
 
 
 

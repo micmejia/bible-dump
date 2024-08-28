@@ -28,7 +28,7 @@ next: ['Prov 7']
 
 
 
-My son, if you have become security for your neighbor, if you have given your pledge for a stranger _or_ another, 
+My son, if you have become security for your neighbor, if you have given your pledge for a stranger or another, 
 
 
 
@@ -70,7 +70,7 @@ You are snared with the words of your lips, you are caught by the speech of your
 
 
 
-Do this now [at once and earnestly], my son, and deliver yourself when you have put yourself into the power of your neighbor; go, bestir _and_ humble yourself, and beg your neighbor [to pay his debt and thereby release you]. 
+Do this now [at once and earnestly], my son, and deliver yourself when you have put yourself into the power of your neighbor; go, bestir and humble yourself, and beg your neighbor [to pay his debt and thereby release you]. 
 
 
 
@@ -112,7 +112,7 @@ Give not [unnecessary] sleep to your eyes, nor slumber to your eyelids;
 
 
 
-Deliver yourself, as a roe _or_ gazelle from the hand of the hunter, and as a bird from the hand of the fowler. 
+Deliver yourself, as a roe or gazelle from the hand of the hunter, and as a bird from the hand of the fowler. 
 
 
 
@@ -217,7 +217,7 @@ How long will you sleep, O sluggard? When will you arise out of your sleep?
 
 
 
-Yet a little sleep, a little slumber, a little folding of the hands to lie down _and_ sleep-- 
+Yet a little sleep, a little slumber, a little folding of the hands to lie down and sleep-- 
 
 
 
@@ -238,7 +238,7 @@ Yet a little sleep, a little slumber, a little folding of the hands to lie down 
 
 
 
-So will your poverty come like a robber _or_ one who travels [with slowly but surely approaching steps] and your want like an armed man [making you helpless]. 
+So will your poverty come like a robber or one who travels [with slowly but surely approaching steps] and your want like an armed man [making you helpless]. 
 
 
 
@@ -280,7 +280,7 @@ A worthless person, a wicked man, is he who goes about with a perverse (contrary
 
 
 
-He winks with his eyes, he speaks by shuffling _or_ tapping with his feet, he makes signs [to mislead and deceive] _and_ teaches with his fingers. 
+He winks with his eyes, he speaks by shuffling or tapping with his feet, he makes signs [to mislead and deceive] and teaches with his fingers. 
 
 
 
@@ -301,7 +301,7 @@ He winks with his eyes, he speaks by shuffling _or_ tapping with his feet, he ma
 
 
 
-Willful _and_ contrary in his heart, he devises trouble, vexation, _and_ evil continually; he lets loose discord _and_ sows it. 
+Willful and contrary in his heart, he devises trouble, vexation, and evil continually; he lets loose discord and sows it. 
 
 
 
@@ -385,7 +385,7 @@ A proud look [the spirit that makes one overestimate himself and underestimate o
 
 
 
-A heart that manufactures wicked thoughts _and_ plans, feet that are swift in running to evil, 
+A heart that manufactures wicked thoughts and plans, feet that are swift in running to evil, 
 
 
 
@@ -553,7 +553,7 @@ Lust not after her beauty in your heart, neither let her capture you with her ey
 
 
 
-For on account of a harlot a man is brought to a piece of bread, and the adulteress stalks _and_ snares [as with a hook] the precious life [of a man]. 
+For on account of a harlot a man is brought to a piece of bread, and the adulteress stalks and snares [as with a hook] the precious life [of a man]. 
 
 
 
@@ -616,7 +616,7 @@ Can one go upon hot coals and his feet not be burned?
 
 
 
-So he who cohabits with his neighbor's wife [will be tortured with evil consequences and just retribution]; he who touches her shall not be innocent _or_ go unpunished. 
+So he who cohabits with his neighbor's wife [will be tortured with evil consequences and just retribution]; he who touches her shall not be innocent or go unpunished. 
 
 
 
@@ -679,7 +679,7 @@ But if he is found out, he must restore seven times [what he stole]; he must giv
 
 
 
-But whoever commits adultery with a woman lacks heart _and_ understanding (moral principle and prudence); he who does it is destroying his own life. 
+But whoever commits adultery with a woman lacks heart and understanding (moral principle and prudence); he who does it is destroying his own life. 
 
 
 
@@ -742,4 +742,4 @@ For jealousy makes [the wronged] man furious; therefore he will not spare in the
 
 
 
-He will not consider any ransom [offered to buy him off from demanding full punishment]; neither will he be satisfied, though you offer him many gifts _and_ bribes.
+He will not consider any ransom [offered to buy him off from demanding full punishment]; neither will he be satisfied, though you offer him many gifts and bribes.

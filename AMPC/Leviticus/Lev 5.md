@@ -28,7 +28,7 @@ next: ['Lev 6']
 
 
 
-If anyone sins in that he is sworn to testify and has knowledge of the matter, either by seeing or hearing of it, but fails to report it, then he shall bear his iniquity _and_ willfulness. 
+If anyone sins in that he is sworn to testify and has knowledge of the matter, either by seeing or hearing of it, but fails to report it, then he shall bear his iniquity and willfulness. 
 
 
 
@@ -133,7 +133,7 @@ When a man is guilty in one of these, he shall confess the sin he has committed.
 
 
 
-He shall bring his guilt _or_ trespass offering to the Lord for the sin which he has committed, a female from the flock, a lamb or a goat, for a sin offering; and the priest shall make atonement for his sin. 
+He shall bring his guilt or trespass offering to the Lord for the sin which he has committed, a female from the flock, a lamb or a goat, for a sin offering; and the priest shall make atonement for his sin. 
 
 
 
@@ -322,7 +322,7 @@ And the Lord said to Moses,
 
 
 
-If anyone commits a breach of faith and sins unwittingly in the holy things of the Lord, he shall bring his trespass _or_ guilt offering to the Lord, a ram without blemish out of the flock, valued by you in shekels of silver, that is, the shekel of the sanctuary, for a trespass _or_ guilt offering. 
+If anyone commits a breach of faith and sins unwittingly in the holy things of the Lord, he shall bring his trespass or guilt offering to the Lord, a ram without blemish out of the flock, valued by you in shekels of silver, that is, the shekel of the sanctuary, for a trespass or guilt offering. 
 
 
 
@@ -343,7 +343,7 @@ If anyone commits a breach of faith and sins unwittingly in the holy things of t
 
 
 
-And he shall make restitution for what he has done amiss in the holy thing, and shall add a fifth to it, and give it to the priest; and the priest shall make atonement for him with the ram of the trespass _or_ guilt offering, and he shall be forgiven. 
+And he shall make restitution for what he has done amiss in the holy thing, and shall add a fifth to it, and give it to the priest; and the priest shall make atonement for him with the ram of the trespass or guilt offering, and he shall be forgiven. 
 
 
 
@@ -385,7 +385,7 @@ If anyone sins and does any of the things the Lord has forbidden, though he was 
 
 
 
-He shall bring [to the priest] a ram without blemish out of the flock, estimated by you to the amount [of the trespass], for a guilt _or_ trespass offering; and the priest shall make atonement for him for the error which he committed unknowingly, and he shall be forgiven. 
+He shall bring [to the priest] a ram without blemish out of the flock, estimated by you to the amount [of the trespass], for a guilt or trespass offering; and the priest shall make atonement for him for the error which he committed unknowingly, and he shall be forgiven. 
 
 
 
@@ -406,4 +406,4 @@ He shall bring [to the priest] a ram without blemish out of the flock, estimated
 
 
 
-It is a trespass _or_ guilt offering; he is certainly guilty before the Lord.
+It is a trespass or guilt offering; he is certainly guilty before the Lord.

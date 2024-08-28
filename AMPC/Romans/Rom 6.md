@@ -28,7 +28,7 @@ next: ['Rom 7']
 
 
 
-What shall we say [to all this]? Are we to remain in sin in order that God's grace (favor and mercy) may multiply _and_ overflow? 
+What shall we say [to all this]? Are we to remain in sin in order that God's grace (favor and mercy) may multiply and overflow? 
 
 
 
@@ -91,7 +91,7 @@ Are you ignorant of the fact that all of us who have been baptized into Christ J
 
 
 
-We were buried therefore with Him by the baptism into death, so that just as Christ was raised from the dead by the glorious [power] of the Father, so we too might [habitually] live _and_ behave in newness of life. 
+We were buried therefore with Him by the baptism into death, so that just as Christ was raised from the dead by the glorious [power] of the Father, so we too might [habitually] live and behave in newness of life. 
 
 
 
@@ -133,7 +133,7 @@ For if we have become one with Him by sharing a death like His, we shall also be
 
 
 
-We know that our old (unrenewed) self was nailed to the cross with Him in order that [our] body [which is the instrument] of sin might be made ineffective _and_ inactive for evil, that we might no longer be the slaves of sin. 
+We know that our old (unrenewed) self was nailed to the cross with Him in order that [our] body [which is the instrument] of sin might be made ineffective and inactive for evil, that we might no longer be the slaves of sin. 
 
 
 
@@ -238,7 +238,7 @@ For by the death He died, He died to sin [ending His relation to it] once for al
 
 
 
-Even so consider yourselves also dead to sin _and_ your relation to it broken, but alive to God [living in unbroken fellowship with Him] in Christ Jesus. 
+Even so consider yourselves also dead to sin and your relation to it broken, but alive to God [living in unbroken fellowship with Him] in Christ Jesus. 
 
 
 
@@ -259,7 +259,7 @@ Even so consider yourselves also dead to sin _and_ your relation to it broken, b
 
 
 
-Let not sin therefore rule as king in your mortal (short-lived, perishable) bodies, to make you yield to its cravings _and_ be subject to its lusts _and_ evil passions. 
+Let not sin therefore rule as king in your mortal (short-lived, perishable) bodies, to make you yield to its cravings and be subject to its lusts and evil passions. 
 
 
 
@@ -280,7 +280,7 @@ Let not sin therefore rule as king in your mortal (short-lived, perishable) bodi
 
 
 
-Do not continue offering or yielding your bodily members [and faculties] to sin as instruments (tools) of wickedness. But offer _and_ yield yourselves to God as though you have been raised from the dead to [perpetual] life, and your bodily members [and faculties] to God, presenting them as implements of righteousness. 
+Do not continue offering or yielding your bodily members [and faculties] to sin as instruments (tools) of wickedness. But offer and yield yourselves to God as though you have been raised from the dead to [perpetual] life, and your bodily members [and faculties] to God, presenting them as implements of righteousness. 
 
 
 
@@ -322,7 +322,7 @@ For sin shall not [any longer] exert dominion over you, since now you are not un
 
 
 
-What then [are we to conclude]? Shall we sin because we live not under Law but under God's favor _and_ mercy? Certainly not! 
+What then [are we to conclude]? Shall we sin because we live not under Law but under God's favor and mercy? Certainly not! 
 
 
 
@@ -364,7 +364,7 @@ Do you not know that if you continually surrender yourselves to anyone to do his
 
 
 
-But thank God, though you were once slaves of sin, you have become obedient with all your heart to the standard of teaching in which you were instructed _and_ to which you were committed. 
+But thank God, though you were once slaves of sin, you have become obedient with all your heart to the standard of teaching in which you were instructed and to which you were committed. 
 
 
 

@@ -196,7 +196,7 @@ And Moses put upon Aaron the breastplate; also he put in the breastplate the Uri
 
 
 
-And he put the turban _or_ miter on his head; on it, in front, Moses put the shining gold plate, the holy diadem, as the Lord commanded him. 
+And he put the turban or miter on his head; on it, in front, Moses put the shining gold plate, the holy diadem, as the Lord commanded him. 
 
 
 
@@ -448,7 +448,7 @@ He cut the ram into pieces and Moses burned the head, the pieces, and the fat.
 
 
 
-And he washed the entrails and the legs in water; then Moses burned the whole ram on the altar; it was a burnt sacrifice, for a sweet _and_ satisfying fragrance, an offering made by fire to the Lord, as the Lord commanded Moses. 
+And he washed the entrails and the legs in water; then Moses burned the whole ram on the altar; it was a burnt sacrifice, for a sweet and satisfying fragrance, an offering made by fire to the Lord, as the Lord commanded Moses. 
 
 
 
@@ -469,7 +469,7 @@ And he washed the entrails and the legs in water; then Moses burned the whole ra
 
 
 
-And he brought the other ram, the ram of consecration _and_ ordination, and Aaron and his sons laid their hands upon the head of the ram. 
+And he brought the other ram, the ram of consecration and ordination, and Aaron and his sons laid their hands upon the head of the ram. 
 
 
 
@@ -595,7 +595,7 @@ And he put all these in Aaron's hands and his sons' hands and waved them for a w
 
 
 
-Then Moses took these things from their hands and burned them on the altar with the burnt offering as an ordination offering, for a sweet _and_ satisfying fragrance, an offering made by fire to the Lord. 
+Then Moses took these things from their hands and burned them on the altar with the burnt offering as an ordination offering, for a sweet and satisfying fragrance, an offering made by fire to the Lord. 
 
 
 
@@ -616,7 +616,7 @@ Then Moses took these things from their hands and burned them on the altar with 
 
 
 
-And Moses took the breast and waved it for a wave offering before the Lord; for of the ram of consecration _and_ ordination it was Moses' portion, as the Lord commanded Moses. 
+And Moses took the breast and waved it for a wave offering before the Lord; for of the ram of consecration and ordination it was Moses' portion, as the Lord commanded Moses. 
 
 
 
@@ -658,7 +658,7 @@ And Moses took some of the anointing oil and some of the blood which was on the 
 
 
 
-And Moses said to Aaron and his sons, Boil the flesh at the door of the Tent of Meeting and there eat it with the bread that is in the basket of consecration _and_ ordination, as I commanded, saying, Aaron and his sons shall eat it. 
+And Moses said to Aaron and his sons, Boil the flesh at the door of the Tent of Meeting and there eat it with the bread that is in the basket of consecration and ordination, as I commanded, saying, Aaron and his sons shall eat it. 
 
 
 
@@ -700,7 +700,7 @@ And what remains of the flesh and of the bread you shall burn with fire.
 
 
 
-And you shall not go out of the door of the Tent of Meeting for seven days, until the days of your consecration _and_ ordination are ended; for it will take seven days to consecrate _and_ ordain you. 
+And you shall not go out of the door of the Tent of Meeting for seven days, until the days of your consecration and ordination are ended; for it will take seven days to consecrate and ordain you. 
 
 
 

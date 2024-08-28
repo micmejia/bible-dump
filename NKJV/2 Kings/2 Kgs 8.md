@@ -22,10 +22,10 @@ It came to pass, at the end of seven years, that the woman returned from the lan
 Then the king talked with Gehazi, the servant of the man of God, saying, "Tell me, please, all the great things Elisha has done." 
 
 ###### 5 
-Now it happened, as he was telling the king how he had restored the dead to life, that there was the woman whose son he had restored to life, appealing to the king for her house and for her land. And Gehazi said, "My lord, O king, this _is_ the woman, and this _is_ her son whom Elisha restored to life." 
+Now it happened, as he was telling the king how he had restored the dead to life, that there was the woman whose son he had restored to life, appealing to the king for her house and for her land. And Gehazi said, "My lord, O king, this is the woman, and this is her son whom Elisha restored to life." 
 
 ###### 6 
-And when the king asked the woman, she told him. So the king appointed a certain officer for her, saying, "Restore all that _was_ hers, and all the proceeds of the field from the day that she left the land until now." 
+And when the king asked the woman, she told him. So the king appointed a certain officer for her, saying, "Restore all that was hers, and all the proceeds of the field from the day that she left the land until now." 
 
 ## Death of Ben-Hadad 
 
@@ -48,18 +48,18 @@ Then he set his countenance in a stare until he was ashamed; and the man of God 
 And Hazael said, "Why is my lord weeping?" He answered, "Because I know the evil that you will do to the children of Israel: Their strongholds you will set on fire, and their young men you will kill with the sword; and you will dash their children, and rip open their women with child." 
 
 ###### 13 
-So Hazael said, "But what _is_ your servant--a dog, that he should do this gross thing?" And Elisha answered, "The Lord has shown me that you _will become_ king over Syria." 
+So Hazael said, "But what is your servant--a dog, that he should do this gross thing?" And Elisha answered, "The Lord has shown me that you will become king over Syria." 
 
 ###### 14 
 Then he departed from Elisha, and came to his master, who said to him, "What did Elisha say to you?" And he answered, "He told me you would surely recover." 
 
 ###### 15 
-But it happened on the next day that he took a thick cloth and dipped _it_ in water, and spread _it_ over his face so that he died; and Hazael reigned in his place.
+But it happened on the next day that he took a thick cloth and dipped it in water, and spread it over his face so that he died; and Hazael reigned in his place.
 
 ## Jehoram Reigns in Judah 
 
 ###### 16 
-Now in the fifth year of Joram the son of Ahab, king of Israel, Jehoshaphat _having been_ king of Judah, Jehoram the son of Jehoshaphat began to reign as king of Judah. 
+Now in the fifth year of Joram the son of Ahab, king of Israel, Jehoshaphat having been king of Judah, Jehoram the son of Jehoshaphat began to reign as king of Judah. 
 
 ###### 17 
 He was thirty-two years old when he became king, and he reigned eight years in Jerusalem. 
@@ -68,7 +68,7 @@ He was thirty-two years old when he became king, and he reigned eight years in J
 And he walked in the way of the kings of Israel, just as the house of Ahab had done, for the daughter of Ahab was his wife; and he did evil in the sight of the Lord. 
 
 ###### 19 
-Yet the Lord would not destroy Judah, for the sake of His servant David, as He promised him to give a lamp to him _and_ his sons forever. 
+Yet the Lord would not destroy Judah, for the sake of His servant David, as He promised him to give a lamp to him and his sons forever. 
 
 ###### 20 
 In his days Edom revolted against Judah's authority, and made a king over themselves. 
@@ -80,7 +80,7 @@ So Joram went to Zair, and all his chariots with him. Then he rose by night and 
 Thus Edom has been in revolt against Judah's authority to this day. And Libnah revolted at that time. 
 
 ###### 23 
-Now the rest of the acts of Joram, and all that he did, _are_ they not written in the book of the chronicles of the kings of Judah? 
+Now the rest of the acts of Joram, and all that he did, are they not written in the book of the chronicles of the kings of Judah? 
 
 ###### 24 
 So Joram rested with his fathers, and was buried with his fathers in the City of David. Then Ahaziah his son reigned in his place.
@@ -91,10 +91,10 @@ So Joram rested with his fathers, and was buried with his fathers in the City of
 In the twelfth year of Joram the son of Ahab, king of Israel, Ahaziah the son of Jehoram, king of Judah, began to reign. 
 
 ###### 26 
-Ahaziah _was_ twenty-two years old when he became king, and he reigned one year in Jerusalem. His mother's name _was_ Athaliah the granddaughter of Omri, king of Israel. 
+Ahaziah was twenty-two years old when he became king, and he reigned one year in Jerusalem. His mother's name was Athaliah the granddaughter of Omri, king of Israel. 
 
 ###### 27 
-And he walked in the way of the house of Ahab, and did evil in the sight of the Lord, like the house of Ahab, for he _was_ the son-in-law of the house of Ahab. 
+And he walked in the way of the house of Ahab, and did evil in the sight of the Lord, like the house of Ahab, for he was the son-in-law of the house of Ahab. 
 
 ###### 28 
 Now he went with Joram the son of Ahab to war against Hazael king of Syria at Ramoth Gilead; and the Syrians wounded Joram. 

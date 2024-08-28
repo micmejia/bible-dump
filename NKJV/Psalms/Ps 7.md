@@ -13,7 +13,7 @@ next: ['Ps 8']
 O Lord my God, in You I put my trust; Save me from all those who persecute me; And deliver me, 
 
 ###### 2 
-Lest they tear me like a lion, Rending _me_ in pieces, while _there is_ none to deliver. 
+Lest they tear me like a lion, Rending me in pieces, while there is none to deliver. 
 
 ###### 3 
 O Lord my God, if I have done this: If there is iniquity in my hands, 
@@ -22,10 +22,10 @@ O Lord my God, if I have done this: If there is iniquity in my hands,
 If I have repaid evil to him who was at peace with me, Or have plundered my enemy without cause, 
 
 ###### 5 
-Let the enemy pursue me and overtake _me;_ Yes, let him trample my life to the earth, And lay my honor in the dust. Selah_ 
+Let the enemy pursue me and overtake me; Yes, let him trample my life to the earth, And lay my honor in the dust. Selah 
 
 ###### 6 
-Arise, O Lord, in Your anger; Lift Yourself up because of the rage of my enemies; Rise up for me _to_ the judgment You have commanded! 
+Arise, O Lord, in Your anger; Lift Yourself up because of the rage of my enemies; Rise up for me to the judgment You have commanded! 
 
 ###### 7 
 So the congregation of the peoples shall surround You; For their sakes, therefore, return on high. 
@@ -37,10 +37,10 @@ The Lord shall judge the peoples; Judge me, O Lord, according to my righteousnes
 Oh, let the wickedness of the wicked come to an end, But establish the just; For the righteous God tests the hearts and minds. 
 
 ###### 10 
-My defense _is_ of God, Who saves the upright in heart. 
+My defense is of God, Who saves the upright in heart. 
 
 ###### 11 
-God _is_ a just judge, And God is angry _with the wicked_ every day. 
+God is a just judge, And God is angry with the wicked every day. 
 
 ###### 12 
 If he does not turn back, He will sharpen His sword; He bends His bow and makes it ready. 
@@ -49,10 +49,10 @@ If he does not turn back, He will sharpen His sword; He bends His bow and makes 
 He also prepares for Himself instruments of death; He makes His arrows into fiery shafts. 
 
 ###### 14 
-Behold, _the wicked_ brings forth iniquity; Yes, he conceives trouble and brings forth falsehood. 
+Behold, the wicked brings forth iniquity; Yes, he conceives trouble and brings forth falsehood. 
 
 ###### 15 
-He made a pit and dug it out, And has fallen into the ditch _which_ he made. 
+He made a pit and dug it out, And has fallen into the ditch which he made. 
 
 ###### 16 
 His trouble shall return upon his own head, And his violent dealing shall come down on his own crown. 

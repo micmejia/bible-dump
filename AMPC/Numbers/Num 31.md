@@ -280,7 +280,7 @@ Then they brought the captives, the prey, and the spoil to Moses and Eleazar the
 
 
 
-Moses and Eleazar the priest and all the princes _or_ leaders of the congregation went to meet them outside the camp. 
+Moses and Eleazar the priest and all the princes or leaders of the congregation went to meet them outside the camp. 
 
 
 
@@ -343,7 +343,7 @@ And Moses said to them, Have you let all the women live?
 
 
 
-Behold, these caused the Israelites by the counsel of Balaam to trespass _and_ act treacherously against the Lord in the matter of Peor, and so a [smiting] plague came among the congregation of the Lord. 
+Behold, these caused the Israelites by the counsel of Balaam to trespass and act treacherously against the Lord in the matter of Peor, and so a [smiting] plague came among the congregation of the Lord. 
 
 
 

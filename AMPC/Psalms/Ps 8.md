@@ -70,7 +70,7 @@ Out of the mouths of babes and unweaned infants You have established strength be
 
 
 
-When I view _and_ consider Your heavens, the work of Your fingers, the moon and the stars, which You have ordained _and_ established, 
+When I view and consider Your heavens, the work of Your fingers, the moon and the stars, which You have ordained and established, 
 
 
 
@@ -175,7 +175,7 @@ All sheep and oxen, yes, and the beasts of the field,
 
 
 
-The birds of the air, and the fish of the sea, _and_ whatever passes along the paths of the seas. 
+The birds of the air, and the fish of the sea, and whatever passes along the paths of the seas. 
 
 
 

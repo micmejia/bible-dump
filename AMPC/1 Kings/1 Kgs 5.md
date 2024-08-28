@@ -112,7 +112,7 @@ But now the Lord my God has given me rest on every side, so that there is neithe
 
 
 
-And I purpose to build a house to the Name of the Lord my God, as the Lord said to David my father, Your son whom I will set on your throne in your place shall build the house to My Name _and_ Presence. 
+And I purpose to build a house to the Name of the Lord my God, as the Lord said to David my father, Your son whom I will set on your throne in your place shall build the house to My Name and Presence. 
 
 
 
@@ -364,7 +364,7 @@ Besides Solomon's 3,300 overseers in charge of the people doing the work.
 
 
 
-The king commanded, and they hewed _and_ brought out great, costly stones in order to lay the foundation of the house with dressed stone. 
+The king commanded, and they hewed and brought out great, costly stones in order to lay the foundation of the house with dressed stone. 
 
 
 

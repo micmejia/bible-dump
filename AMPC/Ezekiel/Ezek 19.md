@@ -154,7 +154,7 @@ And he [Jehoiachin] went up and down among the lions; he became a young lion and
 
 
 
-And he knew _and_ ravaged their strongholds and he laid waste their cities, and the land was appalled and all who were in it by the noise of his roaring. 
+And he knew and ravaged their strongholds and he laid waste their cities, and the land was appalled and all who were in it by the noise of his roaring. 
 
 
 
@@ -196,7 +196,7 @@ Then the nations set against [the king] on every side from the provinces, and th
 
 
 
-With hooks they put him in a cage and brought him to the king of Babylon; they brought him into custody _and_ put him in strongholds, that his voice should no more be heard upon the mountains of Israel. 
+With hooks they put him in a cage and brought him to the king of Babylon; they brought him into custody and put him in strongholds, that his voice should no more be heard upon the mountains of Israel. 
 
 
 
@@ -238,7 +238,7 @@ Your mother [the mother-city Jerusalem] was like a vine [like you, Zedekiah, and
 
 
 
-And it had strong rods for the scepters of those who bore rule and its height was exalted among the thick branches _and_ into the clouds, and it was seen in its height among the multitude of its branches _and_ was conspicuous. 
+And it had strong rods for the scepters of those who bore rule and its height was exalted among the thick branches and into the clouds, and it was seen in its height among the multitude of its branches and was conspicuous. 
 
 
 
@@ -301,4 +301,4 @@ And now it is transplanted in the wilderness, in a dry and thirsty land [Babylon
 
 
 
-And fire went out of a rod [Zedekiah] of its branches which has consumed the vine's fruit, so that it has in it no [longer a] strong rod to be a scepter for ruling. This is a lamentation and shall be for a lamentation _and_ a dirge.
+And fire went out of a rod [Zedekiah] of its branches which has consumed the vine's fruit, so that it has in it no [longer a] strong rod to be a scepter for ruling. This is a lamentation and shall be for a lamentation and a dirge.

@@ -301,7 +301,7 @@ To keep the commandments of the Lord and His statutes which I command you today 
 
 
 
-Behold, the heavens and the heaven of heavens belong to the Lord your God, the earth also, with all that is in it _and_ on it. 
+Behold, the heavens and the heaven of heavens belong to the Lord your God, the earth also, with all that is in it and on it. 
 
 
 
@@ -343,7 +343,7 @@ Yet the Lord had a delight in loving your fathers, and He chose their descendant
 
 
 
-So circumcise the foreskin of your [minds and] hearts; be no longer stubborn _and_ hardened. 
+So circumcise the foreskin of your [minds and] hearts; be no longer stubborn and hardened. 
 
 
 
@@ -385,7 +385,7 @@ For the Lord your God is God of gods and Lord of lords, the great, the mighty, t
 
 
 
-He executes justice for the fatherless and the widow, and loves the stranger _or_ temporary resident and gives him food and clothing. 
+He executes justice for the fatherless and the widow, and loves the stranger or temporary resident and gives him food and clothing. 
 
 
 
@@ -406,7 +406,7 @@ He executes justice for the fatherless and the widow, and loves the stranger _or
 
 
 
-Therefore love the stranger _and_ sojourner, for you were strangers _and_ sojourners in the land of Egypt. 
+Therefore love the stranger and sojourner, for you were strangers and sojourners in the land of Egypt. 
 
 
 
@@ -427,7 +427,7 @@ Therefore love the stranger _and_ sojourner, for you were strangers _and_ sojour
 
 
 
-You shall [reverently] fear the Lord your God; you shall serve Him and cling to Him, and by His name _and_ presence you shall swear. 
+You shall [reverently] fear the Lord your God; you shall serve Him and cling to Him, and by His name and presence you shall swear. 
 
 
 

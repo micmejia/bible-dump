@@ -49,7 +49,7 @@ Then Job answered,
 
 
 
-Oh, that my impatience _and_ vexation might be [thoroughly] weighed and all my calamity be laid up over against them in the balances, one against the other [to see if my grief is unmanly]! 
+Oh, that my impatience and vexation might be [thoroughly] weighed and all my calamity be laid up over against them in the balances, one against the other [to see if my grief is unmanly]! 
 
 
 
@@ -70,7 +70,7 @@ Oh, that my impatience _and_ vexation might be [thoroughly] weighed and all my c
 
 
 
-For now it would be heavier than the sand of the sea; therefore my words have been rash _and_ wild, 
+For now it would be heavier than the sand of the sea; therefore my words have been rash and wild, 
 
 
 
@@ -217,7 +217,7 @@ I even wish that it would please God to crush me, that He would let loose His ha
 
 
 
-Then would I still have consolation--yes, I would leap [for joy] amid unsparing pain [though I shrink from it]--that I have not concealed _or_ denied the words of the Holy One! 
+Then would I still have consolation--yes, I would leap [for joy] amid unsparing pain [though I shrink from it]--that I have not concealed or denied the words of the Holy One! 
 
 
 
@@ -238,7 +238,7 @@ Then would I still have consolation--yes, I would leap [for joy] amid unsparing 
 
 
 
-What strength have I left, that I should wait _and_ hope? And what is ahead of me, that I should be patient? 
+What strength have I left, that I should wait and hope? And what is ahead of me, that I should be patient? 
 
 
 
@@ -259,7 +259,7 @@ What strength have I left, that I should wait _and_ hope? And what is ahead of m
 
 
 
-Is my strength _and_ endurance that of stones? Or is my flesh made of bronze? 
+Is my strength and endurance that of stones? Or is my flesh made of bronze? 
 
 
 
@@ -301,7 +301,7 @@ Is it not that I have no help in myself, and that wisdom is quite driven from me
 
 
 
-To him who is about to faint _and_ despair, kindness is due from his friend, lest he forsake the fear of the Almighty. 
+To him who is about to faint and despair, kindness is due from his friend, lest he forsake the fear of the Almighty. 
 
 
 
@@ -343,7 +343,7 @@ To him who is about to faint _and_ despair, kindness is due from his friend, les
 
 
 
-Which are black _and_ turbid by reason of the ice, _and_ in which the snows hides itself; 
+Which are black and turbid by reason of the ice, and in which the snows hides itself; 
 
 
 
@@ -364,7 +364,7 @@ Which are black _and_ turbid by reason of the ice, _and_ in which the snows hide
 
 
 
-When they get warm, they shrink _and_ disappear; when it is hot, they vanish out of their place. 
+When they get warm, they shrink and disappear; when it is hot, they vanish out of their place. 
 
 
 
@@ -448,7 +448,7 @@ They were confounded because they had hoped [to find water]; they came there and
 
 
 
-Now to me you are [like a dried-up brook]; you see my dismay _and_ terror, and [believing me to be a victim of God's anger] you are afraid [to sympathize with me]. 
+Now to me you are [like a dried-up brook]; you see my dismay and terror, and [believing me to be a victim of God's anger] you are afraid [to sympathize with me]. 
 
 
 
@@ -532,7 +532,7 @@ Teach me, and I will hold my peace; and cause me to understand wherein I have er
 
 
 
-How forcible are words of straightforward speech! But what does your arguing argue _and_ prove _or_ your reproof reprove? 
+How forcible are words of straightforward speech! But what does your arguing argue and prove or your reproof reprove? 
 
 
 

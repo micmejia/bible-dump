@@ -133,7 +133,7 @@ Therefore you must make images of your tumors and of your mice that destroy the 
 
 
 
-Why then do you harden your hearts as the Egyptians and Pharaoh hardened their hearts? When He had done wonders _and_ made a mock of them, did they not let the people go, and they departed? 
+Why then do you harden your hearts as the Egyptians and Pharaoh hardened their hearts? When He had done wonders and made a mock of them, did they not let the people go, and they departed? 
 
 
 

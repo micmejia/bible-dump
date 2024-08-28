@@ -133,7 +133,7 @@ Thus says the Lord God: This is Jerusalem; in the center of the nations I have s
 
 
 
-And she has changed _and_ rebelled against My ordinances more wickedly than the [heathen] nations, and against My statutes more than the countries that are round about her; for [Israel] rejected My ordinances, and as for My statutes, they have not walked in them. 
+And she has changed and rebelled against My ordinances more wickedly than the [heathen] nations, and against My statutes more than the countries that are round about her; for [Israel] rejected My ordinances, and as for My statutes, they have not walked in them. 
 
 
 
@@ -154,7 +154,7 @@ And she has changed _and_ rebelled against My ordinances more wickedly than the 
 
 
 
-Therefore thus says the Lord God: Because you were more turbulent _and_ raged [against Me] more than the nations that are round about you and have not walked in My statutes, neither have kept My ordinances, nor have done according to the ordinances [concerning] the nations that are round about you; 
+Therefore thus says the Lord God: Because you were more turbulent and raged [against Me] more than the nations that are round about you and have not walked in My statutes, neither have kept My ordinances, nor have done according to the ordinances [concerning] the nations that are round about you; 
 
 
 
@@ -238,7 +238,7 @@ Therefore fathers shall eat their sons in your midst, and sons shall eat their f
 
 
 
-Therefore, as I live, says the Lord God, surely because you have defiled My sanctuary with all your detestable things and with all your abominations, therefore will I also diminish you _and_ withdraw My eye that it shall not spare you. And I also will have no pity. 
+Therefore, as I live, says the Lord God, surely because you have defiled My sanctuary with all your detestable things and with all your abominations, therefore will I also diminish you and withdraw My eye that it shall not spare you. And I also will have no pity. 
 
 
 
@@ -280,7 +280,7 @@ And a third of you shall die of pestilence and be consumed by famine in the mids
 
 
 
-Thus shall My anger be spent and I will cause My wrath toward them to rest and I will be eased _and_ comforted. And they shall know, understand, _and_ realize that I the Lord have spoken in My zeal, when I have accomplished My wrath upon them. 
+Thus shall My anger be spent and I will cause My wrath toward them to rest and I will be eased and comforted. And they shall know, understand, and realize that I the Lord have spoken in My zeal, when I have accomplished My wrath upon them. 
 
 
 
@@ -322,7 +322,7 @@ Moreover, I will make you a desolation and a reproach among the nations that are
 
 
 
-So it shall be a reproach and a taunt, a warning and a horror _and_ an astonishment to the [heathen] nations around you when I shall execute judgments upon you in anger and in wrath and in furious chastisements _and_ rebukes--I the Lord have spoken it. 
+So it shall be a reproach and a taunt, a warning and a horror and an astonishment to the [heathen] nations around you when I shall execute judgments upon you in anger and in wrath and in furious chastisements and rebukes--I the Lord have spoken it. 
 
 
 

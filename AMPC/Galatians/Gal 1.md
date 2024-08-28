@@ -11,7 +11,7 @@ next: ['Gal 2']
 ###### 1 
 
 
-Paul, an apostle--[special messenger appointed and commissioned and sent out] not from [any body of] men nor by _or_ through any man, but by _and_ through Jesus Christ (the Messiah) and God the Father, Who raised Him from among the dead-- 
+Paul, an apostle--[special messenger appointed and commissioned and sent out] not from [any body of] men nor by or through any man, but by and through Jesus Christ (the Messiah) and God the Father, Who raised Him from among the dead-- 
 
 
 ###### 2 
@@ -23,43 +23,43 @@ And all the brethren who are with me, to the churches of Galatia:
 ###### 3 
 
 
-Grace _and_ spiritual blessing be to you and [soul] peace from God the Father and our Lord Jesus Christ (the Messiah), 
+Grace and spiritual blessing be to you and [soul] peace from God the Father and our Lord Jesus Christ (the Messiah), 
 
 
 ###### 4 
 
 
-Who gave (yielded) Himself up [to atone] for our sins [and to save and sanctify us], in order to rescue _and_ deliver us from this present wicked age _and_ world order, in accordance with the will _and_ purpose _and_ plan of our God and Father-- 
+Who gave (yielded) Himself up [to atone] for our sins [and to save and sanctify us], in order to rescue and deliver us from this present wicked age and world order, in accordance with the will and purpose and plan of our God and Father-- 
 
 
 ###### 5 
 
 
-To Him [be ascribed all] the glory through all the ages of the ages _and_ the eternities of the eternities! Amen (so be it). 
+To Him [be ascribed all] the glory through all the ages of the ages and the eternities of the eternities! Amen (so be it). 
 
 
 ###### 6 
 
 
-I am surprised _and_ astonished that you are so quickly turning renegade _and_ deserting Him Who invited _and_ called you by the grace (unmerited favor) of Christ (the Messiah) [and that you are transferring your allegiance] to a different [even an opposition] gospel. 
+I am surprised and astonished that you are so quickly turning renegade and deserting Him Who invited and called you by the grace (unmerited favor) of Christ (the Messiah) [and that you are transferring your allegiance] to a different [even an opposition] gospel. 
 
 
 ###### 7 
 
 
-Not that there is [or could be] any other [genuine Gospel], but there are [obviously] some who are troubling _and_ disturbing _and_ bewildering you [with a different kind of teaching which they offer as a gospel] and want to pervert _and_ distort the Gospel of Christ (the Messiah) [into something which it absolutely is not]. 
+Not that there is [or could be] any other [genuine Gospel], but there are [obviously] some who are troubling and disturbing and bewildering you [with a different kind of teaching which they offer as a gospel] and want to pervert and distort the Gospel of Christ (the Messiah) [into something which it absolutely is not]. 
 
 
 ###### 8 
 
 
-But even if we or an angel from heaven should preach to you a gospel contrary to _and_ different from that which we preached to you, let him be accursed (anathema, devoted to destruction, doomed to eternal punishment)! 
+But even if we or an angel from heaven should preach to you a gospel contrary to and different from that which we preached to you, let him be accursed (anathema, devoted to destruction, doomed to eternal punishment)! 
 
 
 ###### 9 
 
 
-As we said before, so I now say again: If anyone is preaching to you a gospel different from _or_ contrary to that which you received [from us], let him be accursed (anathema, devoted to destruction, doomed to eternal punishment)! 
+As we said before, so I now say again: If anyone is preaching to you a gospel different from or contrary to that which you received [from us], let him be accursed (anathema, devoted to destruction, doomed to eternal punishment)! 
 
 
 ###### 10 
@@ -71,7 +71,7 @@ Now am I trying to win the favor of men, or of God? Do I seek to please men? If 
 ###### 11 
 
 
-For I want you to know, brethren, that the Gospel which was proclaimed _and_ made known by me is not man's gospel [a human invention, according to or patterned after any human standard]. 
+For I want you to know, brethren, that the Gospel which was proclaimed and made known by me is not man's gospel [a human invention, according to or patterned after any human standard]. 
 
 
 ###### 12 
@@ -83,19 +83,19 @@ For indeed I did not receive it from man, nor was I taught it, but [it came to m
 ###### 13 
 
 
-You have heard of my earlier career _and_ former manner of life in the Jewish religion (Judaism), how I persecuted _and_ abused the church of God furiously _and_ extensively, and [with fanatical zeal did my best] to make havoc of it _and_ destroy it. 
+You have heard of my earlier career and former manner of life in the Jewish religion (Judaism), how I persecuted and abused the church of God furiously and extensively, and [with fanatical zeal did my best] to make havoc of it and destroy it. 
 
 
 ###### 14 
 
 
-And [you have heard how] I outstripped many of the men of my own generation among the people of my race in [my advancement in study and observance of the laws of] Judaism, so extremely enthusiastic _and_ zealous I was for the traditions of my ancestors. 
+And [you have heard how] I outstripped many of the men of my own generation among the people of my race in [my advancement in study and observance of the laws of] Judaism, so extremely enthusiastic and zealous I was for the traditions of my ancestors. 
 
 
 ###### 15 
 
 
-But when He, Who had chosen _and_ set me apart [even] before I was born and had called me by His grace (His undeserved favor and blessing), saw fit _and_ was pleased 
+But when He, Who had chosen and set me apart [even] before I was born and had called me by His grace (His undeserved favor and blessing), saw fit and was pleased 
 
 
 ###### 16 
@@ -107,7 +107,7 @@ To reveal (unveil, disclose) His Son within me so that I might proclaim Him amon
 ###### 17 
 
 
-Nor did I [even] go up to Jerusalem to those who were apostles (special messengers of Christ) before I was, but I went away _and_ retired into Arabia, and afterward I came back again to Damascus. 
+Nor did I [even] go up to Jerusalem to those who were apostles (special messengers of Christ) before I was, but I went away and retired into Arabia, and afterward I came back again to Damascus. 
 
 
 ###### 18 
@@ -143,7 +143,7 @@ And so far I was still unknown by sight to the churches of Christ in Judea (the 
 ###### 23 
 
 
-They were only hearing it said, He who used to persecute us is now proclaiming the very faith he once reviled _and_ which he set out to ruin _and_ tried with all his might to destroy. 
+They were only hearing it said, He who used to persecute us is now proclaiming the very faith he once reviled and which he set out to ruin and tried with all his might to destroy. 
 
 
 ###### 24 

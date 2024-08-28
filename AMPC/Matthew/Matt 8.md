@@ -70,7 +70,7 @@ And behold, a leper came up to Him and, prostrating himself, worshiped Him, sayi
 
 
 
-And He reached out His hand and touched him, saying, I am willing; be cleansed by being cured. And instantly his leprosy was cured _and_ cleansed. 
+And He reached out His hand and touched him, saying, I am willing; be cleansed by being cured. And instantly his leprosy was cured and cleansed. 
 
 
 
@@ -91,7 +91,7 @@ And He reached out His hand and touched him, saying, I am willing; be cleansed b
 
 
 
-And Jesus said to him, See that you tell nothing about this to anyone; but go, show yourself to the priest and present the offering that Moses commanded, for a testimony [to your healing] _and_ as an evidence to the people. 
+And Jesus said to him, See that you tell nothing about this to anyone; but go, show yourself to the priest and present the offering that Moses commanded, for a testimony [to your healing] and as an evidence to the people. 
 
 
 
@@ -133,7 +133,7 @@ As Jesus went into Capernaum, a centurion came up to Him, begging Him,
 
 
 
-And saying, Lord, my servant boy is lying at the house paralyzed _and_ distressed with intense pains. 
+And saying, Lord, my servant boy is lying at the house paralyzed and distressed with intense pains. 
 
 
 
@@ -175,7 +175,7 @@ And Jesus said to him, I will come and restore him.
 
 
 
-But the centurion replied to Him, Lord, I am not worthy _or_ fit to have You come under my roof; but only speak the word, and my servant boy will be cured. 
+But the centurion replied to Him, Lord, I am not worthy or fit to have You come under my roof; but only speak the word, and my servant boy will be cured. 
 
 
 
@@ -259,7 +259,7 @@ I tell you, many will come from east and west, and will sit at table with Abraha
 
 
 
-While the sons _and_ heirs of the kingdom will be driven out into the darkness outside, where there will be weeping and grinding of teeth. 
+While the sons and heirs of the kingdom will be driven out into the darkness outside, where there will be weeping and grinding of teeth. 
 
 
 
@@ -364,7 +364,7 @@ When evening came, they brought to Him many who were under the power of demons, 
 
 
 
-And thus He fulfilled what was spoken by the prophet Isaiah, He Himself took [in order to carry away] our weaknesses _and_ infirmities and bore away our diseases. 
+And thus He fulfilled what was spoken by the prophet Isaiah, He Himself took [in order to carry away] our weaknesses and infirmities and bore away our diseases. 
 
 
 
@@ -532,7 +532,7 @@ And suddenly, behold, there arose a violent storm on the sea, so that the boat w
 
 
 
-And they went and awakened Him, saying, Lord, rescue _and_ preserve us! We are perishing! 
+And they went and awakened Him, saying, Lord, rescue and preserve us! We are perishing! 
 
 
 
@@ -553,7 +553,7 @@ And they went and awakened Him, saying, Lord, rescue _and_ preserve us! We are p
 
 
 
-And He said to them, Why are you timid _and_ afraid, O you of little faith? Then He got up and rebuked the winds and the sea, and there was a great _and_ wonderful calm (a perfect peaceableness). 
+And He said to them, Why are you timid and afraid, O you of little faith? Then He got up and rebuked the winds and the sea, and there was a great and wonderful calm (a perfect peaceableness). 
 
 
 
@@ -574,7 +574,7 @@ And He said to them, Why are you timid _and_ afraid, O you of little faith? Then
 
 
 
-And the men were stunned with bewildered wonder _and_ marveled, saying, What kind of Man is this, that even the winds and the sea obey Him! 
+And the men were stunned with bewildered wonder and marveled, saying, What kind of Man is this, that even the winds and the sea obey Him! 
 
 
 
@@ -595,7 +595,7 @@ And the men were stunned with bewildered wonder _and_ marveled, saying, What kin
 
 
 
-And when He arrived at the other side in the country of the Gadarenes, two men under the control of demons went to meet Him, coming out of the tombs, so fierce _and_ savage that no one was able to pass that way. 
+And when He arrived at the other side in the country of the Gadarenes, two men under the control of demons went to meet Him, coming out of the tombs, so fierce and savage that no one was able to pass that way. 
 
 
 
@@ -616,7 +616,7 @@ And when He arrived at the other side in the country of the Gadarenes, two men u
 
 
 
-And behold, they shrieked _and_ screamed, What have You to do with us, _Jesus_, Son of God? Have You come to torment us before the appointed time? 
+And behold, they shrieked and screamed, What have You to do with us, Jesus, Son of God? Have You come to torment us before the appointed time? 
 
 
 

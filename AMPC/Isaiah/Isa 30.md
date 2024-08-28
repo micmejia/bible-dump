@@ -28,7 +28,7 @@ next: ['Isa 31']
 
 
 
-Woe to the rebellious children, says the Lord, who take counsel _and_ carry out a plan, but not Mine, and who make a league _and_ pour out a drink offering, but not of My Spirit, thus adding sin to sin; 
+Woe to the rebellious children, says the Lord, who take counsel and carry out a plan, but not Mine, and who make a league and pour out a drink offering, but not of My Spirit, thus adding sin to sin; 
 
 
 
@@ -49,7 +49,7 @@ Woe to the rebellious children, says the Lord, who take counsel _and_ carry out 
 
 
 
-Who set out to go down into Egypt, and have not asked Me--to flee to the stronghold of Pharaoh _and_ to strengthen themselves in his strength and to trust in the shadow of Egypt! 
+Who set out to go down into Egypt, and have not asked Me--to flee to the stronghold of Pharaoh and to strengthen themselves in his strength and to trust in the shadow of Egypt! 
 
 
 
@@ -70,7 +70,7 @@ Who set out to go down into Egypt, and have not asked Me--to flee to the strongh
 
 
 
-Therefore shall the strength _and_ protection of Pharaoh turn to your shame, and the refuge in the shadow of Egypt be to your humiliation _and_ confusion. 
+Therefore shall the strength and protection of Pharaoh turn to your shame, and the refuge in the shadow of Egypt be to your humiliation and confusion. 
 
 
 
@@ -133,7 +133,7 @@ Yet will all be ashamed because of a people [the Egyptians] who cannot profit th
 
 
 
-A mournful, inspired prediction (a burden to be lifted up) concerning the beasts of the South (the Negeb): Oh, the heavy burden, the load of treasures going to Egypt! Through a land of trouble and anguish, in which are lioness and lion, viper and fiery flying serpent, they carry their riches upon the shoulders of young donkeys, and their treasures upon the humps of camels, to a people that will not _and_ cannot profit them. 
+A mournful, inspired prediction (a burden to be lifted up) concerning the beasts of the South (the Negeb): Oh, the heavy burden, the load of treasures going to Egypt! Through a land of trouble and anguish, in which are lioness and lion, viper and fiery flying serpent, they carry their riches upon the shoulders of young donkeys, and their treasures upon the humps of camels, to a people that will not and cannot profit them. 
 
 
 
@@ -196,7 +196,7 @@ Now, go, write it before them on a tablet and inscribe it in a book, that it may
 
 
 
-For this is a rebellious people, faithless _and_ lying sons, children who will not hear the law _and_ instruction of the Lord; 
+For this is a rebellious people, faithless and lying sons, children who will not hear the law and instruction of the Lord; 
 
 
 
@@ -259,7 +259,7 @@ Get out of the true way, turn aside out of the path, cease holding up before us 
 
 
 
-Therefore thus says the Holy One of Israel: Because you despise _and_ spurn this [My] word and trust in cunning _and_ oppression, in crookedness _and_ perverseness, and rely on them, 
+Therefore thus says the Holy One of Israel: Because you despise and spurn this [My] word and trust in cunning and oppression, in crookedness and perverseness, and rely on them, 
 
 
 
@@ -280,7 +280,7 @@ Therefore thus says the Holy One of Israel: Because you despise _and_ spurn this
 
 
 
-Therefore this iniquity _and_ guilt will be to you like a broken section of a high wall, bulging out and ready [at some distant day] to fall, whose crash will [then] come suddenly _and_ swiftly, in an instant. 
+Therefore this iniquity and guilt will be to you like a broken section of a high wall, bulging out and ready [at some distant day] to fall, whose crash will [then] come suddenly and swiftly, in an instant. 
 
 
 
@@ -364,7 +364,7 @@ And you said, No! We will speed [our own course] on horses! Therefore you will s
 
 
 
-One thousand of you will flee at the threat of one of them; at the threat of five you will flee till you are left like a beacon _or_ a flagpole on the top of a mountain, and like a signal on a hill. 
+One thousand of you will flee at the threat of one of them; at the threat of five you will flee till you are left like a beacon or a flagpole on the top of a mountain, and like a signal on a hill. 
 
 
 
@@ -385,7 +385,7 @@ One thousand of you will flee at the threat of one of them; at the threat of fiv
 
 
 
-And therefore the Lord [earnestly] waits [expecting, looking, and longing] to be gracious to you; and therefore He lifts Himself up, that He may have mercy on you _and_ show loving-kindness to you. For the Lord is a God of justice. Blessed (happy, fortunate, to be envied) are all those who [earnestly] wait for Him, who expect _and_ look _and_ long for Him [for His victory, His favor, His love, His peace, His joy, and His matchless, unbroken companionship]! 
+And therefore the Lord [earnestly] waits [expecting, looking, and longing] to be gracious to you; and therefore He lifts Himself up, that He may have mercy on you and show loving-kindness to you. For the Lord is a God of justice. Blessed (happy, fortunate, to be envied) are all those who [earnestly] wait for Him, who expect and look and long for Him [for His victory, His favor, His love, His peace, His joy, and His matchless, unbroken companionship]! 
 
 
 
@@ -511,7 +511,7 @@ Then will He give you rain for the seed with which you sow the soil, and bread g
 
 
 
-The oxen likewise and the young donkeys that till the ground will eat savory _and_ salted fodder, which has been winnowed with shovel and with fork. 
+The oxen likewise and the young donkeys that till the ground will eat savory and salted fodder, which has been winnowed with shovel and with fork. 
 
 
 
@@ -637,7 +637,7 @@ You shall have a song as in the night when a holy feast is kept, and gladness of
 
 
 
-And the Lord shall cause His glorious voice to be heard and the descending blow of His arm to be seen, coming down with indignant anger and with the flame of a devouring fire, amid crashing blast _and_ cloudburst, tempest, and hailstones. 
+And the Lord shall cause His glorious voice to be heard and the descending blow of His arm to be seen, coming down with indignant anger and with the flame of a devouring fire, amid crashing blast and cloudburst, tempest, and hailstones. 
 
 
 
@@ -658,7 +658,7 @@ And the Lord shall cause His glorious voice to be heard and the descending blow 
 
 
 
-At the voice of the Lord the Assyrians will be stricken with dismay _and_ terror, when He smites them with His rod. 
+At the voice of the Lord the Assyrians will be stricken with dismay and terror, when He smites them with His rod. 
 
 
 
@@ -679,7 +679,7 @@ At the voice of the Lord the Assyrians will be stricken with dismay _and_ terror
 
 
 
-And every passing stroke of the staff of punishment _and_ doom which the Lord lays upon them shall be to the sound of [Israel's] timbrels and lyres, when in battle He attacks [Assyria] with swinging _and_ menacing arms. 
+And every passing stroke of the staff of punishment and doom which the Lord lays upon them shall be to the sound of [Israel's] timbrels and lyres, when in battle He attacks [Assyria] with swinging and menacing arms. 
 
 
 
@@ -700,4 +700,4 @@ And every passing stroke of the staff of punishment _and_ doom which the Lord la
 
 
 
-For Topheth [a place of burning and abomination] has already been laid out _and_ long ago prepared; yes, for the [Assyrian] king _and_ [the god] Molech it has been made ready, its pyre made deep _and_ large, with fire and much wood; the breath of the Lord, like a stream of brimstone, kindles it.
+For Topheth [a place of burning and abomination] has already been laid out and long ago prepared; yes, for the [Assyrian] king and [the god] Molech it has been made ready, its pyre made deep and large, with fire and much wood; the breath of the Lord, like a stream of brimstone, kindles it.

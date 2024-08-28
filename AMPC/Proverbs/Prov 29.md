@@ -49,7 +49,7 @@ He who, being often reproved, hardens his neck shall suddenly be destroyed--and 
 
 
 
-When the [uncompromisingly] righteous are in authority, the people rejoice; but when the wicked man rules, the people groan _and_ sigh. 
+When the [uncompromisingly] righteous are in authority, the people rejoice; but when the wicked man rules, the people groan and sigh. 
 
 
 
@@ -70,7 +70,7 @@ When the [uncompromisingly] righteous are in authority, the people rejoice; but 
 
 
 
-Whoever loves skillful _and_ godly Wisdom rejoices his father, but he who associates with harlots wastes his substance. 
+Whoever loves skillful and godly Wisdom rejoices his father, but he who associates with harlots wastes his substance. 
 
 
 
@@ -91,7 +91,7 @@ Whoever loves skillful _and_ godly Wisdom rejoices his father, but he who associ
 
 
 
-The king by justice establishes the land, but he who exacts gifts _and_ tribute overthrows it. 
+The king by justice establishes the land, but he who exacts gifts and tribute overthrows it. 
 
 
 
@@ -154,7 +154,7 @@ In the transgression of an evil man there is a snare, but the [uncompromisingly]
 
 
 
-The [consistently] righteous man knows _and_ cares for the rights of the poor, but the wicked man has no interest in such knowledge. 
+The [consistently] righteous man knows and cares for the rights of the poor, but the wicked man has no interest in such knowledge. 
 
 
 
@@ -217,7 +217,7 @@ If a wise man has an argument with a foolish man, the fool only rages or laughs,
 
 
 
-The bloodthirsty hate the blameless man, but the upright care for _and_ seek [to save] his life. 
+The bloodthirsty hate the blameless man, but the upright care for and seek [to save] his life. 
 
 
 
@@ -469,7 +469,7 @@ He who pampers his servant from childhood will have him expecting the rights of 
 
 
 
-A man of wrath stirs up strife, and a man given to anger commits _and_ causes much transgression. 
+A man of wrath stirs up strife, and a man given to anger commits and causes much transgression. 
 
 
 
@@ -532,7 +532,7 @@ Whoever is partner with a thief hates his own life; he falls under the curse [pr
 
 
 
-The fear of man brings a snare, but whoever leans on, trusts in, _and_ puts his confidence in the Lord is safe _and_ set on high. 
+The fear of man brings a snare, but whoever leans on, trusts in, and puts his confidence in the Lord is safe and set on high. 
 
 
 
@@ -553,7 +553,7 @@ The fear of man brings a snare, but whoever leans on, trusts in, _and_ puts his 
 
 
 
-Many crave _and_ seek the ruler's favor, but the wise man [waits] for justice from the Lord. 
+Many crave and seek the ruler's favor, but the wise man [waits] for justice from the Lord. 
 
 
 

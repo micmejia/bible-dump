@@ -112,7 +112,7 @@ And these are the words the Lord spoke concerning Israel and Judah:
 
 
 
-Thus says the Lord: We have heard a voice of trembling _and_ panic--of terror, and not peace. 
+Thus says the Lord: We have heard a voice of trembling and panic--of terror, and not peace. 
 
 
 
@@ -217,7 +217,7 @@ But they will serve the Lord their God and David's [descendant] their King, Whom
 
 
 
-Therefore fear not, O My servant Jacob, says the Lord, nor be dismayed _or_ cast down, O Israel; for behold, I will save you out of a distant land [of exile] and your posterity from the land of their captivity. Jacob will return and will be quiet and at ease, and none will make him afraid _or_ cause him to be terrorized _and_ to tremble. 
+Therefore fear not, O My servant Jacob, says the Lord, nor be dismayed or cast down, O Israel; for behold, I will save you out of a distant land [of exile] and your posterity from the land of their captivity. Jacob will return and will be quiet and at ease, and none will make him afraid or cause him to be terrorized and to tremble. 
 
 
 
@@ -238,7 +238,7 @@ Therefore fear not, O My servant Jacob, says the Lord, nor be dismayed _or_ cast
 
 
 
-For I am with you, says the Lord, to save you; for I will make a full _and_ complete end of all the nations to which I have scattered you, but I will not make a full _and_ complete end of you. But I will correct you in measure _and_ with judgment and will in no sense hold you guiltless _or_ leave you unpunished. 
+For I am with you, says the Lord, to save you; for I will make a full and complete end of all the nations to which I have scattered you, but I will not make a full and complete end of you. But I will correct you in measure and with judgment and will in no sense hold you guiltless or leave you unpunished. 
 
 
 
@@ -301,7 +301,7 @@ There is none to plead your cause; for [the pressing together of] your wound you
 
 
 
-All your lovers (allies) have forgotten you; they neither seek, inquire of, _or_ require you. For I have hurt you with the wound of an enemy, with the chastisement of a cruel _and_ merciless foe, because of the greatness of your perversity _and_ guilt, because your sins are glaring _and_ innumerable. 
+All your lovers (allies) have forgotten you; they neither seek, inquire of, or require you. For I have hurt you with the wound of an enemy, with the chastisement of a cruel and merciless foe, because of the greatness of your perversity and guilt, because your sins are glaring and innumerable. 
 
 
 
@@ -322,7 +322,7 @@ All your lovers (allies) have forgotten you; they neither seek, inquire of, _or_
 
 
 
-Why do you cry out because of your hurt [the natural result of your sins]? Your pain is deadly (incurable). Because of the greatness of your perversity _and_ guilt, because your sins are glaring _and_ innumerable, I have done these things to you. 
+Why do you cry out because of your hurt [the natural result of your sins]? Your pain is deadly (incurable). Because of the greatness of your perversity and guilt, because your sins are glaring and innumerable, I have done these things to you. 
 
 
 
@@ -364,7 +364,7 @@ Therefore all who devour you will be devoured; and all your adversaries, every o
 
 
 
-For I will restore health to you, and I will heal your wounds, says the Lord, because they have called you an outcast, saying, This is Zion, whom no one seeks after _and_ for whom no one cares! 
+For I will restore health to you, and I will heal your wounds, says the Lord, because they have called you an outcast, saying, This is Zion, whom no one seeks after and for whom no one cares! 
 
 
 
@@ -448,7 +448,7 @@ Their children too shall be as in former times, and their congregation shall be 
 
 
 
-And their prince will be one of them, and their ruler will come from the midst of them. I will cause him to draw near and he will approach Me, for who is he who would have the boldness _and_ would dare [on his own initiative] to approach Me? says the Lord. 
+And their prince will be one of them, and their ruler will come from the midst of them. I will cause him to draw near and he will approach Me, for who is he who would have the boldness and would dare [on his own initiative] to approach Me? says the Lord. 
 
 
 
@@ -490,7 +490,7 @@ Then you will be My people, and I will be your God.
 
 
 
-Behold, the tempest of the Lord has gone forth with wrath, a sweeping _and_ gathering tempest; it shall whirl _and_ burst upon the heads of the wicked. 
+Behold, the tempest of the Lord has gone forth with wrath, a sweeping and gathering tempest; it shall whirl and burst upon the heads of the wicked. 
 
 
 
@@ -511,4 +511,4 @@ Behold, the tempest of the Lord has gone forth with wrath, a sweeping _and_ gath
 
 
 
-The fierce anger _and_ indignation of the Lord shall not turn back until He has executed _and_ accomplished the thoughts _and_ intents of His mind _and_ heart. In the latter days you shall understand this.
+The fierce anger and indignation of the Lord shall not turn back until He has executed and accomplished the thoughts and intents of His mind and heart. In the latter days you shall understand this.

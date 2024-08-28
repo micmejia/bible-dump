@@ -133,7 +133,7 @@ Then Zedekiah the king said, Behold, he is in your hands; for the king is in no 
 
 
 
-So they took Jeremiah and cast him into the dungeon _or_ cistern pit [in the charge] of Malchiah the king's son, which was in the court of the guard; and they let Jeremiah down [into the pit] with ropes. And in the dungeon _or_ cistern pit there was no water, but only mire, and Jeremiah sank in the mire. 
+So they took Jeremiah and cast him into the dungeon or cistern pit [in the charge] of Malchiah the king's son, which was in the court of the guard; and they let Jeremiah down [into the pit] with ropes. And in the dungeon or cistern pit there was no water, but only mire, and Jeremiah sank in the mire. 
 
 
 
@@ -154,7 +154,7 @@ So they took Jeremiah and cast him into the dungeon _or_ cistern pit [in the cha
 
 
 
-Now when Ebed-melech the Ethiopian [a Cushite], one of the eunuchs who was in the king's house, heard that they had put Jeremiah in the dungeon _or_ cistern pit; and while the king was then sitting in the Gate of Benjamin, 
+Now when Ebed-melech the Ethiopian [a Cushite], one of the eunuchs who was in the king's house, heard that they had put Jeremiah in the dungeon or cistern pit; and while the king was then sitting in the Gate of Benjamin, 
 
 
 
@@ -196,7 +196,7 @@ Ebed-melech went out of the king's house and spoke to the king, saying,
 
 
 
-My lord the king, these men have done evil in all that they have done to Jeremiah the prophet, whom they have cast into the dungeon _or_ cistern pit; and he is liable to die of hunger _and_ is [as good as] dead in the place where he is, for there is no more bread left in the city. 
+My lord the king, these men have done evil in all that they have done to Jeremiah the prophet, whom they have cast into the dungeon or cistern pit; and he is liable to die of hunger and is [as good as] dead in the place where he is, for there is no more bread left in the city. 
 
 
 
@@ -217,7 +217,7 @@ My lord the king, these men have done evil in all that they have done to Jeremia
 
 
 
-Then the king commanded Ebed-melech the Ethiopian, saying, Take from here thirty men with you and raise Jeremiah the prophet out of the dungeon _or_ cistern pit before he dies. 
+Then the king commanded Ebed-melech the Ethiopian, saying, Take from here thirty men with you and raise Jeremiah the prophet out of the dungeon or cistern pit before he dies. 
 
 
 
@@ -238,7 +238,7 @@ Then the king commanded Ebed-melech the Ethiopian, saying, Take from here thirty
 
 
 
-So Ebed-melech took the men with him and went into the house of the king [to a room] under the treasury, and took along from there old rags and worn-out garments and let them down by ropes into the dungeon _or_ cistern pit to Jeremiah. 
+So Ebed-melech took the men with him and went into the house of the king [to a room] under the treasury, and took along from there old rags and worn-out garments and let them down by ropes into the dungeon or cistern pit to Jeremiah. 
 
 
 
@@ -280,7 +280,7 @@ And Ebed-melech the Ethiopian said to Jeremiah, Put now these old rags and worn-
 
 
 
-So they drew up Jeremiah with the ropes and took him up out of the dungeon _or_ cistern pit; and Jeremiah remained in the court of the guard. 
+So they drew up Jeremiah with the ropes and took him up out of the dungeon or cistern pit; and Jeremiah remained in the court of the guard. 
 
 
 
@@ -364,7 +364,7 @@ So Zedekiah the king swore secretly to Jeremiah, As the Lord lives, Who made our
 
 
 
-Then said Jeremiah to Zedekiah, Thus says the Lord God of hosts, the God of Israel: If you will go forth _and_ surrender to the princes of the king of Babylon, then you will live and this city will not be burned with fire; and you will live--you and your house. 
+Then said Jeremiah to Zedekiah, Thus says the Lord God of hosts, the God of Israel: If you will go forth and surrender to the princes of the king of Babylon, then you will live and this city will not be burned with fire; and you will live--you and your house. 
 
 
 
@@ -385,7 +385,7 @@ Then said Jeremiah to Zedekiah, Thus says the Lord God of hosts, the God of Isra
 
 
 
-But if you will not go forth _and_ surrender to the princes of the king of Babylon, then this city will be given into the hands of the Chaldeans and they will burn it with fire; and you will not escape out of their hands. 
+But if you will not go forth and surrender to the princes of the king of Babylon, then this city will be given into the hands of the Chaldeans and they will burn it with fire; and you will not escape out of their hands. 
 
 
 
@@ -406,7 +406,7 @@ But if you will not go forth _and_ surrender to the princes of the king of Babyl
 
 
 
-And Zedekiah the king said to Jeremiah, I am afraid of the Jews who have deserted to the Chaldeans, lest the enemy deliver me into their [these former subjects'] hands and they mock me _and_ abuse me. 
+And Zedekiah the king said to Jeremiah, I am afraid of the Jews who have deserted to the Chaldeans, lest the enemy deliver me into their [these former subjects'] hands and they mock me and abuse me. 
 
 
 
@@ -448,7 +448,7 @@ But Jeremiah said, They will not deliver you [to them]. Obey, I beg of you, the 
 
 
 
-But if you refuse to go forth _and_ surrender to them, this is the word [the vision] that the Lord has shown me: 
+But if you refuse to go forth and surrender to them, this is the word [the vision] that the Lord has shown me: 
 
 
 
@@ -469,7 +469,7 @@ But if you refuse to go forth _and_ surrender to them, this is the word [the vis
 
 
 
-Behold, [in it] all the women who are left in the house of the king of Judah will be brought forth to the king of Babylon's princes and will say [to you, King Zedekiah], Your friends have prevailed against your better judgment _and_ have deceived you. Now when your feet are sunk in the mire [of trouble], they have turned their backs. 
+Behold, [in it] all the women who are left in the house of the king of Judah will be brought forth to the king of Babylon's princes and will say [to you, King Zedekiah], Your friends have prevailed against your better judgment and have deceived you. Now when your feet are sunk in the mire [of trouble], they have turned their backs. 
 
 
 

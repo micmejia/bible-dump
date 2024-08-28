@@ -133,7 +133,7 @@ And the Lord will give them over to you, and you shall do to them according to a
 
 
 
-Be strong, courageous, _and_ firm; fear not nor be in terror before them, for it is the Lord your God Who goes with you; He will not fail you or forsake you. 
+Be strong, courageous, and firm; fear not nor be in terror before them, for it is the Lord your God Who goes with you; He will not fail you or forsake you. 
 
 
 
@@ -154,7 +154,7 @@ Be strong, courageous, _and_ firm; fear not nor be in terror before them, for it
 
 
 
-And Moses called to Joshua and said to him in the sight of all Israel, Be strong, courageous, _and_ firm, for you shall go with this people into the land which the Lord has sworn to their fathers to give them, and you shall cause them to possess it. 
+And Moses called to Joshua and said to him in the sight of all Israel, Be strong, courageous, and firm, for you shall go with this people into the land which the Lord has sworn to their fathers to give them, and you shall cause them to possess it. 
 
 
 
@@ -175,7 +175,7 @@ And Moses called to Joshua and said to him in the sight of all Israel, Be strong
 
 
 
-It is the Lord Who goes before you; He will [march] with you; He will not fail you _or_ let you go or forsake you; [let there be no cowardice or flinching, but] fear not, neither become broken [in spirit--depressed, dismayed, and unnerved with alarm]. 
+It is the Lord Who goes before you; He will [march] with you; He will not fail you or let you go or forsake you; [let there be no cowardice or flinching, but] fear not, neither become broken [in spirit--depressed, dismayed, and unnerved with alarm]. 
 
 
 
@@ -259,7 +259,7 @@ When all Israel comes to appear before the Lord your God in the place which He c
 
 
 
-Assemble the people--men, women, and children, and the stranger _and_ the sojourner within your towns--that they may hear and learn [reverently] to fear the Lord your God and be watchful to do all the words of this law, 
+Assemble the people--men, women, and children, and the stranger and the sojourner within your towns--that they may hear and learn [reverently] to fear the Lord your God and be watchful to do all the words of this law, 
 
 
 
@@ -427,7 +427,7 @@ And now write this song for yourselves and teach it to the Israelites; put it in
 
 
 
-For when I have brought them into the land which I swore to their fathers, a land flowing with milk and honey, and they have eaten and filled themselves and become fat, then they will turn to other gods and serve them, and despise _and_ scorn Me and break My covenant. 
+For when I have brought them into the land which I swore to their fathers, a land flowing with milk and honey, and they have eaten and filled themselves and become fat, then they will turn to other gods and serve them, and despise and scorn Me and break My covenant. 
 
 
 
@@ -448,7 +448,7 @@ For when I have brought them into the land which I swore to their fathers, a lan
 
 
 
-And when many evils and troubles have befallen them, this [sacred] song will confront them as a witness, for it will never be forgotten from the mouths of their descendants. For I know their strong desire _and_ the purposes which they are forming even now, before I have brought them into the land which I swore to give them. 
+And when many evils and troubles have befallen them, this [sacred] song will confront them as a witness, for it will never be forgotten from the mouths of their descendants. For I know their strong desire and the purposes which they are forming even now, before I have brought them into the land which I swore to give them. 
 
 
 
@@ -490,7 +490,7 @@ Moses wrote this song the same day and taught it to the Israelites.
 
 
 
-And [the Lord] charged Joshua son of Nun, Be strong and courageous _and_ firm, for you shall bring the Israelites into the land which I swore to give them, and I will be with you. 
+And [the Lord] charged Joshua son of Nun, Be strong and courageous and firm, for you shall bring the Israelites into the land which I swore to give them, and I will be with you. 
 
 
 

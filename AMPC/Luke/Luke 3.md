@@ -112,7 +112,7 @@ As it is written in the book of the words of Isaiah the prophet, The voice of on
 
 
 
-Every valley _and_ ravine shall be filled up, and every mountain and hill shall be leveled; and the crooked places shall be made straight, and the rough roads shall be made smooth; 
+Every valley and ravine shall be filled up, and every mountain and hill shall be leveled; and the crooked places shall be made straight, and the rough roads shall be made smooth; 
 
 
 
@@ -175,7 +175,7 @@ So he said to the crowds who came out to be baptized by him, You offspring of vi
 
 
 
-Bear fruits that are deserving _and_ consistent with [your] repentance [that is, conduct worthy of a heart changed, a heart abhorring sin]. And do not begin to say to yourselves, We have Abraham as our father; for I tell you that God is able from these stones to raise up descendants for Abraham. 
+Bear fruits that are deserving and consistent with [your] repentance [that is, conduct worthy of a heart changed, a heart abhorring sin]. And do not begin to say to yourselves, We have Abraham as our father; for I tell you that God is able from these stones to raise up descendants for Abraham. 
 
 
 
@@ -280,7 +280,7 @@ Even tax collectors came to be baptized, and they said to him, Teacher, what sha
 
 
 
-And he said to them, Exact _and_ collect no more than the fixed amount appointed you. 
+And he said to them, Exact and collect no more than the fixed amount appointed you. 
 
 
 
@@ -301,7 +301,7 @@ And he said to them, Exact _and_ collect no more than the fixed amount appointed
 
 
 
-Those serving as soldiers also asked him, And we, what shall we do? And he replied to them, Never demand _or_ enforce by terrifying people or by accusing wrongfully, and always be satisfied with your rations (supplies) _and_ with your allowance (wages). 
+Those serving as soldiers also asked him, And we, what shall we do? And he replied to them, Never demand or enforce by terrifying people or by accusing wrongfully, and always be satisfied with your rations (supplies) and with your allowance (wages). 
 
 
 
@@ -322,7 +322,7 @@ Those serving as soldiers also asked him, And we, what shall we do? And he repli
 
 
 
-As the people were in suspense _and_ waiting expectantly, and everybody reasoned _and_ questioned in their hearts concerning John, whether he perhaps might be the Christ (the Messiah, the Anointed One). 
+As the people were in suspense and waiting expectantly, and everybody reasoned and questioned in their hearts concerning John, whether he perhaps might be the Christ (the Messiah, the Anointed One). 
 
 
 
@@ -364,7 +364,7 @@ John answered them all by saying, I baptize you with water; but He Who is mighti
 
 
 
-His winnowing shovel (fork) is in His hand to thoroughly clear _and_ cleanse His [threshing] floor and to gather the wheat _and_ store it in His granary, but the chaff He will burn with fire that cannot be extinguished. 
+His winnowing shovel (fork) is in His hand to thoroughly clear and cleanse His [threshing] floor and to gather the wheat and store it in His granary, but the chaff He will burn with fire that cannot be extinguished. 
 
 
 
@@ -406,7 +406,7 @@ So with many other [various] appeals and admonitions he preached the good news (
 
 
 
-But Herod the tetrarch, who had been [repeatedly] told about his fault _and_ reproved _with_ rebuke producing conviction by [John] for [having] Herodias, his brother's wife, and for all the wicked things that Herod had done, 
+But Herod the tetrarch, who had been [repeatedly] told about his fault and reproved with rebuke producing conviction by [John] for [having] Herodias, his brother's wife, and for all the wicked things that Herod had done, 
 
 
 
@@ -469,7 +469,7 @@ Now when all the people were baptized, and when Jesus also had been baptized, an
 
 
 
-And the Holy Spirit descended upon Him in bodily form like a dove, and a voice came from heaven, _saying_, You are My Son, My Beloved! In You I am well pleased _and_ find delight! 
+And the Holy Spirit descended upon Him in bodily form like a dove, and a voice came from heaven, saying, You are My Son, My Beloved! In You I am well pleased and find delight! 
 
 
 

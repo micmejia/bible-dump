@@ -70,7 +70,7 @@ And they said, Has the Lord indeed spoken only by Moses? Has He not spoken also 
 
 
 
-Now the man Moses was very meek (gentle, kind, and humble) _or_ above all the men on the face of the earth. 
+Now the man Moses was very meek (gentle, kind, and humble) or above all the men on the face of the earth. 
 
 
 
@@ -154,7 +154,7 @@ And He said, Hear now My words: If there is a prophet among you, I the Lord make
 
 
 
-But not so with My servant Moses; he is entrusted _and_ faithful in all My house. 
+But not so with My servant Moses; he is entrusted and faithful in all My house. 
 
 
 

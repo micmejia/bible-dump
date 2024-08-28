@@ -28,7 +28,7 @@ next: ['Jer 49']
 
 
 
-Concerning Moab: Thus says the Lord of hosts, the God of Israel: Woe to [the city of] Nebo, for it is laid waste! Kiriathaim is put to shame and taken; Misgab [the high fortress] is put to shame, broken down, _and_ crushed. 
+Concerning Moab: Thus says the Lord of hosts, the God of Israel: Woe to [the city of] Nebo, for it is laid waste! Kiriathaim is put to shame and taken; Misgab [the high fortress] is put to shame, broken down, and crushed. 
 
 
 
@@ -133,7 +133,7 @@ For the ascent of Luhith will be climbed [by successive bands of fugitives] with
 
 
 
-Flee! Save your lives! But they shall be like a destitute _and_ forsaken person in the wilderness. 
+Flee! Save your lives! But they shall be like a destitute and forsaken person in the wilderness. 
 
 
 
@@ -637,7 +637,7 @@ We have heard of the [giddy] pride of Moab, the extremely proud one--his loftine
 
 
 
-I know his insolent wrath, says the Lord, and the nothingness of his boastings _and_ his deeds; they are false _and_ have accomplished nothing. 
+I know his insolent wrath, says the Lord, and the nothingness of his boastings and his deeds; they are false and have accomplished nothing. 
 
 
 
@@ -658,7 +658,7 @@ I know his insolent wrath, says the Lord, and the nothingness of his boastings _
 
 
 
-Therefore I will wail over Moab, and I will cry out over the whole of Moab. Over the men of Kir-heres (Kir-hareseth) there will be sighing _and_ mourning. 
+Therefore I will wail over Moab, and I will cry out over the whole of Moab. Over the men of Kir-heres (Kir-hareseth) there will be sighing and mourning. 
 
 
 
@@ -700,7 +700,7 @@ O vines of Sibmah, I weep for you more than the weeping of Jazer [over its ruins
 
 
 
-Joy and gladness are taken away from the fruitful orchards _and_ fields and from the land of Moab. And I have made the juice [of the grape] to fail from what is pressed out in the vats; no one treads [the grapes] with shouting. Their shouting is no shouting [of joy, but is a battle cry]. 
+Joy and gladness are taken away from the fruitful orchards and fields and from the land of Moab. And I have made the juice [of the grape] to fail from what is pressed out in the vats; no one treads [the grapes] with shouting. Their shouting is no shouting [of joy, but is a battle cry]. 
 
 
 
@@ -742,7 +742,7 @@ From the cry of Heshbon even to Elealeh even to Jahaz have they uttered their vo
 
 
 
-Moreover, I will cause to cease in Moab, says the Lord, the one who ascends _and_ offers in the high place and the one who burns incense to his gods. 
+Moreover, I will cause to cease in Moab, says the Lord, the one who ascends and offers in the high place and the one who burns incense to his gods. 
 
 
 
@@ -763,7 +763,7 @@ Moreover, I will cause to cease in Moab, says the Lord, the one who ascends _and
 
 
 
-Therefore My heart moans _and_ sighs for Moab like flutes, and My heart moans _and_ sighs like flutes for the men of Kir-heres (Kir-hareseth); therefore [the remnant of] the abundant riches they gained has perished. 
+Therefore My heart moans and sighs for Moab like flutes, and My heart moans and sighs like flutes for the men of Kir-heres (Kir-hareseth); therefore [the remnant of] the abundant riches they gained has perished. 
 
 
 
@@ -931,7 +931,7 @@ Terror and pit and snare are before you, O inhabitant of Moab, says the Lord.
 
 
 
-He who flees from the terror will fall into the pit, and he who gets up out of the pit will be taken _and_ caught in the trap _or_ snare; for I will bring upon it, even upon Moab, the year of their visitation (their inspection and infliction of punishment), says the Lord. 
+He who flees from the terror will fall into the pit, and he who gets up out of the pit will be taken and caught in the trap or snare; for I will bring upon it, even upon Moab, the year of their visitation (their inspection and infliction of punishment), says the Lord. 
 
 
 
@@ -973,7 +973,7 @@ In the shadow of Heshbon the fugitives stand powerless (stopped in their tracks,
 
 
 
-Woe to you, O Moab! The people of [the god] Chemosh _are_ undone; for your sons are taken away captive and your daughters into captivity. 
+Woe to you, O Moab! The people of [the god] Chemosh are undone; for your sons are taken away captive and your daughters into captivity. 
 
 
 
@@ -994,4 +994,4 @@ Woe to you, O Moab! The people of [the god] Chemosh _are_ undone; for your sons 
 
 
 
-Yet will I reverse the captivity _and_ restore the fortunes of Moab in the latter days, says the Lord. Thus far is the judgment on Moab.
+Yet will I reverse the captivity and restore the fortunes of Moab in the latter days, says the Lord. Thus far is the judgment on Moab.

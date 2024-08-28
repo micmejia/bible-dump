@@ -13,7 +13,7 @@ next: ['1 Kgs 5']
 So King Solomon was king over all Israel. 
 
 ###### 2 
-And these _were_ his officials: Azariah the son of Zadok, the priest; 
+And these were his officials: Azariah the son of Zadok, the priest; 
 
 ###### 3 
 Elihoreph and Ahijah, the sons of Shisha, scribes; Jehoshaphat the son of Ahilud, the recorder; 
@@ -22,7 +22,7 @@ Elihoreph and Ahijah, the sons of Shisha, scribes; Jehoshaphat the son of Ahilud
 Benaiah the son of Jehoiada, over the army; Zadok and Abiathar, the priests; 
 
 ###### 5 
-Azariah the son of Nathan, over the officers; Zabud the son of Nathan, a priest _and_ the king's friend; 
+Azariah the son of Nathan, over the officers; Zabud the son of Nathan, a priest and the king's friend; 
 
 ###### 6 
 Ahishar, over the household; and Adoniram the son of Abda, over the labor force. 
@@ -31,25 +31,25 @@ Ahishar, over the household; and Adoniram the son of Abda, over the labor force.
 And Solomon had twelve governors over all Israel, who provided food for the king and his household; each one made provision for one month of the year. 
 
 ###### 8 
-These _are_ their names: Ben-Hur, in the mountains of Ephraim; 
+These are their names: Ben-Hur, in the mountains of Ephraim; 
 
 ###### 9 
 Ben-Deker, in Makaz, Shaalbim, Beth Shemesh, and Elon Beth Hanan; 
 
 ###### 10 
-Ben-Hesed, in Arubboth; to him _belonged_ Sochoh and all the land of Hepher; 
+Ben-Hesed, in Arubboth; to him belonged Sochoh and all the land of Hepher; 
 
 ###### 11 
-Ben-Abinadab, _in_ all the regions of Dor; he had Taphath the daughter of Solomon as wife; 
+Ben-Abinadab, in all the regions of Dor; he had Taphath the daughter of Solomon as wife; 
 
 ###### 12 
-Baana the son of Ahilud, _in_ Taanach, Megiddo, and all Beth Shean, which _is_ beside Zaretan below Jezreel, from Beth Shean to Abel Meholah, as far as the other side of Jokneam; 
+Baana the son of Ahilud, in Taanach, Megiddo, and all Beth Shean, which is beside Zaretan below Jezreel, from Beth Shean to Abel Meholah, as far as the other side of Jokneam; 
 
 ###### 13 
-Ben-Geber, in Ramoth Gilead; to him _belonged_ the towns of Jair the son of Manasseh, in Gilead; to him _also belonged_ the region of Argob in Bashan--sixty large cities with walls and bronze gate-bars; 
+Ben-Geber, in Ramoth Gilead; to him belonged the towns of Jair the son of Manasseh, in Gilead; to him also belonged the region of Argob in Bashan--sixty large cities with walls and bronze gate-bars; 
 
 ###### 14 
-Ahinadab the son of Iddo, _in_ Mahanaim; 
+Ahinadab the son of Iddo, in Mahanaim; 
 
 ###### 15 
 Ahimaaz, in Naphtali; he also took Basemath the daughter of Solomon as wife; 
@@ -64,15 +64,15 @@ Jehoshaphat the son of Paruah, in Issachar;
 Shimei the son of Elah, in Benjamin; 
 
 ###### 19 
-Geber the son of Uri, in the land of Gilead, _in_ the country of Sihon king of the Amorites, and of Og king of Bashan. _He was_ the only governor who _was_ in the land.
+Geber the son of Uri, in the land of Gilead, in the country of Sihon king of the Amorites, and of Og king of Bashan. He was the only governor who was in the land.
 
 ## Prosperity and Wisdom of Solomon's Reign 
 
 ###### 20 
-Judah and Israel _were_ as numerous as the sand by the sea in multitude, eating and drinking and rejoicing. 
+Judah and Israel were as numerous as the sand by the sea in multitude, eating and drinking and rejoicing. 
 
 ###### 21 
-So Solomon reigned over all kingdoms from the River _to_ the land of the Philistines, as far as the border of Egypt. _They_ brought tribute and served Solomon all the days of his life. 
+So Solomon reigned over all kingdoms from the River to the land of the Philistines, as far as the border of Egypt. They brought tribute and served Solomon all the days of his life. 
 
 ###### 22 
 Now Solomon's provision for one day was thirty kors of fine flour, sixty kors of meal, 
@@ -81,7 +81,7 @@ Now Solomon's provision for one day was thirty kors of fine flour, sixty kors of
 ten fatted oxen, twenty oxen from the pastures, and one hundred sheep, besides deer, gazelles, roebucks, and fatted fowl. 
 
 ###### 24 
-For he had dominion over all _the region_ on this side of the River from Tiphsah even to Gaza, namely over all the kings on this side of the River; and he had peace on every side all around him. 
+For he had dominion over all the region on this side of the River from Tiphsah even to Gaza, namely over all the kings on this side of the River; and he had peace on every side all around him. 
 
 ###### 25 
 And Judah and Israel dwelt safely, each man under his vine and his fig tree, from Dan as far as Beersheba, all the days of Solomon. 

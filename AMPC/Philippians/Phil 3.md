@@ -12,7 +12,7 @@ next: ['Phil 4']
 ###### 1 
 
 
-For the rest, my brethren, delight yourselves in the Lord _and_ continue to rejoice that you are in Him. To keep writing to you [over and over] of the same things is not irksome to me, and it is [a precaution] for your safety. 
+For the rest, my brethren, delight yourselves in the Lord and continue to rejoice that you are in Him. To keep writing to you [over and over] of the same things is not irksome to me, and it is [a precaution] for your safety. 
 
 
 ###### 2 
@@ -24,13 +24,13 @@ Look out for those dogs [Judaizers, legalists], look out for those mischief-make
 ###### 3 
 
 
-For we [Christians] are the true circumcision, who worship God in spirit _and_ by the Spirit of God and exult _and_ glory _and_ pride ourselves in Jesus Christ, and put no confidence _or_ dependence [on what we are] in the flesh _and_ on outward privileges _and_ physical advantages _and_ external appearances-- 
+For we [Christians] are the true circumcision, who worship God in spirit and by the Spirit of God and exult and glory and pride ourselves in Jesus Christ, and put no confidence or dependence [on what we are] in the flesh and on outward privileges and physical advantages and external appearances-- 
 
 
 ###### 4 
 
 
-Though for myself I have [at least grounds] to rely on the flesh. If any other man considers that he has _or_ seems to have reason to rely on the flesh _and_ his physical _and_ outward advantages, I have still more! 
+Though for myself I have [at least grounds] to rely on the flesh. If any other man considers that he has or seems to have reason to rely on the flesh and his physical and outward advantages, I have still more! 
 
 
 ###### 5 
@@ -42,7 +42,7 @@ Circumcised when I was eight days old, of the race of Israel, of the tribe of Be
 ###### 6 
 
 
-As to my zeal, I was a persecutor of the church, and by the Law's standard of righteousness (supposed justice, uprightness, and right standing with God) I was proven to be blameless _and_ no fault was found with me. 
+As to my zeal, I was a persecutor of the church, and by the Law's standard of righteousness (supposed justice, uprightness, and right standing with God) I was proven to be blameless and no fault was found with me. 
 
 
 ###### 7 
@@ -54,13 +54,13 @@ But whatever former things I had that might have been gains to me, I have come t
 ###### 8 
 
 
-Yes, furthermore, I count everything as loss compared to the possession of the priceless privilege (the overwhelming preciousness, the surpassing worth, and supreme advantage) of knowing Christ Jesus my Lord _and_ of progressively becoming more deeply _and_ intimately acquainted with Him [of perceiving and recognizing and understanding Him more fully and clearly]. For His sake I have lost everything and consider it all to be mere rubbish (refuse, dregs), in order that I may win (gain) Christ (the Anointed One), 
+Yes, furthermore, I count everything as loss compared to the possession of the priceless privilege (the overwhelming preciousness, the surpassing worth, and supreme advantage) of knowing Christ Jesus my Lord and of progressively becoming more deeply and intimately acquainted with Him [of perceiving and recognizing and understanding Him more fully and clearly]. For His sake I have lost everything and consider it all to be mere rubbish (refuse, dregs), in order that I may win (gain) Christ (the Anointed One), 
 
 
 ###### 9 
 
 
-And that I may [actually] be found _and_ known as in Him, not having any [self-achieved] righteousness that can be called my own, based on my obedience to the Law's demands (ritualistic uprightness and supposed right standing with God thus acquired), but possessing that [genuine righteousness] which comes through faith in Christ (the Anointed One), the [truly] right standing with God, which comes from God by [saving] faith. 
+And that I may [actually] be found and known as in Him, not having any [self-achieved] righteousness that can be called my own, based on my obedience to the Law's demands (ritualistic uprightness and supposed right standing with God thus acquired), but possessing that [genuine righteousness] which comes through faith in Christ (the Anointed One), the [truly] right standing with God, which comes from God by [saving] faith. 
 
 
 ###### 10 
@@ -78,13 +78,13 @@ That if possible I may attain to the [spiritual and moral] resurrection [that li
 ###### 12 
 
 
-Not that I have now attained [this ideal], or have already been made perfect, but I press on to lay hold of (grasp) _and_ make my own, that for which Christ Jesus (the Messiah) has laid hold of me _and_ made me His own. 
+Not that I have now attained [this ideal], or have already been made perfect, but I press on to lay hold of (grasp) and make my own, that for which Christ Jesus (the Messiah) has laid hold of me and made me His own. 
 
 
 ###### 13 
 
 
-I do not consider, brethren, that I have captured _and_ made it my own [yet]; but one thing I do [it is my one aspiration]: forgetting what lies behind and straining forward to what lies ahead, 
+I do not consider, brethren, that I have captured and made it my own [yet]; but one thing I do [it is my one aspiration]: forgetting what lies behind and straining forward to what lies ahead, 
 
 
 ###### 14 
@@ -96,13 +96,13 @@ I press on toward the goal to win the [supreme and heavenly] prize to which God 
 ###### 15 
 
 
-So let those [of us] who are spiritually mature _and_ full-grown have this mind _and_ hold these convictions; and if in any respect you have a different attitude of mind, God will make that clear to you also. 
+So let those [of us] who are spiritually mature and full-grown have this mind and hold these convictions; and if in any respect you have a different attitude of mind, God will make that clear to you also. 
 
 
 ###### 16 
 
 
-Only let us hold true to what we have already attained _and_ walk _and_ order our lives by that. 
+Only let us hold true to what we have already attained and walk and order our lives by that. 
 
 
 ###### 17 
@@ -120,16 +120,16 @@ For there are many, of whom I have often told you and now tell you even with tea
 ###### 19 
 
 
-They are doomed _and_ their fate is eternal misery (perdition); their god is their stomach (their appetites, their sensuality) and they glory in their shame, siding with earthly things _and_ being of their party. 
+They are doomed and their fate is eternal misery (perdition); their god is their stomach (their appetites, their sensuality) and they glory in their shame, siding with earthly things and being of their party. 
 
 
 ###### 20 
 
 
-But we are citizens of the state (commonwealth, homeland) which is in heaven, and from it also we earnestly _and_ patiently await [the coming of] the Lord Jesus Christ (the Messiah) [as] Savior, 
+But we are citizens of the state (commonwealth, homeland) which is in heaven, and from it also we earnestly and patiently await [the coming of] the Lord Jesus Christ (the Messiah) [as] Savior, 
 
 
 ###### 21 
 
 
-Who will transform _and_ fashion anew the body of our humiliation to conform to _and_ be like the body of His glory _and_ majesty, by exerting that power which enables Him even to subject everything to Himself.
+Who will transform and fashion anew the body of our humiliation to conform to and be like the body of His glory and majesty, by exerting that power which enables Him even to subject everything to Himself.

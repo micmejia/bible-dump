@@ -49,7 +49,7 @@ At that particular time Jesus went through the fields of standing grain on the S
 
 
 
-And when the Pharisees saw it, they said to Him, See there! Your disciples are doing what is unlawful _and_ not permitted on the Sabbath. 
+And when the Pharisees saw it, they said to Him, See there! Your disciples are doing what is unlawful and not permitted on the Sabbath. 
 
 
 
@@ -133,7 +133,7 @@ Or have you never read in the Law that on the Sabbath the priests in the temple 
 
 
 
-But I tell you, Something greater _and_ more exalted _and_ more majestic than the temple is here! 
+But I tell you, Something greater and more exalted and more majestic than the temple is here! 
 
 
 
@@ -154,7 +154,7 @@ But I tell you, Something greater _and_ more exalted _and_ more majestic than th
 
 
 
-And if you had only known what this saying means, I desire mercy [readiness to help, to spare, to forgive] rather than sacrifice _and_ sacrificial victims, you would not have condemned the guiltless. 
+And if you had only known what this saying means, I desire mercy [readiness to help, to spare, to forgive] rather than sacrifice and sacrificial victims, you would not have condemned the guiltless. 
 
 
 
@@ -217,7 +217,7 @@ And going on from there, He went into their synagogue.
 
 
 
-And behold, a man was there with one withered hand. And they said to Him, Is it lawful _or_ allowable to cure people on the Sabbath days?--that they might accuse Him. 
+And behold, a man was there with one withered hand. And they said to Him, Is it lawful or allowable to cure people on the Sabbath days?--that they might accuse Him. 
 
 
 
@@ -238,7 +238,7 @@ And behold, a man was there with one withered hand. And they said to Him, Is it 
 
 
 
-But He said to them, What man is there among you, if he has only one sheep and it falls into a pit _or_ ditch on the Sabbath, will not take hold of it and lift it out? 
+But He said to them, What man is there among you, if he has only one sheep and it falls into a pit or ditch on the Sabbath, will not take hold of it and lift it out? 
 
 
 
@@ -259,7 +259,7 @@ But He said to them, What man is there among you, if he has only one sheep and i
 
 
 
-How much better _and_ of more value is a man than a sheep! So it is lawful _and_ allowable to do good on the Sabbath days. 
+How much better and of more value is a man than a sheep! So it is lawful and allowable to do good on the Sabbath days. 
 
 
 
@@ -322,7 +322,7 @@ But the Pharisees went out and held a consultation against Him, how they might d
 
 
 
-But being aware of this, Jesus went away from there. And many people joined _and_ accompanied Him, and He cured all of them, 
+But being aware of this, Jesus went away from there. And many people joined and accompanied Him, and He cured all of them, 
 
 
 
@@ -343,7 +343,7 @@ But being aware of this, Jesus went away from there. And many people joined _and
 
 
 
-And strictly charged them _and_ sharply warned them not to make Him publicly known. 
+And strictly charged them and sharply warned them not to make Him publicly known. 
 
 
 
@@ -385,7 +385,7 @@ This was in fulfillment of what was spoken by the prophet Isaiah,
 
 
 
-Behold, My Servant Whom I have chosen, My Beloved in _and_ with Whom My soul is well pleased _and_ has found its delight. I will put My Spirit upon Him, and He shall proclaim _and_ show forth justice to the nations. 
+Behold, My Servant Whom I have chosen, My Beloved in and with Whom My soul is well pleased and has found its delight. I will put My Spirit upon Him, and He shall proclaim and show forth justice to the nations. 
 
 
 
@@ -406,7 +406,7 @@ Behold, My Servant Whom I have chosen, My Beloved in _and_ with Whom My soul is 
 
 
 
-He will not strive _or_ wrangle or cry out loudly; nor will anyone hear His voice in the streets; 
+He will not strive or wrangle or cry out loudly; nor will anyone hear His voice in the streets; 
 
 
 
@@ -427,7 +427,7 @@ He will not strive _or_ wrangle or cry out loudly; nor will anyone hear His voic
 
 
 
-A bruised reed He will not break, and a smoldering (dimly burning) wick He will not quench, till He brings justice _and_ a just cause to victory. 
+A bruised reed He will not break, and a smoldering (dimly burning) wick He will not quench, till He brings justice and a just cause to victory. 
 
 
 
@@ -448,7 +448,7 @@ A bruised reed He will not break, and a smoldering (dimly burning) wick He will 
 
 
 
-And in _and_ on His name will the Gentiles (the peoples outside of Israel) set their hopes. 
+And in and on His name will the Gentiles (the peoples outside of Israel) set their hopes. 
 
 
 
@@ -511,7 +511,7 @@ And all the [crowds of] people were stunned with bewildered wonder and said, Thi
 
 
 
-But the Pharisees, hearing it, said, This Man drives out demons only by _and_ with the help of Beelzebub, the prince of demons. 
+But the Pharisees, hearing it, said, This Man drives out demons only by and with the help of Beelzebub, the prince of demons. 
 
 
 
@@ -532,7 +532,7 @@ But the Pharisees, hearing it, said, This Man drives out demons only by _and_ wi
 
 
 
-And knowing their thoughts, He said to them, Any kingdom that is divided against itself is being brought to desolation _and_ laid waste, and no city _or_ house divided against itself will last _or_ continue to stand. 
+And knowing their thoughts, He said to them, Any kingdom that is divided against itself is being brought to desolation and laid waste, and no city or house divided against itself will last or continue to stand. 
 
 
 
@@ -553,7 +553,7 @@ And knowing their thoughts, He said to them, Any kingdom that is divided against
 
 
 
-And if Satan drives out Satan, he has become divided against himself _and_ disunified; how then will his kingdom last _or_ continue to stand? 
+And if Satan drives out Satan, he has become divided against himself and disunified; how then will his kingdom last or continue to stand? 
 
 
 
@@ -637,7 +637,7 @@ Or how can a person go into a strong man's house and carry off his goods (the en
 
 
 
-He who is not with Me [definitely on My side] is against Me, and he who does not [definitely] gather with Me _and_ for My side scatters. 
+He who is not with Me [definitely on My side] is against Me, and he who does not [definitely] gather with Me and for My side scatters. 
 
 
 
@@ -658,7 +658,7 @@ He who is not with Me [definitely on My side] is against Me, and he who does not
 
 
 
-Therefore I tell you, every sin and blasphemy (every evil, abusive, injurious speaking, or indignity against sacred things) can be forgiven men, but blasphemy against the [Holy] Spirit shall not _and_ cannot be forgiven. 
+Therefore I tell you, every sin and blasphemy (every evil, abusive, injurious speaking, or indignity against sacred things) can be forgiven men, but blasphemy against the [Holy] Spirit shall not and cannot be forgiven. 
 
 
 
@@ -679,7 +679,7 @@ Therefore I tell you, every sin and blasphemy (every evil, abusive, injurious sp
 
 
 
-And whoever speaks a word against the Son of Man will be forgiven, but whoever speaks against the Spirit, the Holy One, will not be forgiven, either in this world _and_ age or in the world _and_ age to come. 
+And whoever speaks a word against the Son of Man will be forgiven, but whoever speaks against the Spirit, the Holy One, will not be forgiven, either in this world and age or in the world and age to come. 
 
 
 
@@ -700,7 +700,7 @@ And whoever speaks a word against the Son of Man will be forgiven, but whoever s
 
 
 
-Either make the tree sound (healthy and good), and its fruit sound (healthy and good), or make the tree rotten (diseased and bad), and its fruit rotten (diseased and bad); for the tree is known _and_ recognized _and_ judged by its fruit. 
+Either make the tree sound (healthy and good), and its fruit sound (healthy and good), or make the tree rotten (diseased and bad), and its fruit rotten (diseased and bad); for the tree is known and recognized and judged by its fruit. 
 
 
 
@@ -784,7 +784,7 @@ But I tell you, on the day of judgment men will have to give account for every i
 
 
 
-For by your words you will be justified _and_ acquitted, and by your words you will be condemned _and_ sentenced. 
+For by your words you will be justified and acquitted, and by your words you will be condemned and sentenced. 
 
 
 
@@ -805,7 +805,7 @@ For by your words you will be justified _and_ acquitted, and by your words you w
 
 
 
-Then some of the scribes and Pharisees said to Him, Teacher, we desire to see a sign _or_ miracle from You [proving that You are what You claim to be]. 
+Then some of the scribes and Pharisees said to Him, Teacher, we desire to see a sign or miracle from You [proving that You are what You claim to be]. 
 
 
 
@@ -826,7 +826,7 @@ Then some of the scribes and Pharisees said to Him, Teacher, we desire to see a 
 
 
 
-But He replied to them, An evil and adulterous generation (a generation morally unfaithful to God) seeks _and_ demands a sign; but no sign shall be given to it except the sign of the prophet Jonah. 
+But He replied to them, An evil and adulterous generation (a generation morally unfaithful to God) seeks and demands a sign; but no sign shall be given to it except the sign of the prophet Jonah. 
 
 
 
@@ -868,7 +868,7 @@ For even as Jonah was three days and three nights in the belly of the sea monste
 
 
 
-The men of Nineveh will stand up at the judgment with this generation and condemn it; for they repented at the preaching of Jonah, and behold, Someone more _and_ greater than Jonah is here! 
+The men of Nineveh will stand up at the judgment with this generation and condemn it; for they repented at the preaching of Jonah, and behold, Someone more and greater than Jonah is here! 
 
 
 
@@ -889,7 +889,7 @@ The men of Nineveh will stand up at the judgment with this generation and condem
 
 
 
-The queen of the South will stand up at the judgment with this generation and condemn it; for she came from the ends of the earth to listen to the wisdom of Solomon, and behold, Someone more _and_ greater than Solomon is here. 
+The queen of the South will stand up at the judgment with this generation and condemn it; for she came from the ends of the earth to listen to the wisdom of Solomon, and behold, Someone more and greater than Solomon is here. 
 
 
 
@@ -931,7 +931,7 @@ But when the unclean spirit has gone out of a man, it roams through dry [arid] p
 
 
 
-Then it says, I will go back to my house from which I came out. And when it arrives, it finds the place unoccupied, swept, put in order, _and_ decorated. 
+Then it says, I will go back to my house from which I came out. And when it arrives, it finds the place unoccupied, swept, put in order, and decorated. 
 
 
 
@@ -994,7 +994,7 @@ Jesus was still speaking to the people when behold, His mother and brothers stoo
 
 
 
-_Someone said to Him, Listen! Your mother and Your brothers are standing outside, seeking to speak to You._ 
+Someone said to Him, Listen! Your mother and Your brothers are standing outside, seeking to speak to You. 
 
 
 

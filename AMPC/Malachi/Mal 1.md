@@ -27,7 +27,7 @@ next: ['Mal 2']
 
 
 
-The burden _or_ oracle (the thing to be lifted up) of the word of the Lord to Israel by Malachi [My messenger]. 
+The burden or oracle (the thing to be lifted up) of the word of the Lord to Israel by Malachi [My messenger]. 
 
 
 
@@ -48,7 +48,7 @@ The burden _or_ oracle (the thing to be lifted up) of the word of the Lord to Is
 
 
 
-I have loved you, says the Lord. Yet you say, How _and_ in what way have You loved us? Was not Esau Jacob's brother? says the Lord; yet I loved Jacob (Israel), 
+I have loved you, says the Lord. Yet you say, How and in what way have You loved us? Was not Esau Jacob's brother? says the Lord; yet I loved Jacob (Israel), 
 
 
 
@@ -90,7 +90,7 @@ But [in comparison with the degree of love I have for Jacob] I have hated Esau [
 
 
 
-Though [impoverished] Edom should say, We are beaten down, but we will return and build the waste places--thus says the Lord of hosts: They may build, but I will tear _and_ throw down; and men will call them the Wicked Country, the people against whom the Lord has indignation forever. 
+Though [impoverished] Edom should say, We are beaten down, but we will return and build the waste places--thus says the Lord of hosts: They may build, but I will tear and throw down; and men will call them the Wicked Country, the people against whom the Lord has indignation forever. 
 
 
 
@@ -111,7 +111,7 @@ Though [impoverished] Edom should say, We are beaten down, but we will return an
 
 
 
-Your own eyes shall see this and you shall say, The Lord is great _and_ will be magnified over _and_ beyond the border of Israel! 
+Your own eyes shall see this and you shall say, The Lord is great and will be magnified over and beyond the border of Israel! 
 
 
 
@@ -132,7 +132,7 @@ Your own eyes shall see this and you shall say, The Lord is great _and_ will be 
 
 
 
-A son honors his father, and a servant his master. If then I am a Father, where is My honor? And if I am a Master, where is the [reverent] fear due Me? says the Lord of hosts to you, O priests, who despise My name. You say, How _and_ in what way have we despised Your name? 
+A son honors his father, and a servant his master. If then I am a Father, where is My honor? And if I am a Master, where is the [reverent] fear due Me? says the Lord of hosts to you, O priests, who despise My name. You say, How and in what way have we despised Your name? 
 
 
 
@@ -153,7 +153,7 @@ A son honors his father, and a servant his master. If then I am a Father, where 
 
 
 
-By offering polluted food upon My altar. And you ask, How have we polluted it _and_ profaned You? By thinking that the table of the Lord is contemptible _and_ may be despised. 
+By offering polluted food upon My altar. And you ask, How have we polluted it and profaned You? By thinking that the table of the Lord is contemptible and may be despised. 
 
 
 
@@ -195,7 +195,7 @@ When you [priests] offer blind [animals] for sacrifice, is it not evil? And when
 
 
 
-Now then, I [Malachi] beg [you priests], entreat God [earnestly] that He will be gracious to us. With such a gift from your hand [as a defective animal for sacrifice], will He accept it _or_ show favor to any of you? says the Lord of hosts. 
+Now then, I [Malachi] beg [you priests], entreat God [earnestly] that He will be gracious to us. With such a gift from your hand [as a defective animal for sacrifice], will He accept it or show favor to any of you? says the Lord of hosts. 
 
 
 
@@ -258,7 +258,7 @@ For from the rising of the sun to its setting My name shall be great among the n
 
 
 
-But you [priests] profane it when [by your actions] you say, The table of the Lord is polluted, and the fruit of it, its food, is contemptible _and_ may be despised. 
+But you [priests] profane it when [by your actions] you say, The table of the Lord is polluted, and the fruit of it, its food, is contemptible and may be despised. 
 
 
 
@@ -279,7 +279,7 @@ But you [priests] profane it when [by your actions] you say, The table of the Lo
 
 
 
-You say also, Behold, what a drudgery _and_ weariness this is! And you have sniffed at it, says the Lord of hosts. And you have brought that which was taken by violence, or the lame or the sick; this you bring as an offering! Shall I accept this from your hand? says the Lord. 
+You say also, Behold, what a drudgery and weariness this is! And you have sniffed at it, says the Lord of hosts. And you have brought that which was taken by violence, or the lame or the sick; this you bring as an offering! Shall I accept this from your hand? says the Lord. 
 
 
 
@@ -300,4 +300,4 @@ You say also, Behold, what a drudgery _and_ weariness this is! And you have snif
 
 
 
-But cursed is the [cheating] deceiver who has a male in his flock and vows to offer it, yet sacrifices to the [sovereign] Lord a blemished _or_ diseased thing! For I am a great King, says the Lord of hosts, and My name is terrible _and_ to be [reverently] feared among the nations.
+But cursed is the [cheating] deceiver who has a male in his flock and vows to offer it, yet sacrifices to the [sovereign] Lord a blemished or diseased thing! For I am a great King, says the Lord of hosts, and My name is terrible and to be [reverently] feared among the nations.

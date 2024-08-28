@@ -10,7 +10,7 @@ next: ['Prov 7']
 
 
 ###### 1 
-My son, if you become surety for your friend, _If_ you have shaken hands in pledge for a stranger, 
+My son, if you become surety for your friend, If you have shaken hands in pledge for a stranger, 
 
 ###### 2 
 You are snared by the words of your mouth; You are taken by the words of your mouth. 
@@ -22,7 +22,7 @@ So do this, my son, and deliver yourself; For you have come into the hand of you
 Give no sleep to your eyes, Nor slumber to your eyelids. 
 
 ###### 5 
-Deliver yourself like a gazelle from the hand _of the hunter,_ And like a bird from the hand of the fowler.
+Deliver yourself like a gazelle from the hand of the hunter, And like a bird from the hand of the fowler.
 
 ## The Folly of Indolence 
 
@@ -33,7 +33,7 @@ Go to the ant, you sluggard! Consider her ways and be wise,
 Which, having no captain, Overseer or ruler, 
 
 ###### 8 
-Provides her supplies in the summer, _And_ gathers her food in the harvest. 
+Provides her supplies in the summer, And gathers her food in the harvest. 
 
 ###### 9 
 How long will you slumber, O sluggard? When will you rise from your sleep? 
@@ -53,13 +53,13 @@ A worthless person, a wicked man, Walks with a perverse mouth;
 He winks with his eyes, He shuffles his feet, He points with his fingers; 
 
 ###### 14 
-Perversity _is_ in his heart, He devises evil continually, He sows discord. 
+Perversity is in his heart, He devises evil continually, He sows discord. 
 
 ###### 15 
 Therefore his calamity shall come suddenly; Suddenly he shall be broken without remedy. 
 
 ###### 16 
-These six _things_ the Lord hates, Yes, seven _are_ an abomination to Him: 
+These six things the Lord hates, Yes, seven are an abomination to Him: 
 
 ###### 17 
 A proud look, A lying tongue, Hands that shed innocent blood, 
@@ -68,7 +68,7 @@ A proud look, A lying tongue, Hands that shed innocent blood,
 A heart that devises wicked plans, Feet that are swift in running to evil, 
 
 ###### 19 
-A false witness _who_ speaks lies, And one who sows discord among brethren.
+A false witness who speaks lies, And one who sows discord among brethren.
 
 ## Beware of Adultery 
 
@@ -79,10 +79,10 @@ My son, keep your father's command, And do not forsake the law of your mother.
 Bind them continually upon your heart; Tie them around your neck. 
 
 ###### 22 
-When you roam, they will lead you; When you sleep, they will keep you; And _when_ you awake, they will speak with you. 
+When you roam, they will lead you; When you sleep, they will keep you; And when you awake, they will speak with you. 
 
 ###### 23 
-For the commandment _is_ a lamp, And the law a light; Reproofs of instruction _are_ the way of life, 
+For the commandment is a lamp, And the law a light; Reproofs of instruction are the way of life, 
 
 ###### 24 
 To keep you from the evil woman, From the flattering tongue of a seductress. 
@@ -91,7 +91,7 @@ To keep you from the evil woman, From the flattering tongue of a seductress.
 Do not lust after her beauty in your heart, Nor let her allure you with her eyelids. 
 
 ###### 26 
-For by means of a harlot _A man is reduced_ to a crust of bread; And an adulteress will prey upon his precious life. 
+For by means of a harlot A man is reduced to a crust of bread; And an adulteress will prey upon his precious life. 
 
 ###### 27 
 Can a man take fire to his bosom, And his clothes not be burned? 
@@ -100,22 +100,22 @@ Can a man take fire to his bosom, And his clothes not be burned?
 Can one walk on hot coals, And his feet not be seared? 
 
 ###### 29 
-So _is_ he who goes in to his neighbor's wife; Whoever touches her shall not be innocent. 
+So is he who goes in to his neighbor's wife; Whoever touches her shall not be innocent. 
 
 ###### 30 
-_People_ do not despise a thief If he steals to satisfy himself when he is starving. 
+People do not despise a thief If he steals to satisfy himself when he is starving. 
 
 ###### 31 
-Yet _when_ he is found, he must restore sevenfold; He may have to give up all the substance of his house. 
+Yet when he is found, he must restore sevenfold; He may have to give up all the substance of his house. 
 
 ###### 32 
-Whoever commits adultery with a woman lacks understanding; He _who_ does so destroys his own soul. 
+Whoever commits adultery with a woman lacks understanding; He who does so destroys his own soul. 
 
 ###### 33 
 Wounds and dishonor he will get, And his reproach will not be wiped away. 
 
 ###### 34 
-For jealousy _is_ a husband's fury; Therefore he will not spare in the day of vengeance. 
+For jealousy is a husband's fury; Therefore he will not spare in the day of vengeance. 
 
 ###### 35 
 He will accept no recompense, Nor will he be appeased though you give many gifts.

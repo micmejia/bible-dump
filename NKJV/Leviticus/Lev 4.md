@@ -13,7 +13,7 @@ next: ['Lev 5']
 Now the Lord spoke to Moses, saying, 
 
 ###### 2 
-"Speak to the children of Israel, saying: 'If a person sins unintentionally against any of the commandments of the Lord _in anything_ which ought not to be done, and does any of them, 
+"Speak to the children of Israel, saying: 'If a person sins unintentionally against any of the commandments of the Lord in anything which ought not to be done, and does any of them, 
 
 ###### 3 
 if the anointed priest sins, bringing guilt on the people, then let him offer to the Lord for his sin which he has sinned a young bull without blemish as a sin offering. 
@@ -31,10 +31,10 @@ The priest shall dip his finger in the blood and sprinkle some of the blood seve
 And the priest shall put some of the blood on the horns of the altar of sweet incense before the Lord, which is in the tabernacle of meeting; and he shall pour the remaining blood of the bull at the base of the altar of the burnt offering, which is at the door of the tabernacle of meeting. 
 
 ###### 8 
-He shall take from it all the fat of the bull as the sin offering. The fat that covers the entrails and all the fat which _is_ on the entrails, 
+He shall take from it all the fat of the bull as the sin offering. The fat that covers the entrails and all the fat which is on the entrails, 
 
 ###### 9 
-the two kidneys and the fat that _is_ on them by the flanks, and the fatty lobe _attached_ to the liver above the kidneys, he shall remove, 
+the two kidneys and the fat that is on them by the flanks, and the fatty lobe attached to the liver above the kidneys, he shall remove, 
 
 ###### 10 
 as it was taken from the bull of the sacrifice of the peace offering; and the priest shall burn them on the altar of the burnt offering. 
@@ -46,7 +46,7 @@ But the bull's hide and all its flesh, with its head and legs, its entrails and 
 the whole bull he shall carry outside the camp to a clean place, where the ashes are poured out, and burn it on wood with fire; where the ashes are poured out it shall be burned. 
 
 ###### 13 
-'Now if the whole congregation of Israel sins unintentionally, and the thing is hidden from the eyes of the assembly, and they have done _something against_ any of the commandments of the Lord _in anything_ which should not be done, and are guilty; 
+'Now if the whole congregation of Israel sins unintentionally, and the thing is hidden from the eyes of the assembly, and they have done something against any of the commandments of the Lord in anything which should not be done, and are guilty; 
 
 ###### 14 
 when the sin which they have committed becomes known, then the assembly shall offer a young bull for the sin, and bring it before the tabernacle of meeting. 
@@ -58,37 +58,37 @@ And the elders of the congregation shall lay their hands on the head of the bull
 The anointed priest shall bring some of the bull's blood to the tabernacle of meeting. 
 
 ###### 17 
-Then the priest shall dip his finger in the blood and sprinkle _it_ seven times before the Lord, in front of the veil. 
+Then the priest shall dip his finger in the blood and sprinkle it seven times before the Lord, in front of the veil. 
 
 ###### 18 
-And he shall put _some_ of the blood on the horns of the altar which _is_ before the Lord, which _is_ in the tabernacle of meeting; and he shall pour the remaining blood at the base of the altar of burnt offering, which is at the door of the tabernacle of meeting. 
+And he shall put some of the blood on the horns of the altar which is before the Lord, which is in the tabernacle of meeting; and he shall pour the remaining blood at the base of the altar of burnt offering, which is at the door of the tabernacle of meeting. 
 
 ###### 19 
-He shall take all the fat from it and burn _it_ on the altar. 
+He shall take all the fat from it and burn it on the altar. 
 
 ###### 20 
 And he shall do with the bull as he did with the bull as a sin offering; thus he shall do with it. So the priest shall make atonement for them, and it shall be forgiven them. 
 
 ###### 21 
-Then he shall carry the bull outside the camp, and burn it as he burned the first bull. It _is_ a sin offering for the assembly. 
+Then he shall carry the bull outside the camp, and burn it as he burned the first bull. It is a sin offering for the assembly. 
 
 ###### 22 
-'When a ruler has sinned, and done _something_ unintentionally _against_ any of the commandments of the Lord his God _in anything_ which should not be done, and is guilty, 
+'When a ruler has sinned, and done something unintentionally against any of the commandments of the Lord his God in anything which should not be done, and is guilty, 
 
 ###### 23 
 or if his sin which he has committed comes to his knowledge, he shall bring as his offering a kid of the goats, a male without blemish. 
 
 ###### 24 
-And he shall lay his hand on the head of the goat, and kill it at the place where they kill the burnt offering before the Lord. It _is_ a sin offering. 
+And he shall lay his hand on the head of the goat, and kill it at the place where they kill the burnt offering before the Lord. It is a sin offering. 
 
 ###### 25 
-The priest shall take some of the blood of the sin offering with his finger, put _it_ on the horns of the altar of burnt offering, and pour its blood at the base of the altar of burnt offering. 
+The priest shall take some of the blood of the sin offering with his finger, put it on the horns of the altar of burnt offering, and pour its blood at the base of the altar of burnt offering. 
 
 ###### 26 
 And he shall burn all its fat on the altar, like the fat of the sacrifice of the peace offering. So the priest shall make atonement for him concerning his sin, and it shall be forgiven him. 
 
 ###### 27 
-'If anyone of the common people sins unintentionally by doing _something against_ any of the commandments of the Lord _in anything_ which ought not to be done, and is guilty, 
+'If anyone of the common people sins unintentionally by doing something against any of the commandments of the Lord in anything which ought not to be done, and is guilty, 
 
 ###### 28 
 or if his sin which he has committed comes to his knowledge, then he shall bring as his offering a kid of the goats, a female without blemish, for his sin which he has committed. 
@@ -97,7 +97,7 @@ or if his sin which he has committed comes to his knowledge, then he shall bring
 And he shall lay his hand on the head of the sin offering, and kill the sin offering at the place of the burnt offering. 
 
 ###### 30 
-Then the priest shall take _some_ of its blood with his finger, put _it_ on the horns of the altar of burnt offering, and pour all _the remaining_ blood at the base of the altar. 
+Then the priest shall take some of its blood with his finger, put it on the horns of the altar of burnt offering, and pour all the remaining blood at the base of the altar. 
 
 ###### 31 
 He shall remove all its fat, as fat is removed from the sacrifice of the peace offering; and the priest shall burn it on the altar for a sweet aroma to the Lord. So the priest shall make atonement for him, and it shall be forgiven him. 
@@ -109,7 +109,7 @@ He shall remove all its fat, as fat is removed from the sacrifice of the peace o
 Then he shall lay his hand on the head of the sin offering, and kill it as a sin offering at the place where they kill the burnt offering. 
 
 ###### 34 
-The priest shall take _some_ of the blood of the sin offering with his finger, put _it_ on the horns of the altar of burnt offering, and pour all _the remaining_ blood at the base of the altar. 
+The priest shall take some of the blood of the sin offering with his finger, put it on the horns of the altar of burnt offering, and pour all the remaining blood at the base of the altar. 
 
 ###### 35 
 He shall remove all its fat, as the fat of the lamb is removed from the sacrifice of the peace offering. Then the priest shall burn it on the altar, according to the offerings made by fire to the Lord. So the priest shall make atonement for his sin that he has committed, and it shall be forgiven him.

@@ -47,13 +47,13 @@ This is He Who came by (with) water and blood [His baptism and His death], Jesus
 ###### 7 
 
 
-So there are three witnesses _in heaven: the Father, the Word and the Holy Spirit, and these three are One;_ 
+So there are three witnesses in heaven: the Father, the Word and the Holy Spirit, and these three are One; 
 
 
 ###### 8 
 
 
-_and there are three witnesses on the earth_: the Spirit, the water, and the blood; and these three agree [are in unison; their testimony coincides]. 
+and there are three witnesses on the earth: the Spirit, the water, and the blood; and these three agree [are in unison; their testimony coincides]. 
 
 
 ###### 9 
@@ -65,7 +65,7 @@ If we accept [as we do] the testimony of men [if we are willing to take human au
 ###### 10 
 
 
-He who believes in the Son of God [who adheres to, trusts in, and relies on Him] has the testimony [possesses this divine attestation] within himself. He who does not believe God [in this way] has made Him out to be _and_ represented Him as a liar, because he has not believed (put his faith in, adhered to, and relied on) the evidence (the testimony) that God has borne regarding His Son. 
+He who believes in the Son of God [who adheres to, trusts in, and relies on Him] has the testimony [possesses this divine attestation] within himself. He who does not believe God [in this way] has made Him out to be and represented Him as a liar, because he has not believed (put his faith in, adhered to, and relied on) the evidence (the testimony) that God has borne regarding His Son. 
 
 
 ###### 11 
@@ -89,7 +89,7 @@ I write this to you who believe in (adhere to, trust in, and rely on) the name o
 ###### 14 
 
 
-And this is the confidence (the assurance, the privilege of boldness) which we have in Him: [we are sure] that if we ask anything (make any request) according to His will (in agreement with His own plan), He listens to _and_ hears us. 
+And this is the confidence (the assurance, the privilege of boldness) which we have in Him: [we are sure] that if we ask anything (make any request) according to His will (in agreement with His own plan), He listens to and hears us. 
 
 
 ###### 15 
@@ -113,7 +113,7 @@ All wrongdoing is sin, and there is sin which does not [involve] death [that may
 ###### 18 
 
 
-We know [absolutely] that anyone born of God does not [deliberately and knowingly] practice committing sin, but the One Who was begotten of God carefully watches over _and_ protects him [Christ's divine presence within him preserves him against the evil], and the wicked one does not lay hold (get a grip) on him _or_ touch [him]. 
+We know [absolutely] that anyone born of God does not [deliberately and knowingly] practice committing sin, but the One Who was begotten of God carefully watches over and protects him [Christ's divine presence within him preserves him against the evil], and the wicked one does not lay hold (get a grip) on him or touch [him]. 
 
 
 ###### 19 
@@ -125,10 +125,10 @@ We know [positively] that we are of God, and the whole world [around us] is unde
 ###### 20 
 
 
-And we [have seen and] know [positively] that the Son of God has [actually] come to this world and has given us understanding _and_ insight [progressively] to perceive (recognize) _and_ come to know better _and_ more clearly Him Who is true; and we are in Him Who is true--in His Son Jesus Christ (the Messiah). This [Man] is the true God and Life eternal. 
+And we [have seen and] know [positively] that the Son of God has [actually] come to this world and has given us understanding and insight [progressively] to perceive (recognize) and come to know better and more clearly Him Who is true; and we are in Him Who is true--in His Son Jesus Christ (the Messiah). This [Man] is the true God and Life eternal. 
 
 
 ###### 21 
 
 
-Little children, keep yourselves from idols (false gods)--[from anything and everything that would occupy the place in your heart due to God, from any sort of substitute for Him that would take first place in your life]. _Amen (so let it be)._
+Little children, keep yourselves from idols (false gods)--[from anything and everything that would occupy the place in your heart due to God, from any sort of substitute for Him that would take first place in your life]. Amen (so let it be).

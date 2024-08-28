@@ -132,7 +132,7 @@ Your fathers, where are they? And the prophets, do they live forever?
 
 
 
-But My words and My statutes, which I commanded My servants the prophets, did they not overtake _and_ take hold of your fathers? So they repented and said, As the Lord of hosts planned _and_ purposed to do to us, according to our ways and according to our doings, so has He dealt with us. 
+But My words and My statutes, which I commanded My servants the prophets, did they not overtake and take hold of your fathers? So they repented and said, As the Lord of hosts planned and purposed to do to us, according to our ways and according to our doings, so has He dealt with us. 
 
 
 
@@ -174,7 +174,7 @@ Upon the twenty-fourth day of the eleventh month, which is the month of Shebat, 
 
 
 
-I saw in the night [vision] and behold, a Man riding upon a red horse, and He stood among the myrtle trees that were in a low valley _or_ bottom, and behind Him there were horses, red, bay _or_ flame-colored, and white. 
+I saw in the night [vision] and behold, a Man riding upon a red horse, and He stood among the myrtle trees that were in a low valley or bottom, and behind Him there were horses, red, bay or flame-colored, and white. 
 
 
 
@@ -216,7 +216,7 @@ Then said I, O my lord, what are these? And the angel who talked with me said, I
 
 
 
-And the Man who stood among the myrtle trees answered and said, These are they whom the Lord has sent to walk to and fro through the earth _and_ patrol it. 
+And the Man who stood among the myrtle trees answered and said, These are they whom the Lord has sent to walk to and fro through the earth and patrol it. 
 
 
 
@@ -258,7 +258,7 @@ And the men on the horses answered the Angel of the Lord Who stood among the myr
 
 
 
-Then the Angel of the Lord said, O Lord of hosts, how long will You not have mercy _and_ lovingkindness for Jerusalem and the cities of Judah, against which You have had indignation these seventy years [of the Babylonian captivity]? 
+Then the Angel of the Lord said, O Lord of hosts, how long will You not have mercy and lovingkindness for Jerusalem and the cities of Judah, against which You have had indignation these seventy years [of the Babylonian captivity]? 
 
 
 
@@ -321,7 +321,7 @@ So the angel who talked with me said to me, Cry out, Thus says the Lord of hosts
 
 
 
-And I am very angry with the nations that are at ease; for while I was but a little displeased, they helped forward the affliction _and_ disaster. 
+And I am very angry with the nations that are at ease; for while I was but a little displeased, they helped forward the affliction and disaster. 
 
 
 
@@ -405,7 +405,7 @@ Then I lifted up my eyes and saw, and behold, four horns [symbols of strength].
 
 
 
-And I said to the angel who talked with me, What are these? And he answered me, These are the horns _or_ powers which have scattered Judah, Israel, and Jerusalem. 
+And I said to the angel who talked with me, What are these? And he answered me, These are the horns or powers which have scattered Judah, Israel, and Jerusalem. 
 
 
 
@@ -426,7 +426,7 @@ And I said to the angel who talked with me, What are these? And he answered me, 
 
 
 
-Then the Lord showed me four smiths _or_ workmen [one for each enemy horn, to beat it down]. 
+Then the Lord showed me four smiths or workmen [one for each enemy horn, to beat it down]. 
 
 
 
@@ -447,4 +447,4 @@ Then the Lord showed me four smiths _or_ workmen [one for each enemy horn, to be
 
 
 
-Then said I, What are these [horns and smiths] coming to do? And he said, These are the horns _or_ powers that scattered Judah so that no man lifted up his head. But these smiths _or_ workmen have come to terrorize them _and_ cause them to be panic-stricken, to cast out the horns _or_ powers of the nations who lifted up their horn against the land of Judah to scatter it.
+Then said I, What are these [horns and smiths] coming to do? And he said, These are the horns or powers that scattered Judah so that no man lifted up his head. But these smiths or workmen have come to terrorize them and cause them to be panic-stricken, to cast out the horns or powers of the nations who lifted up their horn against the land of Judah to scatter it.

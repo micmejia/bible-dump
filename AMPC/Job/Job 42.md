@@ -48,7 +48,7 @@ Then Job said to the Lord,
 
 
 
-I know that You can do all things, and that no thought _or_ purpose of Yours can be restrained _or_ thwarted. 
+I know that You can do all things, and that no thought or purpose of Yours can be restrained or thwarted. 
 
 
 
@@ -69,7 +69,7 @@ I know that You can do all things, and that no thought _or_ purpose of Yours can
 
 
 
-[You said to me] Who is this that darkens _and_ obscures counsel [by words] without knowledge? Therefore [I now see] I have [rashly] uttered what I did not understand, things too wonderful for me, which I did not know. 
+[You said to me] Who is this that darkens and obscures counsel [by words] without knowledge? Therefore [I now see] I have [rashly] uttered what I did not understand, things too wonderful for me, which I did not know. 
 
 
 
@@ -132,7 +132,7 @@ I had heard of You [only] by the hearing of the ear, but now my [spiritual] eye 
 
 
 
-Therefore I loathe [my words] _and_ abhor myself and repent in dust and ashes. 
+Therefore I loathe [my words] and abhor myself and repent in dust and ashes. 
 
 
 
@@ -216,7 +216,7 @@ So Eliphaz the Temanite and Bildad the Shuhite and Zophar the Naamathite went an
 
 
 
-And the Lord turned the captivity of Job _and_ restored his fortunes, when he prayed for his friends; also the Lord gave Job twice as much as he had before. 
+And the Lord turned the captivity of Job and restored his fortunes, when he prayed for his friends; also the Lord gave Job twice as much as he had before. 
 
 
 

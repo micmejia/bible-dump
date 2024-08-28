@@ -70,7 +70,7 @@ It is better to go to the house of mourning than to go to the house of feasting,
 
 
 
-Sorrow is better than laughter, for by the sadness of the countenance the heart is made better _and_ gains gladness. 
+Sorrow is better than laughter, for by the sadness of the countenance the heart is made better and gains gladness. 
 
 
 
@@ -91,7 +91,7 @@ Sorrow is better than laughter, for by the sadness of the countenance the heart 
 
 
 
-The heart of the wise is in the house of mourning, but the heart of fools is in the house of mirth _and_ sensual joy. 
+The heart of the wise is in the house of mourning, but the heart of fools is in the house of mirth and sensual joy. 
 
 
 
@@ -154,7 +154,7 @@ For like the crackling of thorns under a pot, so is the laughter of the fool. Th
 
 
 
-Surely oppression _and_ extortion make a wise man foolish, and a bribe destroys the understanding _and_ judgment. 
+Surely oppression and extortion make a wise man foolish, and a bribe destroys the understanding and judgment. 
 
 
 
@@ -196,7 +196,7 @@ Better is the end of a thing than the beginning of it, and the patient in spirit
 
 
 
-Do not be quick in spirit to be angry _or_ vexed, for anger _and_ vexation lodge in the bosom of fools. 
+Do not be quick in spirit to be angry or vexed, for anger and vexation lodge in the bosom of fools. 
 
 
 
@@ -217,7 +217,7 @@ Do not be quick in spirit to be angry _or_ vexed, for anger _and_ vexation lodge
 
 
 
-Do not say, Why were the old days better than these? For it is not wise _or_ because of wisdom that you ask this. 
+Do not say, Why were the old days better than these? For it is not wise or because of wisdom that you ask this. 
 
 
 
@@ -259,7 +259,7 @@ Wisdom is as good as an inheritance, yes, more excellent it is for those [the li
 
 
 
-For wisdom is a defense even as money is a defense, but the excellency of knowledge is that wisdom shields _and_ preserves the life of him who has it. 
+For wisdom is a defense even as money is a defense, but the excellency of knowledge is that wisdom shields and preserves the life of him who has it. 
 
 
 
@@ -364,7 +364,7 @@ Be not [morbidly exacting and externally] righteous overmuch, neither strive to 
 
 
 
-[Although all have sinned] be not wicked overmuch _or_ willfully, neither be foolish--why should you die before your time? 
+[Although all have sinned] be not wicked overmuch or willfully, neither be foolish--why should you die before your time? 
 
 
 
@@ -385,7 +385,7 @@ Be not [morbidly exacting and externally] righteous overmuch, neither strive to 
 
 
 
-It is good that you should take hold of this and from that withdraw not your hand; for he who [reverently] fears _and_ worships God will come forth from them all. 
+It is good that you should take hold of this and from that withdraw not your hand; for he who [reverently] fears and worships God will come forth from them all. 
 
 
 
@@ -406,7 +406,7 @@ It is good that you should take hold of this and from that withdraw not your han
 
 
 
-[True] wisdom is a strength to the wise man more than ten rulers _or_ valiant generals who are in the city. 
+[True] wisdom is a strength to the wise man more than ten rulers or valiant generals who are in the city. 
 
 
 
@@ -490,7 +490,7 @@ For often your own heart knows that you have likewise cursed others.
 
 
 
-All this have I tried _and_ proved by wisdom. I said, I will be wise [independently of God]--but it was far from me. 
+All this have I tried and proved by wisdom. I said, I will be wise [independently of God]--but it was far from me. 
 
 
 

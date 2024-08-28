@@ -90,7 +90,7 @@ But when they went inside, they did not find the body of the Lord Jesus.
 
 
 
-And while they were perplexed _and_ wondering what to do about this, behold, two men in dazzling raiment suddenly stood beside them. 
+And while they were perplexed and wondering what to do about this, behold, two men in dazzling raiment suddenly stood beside them. 
 
 
 
@@ -258,7 +258,7 @@ But these reports seemed to the men an idle tale (madness, feigned things, nonse
 
 
 
-But Peter got up and ran to the tomb; and stooping down and looking in, he saw the linen cloths alone by themselves, and he went away, wondering about _and_ marveling at what had happened. 
+But Peter got up and ran to the tomb; and stooping down and looking in, he saw the linen cloths alone by themselves, and he went away, wondering about and marveling at what had happened. 
 
 
 
@@ -363,7 +363,7 @@ But their eyes were held, so that they did not recognize Him.
 
 
 
-And He said to them, What is this discussion that you are exchanging (throwing back and forth) between yourselves as you walk along? And they stood still, looking sad _and_ downcast. 
+And He said to them, What is this discussion that you are exchanging (throwing back and forth) between yourselves as you walk along? And they stood still, looking sad and downcast. 
 
 
 
@@ -447,7 +447,7 @@ And how our chief priests and rulers gave Him up to be sentenced to death, and c
 
 
 
-But we were hoping that it was He Who would redeem _and_ set Israel free. Yes, and besides all this, it is now the third day since these things occurred. 
+But we were hoping that it was He Who would redeem and set Israel free. Yes, and besides all this, it is now the third day since these things occurred. 
 
 
 
@@ -468,7 +468,7 @@ But we were hoping that it was He Who would redeem _and_ set Israel free. Yes, a
 
 
 
-And moreover, some women of our company astounded us _and_ drove us out of our senses. They were at the tomb early [in the morning] 
+And moreover, some women of our company astounded us and drove us out of our senses. They were at the tomb early [in the morning] 
 
 
 
@@ -552,7 +552,7 @@ And [Jesus] said to them, O foolish ones [sluggish in mind, dull of perception] 
 
 
 
-Was it not necessary _and_ essentially fitting that the Christ (the Messiah) should suffer all these things before entering into His glory (His majesty and splendor)? 
+Was it not necessary and essentially fitting that the Christ (the Messiah) should suffer all these things before entering into His glory (His majesty and splendor)? 
 
 
 
@@ -573,7 +573,7 @@ Was it not necessary _and_ essentially fitting that the Christ (the Messiah) sho
 
 
 
-Then beginning with Moses and [throughout] all the Prophets, He went on explaining _and_ interpreting to them in all the Scriptures the things concerning _and_ referring to Himself. 
+Then beginning with Moses and [throughout] all the Prophets, He went on explaining and interpreting to them in all the Scriptures the things concerning and referring to Himself. 
 
 
 
@@ -615,7 +615,7 @@ Then they drew near the village to which they were going, and He acted as if He 
 
 
 
-But they urged _and_ insisted, saying to Him, Remain with us, for it is toward evening, and the day is now far spent. So He went in to stay with them. 
+But they urged and insisted, saying to Him, Remain with us, for it is toward evening, and the day is now far spent. So He went in to stay with them. 
 
 
 
@@ -636,7 +636,7 @@ But they urged _and_ insisted, saying to Him, Remain with us, for it is toward e
 
 
 
-And it occurred that as He reclined at table with them, He took [a loaf of] bread and praised [God] _and_ gave thanks _and_ asked a blessing, and then broke it and was giving it to them 
+And it occurred that as He reclined at table with them, He took [a loaf of] bread and praised [God] and gave thanks and asked a blessing, and then broke it and was giving it to them 
 
 
 
@@ -678,7 +678,7 @@ When their eyes were [instantly] opened and they [clearly] recognized Him, and H
 
 
 
-And they said to one another, Were not our hearts greatly moved _and_ burning within us while He was talking with us on the road and as He opened _and_ explained to us [the sense of] the Scriptures? 
+And they said to one another, Were not our hearts greatly moved and burning within us while He was talking with us on the road and as He opened and explained to us [the sense of] the Scriptures? 
 
 
 
@@ -741,7 +741,7 @@ Who said, The Lord really has risen and has appeared to Simon (Peter)!
 
 
 
-Then they [themselves] related [in full] what had happened on the road, and how He was known _and_ recognized by them in the breaking of bread. 
+Then they [themselves] related [in full] what had happened on the road, and how He was known and recognized by them in the breaking of bread. 
 
 
 
@@ -804,7 +804,7 @@ But they were so startled and terrified that they thought they saw a spirit.
 
 
 
-And He said to them, Why are you disturbed _and_ troubled, and why do such doubts _and_ questionings arise in your hearts? 
+And He said to them, Why are you disturbed and troubled, and why do such doubts and questionings arise in your hearts? 
 
 
 
@@ -825,7 +825,7 @@ And He said to them, Why are you disturbed _and_ troubled, and why do such doubt
 
 
 
-See My hands and My feet, that it is I Myself! Feel _and_ handle Me and see, for a spirit does not have flesh and bones, as you see that I have. 
+See My hands and My feet, that it is I Myself! Feel and handle Me and see, for a spirit does not have flesh and bones, as you see that I have. 
 
 
 
@@ -1119,4 +1119,4 @@ And they, worshiping Him, went back to Jerusalem with great joy;
 
 
 
-And they were continually in the temple _celebrating with praises and_ blessing _and_ extolling God. _Amen (so be it)._
+And they were continually in the temple celebrating with praises and blessing and extolling God. Amen (so be it).

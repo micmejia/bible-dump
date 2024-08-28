@@ -10,16 +10,16 @@ next: ['Deut 13']
 
 
 ###### 1 
-"These _are_ the statutes and judgments which you shall be careful to observe in the land which the Lord God of your fathers is giving you to possess, all the days that you live on the earth. 
+"These are the statutes and judgments which you shall be careful to observe in the land which the Lord God of your fathers is giving you to possess, all the days that you live on the earth. 
 
 ###### 2 
 You shall utterly destroy all the places where the nations which you shall dispossess served their gods, on the high mountains and on the hills and under every green tree. 
 
 ###### 3 
-And you shall destroy their altars, break their _sacred_ pillars, and burn their wooden images with fire; you shall cut down the carved images of their gods and destroy their names from that place. 
+And you shall destroy their altars, break their sacred pillars, and burn their wooden images with fire; you shall cut down the carved images of their gods and destroy their names from that place. 
 
 ###### 4 
-You shall not worship the Lord your God _with_ such _things._ 
+You shall not worship the Lord your God with such things. 
 
 ###### 5 
 "But you shall seek the place where the Lord your God chooses, out of all your tribes, to put His name for His dwelling place; and there you shall go. 
@@ -31,19 +31,19 @@ There you shall take your burnt offerings, your sacrifices, your tithes, the hea
 And there you shall eat before the Lord your God, and you shall rejoice in all to which you have put your hand, you and your households, in which the Lord your God has blessed you. 
 
 ###### 8 
-"You shall not at all do as we are doing here today--every man doing whatever _is_ right in his own eyes-- 
+"You shall not at all do as we are doing here today--every man doing whatever is right in his own eyes-- 
 
 ###### 9 
 for as yet you have not come to the rest and the inheritance which the Lord your God is giving you. 
 
 ###### 10 
-But _when_ you cross over the Jordan and dwell in the land which the Lord your God is giving you to inherit, and He gives you rest from all your enemies round about, so that you dwell in safety, 
+But when you cross over the Jordan and dwell in the land which the Lord your God is giving you to inherit, and He gives you rest from all your enemies round about, so that you dwell in safety, 
 
 ###### 11 
 then there will be the place where the Lord your God chooses to make His name abide. There you shall bring all that I command you: your burnt offerings, your sacrifices, your tithes, the heave offerings of your hand, and all your choice offerings which you vow to the Lord. 
 
 ###### 12 
-And you shall rejoice before the Lord your God, you and your sons and your daughters, your male and female servants, and the Levite who _is_ within your gates, since he has no portion nor inheritance with you. 
+And you shall rejoice before the Lord your God, you and your sons and your daughters, your male and female servants, and the Levite who is within your gates, since he has no portion nor inheritance with you. 
 
 ###### 13 
 Take heed to yourself that you do not offer your burnt offerings in every place that you see; 
@@ -61,7 +61,7 @@ Only you shall not eat the blood; you shall pour it on the earth like water.
 You may not eat within your gates the tithe of your grain or your new wine or your oil, of the firstborn of your herd or your flock, of any of your offerings which you vow, of your freewill offerings, or of the heave offering of your hand. 
 
 ###### 18 
-But you must eat them before the Lord your God in the place which the Lord your God chooses, you and your son and your daughter, your male servant and your female servant, and the Levite who _is_ within your gates; and you shall rejoice before the Lord your God in all to which you put your hands. 
+But you must eat them before the Lord your God in the place which the Lord your God chooses, you and your son and your daughter, your male servant and your female servant, and the Levite who is within your gates; and you shall rejoice before the Lord your God in all to which you put your hands. 
 
 ###### 19 
 Take heed to yourself that you do not forsake the Levite as long as you live in your land. 
@@ -76,13 +76,13 @@ If the place where the Lord your God chooses to put His name is too far from you
 Just as the gazelle and the deer are eaten, so you may eat them; the unclean and the clean alike may eat them. 
 
 ###### 23 
-Only be sure that you do not eat the blood, for the blood _is_ the life; you may not eat the life with the meat. 
+Only be sure that you do not eat the blood, for the blood is the life; you may not eat the life with the meat. 
 
 ###### 24 
 You shall not eat it; you shall pour it on the earth like water. 
 
 ###### 25 
-You shall not eat it, that it may go well with you and your children after you, when you do _what is_ right in the sight of the Lord. 
+You shall not eat it, that it may go well with you and your children after you, when you do what is right in the sight of the Lord. 
 
 ###### 26 
 Only the holy things which you have, and your vowed offerings, you shall take and go to the place which the Lord chooses. 
@@ -91,7 +91,7 @@ Only the holy things which you have, and your vowed offerings, you shall take an
 And you shall offer your burnt offerings, the meat and the blood, on the altar of the Lord your God; and the blood of your sacrifices shall be poured out on the altar of the Lord your God, and you shall eat the meat. 
 
 ###### 28 
-Observe and obey all these words which I command you, that it may go well with you and your children after you forever, when you do _what is_ good and right in the sight of the Lord your God.
+Observe and obey all these words which I command you, that it may go well with you and your children after you forever, when you do what is good and right in the sight of the Lord your God.
 
 ## Beware of False Gods 
 

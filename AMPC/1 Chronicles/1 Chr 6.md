@@ -1414,7 +1414,7 @@ Some of the families of the Kohathites had cities in the allotted territory out 
 
 
 
-And [the Ephraimites] gave to [the Levites] the city of refuge, Shechem in the hill country of Ephraim; also Gezer, [both] with their suburbs _and_ pasturelands; 
+And [the Ephraimites] gave to [the Levites] the city of refuge, Shechem in the hill country of Ephraim; also Gezer, [both] with their suburbs and pasturelands; 
 
 
 
@@ -1456,7 +1456,7 @@ Jokmeam, Beth-horon,
 
 
 
-Aijalon, and Gath-rimmon, with their suburbs _and_ pasturelands; 
+Aijalon, and Gath-rimmon, with their suburbs and pasturelands; 
 
 
 
@@ -1477,7 +1477,7 @@ Aijalon, and Gath-rimmon, with their suburbs _and_ pasturelands;
 
 
 
-And out of the half-tribe of Manasseh [these cities], with their suburbs _and_ pasturelands: Aner and Bileam, for the rest of the families of the sons of Kohath. 
+And out of the half-tribe of Manasseh [these cities], with their suburbs and pasturelands: Aner and Bileam, for the rest of the families of the sons of Kohath. 
 
 
 
@@ -1498,7 +1498,7 @@ And out of the half-tribe of Manasseh [these cities], with their suburbs _and_ p
 
 
 
-To the Gershomites were given out of the half-tribe of Manasseh: Golan in Bashan and Ashtaroth, with their suburbs _and_ pasturelands; 
+To the Gershomites were given out of the half-tribe of Manasseh: Golan in Bashan and Ashtaroth, with their suburbs and pasturelands; 
 
 
 
@@ -1519,7 +1519,7 @@ To the Gershomites were given out of the half-tribe of Manasseh: Golan in Bashan
 
 
 
-Out of the tribe of Issachar, with their suburbs _and_ pasturelands: Kedesh, Daberath, 
+Out of the tribe of Issachar, with their suburbs and pasturelands: Kedesh, Daberath, 
 
 
 
@@ -1561,7 +1561,7 @@ Ramoth, and Anem;
 
 
 
-Out of the tribe of Asher, with their suburbs _and_ pasturelands: Mashal, Abdon, 
+Out of the tribe of Asher, with their suburbs and pasturelands: Mashal, Abdon, 
 
 
 
@@ -1603,7 +1603,7 @@ Hukok, and Rehob;
 
 
 
-And out of the tribe of Naphtali, with their suburbs _and_ pasturelands: Kedesh in Galilee, Hammon, and Kiriathaim. 
+And out of the tribe of Naphtali, with their suburbs and pasturelands: Kedesh in Galilee, Hammon, and Kiriathaim. 
 
 
 
@@ -1624,7 +1624,7 @@ And out of the tribe of Naphtali, with their suburbs _and_ pasturelands: Kedesh 
 
 
 
-To the rest of the Merarites were given from the tribe of Zebulun: Rimmono and Tabor, with their suburbs _and_ pasturelands; 
+To the rest of the Merarites were given from the tribe of Zebulun: Rimmono and Tabor, with their suburbs and pasturelands; 
 
 
 
@@ -1645,7 +1645,7 @@ To the rest of the Merarites were given from the tribe of Zebulun: Rimmono and T
 
 
 
-On the other side of the Jordan, on the east side by Jericho, the Levites were given out of the tribe of Reuben [these cities], with their suburbs _and_ pasturelands: Bezer in the wilderness, Jahzah, 
+On the other side of the Jordan, on the east side by Jericho, the Levites were given out of the tribe of Reuben [these cities], with their suburbs and pasturelands: Bezer in the wilderness, Jahzah, 
 
 
 
@@ -1687,7 +1687,7 @@ Kedemoth, and Mephaath;
 
 
 
-Out of the tribe of Gad [these cities], with their suburbs _and_ pasturelands: Ramoth in Gilead, Mahanaim, 
+Out of the tribe of Gad [these cities], with their suburbs and pasturelands: Ramoth in Gilead, Mahanaim, 
 
 
 

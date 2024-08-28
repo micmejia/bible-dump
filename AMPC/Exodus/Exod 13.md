@@ -70,7 +70,7 @@ Sanctify (consecrate, set apart) to Me all the firstborn [males]; whatever is fi
 
 
 
-And Moses said to the people, [Earnestly] remember this day in which you came out from Egypt, out of the house of bondage _and_ bondmen, for by strength of hand the Lord brought you out from this place; no leavened bread shall be eaten. 
+And Moses said to the people, [Earnestly] remember this day in which you came out from Egypt, out of the house of bondage and bondmen, for by strength of hand the Lord brought you out from this place; no leavened bread shall be eaten. 
 
 
 
@@ -112,7 +112,7 @@ This day you go forth in the month Abib.
 
 
 
-And when the Lord brings you into the land of the Canaanites, Hittites, Amorites, Hivites, and Jebusites, which He promised _and_ swore to your fathers to give you, a land flowing with milk and honey [a land of plenty], you shall keep this service in this month. 
+And when the Lord brings you into the land of the Canaanites, Hittites, Amorites, Hivites, and Jebusites, which He promised and swore to your fathers to give you, a land flowing with milk and honey [a land of plenty], you shall keep this service in this month. 
 
 
 
@@ -238,7 +238,7 @@ You shall therefore keep this ordinance at this time from year to year.
 
 
 
-And when the Lord brings you into the land of the Canaanites, as He promised _and_ swore to you and your fathers, and shall give it to you, 
+And when the Lord brings you into the land of the Canaanites, as He promised and swore to you and your fathers, and shall give it to you, 
 
 
 
@@ -301,7 +301,7 @@ Every firstborn of a donkey you shall redeem by [substituting for it] a lamb, or
 
 
 
-And when, in time to come, your son asks you, What does this mean? You shall say to him, By strength of hand the Lord brought us out from Egypt, from the house of bondage _and_ bondmen. 
+And when, in time to come, your son asks you, What does this mean? You shall say to him, By strength of hand the Lord brought us out from Egypt, from the house of bondage and bondmen. 
 
 
 

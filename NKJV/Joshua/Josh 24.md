@@ -12,7 +12,7 @@ up: ['Joshua']
 Then Joshua gathered all the tribes of Israel to Shechem and called for the elders of Israel, for their heads, for their judges, and for their officers; and they presented themselves before God. 
 
 ###### 2 
-And Joshua said to all the people, "Thus says the Lord God of Israel: 'Your fathers, _including_ Terah, the father of Abraham and the father of Nahor, dwelt on the other side of the River in old times; and they served other gods. 
+And Joshua said to all the people, "Thus says the Lord God of Israel: 'Your fathers, including Terah, the father of Abraham and the father of Nahor, dwelt on the other side of the River in old times; and they served other gods. 
 
 ###### 3 
 Then I took your father Abraham from the other side of the River, led him throughout all the land of Canaan, and multiplied his descendants and gave him Isaac. 
@@ -39,10 +39,10 @@ Then Balak the son of Zippor, king of Moab, arose to make war against Israel, an
 But I would not listen to Balaam; therefore he continued to bless you. So I delivered you out of his hand. 
 
 ###### 11 
-Then you went over the Jordan and came to Jericho. And the men of Jericho fought against you--_also_ the Amorites, the Perizzites, the Canaanites, the Hittites, the Girgashites, the Hivites, and the Jebusites. But I delivered them into your hand. 
+Then you went over the Jordan and came to Jericho. And the men of Jericho fought against you--also the Amorites, the Perizzites, the Canaanites, the Hittites, the Girgashites, the Hivites, and the Jebusites. But I delivered them into your hand. 
 
 ###### 12 
-I sent the hornet before you which drove them out from before you, _also_ the two kings of the Amorites, _but_ not with your sword or with your bow. 
+I sent the hornet before you which drove them out from before you, also the two kings of the Amorites, but not with your sword or with your bow. 
 
 ###### 13 
 I have given you a land for which you did not labor, and cities which you did not build, and you dwell in them; you eat of the vineyards and olive groves which you did not plant.' 
@@ -51,19 +51,19 @@ I have given you a land for which you did not labor, and cities which you did no
 "Now therefore, fear the Lord, serve Him in sincerity and in truth, and put away the gods which your fathers served on the other side of the River and in Egypt. Serve the Lord! 
 
 ###### 15 
-And if it seems evil to you to serve the Lord, choose for yourselves this day whom you will serve, whether the gods which your fathers served that _were_ on the other side of the River, or the gods of the Amorites, in whose land you dwell. But as for me and my house, we will serve the Lord." 
+And if it seems evil to you to serve the Lord, choose for yourselves this day whom you will serve, whether the gods which your fathers served that were on the other side of the River, or the gods of the Amorites, in whose land you dwell. But as for me and my house, we will serve the Lord." 
 
 ###### 16 
 So the people answered and said: "Far be it from us that we should forsake the Lord to serve other gods; 
 
 ###### 17 
-for the Lord our God _is_ He who brought us and our fathers up out of the land of Egypt, from the house of bondage, who did those great signs in our sight, and preserved us in all the way that we went and among all the people through whom we passed. 
+for the Lord our God is He who brought us and our fathers up out of the land of Egypt, from the house of bondage, who did those great signs in our sight, and preserved us in all the way that we went and among all the people through whom we passed. 
 
 ###### 18 
-And the Lord drove out from before us all the people, including the Amorites who dwelt in the land. We also will serve the Lord, for He _is_ our God." 
+And the Lord drove out from before us all the people, including the Amorites who dwelt in the land. We also will serve the Lord, for He is our God." 
 
 ###### 19 
-But Joshua said to the people, "You cannot serve the Lord, for He _is_ a holy God. He _is_ a jealous God; He will not forgive your transgressions nor your sins. 
+But Joshua said to the people, "You cannot serve the Lord, for He is a holy God. He is a jealous God; He will not forgive your transgressions nor your sins. 
 
 ###### 20 
 If you forsake the Lord and serve foreign gods, then He will turn and do you harm and consume you, after He has done you good." 
@@ -72,10 +72,10 @@ If you forsake the Lord and serve foreign gods, then He will turn and do you har
 And the people said to Joshua, "No, but we will serve the Lord!" 
 
 ###### 22 
-So Joshua said to the people, "You _are_ witnesses against yourselves that you have chosen the Lord for yourselves, to serve Him." And they said, "_We are_ witnesses!" 
+So Joshua said to the people, "You are witnesses against yourselves that you have chosen the Lord for yourselves, to serve Him." And they said, "We are witnesses!" 
 
 ###### 23 
-"Now therefore," _he said,_ "put away the foreign gods which _are_ among you, and incline your heart to the Lord God of Israel." 
+"Now therefore," he said, "put away the foreign gods which are among you, and incline your heart to the Lord God of Israel." 
 
 ###### 24 
 And the people said to Joshua, "The Lord our God we will serve, and His voice we will obey!" 
@@ -84,7 +84,7 @@ And the people said to Joshua, "The Lord our God we will serve, and His voice we
 So Joshua made a covenant with the people that day, and made for them a statute and an ordinance in Shechem. 
 
 ###### 26 
-Then Joshua wrote these words in the Book of the Law of God. And he took a large stone, and set it up there under the oak that _was_ by the sanctuary of the Lord. 
+Then Joshua wrote these words in the Book of the Law of God. And he took a large stone, and set it up there under the oak that was by the sanctuary of the Lord. 
 
 ###### 27 
 And Joshua said to all the people, "Behold, this stone shall be a witness to us, for it has heard all the words of the Lord which He spoke to us. It shall therefore be a witness to you, lest you deny your God." 
@@ -95,10 +95,10 @@ So Joshua let the people depart, each to his own inheritance.
 ## Death of Joshua and Eleazar 
 
 ###### 29 
-Now it came to pass after these things that Joshua the son of Nun, the servant of the Lord, died, _being_ one hundred and ten years old. 
+Now it came to pass after these things that Joshua the son of Nun, the servant of the Lord, died, being one hundred and ten years old. 
 
 ###### 30 
-And they buried him within the border of his inheritance at Timnath Serah, which _is_ in the mountains of Ephraim, on the north side of Mount Gaash. 
+And they buried him within the border of his inheritance at Timnath Serah, which is in the mountains of Ephraim, on the north side of Mount Gaash. 
 
 ###### 31 
 Israel served the Lord all the days of Joshua, and all the days of the elders who outlived Joshua, who had known all the works of the Lord which He had done for Israel. 
@@ -107,4 +107,4 @@ Israel served the Lord all the days of Joshua, and all the days of the elders wh
 The bones of Joseph, which the children of Israel had brought up out of Egypt, they buried at Shechem, in the plot of ground which Jacob had bought from the sons of Hamor the father of Shechem for one hundred pieces of silver, and which had become an inheritance of the children of Joseph. 
 
 ###### 33 
-And Eleazar the son of Aaron died. They buried him in a hill _belonging to_ Phinehas his son, which was given to him in the mountains of Ephraim.
+And Eleazar the son of Aaron died. They buried him in a hill belonging to Phinehas his son, which was given to him in the mountains of Ephraim.

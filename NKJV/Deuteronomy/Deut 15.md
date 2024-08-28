@@ -10,16 +10,16 @@ next: ['Deut 16']
 
 
 ###### 1 
-"At the end of _every_ seven years you shall grant a release _of debts._ 
+"At the end of every seven years you shall grant a release of debts. 
 
 ###### 2 
-And this _is_ the form of the release: Every creditor who has lent _anything_ to his neighbor shall release _it;_ he shall not require _it_ of his neighbor or his brother, because it is called the Lord's release. 
+And this is the form of the release: Every creditor who has lent anything to his neighbor shall release it; he shall not require it of his neighbor or his brother, because it is called the Lord's release. 
 
 ###### 3 
-Of a foreigner you may require _it;_ but you shall give up your claim to what is owed by your brother, 
+Of a foreigner you may require it; but you shall give up your claim to what is owed by your brother, 
 
 ###### 4 
-except when there may be no poor among you; for the Lord will greatly bless you in the land which the Lord your God is giving you to possess _as_ an inheritance-- 
+except when there may be no poor among you; for the Lord will greatly bless you in the land which the Lord your God is giving you to possess as an inheritance-- 
 
 ###### 5 
 only if you carefully obey the voice of the Lord your God, to observe with care all these commandments which I command you today. 
@@ -53,7 +53,7 @@ For the poor will never cease from the land; therefore I command you, saying, 'Y
 And when you send him away free from you, you shall not let him go away empty-handed; 
 
 ###### 14 
-you shall supply him liberally from your flock, from your threshing floor, and from your winepress. _From what_ the Lord your God has blessed you with, you shall give to him. 
+you shall supply him liberally from your flock, from your threshing floor, and from your winepress. From what the Lord your God has blessed you with, you shall give to him. 
 
 ###### 15 
 You shall remember that you were a slave in the land of Egypt, and the Lord your God redeemed you; therefore I command you this thing today. 
@@ -62,7 +62,7 @@ You shall remember that you were a slave in the land of Egypt, and the Lord your
 And if it happens that he says to you, 'I will not go away from you,' because he loves you and your house, since he prospers with you, 
 
 ###### 17 
-then you shall take an awl and thrust _it_ through his ear to the door, and he shall be your servant forever. Also to your female servant you shall do likewise. 
+then you shall take an awl and thrust it through his ear to the door, and he shall be your servant forever. Also to your female servant you shall do likewise. 
 
 ###### 18 
 It shall not seem hard to you when you send him away free from you; for he has been worth a double hired servant in serving you six years. Then the Lord your God will bless you in all that you do.
@@ -73,13 +73,13 @@ It shall not seem hard to you when you send him away free from you; for he has b
 "All the firstborn males that come from your herd and your flock you shall sanctify to the Lord your God; you shall do no work with the firstborn of your herd, nor shear the firstborn of your flock. 
 
 ###### 20 
-You and your household shall eat _it_ before the Lord your God year by year in the place which the Lord chooses. 
+You and your household shall eat it before the Lord your God year by year in the place which the Lord chooses. 
 
 ###### 21 
-But if there is a defect in it, _if it is_ lame or blind _or has_ any serious defect, you shall not sacrifice it to the Lord your God. 
+But if there is a defect in it, if it is lame or blind or has any serious defect, you shall not sacrifice it to the Lord your God. 
 
 ###### 22 
-You may eat it within your gates; the unclean and the clean _person_ alike _may eat it,_ as _if it were_ a gazelle or a deer. 
+You may eat it within your gates; the unclean and the clean person alike may eat it, as if it were a gazelle or a deer. 
 
 ###### 23 
 Only you shall not eat its blood; you shall pour it on the ground like water.

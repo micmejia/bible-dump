@@ -91,7 +91,7 @@ For you will spread abroad to the right hand and to the left; and your offspring
 
 
 
-Fear not, for you shall not be ashamed; neither be confounded _and_ depressed, for you shall not be put to shame. For you shall forget the shame of your youth, and you shall not [seriously] remember the reproach of your widowhood any more. 
+Fear not, for you shall not be ashamed; neither be confounded and depressed, for you shall not be put to shame. For you shall forget the shame of your youth, and you shall not [seriously] remember the reproach of your widowhood any more. 
 
 
 
@@ -133,7 +133,7 @@ For your Maker is your Husband--the Lord of hosts is His name--and the Holy One 
 
 
 
-For the Lord has called you like a woman forsaken, grieved in spirit, _and_ heartsore--even a wife [wooed and won] in youth, when she is [later] refused _and_ scorned, says your God. 
+For the Lord has called you like a woman forsaken, grieved in spirit, and heartsore--even a wife [wooed and won] in youth, when she is [later] refused and scorned, says your God. 
 
 
 
@@ -154,7 +154,7 @@ For the Lord has called you like a woman forsaken, grieved in spirit, _and_ hear
 
 
 
-For a brief moment I forsook you, but with great compassion _and_ mercy I will gather you [to Me] again. 
+For a brief moment I forsook you, but with great compassion and mercy I will gather you [to Me] again. 
 
 
 
@@ -175,7 +175,7 @@ For a brief moment I forsook you, but with great compassion _and_ mercy I will g
 
 
 
-In a little burst of wrath I hid My face from you for a moment, but with age-enduring love _and_ kindness I will have compassion _and_ mercy on you, says the Lord, your Redeemer. 
+In a little burst of wrath I hid My face from you for a moment, but with age-enduring love and kindness I will have compassion and mercy on you, says the Lord, your Redeemer. 
 
 
 
@@ -217,7 +217,7 @@ For this is like the days of Noah to Me; as I swore that the waters of Noah shou
 
 
 
-For though the mountains should depart and the hills be shaken _or_ removed, yet My love _and_ kindness shall not depart from you, nor shall My covenant of peace _and_ completeness be removed, says the Lord, Who has compassion on you. 
+For though the mountains should depart and the hills be shaken or removed, yet My love and kindness shall not depart from you, nor shall My covenant of peace and completeness be removed, says the Lord, Who has compassion on you. 
 
 
 
@@ -259,7 +259,7 @@ O you afflicted [city], storm-tossed and not comforted, behold, I will set your 
 
 
 
-And I will make your windows _and_ pinnacles of [sparkling] agates _or_ rubies, and your gates of [shining] carbuncles, and all your walls [of your enclosures] of precious stones. 
+And I will make your windows and pinnacles of [sparkling] agates or rubies, and your gates of [shining] carbuncles, and all your walls [of your enclosures] of precious stones. 
 
 
 
@@ -280,7 +280,7 @@ And I will make your windows _and_ pinnacles of [sparkling] agates _or_ rubies, 
 
 
 
-And all your [spiritual] children shall be disciples [taught by the Lord and obedient to His will], and great shall be the peace _and_ undisturbed composure of your children. 
+And all your [spiritual] children shall be disciples [taught by the Lord and obedient to His will], and great shall be the peace and undisturbed composure of your children. 
 
 
 
@@ -301,7 +301,7 @@ And all your [spiritual] children shall be disciples [taught by the Lord and obe
 
 
 
-You shall establish yourself in righteousness (rightness, in conformity with God's will and order): you shall be far from even the thought of oppression _or_ destruction, for you shall not fear, and from terror, for it shall not come near you. 
+You shall establish yourself in righteousness (rightness, in conformity with God's will and order): you shall be far from even the thought of oppression or destruction, for you shall not fear, and from terror, for it shall not come near you. 
 
 
 
@@ -322,7 +322,7 @@ You shall establish yourself in righteousness (rightness, in conformity with God
 
 
 
-Behold, they may gather together _and_ stir up strife, but it is not from Me. Whoever stirs up strife against you shall fall _and_ surrender to you. 
+Behold, they may gather together and stir up strife, but it is not from Me. Whoever stirs up strife against you shall fall and surrender to you. 
 
 
 
@@ -364,4 +364,4 @@ Behold, I have created the smith who blows on the fire of coals and who produces
 
 
 
-But no weapon that is formed against you shall prosper, and every tongue that shall rise against you in judgment you shall show to be in the wrong. This [peace, righteousness, security, triumph over opposition] is the heritage of the servants of the Lord [those in whom the ideal Servant of the Lord is reproduced]; this is the righteousness _or_ the vindication which they obtain from Me [this is that which I impart to them as their justification], says the Lord.
+But no weapon that is formed against you shall prosper, and every tongue that shall rise against you in judgment you shall show to be in the wrong. This [peace, righteousness, security, triumph over opposition] is the heritage of the servants of the Lord [those in whom the ideal Servant of the Lord is reproduced]; this is the righteousness or the vindication which they obtain from Me [this is that which I impart to them as their justification], says the Lord.

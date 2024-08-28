@@ -49,7 +49,7 @@ Cry aloud, spare not. Lift up your voice like a trumpet and declare to My people
 
 
 
-Yet they seek, inquire for, _and_ require Me daily and delight [externally] to know My ways, as [if they were in reality] a nation that did righteousness and forsook not the ordinance of their God. They ask of Me righteous judgments, they delight to draw near to God [in visible ways]. 
+Yet they seek, inquire for, and require Me daily and delight [externally] to know My ways, as [if they were in reality] a nation that did righteousness and forsook not the ordinance of their God. They ask of Me righteous judgments, they delight to draw near to God [in visible ways]. 
 
 
 
@@ -154,7 +154,7 @@ Is such a fast as yours what I have chosen, a day for a man to humble himself wi
 
 
 
-Is it not to divide your bread with the hungry and bring the homeless poor into your house--when you see the naked, that you cover him, and that you hide not yourself from [the needs of] your own flesh _and_ blood? 
+Is it not to divide your bread with the hungry and bring the homeless poor into your house--when you see the naked, that you cover him, and that you hide not yourself from [the needs of] your own flesh and blood? 
 
 
 
@@ -196,7 +196,7 @@ Then shall your light break forth like the morning, and your healing (your resto
 
 
 
-Then you shall call, and the Lord will answer; you shall cry, and He will say, Here I am. If you take away from your midst yokes of oppression [wherever you find them], the finger pointed in scorn [toward the oppressed or the godly], and every form of false, harsh, unjust, _and_ wicked speaking, 
+Then you shall call, and the Lord will answer; you shall cry, and He will say, Here I am. If you take away from your midst yokes of oppression [wherever you find them], the finger pointed in scorn [toward the oppressed or the godly], and every form of false, harsh, unjust, and wicked speaking, 
 
 
 
@@ -217,7 +217,7 @@ Then you shall call, and the Lord will answer; you shall cry, and He will say, H
 
 
 
-And if you pour out that with which you sustain your own life for the hungry and satisfy the need of the afflicted, then shall your light rise in darkness, and your obscurity _and_ gloom become like the noonday. 
+And if you pour out that with which you sustain your own life for the hungry and satisfy the need of the afflicted, then shall your light rise in darkness, and your obscurity and gloom become like the noonday. 
 
 
 
@@ -238,7 +238,7 @@ And if you pour out that with which you sustain your own life for the hungry and
 
 
 
-And the Lord shall guide you continually and satisfy you in drought _and_ in dry places and make strong your bones. And you shall be like a watered garden and like a spring of water whose waters fail not. 
+And the Lord shall guide you continually and satisfy you in drought and in dry places and make strong your bones. And you shall be like a watered garden and like a spring of water whose waters fail not. 
 
 
 
@@ -280,7 +280,7 @@ And your ancient ruins shall be rebuilt; you shall raise up the foundations of [
 
 
 
-If you turn away your foot from [traveling unduly on] the Sabbath, from doing your own pleasure on My holy day, and call the Sabbath a [spiritual] delight, the holy day of the Lord honorable, and honor Him _and_ it, not going your own way or seeking _or_ finding your own pleasure or speaking with your own [idle] words, 
+If you turn away your foot from [traveling unduly on] the Sabbath, from doing your own pleasure on My holy day, and call the Sabbath a [spiritual] delight, the holy day of the Lord honorable, and honor Him and it, not going your own way or seeking or finding your own pleasure or speaking with your own [idle] words, 
 
 
 

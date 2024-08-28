@@ -91,7 +91,7 @@ Blessed (happy, to be envied, and spiritually prosperous--with life-joy and sati
 
 
 
-Blessed _and_ enviably happy [with a happiness produced by the experience of God's favor and especially conditioned by the revelation of His matchless grace] are those who mourn, for they shall be comforted! 
+Blessed and enviably happy [with a happiness produced by the experience of God's favor and especially conditioned by the revelation of His matchless grace] are those who mourn, for they shall be comforted! 
 
 
 
@@ -133,7 +133,7 @@ Blessed (happy, blithesome, joyous, spiritually prosperous--with life-joy and sa
 
 
 
-Blessed _and_ fortunate _and_ happy _and_ spiritually prosperous (in that state in which the born-again child of God enjoys His favor and salvation) are those who hunger and thirst for righteousness (uprightness and right standing with God), for they shall be completely satisfied! 
+Blessed and fortunate and happy and spiritually prosperous (in that state in which the born-again child of God enjoys His favor and salvation) are those who hunger and thirst for righteousness (uprightness and right standing with God), for they shall be completely satisfied! 
 
 
 
@@ -196,7 +196,7 @@ Blessed (happy, enviably fortunate, and spiritually prosperous--possessing the h
 
 
 
-Blessed (enjoying enviable happiness, spiritually prosperous--with life-joy and satisfaction in God's favor and salvation, regardless of their outward conditions) are the makers _and_  maintainers of peace, for they shall be called the sons of God! 
+Blessed (enjoying enviable happiness, spiritually prosperous--with life-joy and satisfaction in God's favor and salvation, regardless of their outward conditions) are the makers and  maintainers of peace, for they shall be called the sons of God! 
 
 
 
@@ -217,7 +217,7 @@ Blessed (enjoying enviable happiness, spiritually prosperous--with life-joy and 
 
 
 
-Blessed _and_ happy _and_ enviably fortunate _and_ spiritually prosperous (in the state in which the born-again child of God enjoys and finds satisfaction in God's favor and salvation, regardless of his outward conditions) are those who are persecuted for righteousness' sake (for being and doing right), for theirs is the kingdom of heaven! 
+Blessed and happy and enviably fortunate and spiritually prosperous (in the state in which the born-again child of God enjoys and finds satisfaction in God's favor and salvation, regardless of his outward conditions) are those who are persecuted for righteousness' sake (for being and doing right), for theirs is the kingdom of heaven! 
 
 
 
@@ -259,7 +259,7 @@ Blessed (happy, to be envied, and spiritually prosperous--with life-joy and sati
 
 
 
-Be glad _and_ supremely joyful, for your reward in heaven is great (strong and intense), for in this same way people persecuted the prophets who were before you. 
+Be glad and supremely joyful, for your reward in heaven is great (strong and intense), for in this same way people persecuted the prophets who were before you. 
 
 
 
@@ -343,7 +343,7 @@ Nor do men light a lamp and put it under a peck measure, but on a lampstand, and
 
 
 
-Let your light so shine before men that they may see your moral excellence _and_ your praiseworthy, noble, _and_ good deeds and [^aa]recognize _and_ honor _and_ praise _and_ glorify your Father Who is in heaven. 
+Let your light so shine before men that they may see your moral excellence and your praiseworthy, noble, and good deeds and [^aa]recognize and honor and praise and glorify your Father Who is in heaven. 
 
 
 
@@ -364,7 +364,7 @@ Let your light so shine before men that they may see your moral excellence _and_
 
 
 
-Do not think that I have come to do away with _or_ [^ab]undo the Law or the Prophets; I have come not to do away with _or_ undo but to complete _and_ fulfill them. 
+Do not think that I have come to do away with or [^ab]undo the Law or the Prophets; I have come not to do away with or undo but to complete and fulfill them. 
 
 
 
@@ -385,7 +385,7 @@ Do not think that I have come to do away with _or_ [^ab]undo the Law or the Prop
 
 
 
-For truly I tell you, until the sky and earth pass away _and_ perish, not one smallest letter nor one little hook [identifying certain Hebrew letters] will pass from the Law until all things [it foreshadows] are accomplished. 
+For truly I tell you, until the sky and earth pass away and perish, not one smallest letter nor one little hook [identifying certain Hebrew letters] will pass from the Law until all things [it foreshadows] are accomplished. 
 
 
 
@@ -406,7 +406,7 @@ For truly I tell you, until the sky and earth pass away _and_ perish, not one sm
 
 
 
-Whoever then breaks _or_ does away with _or_ relaxes one of the least [important] of these commandments and teaches men so shall be called least [important] in the kingdom of heaven, but he who practices them and teaches others to do so shall be called great in the kingdom of heaven. 
+Whoever then breaks or does away with or relaxes one of the least [important] of these commandments and teaches men so shall be called least [important] in the kingdom of heaven, but he who practices them and teaches others to do so shall be called great in the kingdom of heaven. 
 
 
 
@@ -448,7 +448,7 @@ For I tell you, unless your righteousness (your uprightness and your right stand
 
 
 
-You have heard that it was said to the men of old, You shall not kill, and whoever kills shall be [^ac]liable to _and_ unable to escape the punishment imposed by the court. 
+You have heard that it was said to the men of old, You shall not kill, and whoever kills shall be [^ac]liable to and unable to escape the punishment imposed by the court. 
 
 
 
@@ -469,7 +469,7 @@ You have heard that it was said to the men of old, You shall not kill, and whoev
 
 
 
-But I say to you that everyone who continues to be [^ad]angry with his brother _or_ harbors malice (enmity of heart) against him shall be [^ae]liable to _and_ unable to escape the punishment imposed by the court; and whoever speaks contemptuously _and_ insultingly to his brother shall be [^af]liable to _and_ unable to escape the punishment imposed by the Sanhedrin, and whoever says, You [^ag]cursed fool! [You empty-headed idiot!] shall be [^ah]liable to _and_ unable to escape the hell (Gehenna) of fire. 
+But I say to you that everyone who continues to be [^ad]angry with his brother or harbors malice (enmity of heart) against him shall be [^ae]liable to and unable to escape the punishment imposed by the court; and whoever speaks contemptuously and insultingly to his brother shall be [^af]liable to and unable to escape the punishment imposed by the Sanhedrin, and whoever says, You [^ag]cursed fool! [You empty-headed idiot!] shall be [^ah]liable to and unable to escape the hell (Gehenna) of fire. 
 
 
 
@@ -511,7 +511,7 @@ So if when you are offering your gift at the altar you there remember that your 
 
 
 
-Leave your gift at the altar and go. First make peace with your brother, and then come back _and_ present your gift. 
+Leave your gift at the altar and go. First make peace with your brother, and then come back and present your gift. 
 
 
 
@@ -616,7 +616,7 @@ But I say to you that everyone who so much as looks at a woman with evil desire 
 
 
 
-If your right eye serves as a trap to ensnare you _or_ is an occasion for you to stumble _and_ sin, pluck it out and throw it away. It is better that you lose one of your members than that your whole body be cast into hell (Gehenna). 
+If your right eye serves as a trap to ensnare you or is an occasion for you to stumble and sin, pluck it out and throw it away. It is better that you lose one of your members than that your whole body be cast into hell (Gehenna). 
 
 
 
@@ -637,7 +637,7 @@ If your right eye serves as a trap to ensnare you _or_ is an occasion for you to
 
 
 
-And if your right hand serves as a trap to ensnare you _or_ is an occasion for you to stumble _and_ sin, cut it off and cast it from you. It is better that you lose one of your members than that your entire body should be cast into hell (Gehenna). 
+And if your right hand serves as a trap to ensnare you or is an occasion for you to stumble and sin, cut it off and cast it from you. It is better that you lose one of your members than that your entire body should be cast into hell (Gehenna). 
 
 
 
@@ -679,7 +679,7 @@ It has also been said, Whoever divorces his wife must give her a certificate of 
 
 
 
-But I tell you, Whoever dismisses _and_ repudiates _and_ divorces his wife, except on the grounds of unfaithfulness (sexual immorality), causes her to commit adultery, and whoever marries a woman who has been divorced commits adultery. 
+But I tell you, Whoever dismisses and repudiates and divorces his wife, except on the grounds of unfaithfulness (sexual immorality), causes her to commit adultery, and whoever marries a woman who has been divorced commits adultery. 
 
 
 
@@ -826,7 +826,7 @@ You have heard that it was said, An eye for an eye, and a tooth for a tooth.
 
 
 
-But I say to you, Do not resist the evil man [who injures you]; but if anyone strikes you on the right jaw _or_ cheek, turn to him the other one too. 
+But I say to you, Do not resist the evil man [who injures you]; but if anyone strikes you on the right jaw or cheek, turn to him the other one too. 
 
 
 

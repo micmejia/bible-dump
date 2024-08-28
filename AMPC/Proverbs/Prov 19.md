@@ -49,7 +49,7 @@ Better is a poor man who walks in his integrity than a rich man who is perverse 
 
 
 
-Desire without knowledge is not good, and to be overhasty is to sin _and_ miss the mark. 
+Desire without knowledge is not good, and to be overhasty is to sin and miss the mark. 
 
 
 
@@ -70,7 +70,7 @@ Desire without knowledge is not good, and to be overhasty is to sin _and_ miss t
 
 
 
-The foolishness of man subverts his way [ruins his affairs]; then his heart is resentful _and_ frets against the Lord. 
+The foolishness of man subverts his way [ruins his affairs]; then his heart is resentful and frets against the Lord. 
 
 
 
@@ -175,7 +175,7 @@ All the brothers of a poor man detest him--how much more do his friends go far f
 
 
 
-He who gains Wisdom loves his own life; he who keeps understanding shall prosper _and_ find good. 
+He who gains Wisdom loves his own life; he who keeps understanding shall prosper and find good. 
 
 
 
@@ -238,7 +238,7 @@ Luxury is not fitting for a [self-confident] fool--much less for a slave to rule
 
 
 
-Good sense makes a man restrain his anger, and it is his glory to overlook a transgression _or_ an offense. 
+Good sense makes a man restrain his anger, and it is his glory to overlook a transgression or an offense. 
 
 
 
@@ -280,7 +280,7 @@ The king's wrath is as terrifying as the roaring of a lion, but his favor is as 
 
 
 
-A self-confident _and_ foolish son is the [multiplied] calamity of his father, and the contentions of a wife are like a continual dripping [of water through a chink in the roof]. 
+A self-confident and foolish son is the [multiplied] calamity of his father, and the contentions of a wife are like a continual dripping [of water through a chink in the roof]. 
 
 
 
@@ -301,7 +301,7 @@ A self-confident _and_ foolish son is the [multiplied] calamity of his father, a
 
 
 
-House and riches are the inheritance from fathers, but a wise, understanding, _and_ prudent wife is from the Lord. 
+House and riches are the inheritance from fathers, but a wise, understanding, and prudent wife is from the Lord. 
 
 
 
@@ -427,7 +427,7 @@ A man of great wrath shall suffer the penalty; for if you deliver him [from the 
 
 
 
-Hear counsel, receive instruction, _and_ accept correction, that you may be wise in the time to come. 
+Hear counsel, receive instruction, and accept correction, that you may be wise in the time to come. 
 
 
 
@@ -469,7 +469,7 @@ Many plans are in a man's mind, but it is the Lord's purpose for him that will s
 
 
 
-That which is desired in a man is loyalty _and_ kindness [and his glory and delight are his giving], but a poor man is better than a liar. 
+That which is desired in a man is loyalty and kindness [and his glory and delight are his giving], but a poor man is better than a liar. 
 
 
 
@@ -574,7 +574,7 @@ He who does violence to his father and chases away his mother is a son who cause
 
 
 
-Cease, my son, to hear instruction only to ignore it _and_ stray from the words of knowledge. 
+Cease, my son, to hear instruction only to ignore it and stray from the words of knowledge. 
 
 
 

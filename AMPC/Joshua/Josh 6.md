@@ -385,7 +385,7 @@ And the city and all that is in it shall be devoted to the Lord [for destruction
 
 
 
-But you, keep yourselves from the accursed _and_ devoted things, lest when you have devoted it [to destruction], you take of the accursed thing, and so make the camp of Israel accursed and trouble it. 
+But you, keep yourselves from the accursed and devoted things, lest when you have devoted it [to destruction], you take of the accursed thing, and so make the camp of Israel accursed and trouble it. 
 
 
 

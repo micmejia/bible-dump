@@ -28,7 +28,7 @@ next: ['Isa 63']
 
 
 
-For Zion's sake will I [Isaiah] not hold my peace, and for Jerusalem's sake I will not rest until her imputed righteousness _and_ vindication go forth as brightness, and her salvation radiates as does a burning torch. 
+For Zion's sake will I [Isaiah] not hold my peace, and for Jerusalem's sake I will not rest until her imputed righteousness and vindication go forth as brightness, and her salvation radiates as does a burning torch. 
 
 
 
@@ -49,7 +49,7 @@ For Zion's sake will I [Isaiah] not hold my peace, and for Jerusalem's sake I wi
 
 
 
-And the nations shall see your righteousness _and_ vindication [your rightness and justice--not your own, but His ascribed to you], and all kings shall behold your salvation and glory; and you shall be called by a new name which the mouth of the Lord shall name. 
+And the nations shall see your righteousness and vindication [your rightness and justice--not your own, but His ascribed to you], and all kings shall behold your salvation and glory; and you shall be called by a new name which the mouth of the Lord shall name. 
 
 
 
@@ -70,7 +70,7 @@ And the nations shall see your righteousness _and_ vindication [your rightness a
 
 
 
-You shall also be [so beautiful and prosperous as to be thought of as] a crown of glory _and_ honor in the hand of the Lord, and a royal diadem [exceedingly beautiful] in the hand of your God. 
+You shall also be [so beautiful and prosperous as to be thought of as] a crown of glory and honor in the hand of the Lord, and a royal diadem [exceedingly beautiful] in the hand of your God. 
 
 
 
@@ -217,7 +217,7 @@ But they who have gathered it shall eat it and praise the Lord, and they who hav
 
 
 
-Go through, go through the gates! Prepare the way for the people. Cast up, cast up the highway! Gather out the stones. Lift up a standard _or_ ensign over _and_ for the peoples. 
+Go through, go through the gates! Prepare the way for the people. Cast up, cast up the highway! Gather out the stones. Lift up a standard or ensign over and for the peoples. 
 
 
 
@@ -238,7 +238,7 @@ Go through, go through the gates! Prepare the way for the people. Cast up, cast 
 
 
 
-Behold, the Lord has proclaimed to the end of the earth: Say to the Daughter of Zion, Behold, your salvation comes [in the person of the Lord]; behold, His reward is with Him, and His work _and_ recompense before Him. 
+Behold, the Lord has proclaimed to the end of the earth: Say to the Daughter of Zion, Behold, your salvation comes [in the person of the Lord]; behold, His reward is with Him, and His work and recompense before Him. 
 
 
 

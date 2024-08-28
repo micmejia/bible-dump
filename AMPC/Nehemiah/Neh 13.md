@@ -237,7 +237,7 @@ And I perceived that the portions of the Levites had not been given them, so tha
 
 
 
-Then I contended with the officials and said, Why is the house of God neglected _and_ forsaken? I gathered the Levites and singers and set them in their stations. 
+Then I contended with the officials and said, Why is the house of God neglected and forsaken? I gathered the Levites and singers and set them in their stations. 
 
 
 
@@ -300,7 +300,7 @@ I set treasurers over the storerooms: Shelemiah the priest, Zadok the scribe, an
 
 
 
-O my God, [earnestly] remember me concerning this and wipe not out my good deeds _and_ kindnesses done for the house of my God and for His service. 
+O my God, [earnestly] remember me concerning this and wipe not out my good deeds and kindnesses done for the house of my God and for His service. 
 
 
 
@@ -321,7 +321,7 @@ O my God, [earnestly] remember me concerning this and wipe not out my good deeds
 
 
 
-In those days I saw in Judah men treading winepresses on the Sabbath, bringing in sheaves _or_ heaps of grain with which they loaded donkeys, as well as wine, grapes, figs, and all sorts of burdens, which they brought into Jerusalem on the Sabbath day. And I protested _and_ warned them on the day they sold the produce. 
+In those days I saw in Judah men treading winepresses on the Sabbath, bringing in sheaves or heaps of grain with which they loaded donkeys, as well as wine, grapes, figs, and all sorts of burdens, which they brought into Jerusalem on the Sabbath day. And I protested and warned them on the day they sold the produce. 
 
 
 
@@ -447,7 +447,7 @@ So the merchants and sellers of all kinds of wares lodged outside Jerusalem once
 
 
 
-But I reproved _and_ warned them, saying, Why do you lodge by the wall? If you do so again, I will lay hands on you. Then they stopped coming on the Sabbath. 
+But I reproved and warned them, saying, Why do you lodge by the wall? If you do so again, I will lay hands on you. Then they stopped coming on the Sabbath. 
 
 
 
@@ -468,7 +468,7 @@ But I reproved _and_ warned them, saying, Why do you lodge by the wall? If you d
 
 
 
-And I commanded the Levites to cleanse themselves and come and guard the gates to keep the Sabbath day holy. O my God, [earnestly] remember me concerning this also and spare me according to the greatness of Your mercy _and_ loving-kindness. 
+And I commanded the Levites to cleanse themselves and come and guard the gates to keep the Sabbath day holy. O my God, [earnestly] remember me concerning this also and spare me according to the greatness of Your mercy and loving-kindness. 
 
 
 
@@ -552,7 +552,7 @@ And I contended with them and reviled them and beat some of them and pulled out 
 
 
 
-Did not Solomon king of Israel act treacherously against God _and_ miss the mark on account of such women? Among many nations there was no king like him. He was loved by his God, and God made him king over all Israel; yet strange women even caused him to sin [when he was old he turned treacherously away from the Lord to other gods, and God rent his kingdom from him]. 
+Did not Solomon king of Israel act treacherously against God and miss the mark on account of such women? Among many nations there was no king like him. He was loved by his God, and God made him king over all Israel; yet strange women even caused him to sin [when he was old he turned treacherously away from the Lord to other gods, and God rent his kingdom from him]. 
 
 
 
@@ -657,4 +657,4 @@ Thus I cleansed them from everything foreign (heathen), and I defined the duties
 
 
 
-And I provided for the wood offering at appointed times, and for the firstfruits. O my God, [earnestly] remember me for good _and_ imprint me [on Your heart]!
+And I provided for the wood offering at appointed times, and for the firstfruits. O my God, [earnestly] remember me for good and imprint me [on Your heart]!

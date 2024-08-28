@@ -28,7 +28,7 @@ next: ['Eccl 3']
 
 
 
-I said in my mind, Come now, I will prove you with mirth _and_ test you with pleasure; so have a good time [enjoy pleasure]. But this also was vanity (emptiness, falsity, and futility)! 
+I said in my mind, Come now, I will prove you with mirth and test you with pleasure; so have a good time [enjoy pleasure]. But this also was vanity (emptiness, falsity, and futility)! 
 
 
 
@@ -70,7 +70,7 @@ I said of laughter, It is mad, and of pleasure, What does it accomplish?
 
 
 
-I searched in my mind how to cheer my body with wine--yet at the same time having my mind hold its course _and_ guide me with [human] wisdom--and how to lay hold of folly, till I might see what was good for the sons of men to do under heaven all the days of their lives. 
+I searched in my mind how to cheer my body with wine--yet at the same time having my mind hold its course and guide me with [human] wisdom--and how to lay hold of folly, till I might see what was good for the sons of men to do under heaven all the days of their lives. 
 
 
 
@@ -133,7 +133,7 @@ I made for myself gardens and orchards and I planted in them all kinds of fruit 
 
 
 
-I made for myself pools of water from which to water the forest _and_ make the trees bud. 
+I made for myself pools of water from which to water the forest and make the trees bud. 
 
 
 
@@ -196,7 +196,7 @@ I also gathered for myself silver and gold and the treasure of kings and of the 
 
 
 
-So I became great and increased more than all who were before me in Jerusalem. Also my wisdom remained with me _and_ stood by me. 
+So I became great and increased more than all who were before me in Jerusalem. Also my wisdom remained with me and stood by me. 
 
 
 
@@ -217,7 +217,7 @@ So I became great and increased more than all who were before me in Jerusalem. A
 
 
 
-And whatever my eyes desired I kept not from them; I withheld not my heart from any pleasure, for my heart rejoiced in all my labor, and this was my portion _and_ reward for all my toil. 
+And whatever my eyes desired I kept not from them; I withheld not my heart from any pleasure, for my heart rejoiced in all my labor, and this was my portion and reward for all my toil. 
 
 
 
@@ -238,7 +238,7 @@ And whatever my eyes desired I kept not from them; I withheld not my heart from 
 
 
 
-Then I looked on all that my hands had done and the labor I had spent in doing it, and behold, all was vanity and a striving after the wind _and_ a feeding on it, and there was no profit under the sun. 
+Then I looked on all that my hands had done and the labor I had spent in doing it, and behold, all was vanity and a striving after the wind and a feeding on it, and there was no profit under the sun. 
 
 
 
@@ -364,7 +364,7 @@ For of the wise man, the same as of the fool, there is no permanent remembrance,
 
 
 
-So I hated life, because what is done under the sun was grievous to me; for all is vanity and a striving after the wind _and_ a feeding on it. 
+So I hated life, because what is done under the sun was grievous to me; for all is vanity and a striving after the wind and a feeding on it. 
 
 
 
@@ -469,7 +469,7 @@ For here is a man whose labor is with wisdom and knowledge and skill; yet to a m
 
 
 
-For what has a man left from all his labor and from the striving _and_ vexation of his heart in which he has toiled under the sun? 
+For what has a man left from all his labor and from the striving and vexation of his heart in which he has toiled under the sun? 
 
 
 
@@ -490,7 +490,7 @@ For what has a man left from all his labor and from the striving _and_ vexation 
 
 
 
-For all his days are but pain _and_ sorrow, and his work is a vexation _and_ grief; his mind takes no rest even at night. This is also vanity (emptiness, falsity, and futility)! 
+For all his days are but pain and sorrow, and his work is a vexation and grief; his mind takes no rest even at night. This is also vanity (emptiness, falsity, and futility)! 
 
 
 
@@ -532,7 +532,7 @@ There is nothing better for a man than that he should eat and drink and make him
 
 
 
-For who can eat or who can have enjoyment any more than I can--_apart from Him_? 
+For who can eat or who can have enjoyment any more than I can--apart from Him? 
 
 
 
@@ -553,4 +553,4 @@ For who can eat or who can have enjoyment any more than I can--_apart from Him_?
 
 
 
-For to the person who pleases Him God gives wisdom and knowledge and joy; but to the sinner He gives the work of gathering and heaping up, that he may give to one who pleases God. This also is vanity and a striving after the wind _and_ a feeding on it.
+For to the person who pleases Him God gives wisdom and knowledge and joy; but to the sinner He gives the work of gathering and heaping up, that he may give to one who pleases God. This also is vanity and a striving after the wind and a feeding on it.

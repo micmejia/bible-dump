@@ -238,7 +238,7 @@ So the chief priests planned to put Lazarus to death also,
 
 
 
-Because on account of him many of the Jews were going away [were withdrawing from and leaving the Judeans] and believing in _and_ adhering to Jesus. 
+Because on account of him many of the Jews were going away [were withdrawing from and leaving the Judeans] and believing in and adhering to Jesus. 
 
 
 
@@ -280,7 +280,7 @@ The next day a vast crowd of those who had come to the Passover Feast heard that
 
 
 
-So they took branches of palm trees and went out to meet Him. And as they went, they kept shouting, Hosanna! Blessed is He _and_ praise to Him Who comes in the name of the Lord, even the King of Israel! 
+So they took branches of palm trees and went out to meet Him. And as they went, they kept shouting, Hosanna! Blessed is He and praise to Him Who comes in the name of the Lord, even the King of Israel! 
 
 
 
@@ -343,7 +343,7 @@ Do not fear, O Daughter of Zion! Look! Your King is coming, sitting on a donkey'
 
 
 
-His disciples did not understand _and_ could not comprehend the meaning of these things at first; but when Jesus was glorified _and_ exalted, they remembered that these things had been written about Him and had been done to Him. 
+His disciples did not understand and could not comprehend the meaning of these things at first; but when Jesus was glorified and exalted, they remembered that these things had been written about Him and had been done to Him. 
 
 
 
@@ -406,7 +406,7 @@ It was for this reason that the crowd went out to meet Him, because they had hea
 
 
 
-Then the Pharisees said among themselves, You see how futile your efforts are _and_ how you accomplish nothing. See! The whole world is running after Him! 
+Then the Pharisees said among themselves, You see how futile your efforts are and how you accomplish nothing. See! The whole world is running after Him! 
 
 
 
@@ -490,7 +490,7 @@ Philip came and told Andrew; then Andrew and Philip together [went] and told Jes
 
 
 
-And Jesus answered them, The time has come for the Son of Man to be glorified _and_ exalted. 
+And Jesus answered them, The time has come for the Son of Man to be glorified and exalted. 
 
 
 
@@ -511,7 +511,7 @@ And Jesus answered them, The time has come for the Son of Man to be glorified _a
 
 
 
-I assure you, most solemnly I tell you, Unless a grain of wheat falls into the earth and dies, it remains [just one grain; it never becomes more but lives] by itself alone. But if it dies, it produces many others _and_ yields a rich harvest. 
+I assure you, most solemnly I tell you, Unless a grain of wheat falls into the earth and dies, it remains [just one grain; it never becomes more but lives] by itself alone. But if it dies, it produces many others and yields a rich harvest. 
 
 
 
@@ -574,7 +574,7 @@ If anyone serves Me, he must continue to follow Me [to cleave steadfastly to Me,
 
 
 
-Now My soul is troubled _and_ distressed, and what shall I say? Father, save Me from this hour [of trial and agony]? But it was for this very purpose that I have come to this hour [that I might undergo it]. 
+Now My soul is troubled and distressed, and what shall I say? Father, save Me from this hour [of trial and agony]? But it was for this very purpose that I have come to this hour [that I might undergo it]. 
 
 
 
@@ -679,7 +679,7 @@ Now the judgment (crisis) of this world is coming on [sentence is now being pass
 
 
 
-And I, if _and_ when I am lifted up from the earth [on the cross], will draw _and_ attract all men [Gentiles as well as Jews] to Myself. 
+And I, if and when I am lifted up from the earth [on the cross], will draw and attract all men [Gentiles as well as Jews] to Myself. 
 
 
 
@@ -742,7 +742,7 @@ At this the people answered Him, We have learned from the Law that the Christ is
 
 
 
-So Jesus said to them, You will have the Light only a little while longer. Walk while you have the Light [keep on living by it], so that darkness may not overtake _and_ overcome you. He who walks about in the dark does not know where he goes [he is drifting]. 
+So Jesus said to them, You will have the Light only a little while longer. Walk while you have the Light [keep on living by it], so that darkness may not overtake and overcome you. He who walks about in the dark does not know where he goes [he is drifting]. 
 
 
 
@@ -763,7 +763,7 @@ So Jesus said to them, You will have the Light only a little while longer. Walk 
 
 
 
-While you have the Light, believe in the Light [have faith in it, hold to it, rely on it], that you may become sons of the Light _and_ be filled with Light. Jesus said these things, and then He went away and hid Himself from them [was lost to their view]. 
+While you have the Light, believe in the Light [have faith in it, hold to it, rely on it], that you may become sons of the Light and be filled with Light. Jesus said these things, and then He went away and hid Himself from them [was lost to their view]. 
 
 
 
@@ -784,7 +784,7 @@ While you have the Light, believe in the Light [have faith in it, hold to it, re
 
 
 
-Even though He had done so many miracles before them (right before their eyes), yet they still did not trust in Him _and_ failed to believe in Him-- 
+Even though He had done so many miracles before them (right before their eyes), yet they still did not trust in Him and failed to believe in Him-- 
 
 
 
@@ -805,7 +805,7 @@ Even though He had done so many miracles before them (right before their eyes), 
 
 
 
-So that what Isaiah the prophet said was fulfilled: Lord, who has believed our report _and_ our message? And to whom has the arm (the power) of the Lord been shown (unveiled and revealed)? 
+So that what Isaiah the prophet said was fulfilled: Lord, who has believed our report and our message? And to whom has the arm (the power) of the Lord been shown (unveiled and revealed)? 
 
 
 
@@ -847,7 +847,7 @@ Therefore they could not believe [they were unable to believe]. For Isaiah has a
 
 
 
-He has blinded their eyes and hardened _and_ benumbed their [callous, degenerated] hearts [He has made their minds dull], to keep them from seeing with their eyes and understanding with their hearts _and_ minds and repenting _and_ turning to Me to heal them. 
+He has blinded their eyes and hardened and benumbed their [callous, degenerated] hearts [He has made their minds dull], to keep them from seeing with their eyes and understanding with their hearts and minds and repenting and turning to Me to heal them. 
 
 
 
@@ -889,7 +889,7 @@ Isaiah said this because he saw His glory and spoke of Him.
 
 
 
-And yet [in spite of all this] many even of the leading men (the authorities and the nobles) believed _and_ trusted in Him. But because of the Pharisees they did not confess it, for fear that [if they should acknowledge Him] they would be expelled from the synagogue; 
+And yet [in spite of all this] many even of the leading men (the authorities and the nobles) believed and trusted in Him. But because of the Pharisees they did not confess it, for fear that [if they should acknowledge Him] they would be expelled from the synagogue; 
 
 
 
@@ -910,7 +910,7 @@ And yet [in spite of all this] many even of the leading men (the authorities and
 
 
 
-For they loved the approval _and_ the praise _and_ the glory that come from men [instead of and] more than the glory that comes from God. [They valued their credit with men more than their credit with God.] 
+For they loved the approval and the praise and the glory that come from men [instead of and] more than the glory that comes from God. [They valued their credit with men more than their credit with God.] 
 
 
 
@@ -931,7 +931,7 @@ For they loved the approval _and_ the praise _and_ the glory that come from men 
 
 
 
-But Jesus loudly declared, The one who believes in Me does not [only] believe in _and_ trust in _and_ rely on Me, but [in believing in Me he believes] in Him Who sent Me. 
+But Jesus loudly declared, The one who believes in Me does not [only] believe in and trust in and rely on Me, but [in believing in Me he believes] in Him Who sent Me. 
 
 
 
@@ -973,7 +973,7 @@ And whoever sees Me sees Him Who sent Me.
 
 
 
-I have come as a Light into the world, so that whoever believes in Me [whoever cleaves to _and_ trusts in _and_ relies on Me] may not continue to live in darkness. 
+I have come as a Light into the world, so that whoever believes in Me [whoever cleaves to and trusts in and relies on Me] may not continue to live in darkness. 
 
 
 
@@ -994,7 +994,7 @@ I have come as a Light into the world, so that whoever believes in Me [whoever c
 
 
 
-If anyone hears My teachings and fails to observe them [does not keep them, but disregards them], it is not I who judges him. For I have not come to judge _and_ to condemn _and_ to pass sentence _and_ to inflict penalty on the world, but to save the world. 
+If anyone hears My teachings and fails to observe them [does not keep them, but disregards them], it is not I who judges him. For I have not come to judge and to condemn and to pass sentence and to inflict penalty on the world, but to save the world. 
 
 
 
@@ -1015,7 +1015,7 @@ If anyone hears My teachings and fails to observe them [does not keep them, but 
 
 
 
-Anyone who rejects Me _and_ persistently sets Me at naught, refusing to accept My teachings, has his judge [however]; for the [very] message that I have spoken will itself judge _and_ convict him at the last day. 
+Anyone who rejects Me and persistently sets Me at naught, refusing to accept My teachings, has his judge [however]; for the [very] message that I have spoken will itself judge and convict him at the last day. 
 
 
 
@@ -1036,7 +1036,7 @@ Anyone who rejects Me _and_ persistently sets Me at naught, refusing to accept M
 
 
 
-This is because I have never spoken on My own authority _or_ of My own accord _or_ as self-appointed, but the Father Who sent Me has Himself given Me orders [concerning] what to say and what to tell. 
+This is because I have never spoken on My own authority or of My own accord or as self-appointed, but the Father Who sent Me has Himself given Me orders [concerning] what to say and what to tell. 
 
 
 
@@ -1057,4 +1057,4 @@ This is because I have never spoken on My own authority _or_ of My own accord _o
 
 
 
-And I know that His commandment is (means) eternal life. So whatever I speak, I am saying [exactly] what My Father has told Me to say _and_ in accordance with His instructions.
+And I know that His commandment is (means) eternal life. So whatever I speak, I am saying [exactly] what My Father has told Me to say and in accordance with His instructions.

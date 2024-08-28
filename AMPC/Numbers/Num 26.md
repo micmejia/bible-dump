@@ -1288,7 +1288,7 @@ And to Aaron were born Nadab, Abihu, Eleazar, and Ithamar.
 
 
 
-But Nadab and Abihu died when they offered strange _and_ unholy fire before the Lord. 
+But Nadab and Abihu died when they offered strange and unholy fire before the Lord. 
 
 
 

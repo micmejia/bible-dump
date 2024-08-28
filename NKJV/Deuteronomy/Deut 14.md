@@ -10,10 +10,10 @@ next: ['Deut 15']
 
 
 ###### 1 
-"You _are_ the children of the Lord your God; you shall not cut yourselves nor shave the front of your head for the dead. 
+"You are the children of the Lord your God; you shall not cut yourselves nor shave the front of your head for the dead. 
 
 ###### 2 
-For you _are_ a holy people to the Lord your God, and the Lord has chosen you to be a people for Himself, a special treasure above all the peoples who _are_ on the face of the earth.
+For you are a holy people to the Lord your God, and the Lord has chosen you to be a people for Himself, a special treasure above all the peoples who are on the face of the earth.
 
 ## Clean and Unclean Meat 
 
@@ -21,25 +21,25 @@ For you _are_ a holy people to the Lord your God, and the Lord has chosen you to
 "You shall not eat any detestable thing. 
 
 ###### 4 
-These _are_ the animals which you may eat: the ox, the sheep, the goat, 
+These are the animals which you may eat: the ox, the sheep, the goat, 
 
 ###### 5 
 the deer, the gazelle, the roe deer, the wild goat, the mountain goat, the antelope, and the mountain sheep. 
 
 ###### 6 
-And you may eat every animal with cloven hooves, having the hoof split into two parts, _and that_ chews the cud, among the animals. 
+And you may eat every animal with cloven hooves, having the hoof split into two parts, and that chews the cud, among the animals. 
 
 ###### 7 
-Nevertheless, of those that chew the cud or have cloven hooves, you shall not eat, _such as_ these: the camel, the hare, and the rock hyrax; for they chew the cud but do not have cloven hooves; they _are_ unclean for you. 
+Nevertheless, of those that chew the cud or have cloven hooves, you shall not eat, such as these: the camel, the hare, and the rock hyrax; for they chew the cud but do not have cloven hooves; they are unclean for you. 
 
 ###### 8 
-Also the swine is unclean for you, because it has cloven hooves, yet _does_ not _chew_ the cud; you shall not eat their flesh or touch their dead carcasses. 
+Also the swine is unclean for you, because it has cloven hooves, yet does not chew the cud; you shall not eat their flesh or touch their dead carcasses. 
 
 ###### 9 
-"These you may eat of all that _are_ in the waters: you may eat all that have fins and scales. 
+"These you may eat of all that are in the waters: you may eat all that have fins and scales. 
 
 ###### 10 
-And whatever does not have fins and scales you shall not eat; it _is_ unclean for you. 
+And whatever does not have fins and scales you shall not eat; it is unclean for you. 
 
 ###### 11 
 "All clean birds you may eat. 
@@ -72,7 +72,7 @@ the stork, the heron after its kind, and the hoopoe and the bat.
 "You may eat all clean birds. 
 
 ###### 21 
-"You shall not eat anything that dies _of itself;_ you may give it to the alien who _is_ within your gates, that he may eat it, or you may sell it to a foreigner; for you _are_ a holy people to the Lord your God. "You shall not boil a young goat in its mother's milk.
+"You shall not eat anything that dies of itself; you may give it to the alien who is within your gates, that he may eat it, or you may sell it to a foreigner; for you are a holy people to the Lord your God. "You shall not boil a young goat in its mother's milk.
 
 ## Tithing Principles 
 
@@ -83,19 +83,19 @@ the stork, the heron after its kind, and the hoopoe and the bat.
 And you shall eat before the Lord your God, in the place where He chooses to make His name abide, the tithe of your grain and your new wine and your oil, of the firstborn of your herds and your flocks, that you may learn to fear the Lord your God always. 
 
 ###### 24 
-But if the journey is too long for you, so that you are not able to carry _the tithe, or_ if the place where the Lord your God chooses to put His name is too far from you, when the Lord your God has blessed you, 
+But if the journey is too long for you, so that you are not able to carry the tithe, or if the place where the Lord your God chooses to put His name is too far from you, when the Lord your God has blessed you, 
 
 ###### 25 
-then you shall exchange _it_ for money, take the money in your hand, and go to the place which the Lord your God chooses. 
+then you shall exchange it for money, take the money in your hand, and go to the place which the Lord your God chooses. 
 
 ###### 26 
 And you shall spend that money for whatever your heart desires: for oxen or sheep, for wine or similar drink, for whatever your heart desires; you shall eat there before the Lord your God, and you shall rejoice, you and your household. 
 
 ###### 27 
-You shall not forsake the Levite who _is_ within your gates, for he has no part nor inheritance with you. 
+You shall not forsake the Levite who is within your gates, for he has no part nor inheritance with you. 
 
 ###### 28 
-"At the end of _every_ third year you shall bring out the tithe of your produce of that year and store _it_ up within your gates. 
+"At the end of every third year you shall bring out the tithe of your produce of that year and store it up within your gates. 
 
 ###### 29 
-And the Levite, because he has no portion nor inheritance with you, and the stranger and the fatherless and the widow who _are_ within your gates, may come and eat and be satisfied, that the Lord your God may bless you in all the work of your hand which you do.
+And the Levite, because he has no portion nor inheritance with you, and the stranger and the fatherless and the widow who are within your gates, may come and eat and be satisfied, that the Lord your God may bless you in all the work of your hand which you do.

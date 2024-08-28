@@ -10,28 +10,28 @@ next: ['Isa 7']
 
 
 ###### 1 
-In the year that King Uzziah died, I saw the Lord sitting on a throne, high and lifted up, and the train of His _robe_ filled the temple. 
+In the year that King Uzziah died, I saw the Lord sitting on a throne, high and lifted up, and the train of His robe filled the temple. 
 
 ###### 2 
 Above it stood seraphim; each one had six wings: with two he covered his face, with two he covered his feet, and with two he flew. 
 
 ###### 3 
-And one cried to another and said: "Holy, holy, holy _is_ the Lord of hosts; The whole earth _is_ full of His glory!" 
+And one cried to another and said: "Holy, holy, holy is the Lord of hosts; The whole earth is full of His glory!" 
 
 ###### 4 
 And the posts of the door were shaken by the voice of him who cried out, and the house was filled with smoke. 
 
 ###### 5 
-So I said: "Woe _is_ me, for I am undone! Because I _am_ a man of unclean lips, And I dwell in the midst of a people of unclean lips; For my eyes have seen the King, The Lord of hosts." 
+So I said: "Woe is me, for I am undone! Because I am a man of unclean lips, And I dwell in the midst of a people of unclean lips; For my eyes have seen the King, The Lord of hosts." 
 
 ###### 6 
-Then one of the seraphim flew to me, having in his hand a live coal _which_ he had taken with the tongs from the altar. 
+Then one of the seraphim flew to me, having in his hand a live coal which he had taken with the tongs from the altar. 
 
 ###### 7 
-And he touched my mouth _with it,_ and said: "Behold, this has touched your lips; Your iniquity is taken away, And your sin purged." 
+And he touched my mouth with it, and said: "Behold, this has touched your lips; Your iniquity is taken away, And your sin purged." 
 
 ###### 8 
-Also I heard the voice of the Lord, saying: "Whom shall I send, And who will go for Us?" Then I said, "Here _am_ I! Send me." 
+Also I heard the voice of the Lord, saying: "Whom shall I send, And who will go for Us?" Then I said, "Here am I! Send me." 
 
 ###### 9 
 And He said, "Go, and tell this people: 'Keep on hearing, but do not understand; Keep on seeing, but do not perceive.' 
@@ -43,7 +43,7 @@ And He said, "Go, and tell this people: 'Keep on hearing, but do not understand;
 Then I said, "Lord, how long?" And He answered: "Until the cities are laid waste and without inhabitant, The houses are without a man, The land is utterly desolate, 
 
 ###### 12 
-The Lord has removed men far away, And the forsaken places _are_ many in the midst of the land. 
+The Lord has removed men far away, And the forsaken places are many in the midst of the land. 
 
 ###### 13 
-But yet a tenth _will be_ in it, And will return and be for consuming, As a terebinth tree or as an oak, Whose stump _remains_ when it is cut down. So the holy seed _shall be_ its stump."
+But yet a tenth will be in it, And will return and be for consuming, As a terebinth tree or as an oak, Whose stump remains when it is cut down. So the holy seed shall be its stump."

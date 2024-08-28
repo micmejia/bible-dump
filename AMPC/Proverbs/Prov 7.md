@@ -28,7 +28,7 @@ next: ['Prov 8']
 
 
 
-My son, keep my words; lay up within you my commandments [for use when needed] _and_ treasure them. 
+My son, keep my words; lay up within you my commandments [for use when needed] and treasure them. 
 
 
 
@@ -49,7 +49,7 @@ My son, keep my words; lay up within you my commandments [for use when needed] _
 
 
 
-Keep my commandments and live, and keep my law _and_ teaching as the apple (the pupil) of your eye. 
+Keep my commandments and live, and keep my law and teaching as the apple (the pupil) of your eye. 
 
 
 
@@ -91,7 +91,7 @@ Bind them on your fingers; write them on the tablet of your heart.
 
 
 
-Say to skillful _and_ godly Wisdom, You are my sister, and regard understanding _or_ insight as your intimate friend-- 
+Say to skillful and godly Wisdom, You are my sister, and regard understanding or insight as your intimate friend-- 
 
 
 
@@ -112,7 +112,7 @@ Say to skillful _and_ godly Wisdom, You are my sister, and regard understanding 
 
 
 
-That they may keep you from the loose woman, from the adventuress who flatters with _and_ makes smooth her words. 
+That they may keep you from the loose woman, from the adventuress who flatters with and makes smooth her words. 
 
 
 
@@ -217,7 +217,7 @@ In the twilight, in the evening; night black and dense was falling [over the you
 
 
 
-And behold, there met him a woman, dressed as a harlot and sly _and_ cunning of heart. 
+And behold, there met him a woman, dressed as a harlot and sly and cunning of heart. 
 
 
 
@@ -238,7 +238,7 @@ And behold, there met him a woman, dressed as a harlot and sly _and_ cunning of 
 
 
 
-She is turbulent _and_ willful; her feet stay not in her house; 
+She is turbulent and willful; her feet stay not in her house; 
 
 
 
@@ -343,7 +343,7 @@ So I came forth to meet you [that you might share with me the feast from my offe
 
 
 
-I have spread my couch with rugs _and_ cushions of tapestry, with striped sheets of fine linen of Egypt. 
+I have spread my couch with rugs and cushions of tapestry, with striped sheets of fine linen of Egypt. 
 
 
 
@@ -385,7 +385,7 @@ I have perfumed my bed with myrrh, aloes, and cinnamon.
 
 
 
-Come, let us take our fill of love until morning; let us console _and_ delight ourselves with love. 
+Come, let us take our fill of love until morning; let us console and delight ourselves with love. 
 
 
 
@@ -448,7 +448,7 @@ He has taken a bag of money with him and will come home at the day appointed [at
 
 
 
-With much justifying _and_ enticing argument she persuades him, with the allurements of her lips she leads him [to overcome his conscience and his fears] _and_ forces him along. 
+With much justifying and enticing argument she persuades him, with the allurements of her lips she leads him [to overcome his conscience and his fears] and forces him along. 
 
 
 
@@ -469,7 +469,7 @@ With much justifying _and_ enticing argument she persuades him, with the allurem
 
 
 
-Suddenly he [yields and] follows her reluctantly like an ox moving to the slaughter, like one in fetters going to the correction [to be given] to a fool _or_ _like a dog enticed by food to the muzzle_ 
+Suddenly he [yields and] follows her reluctantly like an ox moving to the slaughter, like one in fetters going to the correction [to be given] to a fool or like a dog enticed by food to the muzzle 
 
 
 
@@ -490,7 +490,7 @@ Suddenly he [yields and] follows her reluctantly like an ox moving to the slaugh
 
 
 
-Till a dart [of passion] pierces _and_ inflames his vitals; then like a bird fluttering straight into the net [he hastens], not knowing that it will cost him his life. 
+Till a dart [of passion] pierces and inflames his vitals; then like a bird fluttering straight into the net [he hastens], not knowing that it will cost him his life. 
 
 
 

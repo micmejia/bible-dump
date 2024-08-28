@@ -49,7 +49,7 @@ I am the True Vine, and My Father is the Vinedresser.
 
 
 
-Any branch in Me that does not bear fruit [that stops bearing] He cuts away (trims off, takes away); and He cleanses _and_ repeatedly prunes every branch that continues to bear fruit, to make it bear more _and_ richer _and_ more excellent fruit. 
+Any branch in Me that does not bear fruit [that stops bearing] He cuts away (trims off, takes away); and He cleanses and repeatedly prunes every branch that continues to bear fruit, to make it bear more and richer and more excellent fruit. 
 
 
 
@@ -70,7 +70,7 @@ Any branch in Me that does not bear fruit [that stops bearing] He cuts away (tri
 
 
 
-You are cleansed _and_ pruned already, because of the word which I have given you [the teachings I have discussed with you]. 
+You are cleansed and pruned already, because of the word which I have given you [the teachings I have discussed with you]. 
 
 
 
@@ -154,7 +154,7 @@ If a person does not dwell in Me, he is thrown out like a [broken-off] branch, a
 
 
 
-If you live in Me [abide vitally united to Me] and My words remain in you _and_ continue to live in your hearts, ask whatever you will, and it shall be done for you. 
+If you live in Me [abide vitally united to Me] and My words remain in you and continue to live in your hearts, ask whatever you will, and it shall be done for you. 
 
 
 
@@ -175,7 +175,7 @@ If you live in Me [abide vitally united to Me] and My words remain in you _and_ 
 
 
 
-When you bear (produce) much fruit, My Father is honored _and_ glorified, and you show _and_ prove yourselves to be true followers of Mine. 
+When you bear (produce) much fruit, My Father is honored and glorified, and you show and prove yourselves to be true followers of Mine. 
 
 
 
@@ -217,7 +217,7 @@ I have loved you, [just] as the Father has loved Me; abide in My love [continue 
 
 
 
-If you keep My commandments [if you continue to obey My instructions], you will abide in My love _and_ live on in it, just as I have obeyed My Father's commandments and live on in His love. 
+If you keep My commandments [if you continue to obey My instructions], you will abide in My love and live on in it, just as I have obeyed My Father's commandments and live on in His love. 
 
 
 
@@ -238,7 +238,7 @@ If you keep My commandments [if you continue to obey My instructions], you will 
 
 
 
-I have told you these things, that My joy _and_ delight may be in you, and that your joy _and_ gladness may be of full measure _and_ complete _and_ overflowing. 
+I have told you these things, that My joy and delight may be in you, and that your joy and gladness may be of full measure and complete and overflowing. 
 
 
 
@@ -343,7 +343,7 @@ I do not call you servants (slaves) any longer, for the servant does not know wh
 
 
 
-You have not chosen Me, but I have chosen you and I have appointed you [I have planted you], that you might go and bear fruit _and_ keep on bearing, and that your fruit may be lasting [that it may remain, abide], so that whatever you ask the Father in My Name [as presenting all that I Am], He may give it to you. 
+You have not chosen Me, but I have chosen you and I have appointed you [I have planted you], that you might go and bear fruit and keep on bearing, and that your fruit may be lasting [that it may remain, abide], so that whatever you ask the Father in My Name [as presenting all that I Am], He may give it to you. 
 
 
 
@@ -406,7 +406,7 @@ If the world hates you, know that it hated Me before it hated you.
 
 
 
-If you belonged to the world, the world would treat you with affection _and_ would love you as its own. But because you are not of the world [no longer one with it], but I have chosen (selected) you out of the world, the world hates (detests) you. 
+If you belonged to the world, the world would treat you with affection and would love you as its own. But because you are not of the world [no longer one with it], but I have chosen (selected) you out of the world, the world hates (detests) you. 
 
 
 
@@ -427,7 +427,7 @@ If you belonged to the world, the world would treat you with affection _and_ wou
 
 
 
-Remember that I told you, A servant is not greater than his master [is not superior to him]. If they persecuted Me, they will also persecute you; if they kept My word _and_ obeyed My teachings, they will also keep _and_ obey yours. 
+Remember that I told you, A servant is not greater than his master [is not superior to him]. If they persecuted Me, they will also persecute you; if they kept My word and obeyed My teachings, they will also keep and obey yours. 
 
 
 
@@ -448,7 +448,7 @@ Remember that I told you, A servant is not greater than his master [is not super
 
 
 
-But they will do all this to you [inflict all this suffering on you] because of [your bearing] My name _and_ on My account, for they do not know _or_ understand the One Who sent Me. 
+But they will do all this to you [inflict all this suffering on you] because of [your bearing] My name and on My account, for they do not know or understand the One Who sent Me. 
 
 
 
@@ -574,4 +574,4 @@ But when the Comforter (Counselor, Helper, Advocate, Intercessor, Strengthener, 
 
 
 
-But you also will testify _and_ be My witnesses, because you have been with Me from the beginning.
+But you also will testify and be My witnesses, because you have been with Me from the beginning.

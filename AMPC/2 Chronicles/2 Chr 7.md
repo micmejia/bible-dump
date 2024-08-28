@@ -70,7 +70,7 @@ The priests could not enter the house of the Lord, because the glory of the Lord
 
 
 
-And when all the people of Israel saw how the fire came down and the glory of the Lord upon the house, they bowed with their faces upon the pavement and worshiped and praised the Lord, saying, For He is good, for His mercy _and_ loving-kindness endure forever. 
+And when all the people of Israel saw how the fire came down and the glory of the Lord upon the house, they bowed with their faces upon the pavement and worshiped and praised the Lord, saying, For He is good, for His mercy and loving-kindness endure forever. 
 
 
 
@@ -133,7 +133,7 @@ King Solomon offered a sacrifice of 22,000 oxen and 120,000 sheep. So the king a
 
 
 
-The priests stood at their posts, and the Levites also, with instruments of music to the Lord, which King David had made to praise _and_ give thanks to the Lord--for His mercy _and_ loving-kindness endure forever--whenever David praised through their ministry; the priests blew trumpets before them, and all Israel stood. 
+The priests stood at their posts, and the Levites also, with instruments of music to the Lord, which King David had made to praise and give thanks to the Lord--for His mercy and loving-kindness endure forever--whenever David praised through their ministry; the priests blew trumpets before them, and all Israel stood. 
 
 
 
@@ -301,7 +301,7 @@ If I shut up heaven so no rain falls, or if I command locusts to devour the land
 
 
 
-If My people, who are called by My name, shall humble themselves, pray, seek, crave, _and_ require of necessity My face and turn from their wicked ways, then will I hear from heaven, forgive their sin, and heal their land. 
+If My people, who are called by My name, shall humble themselves, pray, seek, crave, and require of necessity My face and turn from their wicked ways, then will I hear from heaven, forgive their sin, and heal their land. 
 
 
 

@@ -28,7 +28,7 @@ next: ['Num 26']
 
 
 
-Israel settled down _and_ remained in Shittim, and the people began to play the harlot with the daughters of Moab, 
+Israel settled down and remained in Shittim, and the people began to play the harlot with the daughters of Moab, 
 
 
 
@@ -91,7 +91,7 @@ So Israel joined himself to [the god] Baal of Peor. And the anger of the Lord wa
 
 
 
-And the Lord said to Moses, Take all the leaders _or_ chiefs of the people, and hang them before the Lord in the sun [after killing them], that the fierce anger of the Lord may turn away from Israel. 
+And the Lord said to Moses, Take all the leaders or chiefs of the people, and hang them before the Lord in the sun [after killing them], that the fierce anger of the Lord may turn away from Israel. 
 
 
 

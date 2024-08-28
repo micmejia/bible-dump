@@ -112,7 +112,7 @@ And you shall make loops of blue on the edge of the last curtain in the first se
 
 
 
-Fifty loops you shall make on the one curtain and fifty loops on the edge of the last curtain that is in the second coupling _or_ set, so that the loops on one correspond to the loops on the other. 
+Fifty loops you shall make on the one curtain and fifty loops on the edge of the last curtain that is in the second coupling or set, so that the loops on one correspond to the loops on the other. 
 
 
 
@@ -301,7 +301,7 @@ And the cubit on the one side and the cubit on the other side of what remains in
 
 
 
-You shall make a [third] covering for the tent of rams' skins tanned red, and a [fourth] covering above that of dolphin _or_ porpoise skins. 
+You shall make a [third] covering for the tent of rams' skins tanned red, and a [fourth] covering above that of dolphin or porpoise skins. 
 
 
 
@@ -364,7 +364,7 @@ Ten cubits shall be the length of a board and a cubit and a half shall be the br
 
 
 
-Make two tenons in each board for dovetailing _and_ fitting together; so shall you do for all the tabernacle boards. 
+Make two tenons in each board for dovetailing and fitting together; so shall you do for all the tabernacle boards. 
 
 
 

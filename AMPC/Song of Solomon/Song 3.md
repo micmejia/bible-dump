@@ -133,7 +133,7 @@ I adjure you, O daughters of Jerusalem, by the gazelles or by the hinds of the f
 
 
 
-Who _or_ what is this [she asked] that comes gliding out of the wilderness like stately pillars of smoke perfumed with myrrh, frankincense, and all the fragrant powders of the merchant? 
+Who or what is this [she asked] that comes gliding out of the wilderness like stately pillars of smoke perfumed with myrrh, frankincense, and all the fragrant powders of the merchant? 
 
 
 
@@ -196,7 +196,7 @@ They all handle the sword and are expert in war; every man has his sword upon hi
 
 
 
-King Solomon made himself a car _or_ a palanquin from the [cedar] wood of Lebanon. 
+King Solomon made himself a car or a palanquin from the [cedar] wood of Lebanon. 
 
 
 
@@ -217,7 +217,7 @@ King Solomon made himself a car _or_ a palanquin from the [cedar] wood of Lebano
 
 
 
-He made its posts of silver, its back of gold, its seat of purple, the inside of it lovingly _and_ intricately wrought in needlework by the daughters of Jerusalem. 
+He made its posts of silver, its back of gold, its seat of purple, the inside of it lovingly and intricately wrought in needlework by the daughters of Jerusalem. 
 
 
 

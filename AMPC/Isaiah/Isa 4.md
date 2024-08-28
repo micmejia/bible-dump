@@ -70,7 +70,7 @@ In that day the Branch of the Lord shall be beautiful and glorious, and the frui
 
 
 
-And he who is left in Zion and remains in Jerusalem will be called holy, everyone who is recorded for life in Jerusalem _and for_ _eternal life_, 
+And he who is left in Zion and remains in Jerusalem will be called holy, everyone who is recorded for life in Jerusalem and for eternal life, 
 
 
 
@@ -91,7 +91,7 @@ And he who is left in Zion and remains in Jerusalem will be called holy, everyon
 
 
 
-After the Lord has washed away the [moral] filth of the daughters of Zion [pride, vanity, haughtiness] and has purged the bloodstains of Jerusalem from the midst of it by the spirit _and_ blast of judgment and by the spirit _and_ blast of burning _and_ sifting. 
+After the Lord has washed away the [moral] filth of the daughters of Zion [pride, vanity, haughtiness] and has purged the bloodstains of Jerusalem from the midst of it by the spirit and blast of judgment and by the spirit and blast of burning and sifting. 
 
 
 

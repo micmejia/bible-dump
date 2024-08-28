@@ -28,7 +28,7 @@ next: ['Prov 14']
 
 
 
-A wise son heeds [and is the fruit of] his father's instruction _and_ correction, but a scoffer listens not to rebuke. 
+A wise son heeds [and is the fruit of] his father's instruction and correction, but a scoffer listens not to rebuke. 
 
 
 
@@ -112,7 +112,7 @@ The appetite of the sluggard craves and gets nothing, but the appetite of the di
 
 
 
-A [consistently] righteous man hates lying _and_ deceit, but a wicked man is loathsome [his very breath spreads pollution] and he comes [surely] to shame. 
+A [consistently] righteous man hates lying and deceit, but a wicked man is loathsome [his very breath spreads pollution] and he comes [surely] to shame. 
 
 
 
@@ -133,7 +133,7 @@ A [consistently] righteous man hates lying _and_ deceit, but a wicked man is loa
 
 
 
-Righteousness (rightness and justice in every area and relation) guards him who is upright in the way, but wickedness plunges into sin _and_ overthrows the sinner. 
+Righteousness (rightness and justice in every area and relation) guards him who is upright in the way, but wickedness plunges into sin and overthrows the sinner. 
 
 
 
@@ -217,7 +217,7 @@ The light of the [uncompromisingly] righteous [is within him--it grows brighter 
 
 
 
-By pride _and_ insolence comes only contention, but with the well-advised is skillful _and_ godly Wisdom. 
+By pride and insolence comes only contention, but with the well-advised is skillful and godly Wisdom. 
 
 
 
@@ -238,7 +238,7 @@ By pride _and_ insolence comes only contention, but with the well-advised is ski
 
 
 
-Wealth [not earned but] won in haste _or_ unjustly _or_ from the production of things for vain _or_ detrimental use [such riches] will dwindle away, but he who gathers little by little will increase [his riches]. 
+Wealth [not earned but] won in haste or unjustly or from the production of things for vain or detrimental use [such riches] will dwindle away, but he who gathers little by little will increase [his riches]. 
 
 
 
@@ -280,7 +280,7 @@ Hope deferred makes the heart sick, but when the desire is fulfilled, it is a tr
 
 
 
-Whoever despises the word _and_ counsel [of God] brings destruction upon himself, but he who [reverently] fears _and_ respects the commandment [of God] is rewarded. 
+Whoever despises the word and counsel [of God] brings destruction upon himself, but he who [reverently] fears and respects the commandment [of God] is rewarded. 
 
 
 
@@ -343,7 +343,7 @@ Good understanding wins favor, but the way of the transgressor is hard [like the
 
 
 
-Every prudent man deals with knowledge, but a [self-confident] fool exposes _and_ flaunts his folly. 
+Every prudent man deals with knowledge, but a [self-confident] fool exposes and flaunts his folly. 
 
 
 
@@ -385,7 +385,7 @@ A wicked messenger falls into evil, but a faithful ambassador brings healing.
 
 
 
-Poverty and shame come to him who refuses instruction _and_ correction, but he who heeds reproof is honored. 
+Poverty and shame come to him who refuses instruction and correction, but he who heeds reproof is honored. 
 
 
 
@@ -406,7 +406,7 @@ Poverty and shame come to him who refuses instruction _and_ correction, but he w
 
 
 
-Satisfied desire is sweet to a person; therefore it is hateful _and_ exceedingly offensive to [self-confident] fools to give up evil [upon which they have set their hearts]. 
+Satisfied desire is sweet to a person; therefore it is hateful and exceedingly offensive to [self-confident] fools to give up evil [upon which they have set their hearts]. 
 
 
 
@@ -448,7 +448,7 @@ He who walks [as a companion] with wise men is wise, but he who associates with 
 
 
 
-Evil pursues sinners, but the consistently upright _and_ in right standing with God is recompensed with good. 
+Evil pursues sinners, but the consistently upright and in right standing with God is recompensed with good. 
 
 
 
@@ -511,7 +511,7 @@ Much food is in the tilled land of the poor, but there are those who are destroy
 
 
 
-He who spares his rod [of discipline] hates his son, but he who loves him disciplines diligently _and_ punishes him early. 
+He who spares his rod [of discipline] hates his son, but he who loves him disciplines diligently and punishes him early. 
 
 
 

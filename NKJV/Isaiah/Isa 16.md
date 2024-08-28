@@ -13,7 +13,7 @@ next: ['Isa 17']
 Send the lamb to the ruler of the land, From Sela to the wilderness, To the mount of the daughter of Zion. 
 
 ###### 2 
-For it shall be as a wandering bird thrown out of the nest; _So_ shall be the daughters of Moab at the fords of the Arnon. 
+For it shall be as a wandering bird thrown out of the nest; So shall be the daughters of Moab at the fords of the Arnon. 
 
 ###### 3 
 "Take counsel, execute judgment; Make your shadow like the night in the middle of the day; Hide the outcasts, Do not betray him who escapes. 
@@ -25,13 +25,13 @@ Let My outcasts dwell with you, O Moab; Be a shelter to them from the face of th
 In mercy the throne will be established; And One will sit on it in truth, in the tabernacle of David, Judging and seeking justice and hastening righteousness." 
 
 ###### 6 
-We have heard of the pride of Moab-- _He is_ very proud-- Of his haughtiness and his pride and his wrath; _But_ his lies _shall_ not _be_ so. 
+We have heard of the pride of Moab-- He is very proud-- Of his haughtiness and his pride and his wrath; But his lies shall not be so. 
 
 ###### 7 
-Therefore Moab shall wail for Moab; Everyone shall wail. For the foundations of Kir Hareseth you shall mourn; Surely _they are_ stricken. 
+Therefore Moab shall wail for Moab; Everyone shall wail. For the foundations of Kir Hareseth you shall mourn; Surely they are stricken. 
 
 ###### 8 
-For the fields of Heshbon languish, _And_ the vine of Sibmah; The lords of the nations have broken down its choice plants, Which have reached to Jazer And wandered through the wilderness. Her branches are stretched out, They are gone over the sea. 
+For the fields of Heshbon languish, And the vine of Sibmah; The lords of the nations have broken down its choice plants, Which have reached to Jazer And wandered through the wilderness. Her branches are stretched out, They are gone over the sea. 
 
 ###### 9 
 Therefore I will bewail the vine of Sibmah, With the weeping of Jazer; I will drench you with my tears, O Heshbon and Elealeh; For battle cries have fallen Over your summer fruits and your harvest. 
@@ -46,7 +46,7 @@ Therefore my heart shall resound like a harp for Moab, And my inner being for Ki
 And it shall come to pass, When it is seen that Moab is weary on the high place, That he will come to his sanctuary to pray; But he will not prevail. 
 
 ###### 13 
-This _is_ the word which the Lord has spoken concerning Moab since that time. 
+This is the word which the Lord has spoken concerning Moab since that time. 
 
 ###### 14 
-But now the Lord has spoken, saying, "Within three years, as the years of a hired man, the glory of Moab will be despised with all that great multitude, and the remnant _will be_ very small _and_ feeble."
+But now the Lord has spoken, saying, "Within three years, as the years of a hired man, the glory of Moab will be despised with all that great multitude, and the remnant will be very small and feeble."

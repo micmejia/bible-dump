@@ -90,7 +90,7 @@ For all this came to pass in Jerusalem and Judah because of the anger of the Lor
 
 
 
-And in the ninth year of his reign, in the tenth month, on the tenth day of the month, Nebuchadrezzar king of Babylon came, he and all his army, against Jerusalem; and they pitched against it and built moveable towers _and_ siege mounds against it round about. 
+And in the ninth year of his reign, in the tenth month, on the tenth day of the month, Nebuchadrezzar king of Babylon came, he and all his army, against Jerusalem; and they pitched against it and built moveable towers and siege mounds against it round about. 
 
 
 
@@ -258,7 +258,7 @@ Then he put out the eyes of Zedekiah; and the king of Babylon bound him with sha
 
 
 
-Now in the fifth month, on the tenth day of the month, which was the nineteenth year of Nebuchadrezzar king of Babylon, there came to Jerusalem Nebuzaradan captain of the guard, who stood _and_ served before the king of Babylon. 
+Now in the fifth month, on the tenth day of the month, which was the nineteenth year of Nebuchadrezzar king of Babylon, there came to Jerusalem Nebuzaradan captain of the guard, who stood and served before the king of Babylon. 
 
 
 
@@ -363,7 +363,7 @@ But Nebuzaradan the captain of the guard left some of the poorest of the land to
 
 
 
-Also the pillars of bronze that belonged to the house of the Lord, and the bronze bases _or_ pedestals [which supported the ten basins] and the bronze Sea _or_ huge laver that were in the house of the Lord, the Chaldeans broke into pieces and carried all the bronze of them to Babylon. 
+Also the pillars of bronze that belonged to the house of the Lord, and the bronze bases or pedestals [which supported the ten basins] and the bronze Sea or huge laver that were in the house of the Lord, the Chaldeans broke into pieces and carried all the bronze of them to Babylon. 
 
 
 
@@ -426,7 +426,7 @@ Also the small bowls and the firepans and the basins and the pots and the lampst
 
 
 
-The two pillars, one Sea _or_ huge laver, and twelve bronze bulls _or_ oxen under the Sea, which King Solomon had made in the house of the Lord--the bronze of all these things was beyond weighing. 
+The two pillars, one Sea or huge laver, and twelve bronze bulls or oxen under the Sea, which King Solomon had made in the house of the Lord--the bronze of all these things was beyond weighing. 
 
 
 
@@ -468,7 +468,7 @@ Concerning the pillars, the height of the one pillar was eighteen cubits (twenty
 
 
 
-An upper part _or_ capital of bronze was on top of it. The height of one capital was five cubits (seven and one-half feet), with a network and pomegranates around it, all of bronze. The second pillar also, with its pomegranates, was similar to these. 
+An upper part or capital of bronze was on top of it. The height of one capital was five cubits (seven and one-half feet), with a network and pomegranates around it, all of bronze. The second pillar also, with its pomegranates, was similar to these. 
 
 
 
@@ -531,7 +531,7 @@ And the captain of the guard took [as prisoners] Seraiah the chief priest and Ze
 
 
 
-He took also out of the city a court officer who had been overseer of the soldiers, and seven men of them who were next to the king [as advisers] _and_ saw his face, who were found in the city, and the scribe of the prince _or_ captain of the army who mustered the people of the land, and sixty men of the people of the land who were found in the midst of the city. 
+He took also out of the city a court officer who had been overseer of the soldiers, and seven men of them who were next to the king [as advisers] and saw his face, who were found in the city, and the scribe of the prince or captain of the army who mustered the people of the land, and sixty men of the people of the land who were found in the midst of the city. 
 
 
 

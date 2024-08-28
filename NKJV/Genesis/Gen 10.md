@@ -10,25 +10,25 @@ next: ['Gen 11']
 
 
 ###### 1 
-Now this _is_ the genealogy of the sons of Noah: Shem, Ham, and Japheth. And sons were born to them after the flood. 
+Now this is the genealogy of the sons of Noah: Shem, Ham, and Japheth. And sons were born to them after the flood. 
 
 ###### 2 
-The sons of Japheth _were_ Gomer, Magog, Madai, Javan, Tubal, Meshech, and Tiras. 
+The sons of Japheth were Gomer, Magog, Madai, Javan, Tubal, Meshech, and Tiras. 
 
 ###### 3 
-The sons of Gomer _were_ Ashkenaz, Riphath, and Togarmah. 
+The sons of Gomer were Ashkenaz, Riphath, and Togarmah. 
 
 ###### 4 
-The sons of Javan _were_ Elishah, Tarshish, Kittim, and Dodanim. 
+The sons of Javan were Elishah, Tarshish, Kittim, and Dodanim. 
 
 ###### 5 
-From these the coastland _peoples_ of the Gentiles were separated into their lands, everyone according to his language, according to their families, into their nations. 
+From these the coastland peoples of the Gentiles were separated into their lands, everyone according to his language, according to their families, into their nations. 
 
 ###### 6 
-The sons of Ham _were_ Cush, Mizraim, Put, and Canaan. 
+The sons of Ham were Cush, Mizraim, Put, and Canaan. 
 
 ###### 7 
-The sons of Cush _were_ Seba, Havilah, Sabtah, Raamah, and Sabtechah; and the sons of Raamah _were_ Sheba and Dedan. 
+The sons of Cush were Seba, Havilah, Sabtah, Raamah, and Sabtechah; and the sons of Raamah were Sheba and Dedan. 
 
 ###### 8 
 Cush begot Nimrod; he began to be a mighty one on the earth. 
@@ -43,7 +43,7 @@ And the beginning of his kingdom was Babel, Erech, Accad, and Calneh, in the lan
 From that land he went to Assyria and built Nineveh, Rehoboth Ir, Calah, 
 
 ###### 12 
-and Resen between Nineveh and Calah (that _is_ the principal city). 
+and Resen between Nineveh and Calah (that is the principal city). 
 
 ###### 13 
 Mizraim begot Ludim, Anamim, Lehabim, Naphtuhim, 
@@ -67,22 +67,22 @@ the Arvadite, the Zemarite, and the Hamathite. Afterward the families of the Can
 And the border of the Canaanites was from Sidon as you go toward Gerar, as far as Gaza; then as you go toward Sodom, Gomorrah, Admah, and Zeboiim, as far as Lasha. 
 
 ###### 20 
-These _were_ the sons of Ham, according to their families, according to their languages, in their lands _and_ in their nations. 
+These were the sons of Ham, according to their families, according to their languages, in their lands and in their nations. 
 
 ###### 21 
-And _children_ were born also to Shem, the father of all the children of Eber, the brother of Japheth the elder. 
+And children were born also to Shem, the father of all the children of Eber, the brother of Japheth the elder. 
 
 ###### 22 
-The sons of Shem _were_ Elam, Asshur, Arphaxad, Lud, and Aram. 
+The sons of Shem were Elam, Asshur, Arphaxad, Lud, and Aram. 
 
 ###### 23 
-The sons of Aram _were_ Uz, Hul, Gether, and Mash. 
+The sons of Aram were Uz, Hul, Gether, and Mash. 
 
 ###### 24 
 Arphaxad begot Salah, and Salah begot Eber. 
 
 ###### 25 
-To Eber were born two sons: the name of one _was_ Peleg, for in his days the earth was divided; and his brother's name _was_ Joktan. 
+To Eber were born two sons: the name of one was Peleg, for in his days the earth was divided; and his brother's name was Joktan. 
 
 ###### 26 
 Joktan begot Almodad, Sheleph, Hazarmaveth, Jerah, 
@@ -94,13 +94,13 @@ Hadoram, Uzal, Diklah,
 Obal, Abimael, Sheba, 
 
 ###### 29 
-Ophir, Havilah, and Jobab. All these _were_ the sons of Joktan. 
+Ophir, Havilah, and Jobab. All these were the sons of Joktan. 
 
 ###### 30 
 And their dwelling place was from Mesha as you go toward Sephar, the mountain of the east. 
 
 ###### 31 
-These _were_ the sons of Shem, according to their families, according to their languages, in their lands, according to their nations. 
+These were the sons of Shem, according to their families, according to their languages, in their lands, according to their nations. 
 
 ###### 32 
-These _were_ the families of the sons of Noah, according to their generations, in their nations; and from these the nations were divided on the earth after the flood.
+These were the families of the sons of Noah, according to their generations, in their nations; and from these the nations were divided on the earth after the flood.

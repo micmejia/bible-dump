@@ -28,7 +28,7 @@ next: ['Zech 4']
 
 
 
-Then [the guiding angel] showed me Joshua the high priest standing before the Angel of the Lord, and Satan standing at Joshua's right hand to be his adversary _and_ to accuse him. 
+Then [the guiding angel] showed me Joshua the high priest standing before the Angel of the Lord, and Satan standing at Joshua's right hand to be his adversary and to accuse him. 
 
 
 
@@ -133,7 +133,7 @@ And I [Zechariah] said, Let them put a clean turban on his head. So they put a c
 
 
 
-And the Angel of the Lord [solemnly and earnestly] protested _and_ affirmed to Joshua, saying, 
+And the Angel of the Lord [solemnly and earnestly] protested and affirmed to Joshua, saying, 
 
 
 
@@ -154,7 +154,7 @@ And the Angel of the Lord [solemnly and earnestly] protested _and_ affirmed to J
 
 
 
-Thus says the Lord of hosts: If you will walk in My ways and keep My charge, then also you shall rule My house and have charge of My courts, and I will give you access [to My presence] _and_ places to walk among these who stand here. 
+Thus says the Lord of hosts: If you will walk in My ways and keep My charge, then also you shall rule My house and have charge of My courts, and I will give you access [to My presence] and places to walk among these who stand here. 
 
 
 
@@ -175,7 +175,7 @@ Thus says the Lord of hosts: If you will walk in My ways and keep My charge, the
 
 
 
-Hear now, O Joshua the high priest, you and your colleagues who [usually] sit before you--for they are men who are a sign _or_ omen [types of what is to come]--for behold, I will bring forth My servant the Branch. 
+Hear now, O Joshua the high priest, you and your colleagues who [usually] sit before you--for they are men who are a sign or omen [types of what is to come]--for behold, I will bring forth My servant the Branch. 
 
 
 
@@ -196,7 +196,7 @@ Hear now, O Joshua the high priest, you and your colleagues who [usually] sit be
 
 
 
-For behold, upon the stone which I have set before Joshua, upon that one stone are seven eyes _or_ facets [the all-embracing providence of God and the sevenfold radiations of the Spirit of God]. Behold, I will carve upon it its inscription, says the Lord of hosts, and I will remove the iniquity _and_ guilt of this land in a single day. 
+For behold, upon the stone which I have set before Joshua, upon that one stone are seven eyes or facets [the all-embracing providence of God and the sevenfold radiations of the Spirit of God]. Behold, I will carve upon it its inscription, says the Lord of hosts, and I will remove the iniquity and guilt of this land in a single day. 
 
 
 

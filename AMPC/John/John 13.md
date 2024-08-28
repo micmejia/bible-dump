@@ -28,7 +28,7 @@ next: ['John 14']
 
 
 
-[Now] before the Passover Feast began, Jesus knew (was fully aware) that the time had come for Him to leave this world _and_ return to the Father. And as He had loved those who were His own in the world, He loved them to the last _and_ to the highest degree. 
+[Now] before the Passover Feast began, Jesus knew (was fully aware) that the time had come for Him to leave this world and return to the Father. And as He had loved those who were His own in the world, He loved them to the last and to the highest degree. 
 
 
 
@@ -364,7 +364,7 @@ I assure you, most solemnly I tell you, A servant is not greater than his master
 
 
 
-If you know these things, blessed _and_ happy _and_ to be envied are you if you practice them [if you act accordingly and really do them]. 
+If you know these things, blessed and happy and to be envied are you if you practice them [if you act accordingly and really do them]. 
 
 
 
@@ -385,7 +385,7 @@ If you know these things, blessed _and_ happy _and_ to be envied are you if you 
 
 
 
-I am not speaking of _and_ I do not mean all of you. I know whom I have chosen; but it is that the Scripture may be fulfilled, He who eats My bread _with Me_ has raised up his heel against Me. 
+I am not speaking of and I do not mean all of you. I know whom I have chosen; but it is that the Scripture may be fulfilled, He who eats My bread with Me has raised up his heel against Me. 
 
 
 
@@ -406,7 +406,7 @@ I am not speaking of _and_ I do not mean all of you. I know whom I have chosen; 
 
 
 
-I tell you this now before it occurs, so that when it does take place you may be persuaded _and_ believe that I am He [Who I say I am--the Christ, the Anointed One, the Messiah]. 
+I tell you this now before it occurs, so that when it does take place you may be persuaded and believe that I am He [Who I say I am--the Christ, the Anointed One, the Messiah]. 
 
 
 
@@ -427,7 +427,7 @@ I tell you this now before it occurs, so that when it does take place you may be
 
 
 
-I assure you, most solemnly I tell you, he who receives _and_ welcomes _and_ takes into his heart any messenger of Mine receives Me [in just that way]; and he who receives _and_ welcomes _and_ takes Me into his heart receives Him Who sent Me [in that same way]. 
+I assure you, most solemnly I tell you, he who receives and welcomes and takes into his heart any messenger of Mine receives Me [in just that way]; and he who receives and welcomes and takes Me into his heart receives Him Who sent Me [in that same way]. 
 
 
 
@@ -574,7 +574,7 @@ Jesus answered, It is the one to whom I am going to give this morsel (bit) of fo
 
 
 
-Then after [he had taken] the bit of food, Satan entered into _and_ took possession of [Judas]. Jesus said to him, What you are going to do, do more swiftly than you seem to intend _and_ make quick work of it. 
+Then after [he had taken] the bit of food, Satan entered into and took possession of [Judas]. Jesus said to him, What you are going to do, do more swiftly than you seem to intend and make quick work of it. 
 
 
 
@@ -595,7 +595,7 @@ Then after [he had taken] the bit of food, Satan entered into _and_ took possess
 
 
 
-But nobody reclining at the table knew why He spoke to him _or_ what He meant by telling him this. 
+But nobody reclining at the table knew why He spoke to him or what He meant by telling him this. 
 
 
 
@@ -658,7 +658,7 @@ So after receiving the bit of bread, he went out immediately. And it was night.
 
 
 
-When he had left, Jesus said, Now is the Son of Man glorified! [Now He has achieved His glory, His honor, His exaltation!] And God has been glorified through _and_ in Him. 
+When he had left, Jesus said, Now is the Son of Man glorified! [Now He has achieved His glory, His honor, His exaltation!] And God has been glorified through and in Him. 
 
 
 
@@ -679,7 +679,7 @@ When he had left, Jesus said, Now is the Son of Man glorified! [Now He has achie
 
 
 
-And if God is glorified through _and_ in Him, God will also glorify Him in Himself, and He will glorify Him at once _and_ not delay. 
+And if God is glorified through and in Him, God will also glorify Him in Himself, and He will glorify Him at once and not delay. 
 
 
 

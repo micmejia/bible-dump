@@ -154,7 +154,7 @@ Sheol (the place of the dead) is naked before God, and Abaddon (the place of des
 
 
 
-He it is Who spreads out the northern skies over emptiness and hangs the earth upon _or_ over nothing. 
+He it is Who spreads out the northern skies over emptiness and hangs the earth upon or over nothing. 
 
 
 
@@ -259,7 +259,7 @@ The pillars of the heavens tremble and are astonished at His rebuke.
 
 
 
-He stills _or_ stirs up the sea by His power, and by His understanding He smites proud Rahab. 
+He stills or stirs up the sea by His power, and by His understanding He smites proud Rahab. 
 
 
 
@@ -301,4 +301,4 @@ By His breath the heavens are garnished; His hand pierced the [swiftly] fleeing 
 
 
 
-Yet these are but [a small part of His doings] the outskirts of His ways _or_ the mere fringes of His force, the faintest whisper of His voice! Who dares contemplate _or_ who can understand the thunders of His full, magnificent power?
+Yet these are but [a small part of His doings] the outskirts of His ways or the mere fringes of His force, the faintest whisper of His voice! Who dares contemplate or who can understand the thunders of His full, magnificent power?

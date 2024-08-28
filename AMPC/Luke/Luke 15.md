@@ -49,7 +49,7 @@ Now the tax collectors and [notorious and especially wicked] sinners were all co
 
 
 
-And the Pharisees and the scribes kept muttering _and_ indignantly complaining, saying, This man accepts _and_ receives _and_ welcomes [preeminently wicked] sinners and eats with them. 
+And the Pharisees and the scribes kept muttering and indignantly complaining, saying, This man accepts and receives and welcomes [preeminently wicked] sinners and eats with them. 
 
 
 
@@ -175,7 +175,7 @@ Thus, I tell you, there will be more joy in heaven over one [especially] wicked 
 
 
 
-Or what woman, having ten [silver] drachmas [each one equal to a day's wages], if she loses one coin, does not light a lamp and sweep the house and look carefully _and_ diligently until she finds it? 
+Or what woman, having ten [silver] drachmas [each one equal to a day's wages], if she loses one coin, does not light a lamp and sweep the house and look carefully and diligently until she finds it? 
 
 
 
@@ -217,7 +217,7 @@ And when she has found it, she summons her [women] friends and neighbors, saying
 
 
 
-Even so, I tell you, there is joy among _and_ in the presence of the angels of God over one [especially] wicked person who repents (changes his mind for the better, heartily amending his ways, with abhorrence of his past sins). 
+Even so, I tell you, there is joy among and in the presence of the angels of God over one [especially] wicked person who repents (changes his mind for the better, heartily amending his ways, with abhorrence of his past sins). 
 
 
 
@@ -280,7 +280,7 @@ And the younger of them said to his father, Father, give me the part of the prop
 
 
 
-And not many days after that, the younger son gathered up all that he had and journeyed into a distant country, and there he wasted his fortune in reckless _and_ loose [from restraint] living. 
+And not many days after that, the younger son gathered up all that he had and journeyed into a distant country, and there he wasted his fortune in reckless and loose [from restraint] living. 
 
 
 
@@ -301,7 +301,7 @@ And not many days after that, the younger son gathered up all that he had and jo
 
 
 
-And when he had spent all he had, a mighty famine came upon that country, and he began to fall behind _and_ be in want. 
+And when he had spent all he had, a mighty famine came upon that country, and he began to fall behind and be in want. 
 
 
 
@@ -343,7 +343,7 @@ So he went and forced (glued) himself upon one of the citizens of that country, 
 
 
 
-And he would gladly have fed on _and_ _filled his belly with_ the carob pods that the hogs were eating, but [they could not satisfy his hunger and] nobody gave him anything [better]. 
+And he would gladly have fed on and filled his belly with the carob pods that the hogs were eating, but [they could not satisfy his hunger and] nobody gave him anything [better]. 
 
 
 
@@ -427,7 +427,7 @@ I am no longer worthy to be called your son; [just] make me like one of your hir
 
 
 
-So he got up and came to his [own] father. But while he was still a long way off, his father saw him and was moved with pity _and_ tenderness [for him]; and he ran and embraced him and kissed him [fervently]. 
+So he got up and came to his [own] father. But while he was still a long way off, his father saw him and was moved with pity and tenderness [for him]; and he ran and embraced him and kissed him [fervently]. 
 
 
 
@@ -490,7 +490,7 @@ But the father said to his bond servants, Bring quickly the best robe (the festi
 
 
 
-And bring out that [wheat-]fattened calf and kill it; and let us revel _and_ feast _and_ be happy _and_ make merry, 
+And bring out that [wheat-]fattened calf and kill it; and let us revel and feast and be happy and make merry, 
 
 
 
@@ -511,7 +511,7 @@ And bring out that [wheat-]fattened calf and kill it; and let us revel _and_ fea
 
 
 
-Because this my son was dead and is alive again; he was lost and is found! And they began to revel _and_ feast _and_ make merry. 
+Because this my son was dead and is alive again; he was lost and is found! And they began to revel and feast and make merry. 
 
 
 
@@ -616,7 +616,7 @@ But [the elder brother] was angry [with deep-seated wrath] and resolved not to g
 
 
 
-But he answered his father, Look! These many years I have served you, and I have never disobeyed your command. Yet you never gave me [so much as] a [little] kid, that I might revel _and_ feast _and_ be happy _and_ make merry with my friends; 
+But he answered his father, Look! These many years I have served you, and I have never disobeyed your command. Yet you never gave me [so much as] a [little] kid, that I might revel and feast and be happy and make merry with my friends; 
 
 
 
@@ -679,4 +679,4 @@ And the father said to him, Son, you are always with me, and all that is mine is
 
 
 
-But it was fitting to make merry, to revel _and_ feast and rejoice, for this brother of yours was dead and is alive again! He was lost and is found!
+But it was fitting to make merry, to revel and feast and rejoice, for this brother of yours was dead and is alive again! He was lost and is found!

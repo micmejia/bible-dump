@@ -17,7 +17,7 @@ Masters, [on your part] deal with your slaves justly and fairly, knowing that al
 ###### 2 
 
 
-Be earnest _and_ unwearied _and_ steadfast in your prayer [life], being [both] alert _and_ intent in [your praying] with thanksgiving. 
+Be earnest and unwearied and steadfast in your prayer [life], being [both] alert and intent in [your praying] with thanksgiving. 
 
 
 ###### 3 
@@ -29,13 +29,13 @@ And at the same time pray for us also, that God may open a door to us for the Wo
 ###### 4 
 
 
-That I may proclaim it fully _and_ make it clear [speak boldly and unfold that mystery], as is my duty. 
+That I may proclaim it fully and make it clear [speak boldly and unfold that mystery], as is my duty. 
 
 
 ###### 5 
 
 
-Behave yourselves wisely [living prudently and with discretion] in your relations with those of the outside world (the non-Christians), making the very most of the time _and_ seizing (buying up) the opportunity. 
+Behave yourselves wisely [living prudently and with discretion] in your relations with those of the outside world (the non-Christians), making the very most of the time and seizing (buying up) the opportunity. 
 
 
 ###### 6 
@@ -53,7 +53,7 @@ Tychicus will give you full information about my affairs; [he is] a much-loved b
 ###### 8 
 
 
-I have sent him to you for this very purpose, that you may know how we are faring and that he may comfort _and_ cheer _and_ encourage your hearts. 
+I have sent him to you for this very purpose, that you may know how we are faring and that he may comfort and cheer and encourage your hearts. 
 
 
 ###### 9 
@@ -71,13 +71,13 @@ Aristarchus my fellow prisoner wishes to be remembered to you, as does Mark the 
 ###### 11 
 
 
-And [greetings also from] Jesus, who is called Justus. These [Hebrew Christians] alone of the circumcision are among my fellow workers for [the extension of] God's kingdom, and they have proved a relief _and_ a comfort to me. 
+And [greetings also from] Jesus, who is called Justus. These [Hebrew Christians] alone of the circumcision are among my fellow workers for [the extension of] God's kingdom, and they have proved a relief and a comfort to me. 
 
 
 ###### 12 
 
 
-Epaphras, who is one of yourselves, a servant of Christ Jesus, sends you greetings. [He is] always striving for you earnestly in his prayers, [pleading] that you may [as persons of ripe character and clear conviction] stand firm _and_ mature [in spiritual growth], convinced _and_ fully assured in everything willed by God. 
+Epaphras, who is one of yourselves, a servant of Christ Jesus, sends you greetings. [He is] always striving for you earnestly in his prayers, [pleading] that you may [as persons of ripe character and clear conviction] stand firm and mature [in spiritual growth], convinced and fully assured in everything willed by God. 
 
 
 ###### 13 
@@ -107,10 +107,10 @@ And when this epistle has been read before you, [see] that it is read also in th
 ###### 17 
 
 
-And say to Archippus, See that you discharge carefully [the duties of] the ministry _and_ fulfill the stewardship which you have received in the Lord. 
+And say to Archippus, See that you discharge carefully [the duties of] the ministry and fulfill the stewardship which you have received in the Lord. 
 
 
 ###### 18 
 
 
-I, Paul, [add this final] greeting, writing with my own hand. Remember I am still in prison _and_ in chains. May grace (God's unmerited favor and blessing) be with you! _Amen (so be it)._
+I, Paul, [add this final] greeting, writing with my own hand. Remember I am still in prison and in chains. May grace (God's unmerited favor and blessing) be with you! Amen (so be it).

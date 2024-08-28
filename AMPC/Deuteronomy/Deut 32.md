@@ -70,7 +70,7 @@ My message shall drop as the rain, my speech shall distil as the dew, as the lig
 
 
 
-For I will proclaim the name [and presence] of the Lord. Concede _and_ ascribe greatness to our God. 
+For I will proclaim the name [and presence] of the Lord. Concede and ascribe greatness to our God. 
 
 
 
@@ -91,7 +91,7 @@ For I will proclaim the name [and presence] of the Lord. Concede _and_ ascribe g
 
 
 
-He is the Rock, His work is perfect, for all His ways are law _and_ justice. A God of faithfulness without breach _or_ deviation, just and right is He. 
+He is the Rock, His work is perfect, for all His ways are law and justice. A God of faithfulness without breach or deviation, just and right is He. 
 
 
 
@@ -301,7 +301,7 @@ He made Israel ride on the high places of the earth, and he ate the increase of 
 
 
 
-Butter _and_ curds of the herd and milk of the flock, with fat of lambs, and rams of the breed of Bashan, and he-goats, with the finest of the wheat; and you drank wine of the blood of the grape. 
+Butter and curds of the herd and milk of the flock, with fat of lambs, and rams of the breed of Bashan, and he-goats, with the finest of the wheat; and you drank wine of the blood of the grape. 
 
 
 
@@ -322,7 +322,7 @@ Butter _and_ curds of the herd and milk of the flock, with fat of lambs, and ram
 
 
 
-But Jeshurun (Israel) grew fat and kicked. You became fat, you grew thick, you were gorged _and_ sleek! Then he forsook God Who made him and forsook _and_ despised the Rock of his salvation. 
+But Jeshurun (Israel) grew fat and kicked. You became fat, you grew thick, you were gorged and sleek! Then he forsook God Who made him and forsook and despised the Rock of his salvation. 
 
 
 
@@ -406,7 +406,7 @@ Of the Rock Who bore you you were unmindful; you forgot the God Who travailed in
 
 
 
-And the Lord saw it and He spurned _and_ rejected them, out of indignation with His sons and His daughters. 
+And the Lord saw it and He spurned and rejected them, out of indignation with His sons and His daughters. 
 
 
 
@@ -994,7 +994,7 @@ He said to them, Set your [minds and] hearts on all the words which I command yo
 
 
 
-For it is not an empty _and_ worthless trifle for you; it is your [very] life. By it you shall live long in the land which you are going over the Jordan to possess. 
+For it is not an empty and worthless trifle for you; it is your [very] life. By it you shall live long in the land which you are going over the Jordan to possess. 
 
 
 

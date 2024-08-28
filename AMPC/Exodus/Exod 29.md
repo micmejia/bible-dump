@@ -112,7 +112,7 @@ And bring Aaron and his sons to the door of the Tent of Meeting [out where the l
 
 
 
-Then take the garments and put on Aaron the long _and_ sleeved tunic and the robe of the ephod and the ephod and the breastplate, and gird him with the skillfully woven girding band of the ephod. 
+Then take the garments and put on Aaron the long and sleeved tunic and the robe of the ephod and the ephod and the breastplate, and gird him with the skillfully woven girding band of the ephod. 
 
 
 
@@ -133,7 +133,7 @@ Then take the garments and put on Aaron the long _and_ sleeved tunic and the rob
 
 
 
-And you shall put the turban _or_ miter upon his head and put the holy crown upon the turban. 
+And you shall put the turban or miter upon his head and put the holy crown upon the turban. 
 
 
 
@@ -175,7 +175,7 @@ Then take the anointing oil and pour it on his head and anoint him.
 
 
 
-And bring his sons and put long _and_ sleeved tunics on them. 
+And bring his sons and put long and sleeved tunics on them. 
 
 
 
@@ -196,7 +196,7 @@ And bring his sons and put long _and_ sleeved tunics on them.
 
 
 
-And you shall gird them with sashes _or_ belts, Aaron and his sons, and bind caps on them; and the priest's office shall be theirs by a perpetual statute. Thus you shall ordain _and_ consecrate Aaron and his sons. 
+And you shall gird them with sashes or belts, Aaron and his sons, and bind caps on them; and the priest's office shall be theirs by a perpetual statute. Thus you shall ordain and consecrate Aaron and his sons. 
 
 
 
@@ -385,7 +385,7 @@ And you shall cut the ram in pieces and wash its entrails and legs and put them 
 
 
 
-And you shall burn the whole ram upon the altar. It is a burnt offering to the Lord; it is a sweet _and_ satisfying fragrance, an offering made by fire to the Lord. 
+And you shall burn the whole ram upon the altar. It is a burnt offering to the Lord; it is a sweet and satisfying fragrance, an offering made by fire to the Lord. 
 
 
 
@@ -448,7 +448,7 @@ Then you shall kill the ram and take part of its blood and put it on the tip of 
 
 
 
-Then you shall take part of the blood that is on the altar, and of the anointing oil, and sprinkle it upon Aaron and his garments and on his sons and their garments; and he and his garments and his sons and their garments shall be sanctified _and_ made holy. 
+Then you shall take part of the blood that is on the altar, and of the anointing oil, and sprinkle it upon Aaron and his garments and on his sons and their garments; and he and his garments and his sons and their garments shall be sanctified and made holy. 
 
 
 
@@ -469,7 +469,7 @@ Then you shall take part of the blood that is on the altar, and of the anointing
 
 
 
-Also you shall take the fat of the ram, the fat tail, the fat that covers the entrails, the appendage on the liver, the two kidneys with the fat that is on them, and the right thigh; for it is a ram of consecration _and_ ordination. 
+Also you shall take the fat of the ram, the fat tail, the fat that covers the entrails, the appendage on the liver, the two kidneys with the fat that is on them, and the right thigh; for it is a ram of consecration and ordination. 
 
 
 
@@ -532,7 +532,7 @@ And put all these in the hands of Aaron and his sons and they shall wave them fo
 
 
 
-Then you shall take them from their hands, add them to the burnt offering, and burn them on the altar for a sweet _and_ satisfying fragrance before the Lord; it is an offering made by fire to the Lord. 
+Then you shall take them from their hands, add them to the burnt offering, and burn them on the altar for a sweet and satisfying fragrance before the Lord; it is an offering made by fire to the Lord. 
 
 
 
@@ -553,7 +553,7 @@ Then you shall take them from their hands, add them to the burnt offering, and b
 
 
 
-And take the breast of the ram of Aaron's consecration _and_ ordination and wave it for a wave offering before the Lord; and it shall be your portion [Moses]. 
+And take the breast of the ram of Aaron's consecration and ordination and wave it for a wave offering before the Lord; and it shall be your portion [Moses]. 
 
 
 
@@ -595,7 +595,7 @@ And you shall sanctify (set apart for God) the waved breast of the ram used in t
 
 
 
-It shall be for Aaron and his sons as their due portion from the Israelites perpetually, an offering from the Israelites of their peace _and_ thanksgiving sacrifices, their offering to the Lord. 
+It shall be for Aaron and his sons as their due portion from the Israelites perpetually, an offering from the Israelites of their peace and thanksgiving sacrifices, their offering to the Lord. 
 
 
 
@@ -616,7 +616,7 @@ It shall be for Aaron and his sons as their due portion from the Israelites perp
 
 
 
-The holy garments of Aaron shall pass to his descendants who succeed him, to be anointed in them and to be consecrated _and_ ordained in them. 
+The holy garments of Aaron shall pass to his descendants who succeed him, to be anointed in them and to be consecrated and ordained in them. 
 
 
 
@@ -658,7 +658,7 @@ And that son who is [high] priest in his stead shall put them on [each day for] 
 
 
 
-You shall take the ram of the consecration _and_ ordination and boil its flesh in a holy _and_ set-apart place. 
+You shall take the ram of the consecration and ordination and boil its flesh in a holy and set-apart place. 
 
 
 
@@ -784,7 +784,7 @@ You shall offer every day a bull as a sin offering for atonement. And you shall 
 
 
 
-Seven days you shall make atonement for the altar and sanctify it [set it apart for God]; and the altar shall be most holy; whoever _or_ whatever touches the altar must be holy (set apart for God's service). 
+Seven days you shall make atonement for the altar and sanctify it [set it apart for God]; and the altar shall be most holy; whoever or whatever touches the altar must be holy (set apart for God's service). 
 
 
 
@@ -868,7 +868,7 @@ And with the one lamb a tenth measure of fine flour mixed with a fourth of a hin
 
 
 
-And the other lamb you shall offer at evening, and do with it as with the cereal offering of the morning and with the drink offering, for a sweet _and_ satisfying fragrance, an offering made by fire to the Lord. 
+And the other lamb you shall offer at evening, and do with it as with the cereal offering of the morning and with the drink offering, for a sweet and satisfying fragrance, an offering made by fire to the Lord. 
 
 
 

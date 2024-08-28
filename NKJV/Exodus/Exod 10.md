@@ -13,7 +13,7 @@ next: ['Exod 11']
 Now the Lord said to Moses, "Go in to Pharaoh; for I have hardened his heart and the hearts of his servants, that I may show these signs of Mine before him, 
 
 ###### 2 
-and that you may tell in the hearing of your son and your son's son the mighty things I have done in Egypt, and My signs which I have done among them, that you may know that I _am_ the Lord." 
+and that you may tell in the hearing of your son and your son's son the mighty things I have done in Egypt, and My signs which I have done among them, that you may know that I am the Lord." 
 
 ###### 3 
 So Moses and Aaron came in to Pharaoh and said to him, "Thus says the Lord God of the Hebrews: 'How long will you refuse to humble yourself before Me? Let My people go, that they may serve Me. 
@@ -31,7 +31,7 @@ They shall fill your houses, the houses of all your servants, and the houses of 
 Then Pharaoh's servants said to him, "How long shall this man be a snare to us? Let the men go, that they may serve the Lord their God. Do you not yet know that Egypt is destroyed?" 
 
 ###### 8 
-So Moses and Aaron were brought again to Pharaoh, and he said to them, "Go, serve the Lord your God. Who _are_ the ones that are going?" 
+So Moses and Aaron were brought again to Pharaoh, and he said to them, "Go, serve the Lord your God. Who are the ones that are going?" 
 
 ###### 9 
 And Moses said, "We will go with our young and our old; with our sons and our daughters, with our flocks and our herds we will go, for we must hold a feast to the Lord." 
@@ -40,16 +40,16 @@ And Moses said, "We will go with our young and our old; with our sons and our da
 Then he said to them, "The Lord had better be with you when I let you and your little ones go! Beware, for evil is ahead of you. 
 
 ###### 11 
-Not so! Go now, you _who are_ men, and serve the Lord, for that is what you desired." And they were driven out from Pharaoh's presence. 
+Not so! Go now, you who are men, and serve the Lord, for that is what you desired." And they were driven out from Pharaoh's presence. 
 
 ###### 12 
 Then the Lord said to Moses, "Stretch out your hand over the land of Egypt for the locusts, that they may come upon the land of Egypt, and eat every herb of the land--all that the hail has left." 
 
 ###### 13 
-So Moses stretched out his rod over the land of Egypt, and the Lord brought an east wind on the land all that day and all _that_ night. When it was morning, the east wind brought the locusts. 
+So Moses stretched out his rod over the land of Egypt, and the Lord brought an east wind on the land all that day and all that night. When it was morning, the east wind brought the locusts. 
 
 ###### 14 
-And the locusts went up over all the land of Egypt and rested on all the territory of Egypt. _They were_ very severe; previously there had been no such locusts as they, nor shall there be such after them. 
+And the locusts went up over all the land of Egypt and rested on all the territory of Egypt. They were very severe; previously there had been no such locusts as they, nor shall there be such after them. 
 
 ###### 15 
 For they covered the face of the whole earth, so that the land was darkened; and they ate every herb of the land and all the fruit of the trees which the hail had left. So there remained nothing green on the trees or on the plants of the field throughout all the land of Egypt. 
@@ -72,7 +72,7 @@ But the Lord hardened Pharaoh's heart, and he did not let the children of Israel
 ## The Ninth Plague: Darkness 
 
 ###### 21 
-Then the Lord said to Moses, "Stretch out your hand toward heaven, that there may be darkness over the land of Egypt, darkness _which_ may even be felt." 
+Then the Lord said to Moses, "Stretch out your hand toward heaven, that there may be darkness over the land of Egypt, darkness which may even be felt." 
 
 ###### 22 
 So Moses stretched out his hand toward heaven, and there was thick darkness in all the land of Egypt three days. 

@@ -91,7 +91,7 @@ I clothe the heavens with [the] blackness [of murky storm clouds], and I make sa
 
 
 
-[The Servant of God says] The Lord God has given Me the tongue of a disciple _and_ of one who is taught, that I should know how to speak a word in season to him who is weary. He wakens Me morning by morning, He wakens My ear to hear as a disciple [as one who is taught]. 
+[The Servant of God says] The Lord God has given Me the tongue of a disciple and of one who is taught, that I should know how to speak a word in season to him who is weary. He wakens Me morning by morning, He wakens My ear to hear as a disciple [as one who is taught]. 
 
 
 
@@ -154,7 +154,7 @@ I gave My back to the smiters and My cheeks to those who plucked off the hair; I
 
 
 
-For the Lord God helps Me; therefore have I not been ashamed _or_ confounded. Therefore have I set My face like a flint, and I know that I shall not be put to shame. 
+For the Lord God helps Me; therefore have I not been ashamed or confounded. Therefore have I set My face like a flint, and I know that I shall not be put to shame. 
 
 
 
@@ -196,7 +196,7 @@ He is near Who declares Me in the right. Who will contend with Me? Let us stand 
 
 
 
-Behold, the Lord God will help Me; who is he who will condemn Me? Behold, they all will wax old _and_ be worn out as a garment; the moth will eat them up. 
+Behold, the Lord God will help Me; who is he who will condemn Me? Behold, they all will wax old and be worn out as a garment; the moth will eat them up. 
 
 
 
@@ -217,7 +217,7 @@ Behold, the Lord God will help Me; who is he who will condemn Me? Behold, they a
 
 
 
-Who is among you who [reverently] fears the Lord, who obeys the voice of His Servant, yet who walks in darkness _and_ deep trouble and has no shining splendor [in his heart]? Let him rely on, trust in, _and_ be confident in the name of the Lord, and let him lean upon _and_ be supported by his God. 
+Who is among you who [reverently] fears the Lord, who obeys the voice of His Servant, yet who walks in darkness and deep trouble and has no shining splendor [in his heart]? Let him rely on, trust in, and be confident in the name of the Lord, and let him lean upon and be supported by his God. 
 
 
 
@@ -238,4 +238,4 @@ Who is among you who [reverently] fears the Lord, who obeys the voice of His Ser
 
 
 
-Behold, all you [enemies of your own selves] who attempt to kindle your own fires [and work out your own plans of salvation], who surround _and_ gird yourselves with momentary sparks, darts, _and_ firebrands that you set aflame!--walk by the light of your self-made fire and of the sparks that you have kindled [for yourself, if you will]! But this shall you have from My hand: you shall lie down in grief _and_ in torment.
+Behold, all you [enemies of your own selves] who attempt to kindle your own fires [and work out your own plans of salvation], who surround and gird yourselves with momentary sparks, darts, and firebrands that you set aflame!--walk by the light of your self-made fire and of the sparks that you have kindled [for yourself, if you will]! But this shall you have from My hand: you shall lie down in grief and in torment.

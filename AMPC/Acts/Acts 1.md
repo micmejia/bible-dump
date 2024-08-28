@@ -48,7 +48,7 @@ In the former account [which I prepared], O Theophilus, I made [a continuous rep
 
 
 
-Until the day when He ascended, after He through the Holy Spirit had instructed _and_ commanded the apostles (special messengers) whom He had chosen. 
+Until the day when He ascended, after He through the Holy Spirit had instructed and commanded the apostles (special messengers) whom He had chosen. 
 
 
 
@@ -90,7 +90,7 @@ To them also He showed Himself alive after His passion (His suffering in the gar
 
 
 
-And while being in their company _and_ eating with them, He commanded them not to leave Jerusalem but to wait for what the Father had promised, Of which [He said] you have heard Me speak. 
+And while being in their company and eating with them, He commanded them not to leave Jerusalem but to wait for what the Father had promised, Of which [He said] you have heard Me speak. 
 
 
 
@@ -132,7 +132,7 @@ For John baptized with water, but not many days from now you shall be baptized w
 
 
 
-So when they were assembled, they asked Him, Lord, is this the time when You will reestablish the kingdom _and_ restore it to Israel? 
+So when they were assembled, they asked Him, Lord, is this the time when You will reestablish the kingdom and restore it to Israel? 
 
 
 
@@ -153,7 +153,7 @@ So when they were assembled, they asked Him, Lord, is this the time when You wil
 
 
 
-He said to them, It is not for you to become acquainted with _and_ know what time brings [the things and events of time and their definite periods] or fixed years and seasons (their critical niche in time), which the Father has appointed (fixed and reserved) by His own choice _and_ authority _and_ personal power. 
+He said to them, It is not for you to become acquainted with and know what time brings [the things and events of time and their definite periods] or fixed years and seasons (their critical niche in time), which the Father has appointed (fixed and reserved) by His own choice and authority and personal power. 
 
 
 
@@ -195,7 +195,7 @@ But you shall receive power (ability, efficiency, and might) when the Holy Spiri
 
 
 
-And when He had said this, even as they were looking [at Him], He was caught up, and a cloud received _and_ carried Him away out of their sight. 
+And when He had said this, even as they were looking [at Him], He was caught up, and a cloud received and carried Him away out of their sight. 
 
 
 
@@ -237,7 +237,7 @@ And while they were gazing intently into heaven as He went, behold, two men [dre
 
 
 
-Who said, Men of Galilee, why do you stand gazing into heaven? This same Jesus, Who was caught away _and_ lifted up from among you into heaven, will return in [just] the same way in which you saw Him go into heaven. 
+Who said, Men of Galilee, why do you stand gazing into heaven? This same Jesus, Who was caught away and lifted up from among you into heaven, will return in [just] the same way in which you saw Him go into heaven. 
 
 
 
@@ -384,7 +384,7 @@ For he was counted among us and received [by divine allotment] his portion in th
 
 
 
-Now this man obtained a piece of land with the [money paid him as a] reward for his treachery _and_ wickedness, and falling headlong he burst open in the middle [of his body] and all his intestines poured forth. 
+Now this man obtained a piece of land with the [money paid him as a] reward for his treachery and wickedness, and falling headlong he burst open in the middle [of his body] and all his intestines poured forth. 
 
 
 
@@ -426,7 +426,7 @@ And all the residents of Jerusalem became acquainted with the facts, so that the
 
 
 
-For in the book of Psalms it is written, Let his place of residence become deserted _and_ gloomy, and let there be no one to live in it; and [again], Let another take his position _or_ overseership. 
+For in the book of Psalms it is written, Let his place of residence become deserted and gloomy, and let there be no one to live in it; and [again], Let another take his position or overseership. 
 
 
 
@@ -531,7 +531,7 @@ And they prayed and said, You, Lord, Who know all hearts (their thoughts, passio
 
 
 
-To take the place in this ministry and receive the position of an apostle, from which Judas fell away _and_ went astray to go [where he belonged] to his own [proper] place. 
+To take the place in this ministry and receive the position of an apostle, from which Judas fell away and went astray to go [where he belonged] to his own [proper] place. 
 
 
 
@@ -552,4 +552,4 @@ To take the place in this ministry and receive the position of an apostle, from 
 
 
 
-And they drew lots [between the two], and the lot fell on Matthias; and he was added to _and_ counted with the eleven apostles (special messengers).
+And they drew lots [between the two], and the lot fell on Matthias; and he was added to and counted with the eleven apostles (special messengers).

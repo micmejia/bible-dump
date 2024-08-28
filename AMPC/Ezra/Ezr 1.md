@@ -69,7 +69,7 @@ Thus says Cyrus king of Persia: The Lord, the God of heaven, has given me all th
 
 
 
-Whoever is among you of all His people, may his God be with him, and let him go up to Jerusalem in Judah and _re_build the house of the Lord, the God of Israel, in Jerusalem; He is God. 
+Whoever is among you of all His people, may his God be with him, and let him go up to Jerusalem in Judah and rebuild the house of the Lord, the God of Israel, in Jerusalem; He is God. 
 
 
 
@@ -111,7 +111,7 @@ And in any place where a survivor [of the Babylonian captivity of the Jews] sojo
 
 
 
-Then rose up the heads of the fathers' houses of Judah and Benjamin, and the priests and Levites, with all those whose spirits God had stirred up, to go up to _re_build the house of the Lord in Jerusalem. 
+Then rose up the heads of the fathers' houses of Judah and Benjamin, and the priests and Levites, with all those whose spirits God had stirred up, to go up to rebuild the house of the Lord in Jerusalem. 
 
 
 
@@ -132,7 +132,7 @@ Then rose up the heads of the fathers' houses of Judah and Benjamin, and the pri
 
 
 
-And all those who were around them aided them with vessels of silver, with gold, goods, beasts, and precious things, besides all that was willingly _and_ freely offered. 
+And all those who were around them aided them with vessels of silver, with gold, goods, beasts, and precious things, besides all that was willingly and freely offered. 
 
 
 

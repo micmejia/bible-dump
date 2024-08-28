@@ -28,7 +28,7 @@ next: ['Isa 43']
 
 
 
-Behold my Servant, Whom I uphold, My elect in Whom My soul delights! I have put My Spirit upon Him; He will bring forth justice _and_ right _and_ reveal truth to the nations. 
+Behold my Servant, Whom I uphold, My elect in Whom My soul delights! I have put My Spirit upon Him; He will bring forth justice and right and reveal truth to the nations. 
 
 
 
@@ -91,7 +91,7 @@ A bruised reed He will not break, and a dimly burning wick He will not quench; H
 
 
 
-He will not fail _or_ become weak or be crushed _and_ discouraged till He has established justice in the earth; and the islands _and_ coastal regions shall wait hopefully for Him _and_ expect His direction _and_ law. 
+He will not fail or become weak or be crushed and discouraged till He has established justice in the earth; and the islands and coastal regions shall wait hopefully for Him and expect His direction and law. 
 
 
 
@@ -133,7 +133,7 @@ Thus says God the Lord--He Who created the heavens and stretched them forth, He 
 
 
 
-I the Lord have called You [the Messiah] for a righteous purpose _and_ in righteousness; I will take You by the hand and will keep You; I will give You for a covenant to the people [Israel], for a light to the nations [Gentiles], 
+I the Lord have called You [the Messiah] for a righteous purpose and in righteousness; I will take You by the hand and will keep You; I will give You for a covenant to the people [Israel], for a light to the nations [Gentiles], 
 
 
 
@@ -217,7 +217,7 @@ Behold, the former things have come to pass, and new things I now declare; befor
 
 
 
-Sing to the Lord a new song, and His praise from the end of the earth! You who go down to the sea, and all that is in it, the islands _and_ coastal regions and the inhabitants of them [sing a song such as has never been heard in the heathen world]! 
+Sing to the Lord a new song, and His praise from the end of the earth! You who go down to the sea, and all that is in it, the islands and coastal regions and the inhabitants of them [sing a song such as has never been heard in the heathen world]! 
 
 
 
@@ -259,7 +259,7 @@ Let the wilderness and its cities lift up their voices, the villages that Kedar 
 
 
 
-Let them give glory to the Lord and declare His praise in the islands _and_ coastal regions. 
+Let them give glory to the Lord and declare His praise in the islands and coastal regions. 
 
 
 
@@ -280,7 +280,7 @@ Let them give glory to the Lord and declare His praise in the islands _and_ coas
 
 
 
-The Lord will go forth like a mighty man, He will rouse up His zealous indignation _and_ vengeance like a warrior; He will cry, yes, He will shout aloud, He will do mightily against His enemies. 
+The Lord will go forth like a mighty man, He will rouse up His zealous indignation and vengeance like a warrior; He will cry, yes, He will shout aloud, He will do mightily against His enemies. 
 
 
 
@@ -427,7 +427,7 @@ Who is blind but My servant [Israel]? Or deaf like My messenger whom I send? Who
 
 
 
-You have seen many things, but you do not observe _or_ apprehend their true meaning. His ears are open, but he hears not! 
+You have seen many things, but you do not observe or apprehend their true meaning. His ears are open, but he hears not! 
 
 
 
@@ -448,7 +448,7 @@ You have seen many things, but you do not observe _or_ apprehend their true mean
 
 
 
-It was the Lord's pleasure for His righteousness' sake [in accordance with a steadfast and consistent purpose] to magnify instruction _and_ revelation and glorify them. 
+It was the Lord's pleasure for His righteousness' sake [in accordance with a steadfast and consistent purpose] to magnify instruction and revelation and glorify them. 
 
 
 
@@ -511,7 +511,7 @@ Who is there among you who will give ear to this? Who will listen and hear in th
 
 
 
-Who gave up Jacob [the kingdom of Judah] for spoil, and [the kingdom of] Israel to the robbers? Was it not the Lord, He against Whom we [of Judah] have sinned and in Whose ways they [of Israel] would not walk, neither were they obedient to His law _or_ His teaching? 
+Who gave up Jacob [the kingdom of Judah] for spoil, and [the kingdom of] Israel to the robbers? Was it not the Lord, He against Whom we [of Judah] have sinned and in Whose ways they [of Israel] would not walk, neither were they obedient to His law or His teaching? 
 
 
 

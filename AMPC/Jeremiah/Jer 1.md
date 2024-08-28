@@ -111,7 +111,7 @@ Then the word of the Lord came to me [Jeremiah], saying,
 
 
 
-Before I formed you in the womb I knew [and] approved of you [as My chosen instrument], and before you were born I separated _and_ set you apart, consecrating you; [and] I appointed you as a prophet to the nations. 
+Before I formed you in the womb I knew [and] approved of you [as My chosen instrument], and before you were born I separated and set you apart, consecrating you; [and] I appointed you as a prophet to the nations. 
 
 
 
@@ -237,7 +237,7 @@ See, I have this day appointed you to the oversight of the nations and of the ki
 
 
 
-Moreover, the word of the Lord came to me, saying, Jeremiah, what do you see? And I said, I see a branch _or_ shoot of an almond tree [the emblem of alertness and activity, blossoming in late winter]. 
+Moreover, the word of the Lord came to me, saying, Jeremiah, what do you see? And I said, I see a branch or shoot of an almond tree [the emblem of alertness and activity, blossoming in late winter]. 
 
 
 
@@ -258,7 +258,7 @@ Moreover, the word of the Lord came to me, saying, Jeremiah, what do you see? An
 
 
 
-Then said the Lord to me, You have seen well, for I am alert _and_ active, watching over My word to perform it. 
+Then said the Lord to me, You have seen well, for I am alert and active, watching over My word to perform it. 
 
 
 
@@ -300,7 +300,7 @@ And the word of the Lord came to me the second time, saying, What do you see? An
 
 
 
-Then the Lord said to me, Out of the north the evil [which the prophets had foretold as the result of national sin] shall disclose itself _and_ break forth upon all the inhabitants of the land. 
+Then the Lord said to me, Out of the north the evil [which the prophets had foretold as the result of national sin] shall disclose itself and break forth upon all the inhabitants of the land. 
 
 
 
@@ -363,7 +363,7 @@ And I will utter My judgments against them for all the wickedness of those who h
 
 
 
-But you [Jeremiah], gird up your loins! Arise and tell them all that I command you. Do not be dismayed _and_ break down at the sight of their faces, lest I confound you before them _and_ permit you to be overcome. 
+But you [Jeremiah], gird up your loins! Arise and tell them all that I command you. Do not be dismayed and break down at the sight of their faces, lest I confound you before them and permit you to be overcome. 
 
 
 

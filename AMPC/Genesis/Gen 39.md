@@ -28,7 +28,7 @@ next: ['Gen 40']
 
 
 
-And Joseph was brought down to Egypt; and Potiphar, an officer of Pharaoh, the captain _and_ chief executioner of the [royal] guard, an Egyptian, bought him from the Ishmaelites who had brought him down there. 
+And Joseph was brought down to Egypt; and Potiphar, an officer of Pharaoh, the captain and chief executioner of the [royal] guard, an Egyptian, bought him from the Ishmaelites who had brought him down there. 
 
 
 
@@ -49,7 +49,7 @@ And Joseph was brought down to Egypt; and Potiphar, an officer of Pharaoh, the c
 
 
 
-But the Lord was with Joseph, and he [though a slave] was a successful _and_ prosperous man; and he was in the house of his master the Egyptian. 
+But the Lord was with Joseph, and he [though a slave] was a successful and prosperous man; and he was in the house of his master the Egyptian. 
 
 
 
@@ -70,7 +70,7 @@ But the Lord was with Joseph, and he [though a slave] was a successful _and_ pro
 
 
 
-And his master saw that the Lord was with him and that the Lord made all that he did to flourish _and_ succeed in his hand. 
+And his master saw that the Lord was with him and that the Lord made all that he did to flourish and succeed in his hand. 
 
 
 
@@ -91,7 +91,7 @@ And his master saw that the Lord was with him and that the Lord made all that he
 
 
 
-So Joseph pleased [Potiphar] _and_ found favor in his sight, and he served him. And [his master] made him supervisor over his house and he put all that he had in his charge. 
+So Joseph pleased [Potiphar] and found favor in his sight, and he served him. And [his master] made him supervisor over his house and he put all that he had in his charge. 
 
 
 
@@ -301,7 +301,7 @@ And when she saw that he had left his garment in her hand and had fled away,
 
 
 
-She called to the men of her household and said to them, Behold, he [your master] has brought in a Hebrew to us to mock _and_ insult us; he came in where I was to lie with me, and I screamed at the top of my voice. 
+She called to the men of her household and said to them, Behold, he [your master] has brought in a Hebrew to us to mock and insult us; he came in where I was to lie with me, and I screamed at the top of my voice. 
 
 
 
@@ -364,7 +364,7 @@ And she laid up his garment by her until his master came home.
 
 
 
-Then she told him the same story, saying, The Hebrew servant whom you brought among us came to me to mock _and_ insult me. 
+Then she told him the same story, saying, The Hebrew servant whom you brought among us came to me to mock and insult me. 
 
 
 
@@ -448,7 +448,7 @@ And Joseph's master took him and put him in the prison, a place where the state 
 
 
 
-But the Lord was with Joseph, and showed him mercy _and_ loving-kindness and gave him favor in the sight of the warden of the prison. 
+But the Lord was with Joseph, and showed him mercy and loving-kindness and gave him favor in the sight of the warden of the prison. 
 
 
 

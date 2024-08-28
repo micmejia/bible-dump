@@ -48,7 +48,7 @@ The words of the Preacher, the son of David and king in Jerusalem.
 
 
 
-Vapor of vapors _and_ futility of futilities, says the Preacher. Vapor of vapors _and_ futility of futilities! All is vanity (emptiness, falsity, and vainglory). 
+Vapor of vapors and futility of futilities, says the Preacher. Vapor of vapors and futility of futilities! All is vanity (emptiness, falsity, and vainglory). 
 
 
 
@@ -132,7 +132,7 @@ The sun also rises and the sun goes down, and hastens to the place where it rise
 
 
 
-The wind goes to the south and circles about to the north; it circles _and_ circles about continually, and on its circuit the wind returns again. 
+The wind goes to the south and circles about to the north; it circles and circles about continually, and on its circuit the wind returns again. 
 
 
 
@@ -153,7 +153,7 @@ The wind goes to the south and circles about to the north; it circles _and_ circ
 
 
 
-All the rivers run into the sea, yet the sea is not full. To the place from which the rivers come, to there _and_ from there they return again. 
+All the rivers run into the sea, yet the sea is not full. To the place from which the rivers come, to there and from there they return again. 
 
 
 
@@ -174,7 +174,7 @@ All the rivers run into the sea, yet the sea is not full. To the place from whic
 
 
 
-All things are weary with toil _and_ all words are feeble; man cannot utter it. The eye is not satisfied with seeing, nor the ear filled with hearing. 
+All things are weary with toil and all words are feeble; man cannot utter it. The eye is not satisfied with seeing, nor the ear filled with hearing. 
 
 
 
@@ -237,7 +237,7 @@ Is there a thing of which it may be said, See, this is new? It has already been,
 
 
 
-There is no remembrance of former happenings _or_ men, neither will there be any remembrance of happenings of generations that are to come by those who are to come after them. 
+There is no remembrance of former happenings or men, neither will there be any remembrance of happenings of generations that are to come by those who are to come after them. 
 
 
 
@@ -279,7 +279,7 @@ I, the Preacher, have been king over Israel in Jerusalem.
 
 
 
-And I applied myself by heart _and_ mind to seek and search out by [human] wisdom all human activity under heaven. It is a miserable business which God has given to the sons of man with which to busy themselves. 
+And I applied myself by heart and mind to seek and search out by [human] wisdom all human activity under heaven. It is a miserable business which God has given to the sons of man with which to busy themselves. 
 
 
 
@@ -300,7 +300,7 @@ And I applied myself by heart _and_ mind to seek and search out by [human] wisdo
 
 
 
-I have seen all the works that are done under the sun, and behold, all is vanity, a striving after the wind _and_ a feeding on wind. 
+I have seen all the works that are done under the sun, and behold, all is vanity, a striving after the wind and a feeding on wind. 
 
 
 
@@ -321,7 +321,7 @@ I have seen all the works that are done under the sun, and behold, all is vanity
 
 
 
-What is crooked cannot be made straight, and what is defective _and_ lacking cannot be counted. 
+What is crooked cannot be made straight, and what is defective and lacking cannot be counted. 
 
 
 
@@ -363,7 +363,7 @@ I entered into counsel with my own mind, saying, Behold, I have acquired great [
 
 
 
-And I gave my mind to know [practical] wisdom and to discern [the character of] madness and folly [in which men seem to find satisfaction]; I perceived that this also is a searching after wind _and_ a feeding on it. 
+And I gave my mind to know [practical] wisdom and to discern [the character of] madness and folly [in which men seem to find satisfaction]; I perceived that this also is a searching after wind and a feeding on it. 
 
 
 

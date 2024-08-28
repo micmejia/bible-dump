@@ -42,13 +42,13 @@ And if anyone attempts to injure them, fire pours from their mouth and consumes 
 ###### 6 
 
 
-These [two witnesses] have power to shut up the sky, so that no rain may fall during the days of their prophesying (their prediction of events relating to Christ's kingdom and its speedy triumph); and they also have power to turn the waters into blood and to smite _and_ scourge the earth with all manner of plagues as often as they choose. 
+These [two witnesses] have power to shut up the sky, so that no rain may fall during the days of their prophesying (their prediction of events relating to Christ's kingdom and its speedy triumph); and they also have power to turn the waters into blood and to smite and scourge the earth with all manner of plagues as often as they choose. 
 
 
 ###### 7 
 
 
-But when they have finished their testimony _and_ their evidence is all in, the beast (monster) that comes up out of the Abyss (bottomless pit) will wage war on them, and conquer them and kill them. 
+But when they have finished their testimony and their evidence is all in, the beast (monster) that comes up out of the Abyss (bottomless pit) will wage war on them, and conquer them and kill them. 
 
 
 ###### 8 
@@ -66,7 +66,7 @@ For three and a half days men from the races and tribes and languages and nation
 ###### 10 
 
 
-And those who dwell on the earth will gloat _and_ exult over them _and_ rejoice exceedingly, taking their ease and sending presents [in congratulation] to one another, because these two prophets had been such a vexation _and_ trouble _and_ torment to all the dwellers on the earth. 
+And those who dwell on the earth will gloat and exult over them and rejoice exceedingly, taking their ease and sending presents [in congratulation] to one another, because these two prophets had been such a vexation and trouble and torment to all the dwellers on the earth. 
 
 
 ###### 11 
@@ -84,7 +84,7 @@ Then [the two witnesses] heard a strong voice from heaven calling to them, Come 
 ###### 13 
 
 
-And at that [very] hour there was a tremendous earthquake and one tenth of the city was destroyed (fell); seven thousand people perished in the earthquake, and those who remained were filled with dread _and_ terror _and_ were awe-struck, and they glorified the God of heaven. 
+And at that [very] hour there was a tremendous earthquake and one tenth of the city was destroyed (fell); seven thousand people perished in the earthquake, and those who remained were filled with dread and terror and were awe-struck, and they glorified the God of heaven. 
 
 
 ###### 14 
@@ -108,13 +108,13 @@ Then the twenty-four elders [of the heavenly Sanhedrin], who sit on their throne
 ###### 17 
 
 
-Exclaiming, To You we give thanks, Lord God Omnipotent, [the One] Who is and [ever] was, for assuming the high sovereignty _and_ the great power that are Yours and for beginning to reign. 
+Exclaiming, To You we give thanks, Lord God Omnipotent, [the One] Who is and [ever] was, for assuming the high sovereignty and the great power that are Yours and for beginning to reign. 
 
 
 ###### 18 
 
 
-And the heathen (the nations) raged, but Your wrath (retribution, indignation) came, the time when the dead will be judged and Your servants the prophets and saints rewarded--and those who revere (fear) Your name, both low and high _and_ small and great--and [the time] for destroying the corrupters of the earth. 
+And the heathen (the nations) raged, but Your wrath (retribution, indignation) came, the time when the dead will be judged and Your servants the prophets and saints rewarded--and those who revere (fear) Your name, both low and high and small and great--and [the time] for destroying the corrupters of the earth. 
 
 
 ###### 19 

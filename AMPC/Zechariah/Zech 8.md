@@ -91,7 +91,7 @@ Thus says the Lord: I shall return to Zion and will dwell in the midst of Jerusa
 
 
 
-Thus says the Lord of hosts: Old men and old women shall again dwell in Jerusalem _and_ sit out in the streets, every man with his staff in his hand for very [advanced] age. 
+Thus says the Lord of hosts: Old men and old women shall again dwell in Jerusalem and sit out in the streets, every man with his staff in his hand for very [advanced] age. 
 
 
 
@@ -175,7 +175,7 @@ Thus says the Lord of hosts: Behold, I will save My people from the east country
 
 
 
-And I will bring them [home] and they shall dwell in the midst of Jerusalem; and they shall be My people, and I will be their God in truth _and_ faithfulness and in righteousness. 
+And I will bring them [home] and they shall dwell in the midst of Jerusalem; and they shall be My people, and I will be their God in truth and faithfulness and in righteousness. 
 
 
 
@@ -196,7 +196,7 @@ And I will bring them [home] and they shall dwell in the midst of Jerusalem; and
 
 
 
-Thus says the Lord of hosts: Let your hands be strong _and_ hardened, you who in these days hear these words from the mouths of the prophets who on the day that the foundation of the house of the Lord of hosts was laid foretold that the temple should be rebuilt. 
+Thus says the Lord of hosts: Let your hands be strong and hardened, you who in these days hear these words from the mouths of the prophets who on the day that the foundation of the house of the Lord of hosts was laid foretold that the temple should be rebuilt. 
 
 
 
@@ -217,7 +217,7 @@ Thus says the Lord of hosts: Let your hands be strong _and_ hardened, you who in
 
 
 
-For before those days there was no hire for man nor any hire for beast, neither was there any peace _or_ success to him who went out or came in because of the adversary _and_ oppressor, for I set (let loose) all men, every one against his neighbor. 
+For before those days there was no hire for man nor any hire for beast, neither was there any peace or success to him who went out or came in because of the adversary and oppressor, for I set (let loose) all men, every one against his neighbor. 
 
 
 
@@ -259,7 +259,7 @@ But now [in this period since you began to build] I am not to the remnant of thi
 
 
 
-For there shall the seed produce peace _and_ prosperity; the vine shall yield her fruit and the ground shall give its increase and the heavens shall give their dew; and I will cause the remnant of this people to inherit _and_ possess all these things. 
+For there shall the seed produce peace and prosperity; the vine shall yield her fruit and the ground shall give its increase and the heavens shall give their dew; and I will cause the remnant of this people to inherit and possess all these things. 
 
 
 
@@ -280,7 +280,7 @@ For there shall the seed produce peace _and_ prosperity; the vine shall yield he
 
 
 
-And as you have been a curse _and_ a byword among the nations, O house of Judah and house of Israel, so will I save you, and you shall be a blessing. Fear not, but let your hands be strong _and_ hardened. 
+And as you have been a curse and a byword among the nations, O house of Judah and house of Israel, so will I save you, and you shall be a blessing. Fear not, but let your hands be strong and hardened. 
 
 
 
@@ -301,7 +301,7 @@ And as you have been a curse _and_ a byword among the nations, O house of Judah 
 
 
 
-For thus says the Lord of hosts: As I thought to bring calamity upon you when your fathers provoked Me to wrath, says the Lord of hosts, and I did not relent _or_ revoke your sentence, 
+For thus says the Lord of hosts: As I thought to bring calamity upon you when your fathers provoked Me to wrath, says the Lord of hosts, and I did not relent or revoke your sentence, 
 
 
 
@@ -343,7 +343,7 @@ So again have I purposed in these days to do good to Jerusalem and to the house 
 
 
 
-These are the things that you shall do: speak every man the truth with his neighbor; render the truth and pronounce the judgment _or_ verdict that makes for peace in [the courts at] your gates. 
+These are the things that you shall do: speak every man the truth with his neighbor; render the truth and pronounce the judgment or verdict that makes for peace in [the courts at] your gates. 
 
 
 
@@ -364,7 +364,7 @@ These are the things that you shall do: speak every man the truth with his neigh
 
 
 
-And let none of you think _or_ imagine _or_ devise evil _or_ injury in your hearts against his neighbor, and love no false oath, for all these things I hate, says the Lord. 
+And let none of you think or imagine or devise evil or injury in your hearts against his neighbor, and love no false oath, for all these things I hate, says the Lord. 
 
 
 
@@ -427,7 +427,7 @@ Thus says the Lord of hosts: The fast of the fourth month and the fast of the fi
 
 
 
-Thus says the Lord of hosts: It shall yet come to pass that there shall come [to Jerusalem] peoples and the inhabitants of many _and_ great cities, 
+Thus says the Lord of hosts: It shall yet come to pass that there shall come [to Jerusalem] peoples and the inhabitants of many and great cities, 
 
 
 
@@ -448,7 +448,7 @@ Thus says the Lord of hosts: It shall yet come to pass that there shall come [to
 
 
 
-And the inhabitants of one city shall go to them of another, saying, Let us go speedily to pray _and_ entreat the favor of the Lord and to seek, inquire of, _and_ require [to meet our own most essential need] the Lord of hosts. I will go also. 
+And the inhabitants of one city shall go to them of another, saying, Let us go speedily to pray and entreat the favor of the Lord and to seek, inquire of, and require [to meet our own most essential need] the Lord of hosts. I will go also. 
 
 
 
@@ -469,7 +469,7 @@ And the inhabitants of one city shall go to them of another, saying, Let us go s
 
 
 
-Yes, many people and strong nations shall come to Jerusalem to seek, inquire of, _and_ require [to fill their own urgent need] the Lord of hosts and to pray to the Lord for His favor. 
+Yes, many people and strong nations shall come to Jerusalem to seek, inquire of, and require [to fill their own urgent need] the Lord of hosts and to pray to the Lord for His favor. 
 
 
 

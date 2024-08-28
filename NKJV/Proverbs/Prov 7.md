@@ -19,10 +19,10 @@ Keep my commands and live, And my law as the apple of your eye.
 Bind them on your fingers; Write them on the tablet of your heart. 
 
 ###### 4 
-Say to wisdom, "You _are_ my sister," And call understanding _your_ nearest kin, 
+Say to wisdom, "You are my sister," And call understanding your nearest kin, 
 
 ###### 5 
-That they may keep you from the immoral woman, From the seductress _who_ flatters with her words.
+That they may keep you from the immoral woman, From the seductress who flatters with her words.
 
 ## The Crafty Harlot 
 
@@ -39,19 +39,19 @@ Passing along the street near her corner; And he took the path to her house
 In the twilight, in the evening, In the black and dark night. 
 
 ###### 10 
-And there a woman met him, _With_ the attire of a harlot, and a crafty heart. 
+And there a woman met him, With the attire of a harlot, and a crafty heart. 
 
 ###### 11 
-She _was_ loud and rebellious, Her feet would not stay at home. 
+She was loud and rebellious, Her feet would not stay at home. 
 
 ###### 12 
-At times _she was_ outside, at times in the open square, Lurking at every corner. 
+At times she was outside, at times in the open square, Lurking at every corner. 
 
 ###### 13 
 So she caught him and kissed him; With an impudent face she said to him: 
 
 ###### 14 
-"_I have_ peace offerings with me; Today I have paid my vows. 
+"I have peace offerings with me; Today I have paid my vows. 
 
 ###### 15 
 So I came out to meet you, Diligently to seek your face, And I have found you. 
@@ -66,10 +66,10 @@ I have perfumed my bed With myrrh, aloes, and cinnamon.
 Come, let us take our fill of love until morning; Let us delight ourselves with love. 
 
 ###### 19 
-For my husband _is_ not at home; He has gone on a long journey; 
+For my husband is not at home; He has gone on a long journey; 
 
 ###### 20 
-He has taken a bag of money with him, _And_ will come home on the appointed day." 
+He has taken a bag of money with him, And will come home on the appointed day." 
 
 ###### 21 
 With her enticing speech she caused him to yield, With her flattering lips she seduced him. 
@@ -78,16 +78,16 @@ With her enticing speech she caused him to yield, With her flattering lips she s
 Immediately he went after her, as an ox goes to the slaughter, Or as a fool to the correction of the stocks, 
 
 ###### 23 
-Till an arrow struck his liver. As a bird hastens to the snare, He did not know it _would cost_ his life. 
+Till an arrow struck his liver. As a bird hastens to the snare, He did not know it would cost his life. 
 
 ###### 24 
-Now therefore, listen to me, _my_ children; Pay attention to the words of my mouth: 
+Now therefore, listen to me, my children; Pay attention to the words of my mouth: 
 
 ###### 25 
 Do not let your heart turn aside to her ways, Do not stray into her paths; 
 
 ###### 26 
-For she has cast down many wounded, And all who were slain by her were strong _men._ 
+For she has cast down many wounded, And all who were slain by her were strong men. 
 
 ###### 27 
-Her house _is_ the way to hell, Descending to the chambers of death.
+Her house is the way to hell, Descending to the chambers of death.

@@ -28,7 +28,7 @@ next: ['Num 12']
 
 
 
-And the people grumbled _and_ deplored their hardships, which was evil in the ears of the Lord, and when the Lord heard it, His anger was kindled; and the fire of the Lord burned among them and devoured those in the outlying parts of the camp. 
+And the people grumbled and deplored their hardships, which was evil in the ears of the Lord, and when the Lord heard it, His anger was kindled; and the fire of the Lord burned among them and devoured those in the outlying parts of the camp. 
 
 
 
@@ -112,7 +112,7 @@ And the mixed multitude among them [the rabble who followed Israel from Egypt] b
 
 
 
-We remember the fish we ate freely in Egypt _and_ without cost, the cucumbers, melons, leeks, onions, and garlic. 
+We remember the fish we ate freely in Egypt and without cost, the cucumbers, melons, leeks, onions, and garlic. 
 
 
 
@@ -427,7 +427,7 @@ You shall not eat one day, or two, or five, or ten, or twenty days,
 
 
 
-But a whole month--until [you are satiated and vomit it up violently and] it comes out at your nostrils and is disgusting to you--because you have rejected _and_ despised the Lord Who is among you, and have wept before Him, saying, Why did we come out of Egypt? 
+But a whole month--until [you are satiated and vomit it up violently and] it comes out at your nostrils and is disgusting to you--because you have rejected and despised the Lord Who is among you, and have wept before Him, saying, Why did we come out of Egypt? 
 
 
 
@@ -553,7 +553,7 @@ And the Lord came down in the cloud and spoke to him, and took of the Spirit tha
 
 
 
-But there remained two men in the camp named Eldad and Medad. The Spirit rested upon them, and they were of those who were selected _and_ listed, yet they did not go out to the Tent [as told to do], but they prophesied in the camp. 
+But there remained two men in the camp named Eldad and Medad. The Spirit rested upon them, and they were of those who were selected and listed, yet they did not go out to the Tent [as told to do], but they prophesied in the camp. 
 
 
 
@@ -616,7 +616,7 @@ Joshua son of Nun, the minister of Moses, one of his chosen men, said, My lord M
 
 
 
-But Moses said to him, Are you envious _or_ jealous for my sake? Would that all the Lord's people were prophets and that the Lord would put His Spirit upon them! 
+But Moses said to him, Are you envious or jealous for my sake? Would that all the Lord's people were prophets and that the Lord would put His Spirit upon them! 
 
 
 
@@ -679,7 +679,7 @@ And there went forth a wind from the Lord and brought quails from the sea, and l
 
 
 
-And the people rose all that day and all night and all the next day and caught _and_ gathered the quails. He who gathered least gathered ten homers; and they spread them out for themselves round about the camp [to cure them by drying]. 
+And the people rose all that day and all night and all the next day and caught and gathered the quails. He who gathered least gathered ten homers; and they spread them out for themselves round about the camp [to cure them by drying]. 
 
 
 

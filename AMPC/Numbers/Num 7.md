@@ -49,7 +49,7 @@ On the day that Moses had fully completed setting up the tabernacle and had anoi
 
 
 
-The princes _or_ leaders of Israel, heads of their fathers' houses, made offerings. These were the leaders of the tribes and were over those who were numbered. 
+The princes or leaders of Israel, heads of their fathers' houses, made offerings. These were the leaders of the tribes and were over those who were numbered. 
 
 
 
@@ -70,7 +70,7 @@ The princes _or_ leaders of Israel, heads of their fathers' houses, made offerin
 
 
 
-And they brought their offering before the Lord, six covered wagons and twelve oxen; a wagon for each two of the princes _or_ leaders and an ox for each one; and they brought them before the tabernacle. 
+And they brought their offering before the Lord, six covered wagons and twelve oxen; a wagon for each two of the princes or leaders and an ox for each one; and they brought them before the tabernacle. 
 
 
 
@@ -196,7 +196,7 @@ And four wagons and eight oxen he gave to the sons of Merari, according to their
 
 
 
-But to the sons of Kohath he gave none, because they were assigned the care of the sanctuary _and_ the holy things which had to be carried on their shoulders. 
+But to the sons of Kohath he gave none, because they were assigned the care of the sanctuary and the holy things which had to be carried on their shoulders. 
 
 
 
@@ -217,7 +217,7 @@ But to the sons of Kohath he gave none, because they were assigned the care of t
 
 
 
-And the princes _or_ leaders offered sacrifices for the dedication of the altar [of burnt offering] on the day that it was anointed; and they offered their sacrifice before the altar. 
+And the princes or leaders offered sacrifices for the dedication of the altar [of burnt offering] on the day that it was anointed; and they offered their sacrifice before the altar. 
 
 
 
@@ -238,7 +238,7 @@ And the princes _or_ leaders offered sacrifices for the dedication of the altar 
 
 
 
-And the Lord said to Moses, They shall offer their offerings, each prince _or_ leader on his day, for the dedication of the altar. 
+And the Lord said to Moses, They shall offer their offerings, each prince or leader on his day, for the dedication of the altar. 
 
 
 
@@ -1267,7 +1267,7 @@ And for the sacrifice of peace offerings, two oxen, five rams, five male goats, 
 
 
 
-The ninth day Abidan son of Gideoni, prince _or_ leader of the sons of Benjamin, offered. 
+The ninth day Abidan son of Gideoni, prince or leader of the sons of Benjamin, offered. 
 
 
 

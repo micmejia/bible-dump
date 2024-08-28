@@ -28,7 +28,7 @@ next: ['Isa 49']
 
 
 
-Hear this, O house of Jacob, who are called by the name of Israel and who come forth from the seed of Judah, you who swear allegiance by the name of the Lord and make mention of the God of Israel--but not in truth _and_ sincerity, nor in righteousness (rightness and moral and spiritual rectitude in every area and relation)-- 
+Hear this, O house of Jacob, who are called by the name of Israel and who come forth from the seed of Judah, you who swear allegiance by the name of the Lord and make mention of the God of Israel--but not in truth and sincerity, nor in righteousness (rightness and moral and spiritual rectitude in every area and relation)-- 
 
 
 
@@ -175,7 +175,7 @@ They are created now [called into being by the prophetic word], and not long ago
 
 
 
-Yes, you have never heard, yes, you have never known; yes, from of old your ear has not been opened. For I, the Lord, knew that you, O house of Israel, dealt very treacherously; you were called a transgressor _and_ a rebel [in revolt] from your birth. 
+Yes, you have never heard, yes, you have never known; yes, from of old your ear has not been opened. For I, the Lord, knew that you, O house of Israel, dealt very treacherously; you were called a transgressor and a rebel [in revolt] from your birth. 
 
 
 
@@ -217,7 +217,7 @@ For My name's sake I defer My anger, and for the sake of My praise I restrain it
 
 
 
-Behold, I have refined you, but not as silver; I have tried _and_ chosen you in the furnace of affliction. 
+Behold, I have refined you, but not as silver; I have tried and chosen you in the furnace of affliction. 
 
 
 
@@ -238,7 +238,7 @@ Behold, I have refined you, but not as silver; I have tried _and_ chosen you in 
 
 
 
-For My own sake, for My own sake, I do it [I refrain and do not utterly destroy you]; for why should I permit My name to be polluted _and_ profaned [which it would be if the Lord completely destroyed His chosen people]? And I will not give My glory to another [by permitting the worshipers of idols to triumph over you]. 
+For My own sake, for My own sake, I do it [I refrain and do not utterly destroy you]; for why should I permit My name to be polluted and profaned [which it would be if the Lord completely destroyed His chosen people]? And I will not give My glory to another [by permitting the worshipers of idols to triumph over you]. 
 
 
 
@@ -301,7 +301,7 @@ Yes, My hand has laid the foundation of the earth, and My right hand has spread 
 
 
 
-Assemble yourselves, all of you, and hear! Who among them [the gods and Chaldean astrologers] has foretold these things? The Lord has loved him [Cyrus of Persia]; he will do His pleasure _and_ purpose on Babylon, and his arm will be against the Chaldeans. 
+Assemble yourselves, all of you, and hear! Who among them [the gods and Chaldean astrologers] has foretold these things? The Lord has loved him [Cyrus of Persia]; he will do His pleasure and purpose on Babylon, and his arm will be against the Chaldeans. 
 
 
 
@@ -343,7 +343,7 @@ I, even I, have foretold it; yes, I have called him [Cyrus]; I have brought him,
 
 
 
-Come near to me and listen to this: I have not spoken in secret from the beginning; from the time that it happened, I was there. And now the Lord God has sent His Spirit in _and_ with me. 
+Come near to me and listen to this: I have not spoken in secret from the beginning; from the time that it happened, I was there. And now the Lord God has sent His Spirit in and with me. 
 
 
 
@@ -385,7 +385,7 @@ Thus says the Lord, your Redeemer, the Holy One of Israel: I am the Lord your Go
 
 
 
-Oh, that you had hearkened to My commandments! Then your peace _and_ prosperity would have been like a flowing river, and your righteousness [the holiness and purity of the nation] like the [abundant] waves of the sea. 
+Oh, that you had hearkened to My commandments! Then your peace and prosperity would have been like a flowing river, and your righteousness [the holiness and purity of the nation] like the [abundant] waves of the sea. 
 
 
 

@@ -70,7 +70,7 @@ Moreover, it is [essentially] required of stewards that a man should be found fa
 
 
 
-But [as for me personally] it matters very little to me that I should be put on trial by you [on this point], _and_ that you or any other human tribunal should investigate _and_ question _and_ cross-question me. I do not even put myself on trial _and_ judge myself. 
+But [as for me personally] it matters very little to me that I should be put on trial by you [on this point], and that you or any other human tribunal should investigate and question and cross-question me. I do not even put myself on trial and judge myself. 
 
 
 
@@ -91,7 +91,7 @@ But [as for me personally] it matters very little to me that I should be put on 
 
 
 
-I am not conscious of anything against myself, _and_ I feel blameless; but I am not vindicated _and_ acquitted before God on that account. It is the Lord [Himself] Who examines _and_ judges me. 
+I am not conscious of anything against myself, and I feel blameless; but I am not vindicated and acquitted before God on that account. It is the Lord [Himself] Who examines and judges me. 
 
 
 
@@ -112,7 +112,7 @@ I am not conscious of anything against myself, _and_ I feel blameless; but I am 
 
 
 
-So do not make any hasty _or_ premature judgments before the time when the Lord comes [again], for He will both bring to light the secret things that are [now hidden] in darkness and disclose _and_ expose the [secret] aims (motives and purposes) of hearts. Then every man will receive his [due] commendation from God. 
+So do not make any hasty or premature judgments before the time when the Lord comes [again], for He will both bring to light the secret things that are [now hidden] in darkness and disclose and expose the [secret] aims (motives and purposes) of hearts. Then every man will receive his [due] commendation from God. 
 
 
 
@@ -133,7 +133,7 @@ So do not make any hasty _or_ premature judgments before the time when the Lord 
 
 
 
-Now I have applied all this [about parties and factions] to myself and Apollos for your sakes, brethren, so that from what I have said of us [as illustrations], you may learn [to think of men in accordance with Scripture and] not to go beyond that which is written, that none of you may be puffed up _and_ inflated with pride _and_ boast in favor of one [minister and teacher] against another. 
+Now I have applied all this [about parties and factions] to myself and Apollos for your sakes, brethren, so that from what I have said of us [as illustrations], you may learn [to think of men in accordance with Scripture and] not to go beyond that which is written, that none of you may be puffed up and inflated with pride and boast in favor of one [minister and teacher] against another. 
 
 
 
@@ -175,7 +175,7 @@ For who separates you from the others [as a faction leader]? [Who makes you supe
 
 
 
-[You behave as if] you are already filled _and_ think you have enough [you are full and content, feeling no need of anything more]! Already you have become rich [in spiritual gifts and graces]! [Without any counsel or instruction from us, in your conceit], you have ascended your thrones _and_ come into your kingdom without including us! And would that it were true _and_ that you did reign, so that we might be sharing the kingdom with you! 
+[You behave as if] you are already filled and think you have enough [you are full and content, feeling no need of anything more]! Already you have become rich [in spiritual gifts and graces]! [Without any counsel or instruction from us, in your conceit], you have ascended your thrones and come into your kingdom without including us! And would that it were true and that you did reign, so that we might be sharing the kingdom with you! 
 
 
 
@@ -217,7 +217,7 @@ For it seems to me that God has made an exhibit of us apostles, exposing us to v
 
 
 
-We are [looked upon as] fools on account of Christ _and_ for His sake, but you are [supposedly] so amazingly wise _and_ prudent in Christ! We are weak, but you are [so very] strong! You are highly esteemed, but we are in disrepute _and_ contempt! 
+We are [looked upon as] fools on account of Christ and for His sake, but you are [supposedly] so amazingly wise and prudent in Christ! We are weak, but you are [so very] strong! You are highly esteemed, but we are in disrepute and contempt! 
 
 
 
@@ -259,7 +259,7 @@ To this hour we have gone both hungry and thirsty; we [habitually] wear but one 
 
 
 
-And we still toil unto weariness [for our living], working hard with our own hands. When men revile us [wound us with an accursed sting], we bless them. When we are persecuted, we take it patiently _and_ endure it. 
+And we still toil unto weariness [for our living], working hard with our own hands. When men revile us [wound us with an accursed sting], we bless them. When we are persecuted, we take it patiently and endure it. 
 
 
 
@@ -280,7 +280,7 @@ And we still toil unto weariness [for our living], working hard with our own han
 
 
 
-When we are slandered _and_ defamed, we [try to] answer softly _and_ bring comfort. We have been made and are now the rubbish _and_ filth of the world [the offscouring of all things, the scum of the earth]. 
+When we are slandered and defamed, we [try to] answer softly and bring comfort. We have been made and are now the rubbish and filth of the world [the offscouring of all things, the scum of the earth]. 
 
 
 
@@ -301,7 +301,7 @@ When we are slandered _and_ defamed, we [try to] answer softly _and_ bring comfo
 
 
 
-I do not write this to shame you, but to warn _and_ counsel you as my beloved children. 
+I do not write this to shame you, but to warn and counsel you as my beloved children. 
 
 
 
@@ -343,7 +343,7 @@ After all, though you should have ten thousand teachers (guides to direct you) i
 
 
 
-So I urge _and_ implore you, be imitators of me. 
+So I urge and implore you, be imitators of me. 
 
 
 
@@ -364,7 +364,7 @@ So I urge _and_ implore you, be imitators of me.
 
 
 
-For this very cause I sent to you Timothy, who is my beloved and trustworthy child in the Lord, who will recall to your minds my methods of proceeding _and_ course of conduct _and_ way of life in Christ, such as I teach everywhere in each of the churches. 
+For this very cause I sent to you Timothy, who is my beloved and trustworthy child in the Lord, who will recall to your minds my methods of proceeding and course of conduct and way of life in Christ, such as I teach everywhere in each of the churches. 
 
 
 
@@ -385,7 +385,7 @@ For this very cause I sent to you Timothy, who is my beloved and trustworthy chi
 
 
 
-Some of you have become conceited _and_ arrogant _and_ pretentious, counting on my not coming to you. 
+Some of you have become conceited and arrogant and pretentious, counting on my not coming to you. 
 
 
 
@@ -406,7 +406,7 @@ Some of you have become conceited _and_ arrogant _and_ pretentious, counting on 
 
 
 
-But I will come to you [and] shortly, if the Lord is willing, and then I will perceive _and_ understand not what the talk of these puffed up _and_ arrogant spirits amount to, but their force (the moral power and excellence of soul they really possess). 
+But I will come to you [and] shortly, if the Lord is willing, and then I will perceive and understand not what the talk of these puffed up and arrogant spirits amount to, but their force (the moral power and excellence of soul they really possess). 
 
 
 
@@ -427,7 +427,7 @@ But I will come to you [and] shortly, if the Lord is willing, and then I will pe
 
 
 
-For the kingdom of God consists of _and_ is based on not talk but power (moral power and excellence of soul). 
+For the kingdom of God consists of and is based on not talk but power (moral power and excellence of soul). 
 
 
 

@@ -301,7 +301,7 @@ And a man lies with her carnally, and it is hidden from the eyes of her husband 
 
 
 
-And if the spirit of jealousy comes upon him and he is jealous _and_ suspicious of his wife who has defiled herself--or if the spirit of jealousy comes upon him and he is jealous _and_ suspicious of his wife though she has not defiled herself-- 
+And if the spirit of jealousy comes upon him and he is jealous and suspicious of his wife who has defiled herself--or if the spirit of jealousy comes upon him and he is jealous and suspicious of his wife though she has not defiled herself-- 
 
 
 
@@ -322,7 +322,7 @@ And if the spirit of jealousy comes upon him and he is jealous _and_ suspicious 
 
 
 
-Then shall the man bring his wife to the priest, and he shall bring the offering required of her, a tenth of an ephah of barley meal; but he shall pour no oil upon it nor put frankincense on it [symbols of favor and joy], for it is a cereal offering of jealousy _and_ suspicion, a memorial offering bringing iniquity to remembrance. 
+Then shall the man bring his wife to the priest, and he shall bring the offering required of her, a tenth of an ephah of barley meal; but he shall pour no oil upon it nor put frankincense on it [symbols of favor and joy], for it is a cereal offering of jealousy and suspicion, a memorial offering bringing iniquity to remembrance. 
 
 
 
@@ -385,7 +385,7 @@ And the priest shall take holy water [probably from the sacred laver] in an eart
 
 
 
-And the priest shall set the woman before the Lord, and let the hair of the woman's head hang loose, and put the meal offering of remembrance in her hands, which is the jealousy _and_ suspicion offering. And the priest shall have in his hand the water of bitterness that brings the curse. 
+And the priest shall set the woman before the Lord, and let the hair of the woman's head hang loose, and put the meal offering of remembrance in her hands, which is the jealousy and suspicion offering. And the priest shall have in his hand the water of bitterness that brings the curse. 
 
 
 
@@ -532,7 +532,7 @@ And he shall cause the woman to drink the water of bitterness that brings the cu
 
 
 
-Then the priest shall take the cereal offering of jealousy _and_ suspicion out of the woman's hand and shall wave the offering before the Lord and offer it upon the altar. 
+Then the priest shall take the cereal offering of jealousy and suspicion out of the woman's hand and shall wave the offering before the Lord and offer it upon the altar. 
 
 
 
@@ -616,7 +616,7 @@ But if the woman is not defiled and is clean, then she shall be free [from the c
 
 
 
-This is the law of jealousy _and_ suspicion when a wife goes aside to another instead of her husband and is defiled, 
+This is the law of jealousy and suspicion when a wife goes aside to another instead of her husband and is defiled, 
 
 
 
@@ -637,7 +637,7 @@ This is the law of jealousy _and_ suspicion when a wife goes aside to another in
 
 
 
-Or when the spirit of jealousy _and_ suspicion comes upon a man and he is jealous _and_ suspicious of his wife; then shall he set the woman before the Lord, and the priest shall execute on her all this law. 
+Or when the spirit of jealousy and suspicion comes upon a man and he is jealous and suspicious of his wife; then shall he set the woman before the Lord, and the priest shall execute on her all this law. 
 
 
 
@@ -658,4 +658,4 @@ Or when the spirit of jealousy _and_ suspicion comes upon a man and he is jealou
 
 
 
-The [husband] shall be free from iniquity _and_ guilt, and that woman [if guilty] shall bear her iniquity.
+The [husband] shall be free from iniquity and guilt, and that woman [if guilty] shall bear her iniquity.

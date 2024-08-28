@@ -18,7 +18,7 @@ Now the main point of what we have to say is this: We have such a High Priest, O
 ###### 2 
 
 
-As officiating Priest, a Minister in the holy places _and_ in the true tabernacle which is erected not by man but by the Lord. 
+As officiating Priest, a Minister in the holy places and in the true tabernacle which is erected not by man but by the Lord. 
 
 
 ###### 3 
@@ -42,31 +42,31 @@ If then He were still living on earth, He would not be a priest at all, for ther
 ###### 6 
 
 
-But as it now is, He [Christ] has acquired a [priestly] ministry which is as much superior _and_ more excellent [than the old] as the covenant (the agreement) of which He is the Mediator (the Arbiter, Agent) is superior _and_ more excellent, [because] it is enacted _and_ rests upon more important (sublimer, higher, and nobler) promises. 
+But as it now is, He [Christ] has acquired a [priestly] ministry which is as much superior and more excellent [than the old] as the covenant (the agreement) of which He is the Mediator (the Arbiter, Agent) is superior and more excellent, [because] it is enacted and rests upon more important (sublimer, higher, and nobler) promises. 
 
 
 ###### 7 
 
 
-For if that first covenant had been without defect, there would have been no room for another one _or_ an attempt to institute another one. 
+For if that first covenant had been without defect, there would have been no room for another one or an attempt to institute another one. 
 
 
 ###### 8 
 
 
-However, He finds fault with them [showing its inadequacy] when He says, Behold, the days will come, says the Lord, when I will make _and_ ratify a new covenant _or_ agreement with the house of Israel and with the house of Judah. 
+However, He finds fault with them [showing its inadequacy] when He says, Behold, the days will come, says the Lord, when I will make and ratify a new covenant or agreement with the house of Israel and with the house of Judah. 
 
 
 ###### 9 
 
 
-It will not be like the covenant that I made with their forefathers on the day when I grasped them by the hand to help _and_ relieve them _and_ to lead them out from the land of Egypt, for they did not abide in My agreement with them, and so I withdrew My favor _and_ disregarded them, says the Lord. 
+It will not be like the covenant that I made with their forefathers on the day when I grasped them by the hand to help and relieve them and to lead them out from the land of Egypt, for they did not abide in My agreement with them, and so I withdrew My favor and disregarded them, says the Lord. 
 
 
 ###### 10 
 
 
-For this is the covenant that I will make with the house of Israel after those days, says the Lord: I will imprint My laws upon their minds, even upon their innermost thoughts _and_ understanding, and engrave them upon their hearts; and I will be their God, and they shall be My people. 
+For this is the covenant that I will make with the house of Israel after those days, says the Lord: I will imprint My laws upon their minds, even upon their innermost thoughts and understanding, and engrave them upon their hearts; and I will be their God, and they shall be My people. 
 
 
 ###### 11 
@@ -78,10 +78,10 @@ And it will nevermore be necessary for each one to teach his neighbor and his fe
 ###### 12 
 
 
-For I will be merciful _and_ gracious toward their sins and I will remember their deeds of unrighteousness no more. 
+For I will be merciful and gracious toward their sins and I will remember their deeds of unrighteousness no more. 
 
 
 ###### 13 
 
 
-When God speaks of a new [covenant or agreement], He makes the first one obsolete (out of use). And what is obsolete (out of use and annulled because of age) is ripe for disappearance _and_ to be dispensed with altogether.
+When God speaks of a new [covenant or agreement], He makes the first one obsolete (out of use). And what is obsolete (out of use and annulled because of age) is ripe for disappearance and to be dispensed with altogether.

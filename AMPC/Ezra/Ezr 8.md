@@ -448,7 +448,7 @@ Also 220 of the Nethinim, whose forefathers David and the officials had set apar
 
 
 
-Then I proclaimed a fast there, at the river Ahava, that we might humble ourselves before our God to seek from Him a straight _and_ right way for us, our little ones, and all our possessions. 
+Then I proclaimed a fast there, at the river Ahava, that we might humble ourselves before our God to seek from Him a straight and right way for us, our little ones, and all our possessions. 
 
 
 

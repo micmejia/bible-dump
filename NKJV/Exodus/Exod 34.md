@@ -10,7 +10,7 @@ next: ['Exod 35']
 
 
 ###### 1 
-And the Lord said to Moses, "Cut two tablets of stone like the first _ones,_ and I will write on _these_ tablets the words that were on the first tablets which you broke. 
+And the Lord said to Moses, "Cut two tablets of stone like the first ones, and I will write on these tablets the words that were on the first tablets which you broke. 
 
 ###### 2 
 So be ready in the morning, and come up in the morning to Mount Sinai, and present yourself to Me there on the top of the mountain. 
@@ -19,7 +19,7 @@ So be ready in the morning, and come up in the morning to Mount Sinai, and prese
 And no man shall come up with you, and let no man be seen throughout all the mountain; let neither flocks nor herds feed before that mountain." 
 
 ###### 4 
-So he cut two tablets of stone like the first _ones._ Then Moses rose early in the morning and went up Mount Sinai, as the Lord had commanded him; and he took in his hand the two tablets of stone. 
+So he cut two tablets of stone like the first ones. Then Moses rose early in the morning and went up Mount Sinai, as the Lord had commanded him; and he took in his hand the two tablets of stone. 
 
 ###### 5 
 Now the Lord descended in the cloud and stood with him there, and proclaimed the name of the Lord. 
@@ -28,18 +28,18 @@ Now the Lord descended in the cloud and stood with him there, and proclaimed the
 And the Lord passed before him and proclaimed, "The Lord, the Lord God, merciful and gracious, longsuffering, and abounding in goodness and truth, 
 
 ###### 7 
-keeping mercy for thousands, forgiving iniquity and transgression and sin, by no means clearing _the guilty,_ visiting the iniquity of the fathers upon the children and the children's children to the third and the fourth generation." 
+keeping mercy for thousands, forgiving iniquity and transgression and sin, by no means clearing the guilty, visiting the iniquity of the fathers upon the children and the children's children to the third and the fourth generation." 
 
 ###### 8 
 So Moses made haste and bowed his head toward the earth, and worshiped. 
 
 ###### 9 
-Then he said, "If now I have found grace in Your sight, O Lord, let my Lord, I pray, go among us, even though we _are_ a stiff-necked people; and pardon our iniquity and our sin, and take us as Your inheritance." 
+Then he said, "If now I have found grace in Your sight, O Lord, let my Lord, I pray, go among us, even though we are a stiff-necked people; and pardon our iniquity and our sin, and take us as Your inheritance." 
 
 ## The Covenant Renewed 
 
 ###### 10 
-And He said: "Behold, I make a covenant. Before all your people I will do marvels such as have not been done in all the earth, nor in any nation; and all the people among whom you _are_ shall see the work of the Lord. For it _is_ an awesome thing that I will do with you. 
+And He said: "Behold, I make a covenant. Before all your people I will do marvels such as have not been done in all the earth, nor in any nation; and all the people among whom you are shall see the work of the Lord. For it is an awesome thing that I will do with you. 
 
 ###### 11 
 Observe what I command you this day. Behold, I am driving out from before you the Amorite and the Canaanite and the Hittite and the Perizzite and the Hivite and the Jebusite. 
@@ -48,13 +48,13 @@ Observe what I command you this day. Behold, I am driving out from before you th
 Take heed to yourself, lest you make a covenant with the inhabitants of the land where you are going, lest it be a snare in your midst. 
 
 ###### 13 
-But you shall destroy their altars, break their _sacred_ pillars, and cut down their wooden images 
+But you shall destroy their altars, break their sacred pillars, and cut down their wooden images 
 
 ###### 14 
-(for you shall worship no other god, for the Lord, whose name _is_ Jealous, _is_ a jealous God), 
+(for you shall worship no other god, for the Lord, whose name is Jealous, is a jealous God), 
 
 ###### 15 
-lest you make a covenant with the inhabitants of the land, and they play the harlot with their gods and make sacrifice to their gods, and _one of them_ invites you and you eat of his sacrifice, 
+lest you make a covenant with the inhabitants of the land, and they play the harlot with their gods and make sacrifice to their gods, and one of them invites you and you eat of his sacrifice, 
 
 ###### 16 
 and you take of his daughters for your sons, and his daughters play the harlot with their gods and make your sons play the harlot with their gods. 
@@ -66,10 +66,10 @@ and you take of his daughters for your sons, and his daughters play the harlot w
 "The Feast of Unleavened Bread you shall keep. Seven days you shall eat unleavened bread, as I commanded you, in the appointed time of the month of Abib; for in the month of Abib you came out from Egypt. 
 
 ###### 19 
-"All that open the womb _are_ Mine, and every male firstborn among your livestock, _whether_ ox or sheep. 
+"All that open the womb are Mine, and every male firstborn among your livestock, whether ox or sheep. 
 
 ###### 20 
-But the firstborn of a donkey you shall redeem with a lamb. And if you will not redeem _him,_ then you shall break his neck. All the firstborn of your sons you shall redeem. "And none shall appear before Me empty-handed. 
+But the firstborn of a donkey you shall redeem with a lamb. And if you will not redeem him, then you shall break his neck. All the firstborn of your sons you shall redeem. "And none shall appear before Me empty-handed. 
 
 ###### 21 
 "Six days you shall work, but on the seventh day you shall rest; in plowing time and in harvest you shall rest. 
@@ -98,7 +98,7 @@ So he was there with the Lord forty days and forty nights; he neither ate bread 
 ## The Shining Face of Moses 
 
 ###### 29 
-Now it was so, when Moses came down from Mount Sinai (and the two tablets of the Testimony _were_ in Moses' hand when he came down from the mountain), that Moses did not know that the skin of his face shone while he talked with Him. 
+Now it was so, when Moses came down from Mount Sinai (and the two tablets of the Testimony were in Moses' hand when he came down from the mountain), that Moses did not know that the skin of his face shone while he talked with Him. 
 
 ###### 30 
 So when Aaron and all the children of Israel saw Moses, behold, the skin of his face shone, and they were afraid to come near him. 

@@ -31,10 +31,10 @@ Beth Lebaoth, and Sharuhen: thirteen cities and their villages;
 Ain, Rimmon, Ether, and Ashan: four cities and their villages; 
 
 ###### 8 
-and all the villages that _were_ all around these cities as far as Baalath Beer, Ramah of the South. This _was_ the inheritance of the tribe of the children of Simeon according to their families. 
+and all the villages that were all around these cities as far as Baalath Beer, Ramah of the South. This was the inheritance of the tribe of the children of Simeon according to their families. 
 
 ###### 9 
-The inheritance of the children of Simeon _was included_ in the share of the children of Judah, for the share of the children of Judah was too much for them. Therefore the children of Simeon had _their_ inheritance within the inheritance of that people.
+The inheritance of the children of Simeon was included in the share of the children of Judah, for the share of the children of Judah was too much for them. Therefore the children of Simeon had their inheritance within the inheritance of that people.
 
 ## The Land of Zebulun 
 
@@ -57,7 +57,7 @@ Then the border went around it on the north side of Hannathon, and it ended in t
 Included were Kattath, Nahallal, Shimron, Idalah, and Bethlehem: twelve cities with their villages. 
 
 ###### 16 
-This _was_ the inheritance of the children of Zebulun according to their families, these cities with their villages.
+This was the inheritance of the children of Zebulun according to their families, these cities with their villages.
 
 ## The Land of Issachar 
 
@@ -65,7 +65,7 @@ This _was_ the inheritance of the children of Zebulun according to their familie
 The fourth lot came out to Issachar, for the children of Issachar according to their families. 
 
 ###### 18 
-And their territory went to Jezreel, and _included_ Chesulloth, Shunem, 
+And their territory went to Jezreel, and included Chesulloth, Shunem, 
 
 ###### 19 
 Haphraim, Shion, Anaharath, 
@@ -80,7 +80,7 @@ Remeth, En Gannim, En Haddah, and Beth Pazzez.
 And the border reached to Tabor, Shahazimah, and Beth Shemesh; their border ended at the Jordan: sixteen cities with their villages. 
 
 ###### 23 
-This _was_ the inheritance of the tribe of the children of Issachar according to their families, the cities and their villages.
+This was the inheritance of the tribe of the children of Issachar according to their families, the cities and their villages.
 
 ## The Land of Asher 
 
@@ -91,10 +91,10 @@ The fifth lot came out for the tribe of the children of Asher according to their
 And their territory included Helkath, Hali, Beten, Achshaph, 
 
 ###### 26 
-Alammelech, Amad, and Mishal; it reached to Mount Carmel westward, along _the Brook_ Shihor Libnath. 
+Alammelech, Amad, and Mishal; it reached to Mount Carmel westward, along the Brook Shihor Libnath. 
 
 ###### 27 
-It turned toward the sunrise to Beth Dagon; and it reached to Zebulun and to the Valley of Jiphthah El, then northward beyond Beth Emek and Neiel, bypassing Cabul _which was_ on the left, 
+It turned toward the sunrise to Beth Dagon; and it reached to Zebulun and to the Valley of Jiphthah El, then northward beyond Beth Emek and Neiel, bypassing Cabul which was on the left, 
 
 ###### 28 
 including Ebron, Rehob, Hammon, and Kanah, as far as Greater Sidon. 
@@ -103,10 +103,10 @@ including Ebron, Rehob, Hammon, and Kanah, as far as Greater Sidon.
 And the border turned to Ramah and to the fortified city of Tyre; then the border turned to Hosah, and ended at the sea by the region of Achzib. 
 
 ###### 30 
-Also Ummah, Aphek, and Rehob _were included:_ twenty-two cities with their villages. 
+Also Ummah, Aphek, and Rehob were included: twenty-two cities with their villages. 
 
 ###### 31 
-This _was_ the inheritance of the tribe of the children of Asher according to their families, these cities with their villages.
+This was the inheritance of the tribe of the children of Asher according to their families, these cities with their villages.
 
 ## The Land of Naphtali 
 
@@ -120,7 +120,7 @@ And their border began at Heleph, enclosing the territory from the terebinth tre
 From Heleph the border extended westward to Aznoth Tabor, and went out from there toward Hukkok; it adjoined Zebulun on the south side and Asher on the west side, and ended at Judah by the Jordan toward the sunrise. 
 
 ###### 35 
-And the fortified cities _are_ Ziddim, Zer, Hammath, Rakkath, Chinnereth, 
+And the fortified cities are Ziddim, Zer, Hammath, Rakkath, Chinnereth, 
 
 ###### 36 
 Adamah, Ramah, Hazor, 
@@ -132,7 +132,7 @@ Kedesh, Edrei, En Hazor,
 Iron, Migdal El, Horem, Beth Anath, and Beth Shemesh: nineteen cities with their villages. 
 
 ###### 39 
-This _was_ the inheritance of the tribe of the children of Naphtali according to their families, the cities and their villages.
+This was the inheritance of the tribe of the children of Naphtali according to their families, the cities and their villages.
 
 ## The Land of Dan 
 
@@ -161,7 +161,7 @@ Me Jarkon, and Rakkon, with the region near Joppa.
 And the border of the children of Dan went beyond these, because the children of Dan went up to fight against Leshem and took it; and they struck it with the edge of the sword, took possession of it, and dwelt in it. They called Leshem, Dan, after the name of Dan their father. 
 
 ###### 48 
-This _is_ the inheritance of the tribe of the children of Dan according to their families, these cities with their villages.
+This is the inheritance of the tribe of the children of Dan according to their families, these cities with their villages.
 
 ## Joshua's Inheritance 
 
@@ -172,4 +172,4 @@ When they had made an end of dividing the land as an inheritance according to th
 According to the word of the Lord they gave him the city which he asked for, Timnath Serah in the mountains of Ephraim; and he built the city and dwelt in it. 
 
 ###### 51 
-These _were_ the inheritances which Eleazar the priest, Joshua the son of Nun, and the heads of the fathers of the tribes of the children of Israel divided as an inheritance by lot in Shiloh before the Lord, at the door of the tabernacle of meeting. So they made an end of dividing the country.
+These were the inheritances which Eleazar the priest, Joshua the son of Nun, and the heads of the fathers of the tribes of the children of Israel divided as an inheritance by lot in Shiloh before the Lord, at the door of the tabernacle of meeting. So they made an end of dividing the country.

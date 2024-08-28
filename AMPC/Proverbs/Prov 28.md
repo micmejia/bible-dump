@@ -49,7 +49,7 @@ The wicked flee when no man pursues them, but the [uncompromisingly] righteous a
 
 
 
-When a land transgresses, it has many rulers, but when the ruler is a man of discernment, understanding, _and_ knowledge, its stability will long continue. 
+When a land transgresses, it has many rulers, but when the ruler is a man of discernment, understanding, and knowledge, its stability will long continue. 
 
 
 
@@ -112,7 +112,7 @@ Those who forsake the law [of God and man] praise the wicked, but those who keep
 
 
 
-Evil men do not understand justice, but they who crave _and_ seek the Lord understand it fully. 
+Evil men do not understand justice, but they who crave and seek the Lord understand it fully. 
 
 
 
@@ -133,7 +133,7 @@ Evil men do not understand justice, but they who crave _and_ seek the Lord under
 
 
 
-Better is the poor man who walks in his integrity than he who willfully goes in double _and_ wrong ways, though he is rich. 
+Better is the poor man who walks in his integrity than he who willfully goes in double and wrong ways, though he is rich. 
 
 
 
@@ -154,7 +154,7 @@ Better is the poor man who walks in his integrity than he who willfully goes in 
 
 
 
-Whoever keeps the law [of God and man] is a wise son, but he who is a companion of gluttons _and_ the carousing, self-indulgent, _and_ extravagant shames his father. 
+Whoever keeps the law [of God and man] is a wise son, but he who is a companion of gluttons and the carousing, self-indulgent, and extravagant shames his father. 
 
 
 
@@ -175,7 +175,7 @@ Whoever keeps the law [of God and man] is a wise son, but he who is a companion 
 
 
 
-He who by charging excessive interest _and_ who by unjust efforts to get gain increases his material possession gathers it for him [to spend] who is kind _and_ generous to the poor. 
+He who by charging excessive interest and who by unjust efforts to get gain increases his material possession gathers it for him [to spend] who is kind and generous to the poor. 
 
 
 
@@ -196,7 +196,7 @@ He who by charging excessive interest _and_ who by unjust efforts to get gain in
 
 
 
-He who turns away his ear from hearing the law [of God and man], even his prayer is an abomination, hateful _and_ revolting [to God]. 
+He who turns away his ear from hearing the law [of God and man], even his prayer is an abomination, hateful and revolting [to God]. 
 
 
 
@@ -238,7 +238,7 @@ Whoever leads the upright astray into an evil way, he will himself fall into his
 
 
 
-The rich man is wise in his own eyes _and_ conceit, but the poor man who has understanding will find him out. 
+The rich man is wise in his own eyes and conceit, but the poor man who has understanding will find him out. 
 
 
 
@@ -259,7 +259,7 @@ The rich man is wise in his own eyes _and_ conceit, but the poor man who has und
 
 
 
-When the [uncompromisingly] righteous triumph, there is great glory _and_ celebration; but when the wicked rise [to power], men hide themselves. 
+When the [uncompromisingly] righteous triumph, there is great glory and celebration; but when the wicked rise [to power], men hide themselves. 
 
 
 
@@ -301,7 +301,7 @@ He who covers his transgressions will not prosper, but whoever confesses and for
 
 
 
-Blessed (happy, fortunate, and to be envied) is the man who reverently _and_ worshipfully fears [the Lord] at all times [regardless of circumstances], but he who hardens his heart will fall into calamity. 
+Blessed (happy, fortunate, and to be envied) is the man who reverently and worshipfully fears [the Lord] at all times [regardless of circumstances], but he who hardens his heart will fall into calamity. 
 
 
 
@@ -322,7 +322,7 @@ Blessed (happy, fortunate, and to be envied) is the man who reverently _and_ wor
 
 
 
-Like a roaring lion or a ravenous _and_ charging bear is a wicked ruler over a poor people. 
+Like a roaring lion or a ravenous and charging bear is a wicked ruler over a poor people. 
 
 
 
@@ -343,7 +343,7 @@ Like a roaring lion or a ravenous _and_ charging bear is a wicked ruler over a p
 
 
 
-A ruler who lacks understanding is [like a wicked one] a great oppressor, but he who hates covetousness _and_ unjust gain shall prolong his days. 
+A ruler who lacks understanding is [like a wicked one] a great oppressor, but he who hates covetousness and unjust gain shall prolong his days. 
 
 
 
@@ -364,7 +364,7 @@ A ruler who lacks understanding is [like a wicked one] a great oppressor, but he
 
 
 
-If a man willfully sheds the blood of a person [and keeps the guilt of murder upon his conscience], he is fleeing to the pit (the grave) _and_ hastening to his own destruction; let no man stop him! 
+If a man willfully sheds the blood of a person [and keeps the guilt of murder upon his conscience], he is fleeing to the pit (the grave) and hastening to his own destruction; let no man stop him! 
 
 
 
@@ -385,7 +385,7 @@ If a man willfully sheds the blood of a person [and keeps the guilt of murder up
 
 
 
-He who walks uprightly shall be safe, but he who willfully goes in double _and_ wrong ways shall fall in one of them. 
+He who walks uprightly shall be safe, but he who willfully goes in double and wrong ways shall fall in one of them. 
 
 
 
@@ -406,7 +406,7 @@ He who walks uprightly shall be safe, but he who willfully goes in double _and_ 
 
 
 
-He who cultivates his land will have plenty of bread, but he who follows worthless people _and_ pursuits will have poverty enough. 
+He who cultivates his land will have plenty of bread, but he who follows worthless people and pursuits will have poverty enough. 
 
 
 
@@ -448,7 +448,7 @@ A faithful man shall abound with blessings, but he who makes haste to be rich [a
 
 
 
-To have respect of persons _and_ to show partiality is not good, neither is it good that man should transgress for a piece of bread. 
+To have respect of persons and to show partiality is not good, neither is it good that man should transgress for a piece of bread. 
 
 
 
@@ -469,7 +469,7 @@ To have respect of persons _and_ to show partiality is not good, neither is it g
 
 
 
-He who has an evil _and_ covetous eye hastens to be rich and knows not that want will come upon him. 
+He who has an evil and covetous eye hastens to be rich and knows not that want will come upon him. 
 
 
 
@@ -532,7 +532,7 @@ Whoever robs his father or his mother and says, This is no sin--he is in the sam
 
 
 
-He who is of a greedy spirit stirs up strife, but he who puts his trust in the Lord shall be enriched _and_ blessed. 
+He who is of a greedy spirit stirs up strife, but he who puts his trust in the Lord shall be enriched and blessed. 
 
 
 
@@ -553,7 +553,7 @@ He who is of a greedy spirit stirs up strife, but he who puts his trust in the L
 
 
 
-He who leans on, trusts in, _and_ is confident of his own mind _and_ heart is a [self-confident] fool, but he who walks in skillful _and_ godly Wisdom shall be delivered. 
+He who leans on, trusts in, and is confident of his own mind and heart is a [self-confident] fool, but he who walks in skillful and godly Wisdom shall be delivered. 
 
 
 
@@ -595,4 +595,4 @@ He who gives to the poor will not want, but he who hides his eyes [from their wa
 
 
 
-When the wicked rise [to power], men hide themselves; but when they perish, the [consistently] righteous increase _and_ become many.
+When the wicked rise [to power], men hide themselves; but when they perish, the [consistently] righteous increase and become many.

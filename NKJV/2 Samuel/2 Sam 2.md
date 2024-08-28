@@ -16,13 +16,13 @@ It happened after this that David inquired of the Lord, saying, "Shall I go up t
 So David went up there, and his two wives also, Ahinoam the Jezreelitess, and Abigail the widow of Nabal the Carmelite. 
 
 ###### 3 
-And David brought up the men who _were_ with him, every man with his household. So they dwelt in the cities of Hebron. 
+And David brought up the men who were with him, every man with his household. So they dwelt in the cities of Hebron. 
 
 ###### 4 
-Then the men of Judah came, and there they anointed David king over the house of Judah. And they told David, saying, "The men of Jabesh Gilead _were the ones_ who buried Saul." 
+Then the men of Judah came, and there they anointed David king over the house of Judah. And they told David, saying, "The men of Jabesh Gilead were the ones who buried Saul." 
 
 ###### 5 
-So David sent messengers to the men of Jabesh Gilead, and said to them, "You _are_ blessed of the Lord, for you have shown this kindness to your lord, to Saul, and have buried him. 
+So David sent messengers to the men of Jabesh Gilead, and said to them, "You are blessed of the Lord, for you have shown this kindness to your lord, to Saul, and have buried him. 
 
 ###### 6 
 And now may the Lord show kindness and truth to you. I also will repay you this kindness, because you have done this thing. 
@@ -39,7 +39,7 @@ But Abner the son of Ner, commander of Saul's army, took Ishbosheth the son of S
 and he made him king over Gilead, over the Ashurites, over Jezreel, over Ephraim, over Benjamin, and over all Israel. 
 
 ###### 10 
-Ishbosheth, Saul's son, _was_ forty years old when he began to reign over Israel, and he reigned two years. Only the house of Judah followed David. 
+Ishbosheth, Saul's son, was forty years old when he began to reign over Israel, and he reigned two years. Only the house of Judah followed David. 
 
 ###### 11 
 And the time that David was king in Hebron over the house of Judah was seven years and six months.
@@ -56,22 +56,22 @@ And Joab the son of Zeruiah, and the servants of David, went out and met them by
 Then Abner said to Joab, "Let the young men now arise and compete before us." And Joab said, "Let them arise." 
 
 ###### 15 
-So they arose and went over by number, twelve from Benjamin, _followers_ of Ishbosheth the son of Saul, and twelve from the servants of David. 
+So they arose and went over by number, twelve from Benjamin, followers of Ishbosheth the son of Saul, and twelve from the servants of David. 
 
 ###### 16 
-And each one grasped his opponent by the head and _thrust_ his sword in his opponent's side; so they fell down together. Therefore that place was called the Field of Sharp Swords, which _is_ in Gibeon. 
+And each one grasped his opponent by the head and thrust his sword in his opponent's side; so they fell down together. Therefore that place was called the Field of Sharp Swords, which is in Gibeon. 
 
 ###### 17 
 So there was a very fierce battle that day, and Abner and the men of Israel were beaten before the servants of David. 
 
 ###### 18 
-Now the three sons of Zeruiah were there: Joab and Abishai and Asahel. And Asahel _was_ _as_ fleet of foot as a wild gazelle. 
+Now the three sons of Zeruiah were there: Joab and Abishai and Asahel. And Asahel was as fleet of foot as a wild gazelle. 
 
 ###### 19 
 So Asahel pursued Abner, and in going he did not turn to the right hand or to the left from following Abner. 
 
 ###### 20 
-Then Abner looked behind him and said, "_Are_ you Asahel?" He answered, "I _am._" 
+Then Abner looked behind him and said, "Are you Asahel?" He answered, "I am." 
 
 ###### 21 
 And Abner said to him, "Turn aside to your right hand or to your left, and lay hold on one of the young men and take his armor for yourself." But Asahel would not turn aside from following him. 
@@ -80,10 +80,10 @@ And Abner said to him, "Turn aside to your right hand or to your left, and lay h
 So Abner said again to Asahel, "Turn aside from following me. Why should I strike you to the ground? How then could I face your brother Joab?" 
 
 ###### 23 
-However, he refused to turn aside. Therefore Abner struck him in the stomach with the blunt end of the spear, so that the spear came out of his back; and he fell down there and died on the spot. So it was _that_ as many as came to the place where Asahel fell down and died, stood still. 
+However, he refused to turn aside. Therefore Abner struck him in the stomach with the blunt end of the spear, so that the spear came out of his back; and he fell down there and died on the spot. So it was that as many as came to the place where Asahel fell down and died, stood still. 
 
 ###### 24 
-Joab and Abishai also pursued Abner. And the sun was going down when they came to the hill of Ammah, which _is_ before Giah by the road to the Wilderness of Gibeon. 
+Joab and Abishai also pursued Abner. And the sun was going down when they came to the hill of Ammah, which is before Giah by the road to the Wilderness of Gibeon. 
 
 ###### 25 
 Now the children of Benjamin gathered together behind Abner and became a unit, and took their stand on top of a hill. 
@@ -92,7 +92,7 @@ Now the children of Benjamin gathered together behind Abner and became a unit, a
 Then Abner called to Joab and said, "Shall the sword devour forever? Do you not know that it will be bitter in the latter end? How long will it be then until you tell the people to return from pursuing their brethren?" 
 
 ###### 27 
-And Joab said, "_As_ God lives, unless you had spoken, surely then by morning all the people would have given up pursuing their brethren." 
+And Joab said, "As God lives, unless you had spoken, surely then by morning all the people would have given up pursuing their brethren." 
 
 ###### 28 
 So Joab blew a trumpet; and all the people stood still and did not pursue Israel anymore, nor did they fight anymore. 
@@ -107,4 +107,4 @@ So Joab returned from pursuing Abner. And when he had gathered all the people to
 But the servants of David had struck down, of Benjamin and Abner's men, three hundred and sixty men who died. 
 
 ###### 32 
-Then they took up Asahel and buried him in his father's tomb, which _was in_ Bethlehem. And Joab and his men went all night, and they came to Hebron at daybreak.
+Then they took up Asahel and buried him in his father's tomb, which was in Bethlehem. And Joab and his men went all night, and they came to Hebron at daybreak.

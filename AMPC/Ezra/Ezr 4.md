@@ -49,7 +49,7 @@ Now when [the Samaritans] the adversaries of Judah and Benjamin heard that the e
 
 
 
-They came to Zerubbabel [now governor] and to the heads of the fathers' houses and said, Let us build with you, for we seek _and_ worship your God as you do, and we have sacrificed to Him since the days of Esarhaddon king of Assyria, who brought us here. 
+They came to Zerubbabel [now governor] and to the heads of the fathers' houses and said, Let us build with you, for we seek and worship your God as you do, and we have sacrificed to Him since the days of Esarhaddon king of Assyria, who brought us here. 
 
 
 
@@ -91,7 +91,7 @@ But Zerubbabel and Jeshua and the rest of the heads of fathers' houses of Israel
 
 
 
-Then [the Samaritans] the people of the land [continually] weakened the hands of the people of Judah and troubled _and_ terrified them in building 
+Then [the Samaritans] the people of the land [continually] weakened the hands of the people of Judah and troubled and terrified them in building 
 
 
 
@@ -112,7 +112,7 @@ Then [the Samaritans] the people of the land [continually] weakened the hands of
 
 
 
-And hired counselors against them to frustrate their purpose _and_ plans all the days of Cyrus king of Persia, even until the reign of Darius [II] king of Persia. 
+And hired counselors against them to frustrate their purpose and plans all the days of Cyrus king of Persia, even until the reign of Darius [II] king of Persia. 
 
 
 
@@ -154,7 +154,7 @@ And in the reign of Ahasuerus [or Xerxes], in the beginning of his reign, [the S
 
 
 
-Later, in the days of King Artaxerxes, Bishlam, Mithredath, Tabeel, and the rest of their associates wrote to Artaxerxes king of Persia; and the letter was written in the Syrian _or_ Aramaic script and interpreted in that language. 
+Later, in the days of King Artaxerxes, Bishlam, Mithredath, Tabeel, and the rest of their associates wrote to Artaxerxes king of Persia; and the letter was written in the Syrian or Aramaic script and interpreted in that language. 
 
 
 

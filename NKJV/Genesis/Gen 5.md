@@ -16,7 +16,7 @@ This is the book of the genealogy of Adam. In the day that God created man, He m
 He created them male and female, and blessed them and called them Mankind in the day they were created. 
 
 ###### 3 
-And Adam lived one hundred and thirty years, and begot _a son_ in his own likeness, after his image, and named him Seth. 
+And Adam lived one hundred and thirty years, and begot a son in his own likeness, after his image, and named him Seth. 
 
 ###### 4 
 After he begot Seth, the days of Adam were eight hundred years; and he had sons and daughters. 
@@ -79,7 +79,7 @@ After he begot Methuselah, Enoch walked with God three hundred years, and had so
 So all the days of Enoch were three hundred and sixty-five years. 
 
 ###### 24 
-And Enoch walked with God; and he _was_ not, for God took him. 
+And Enoch walked with God; and he was not, for God took him. 
 
 ###### 25 
 Methuselah lived one hundred and eighty-seven years, and begot Lamech. 
@@ -94,7 +94,7 @@ So all the days of Methuselah were nine hundred and sixty-nine years; and he die
 Lamech lived one hundred and eighty-two years, and had a son. 
 
 ###### 29 
-And he called his name Noah, saying, "This _one_ will comfort us concerning our work and the toil of our hands, because of the ground which the Lord has cursed." 
+And he called his name Noah, saying, "This one will comfort us concerning our work and the toil of our hands, because of the ground which the Lord has cursed." 
 
 ###### 30 
 After he begot Noah, Lamech lived five hundred and ninety-five years, and had sons and daughters. 

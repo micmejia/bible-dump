@@ -70,7 +70,7 @@ Thus says the Lord God: Because the enemy has said over you, Aha! and, The ancie
 
 
 
-Therefore prophesy and say, Thus says the Lord God: Because, yes, because they made you a desolation, and they snapped after _and_ crushed you from every side so that you became the possession of the rest of the nations and you became the talk and evil gossip of the people, 
+Therefore prophesy and say, Thus says the Lord God: Because, yes, because they made you a desolation, and they snapped after and crushed you from every side so that you became the possession of the rest of the nations and you became the talk and evil gossip of the people, 
 
 
 
@@ -112,7 +112,7 @@ Therefore, O mountains of Israel, hear the word of the Lord God: Thus says the L
 
 
 
-Therefore thus says the Lord God: Surely in the fire of My hot jealousy have I spoken against the rest of the nations and against all Edom, who have given to themselves My land with wholehearted joy and with uttermost contempt, that they might empty it out _and_ possess it for a prey _and_ a spoil. 
+Therefore thus says the Lord God: Surely in the fire of My hot jealousy have I spoken against the rest of the nations and against all Edom, who have given to themselves My land with wholehearted joy and with uttermost contempt, that they might empty it out and possess it for a prey and a spoil. 
 
 
 
@@ -133,7 +133,7 @@ Therefore thus says the Lord God: Surely in the fire of My hot jealousy have I s
 
 
 
-Prophesy therefore concerning the land of Israel and say to the mountains and hills, to the ravines and valleys, Thus says the Lord God: Behold, I have spoken in My jealousy and in My wrath because you have suffered the shame _and_ reproach of the nations; 
+Prophesy therefore concerning the land of Israel and say to the mountains and hills, to the ravines and valleys, Thus says the Lord God: Behold, I have spoken in My jealousy and in My wrath because you have suffered the shame and reproach of the nations; 
 
 
 
@@ -154,7 +154,7 @@ Prophesy therefore concerning the land of Israel and say to the mountains and hi
 
 
 
-Therefore thus says the Lord God: I have lifted up My hand _and_ sworn, Surely the nations that are round about you shall themselves suffer shame and reproach. 
+Therefore thus says the Lord God: I have lifted up My hand and sworn, Surely the nations that are round about you shall themselves suffer shame and reproach. 
 
 
 
@@ -238,7 +238,7 @@ And I will multiply men upon you, the whole house of Israel, even all of it; the
 
 
 
-And I will multiply upon you man and beast, and they shall increase and be fruitful. And I will cause you to be inhabited according to your former estate and I will do better for you than at your beginnings; and you shall know, understand, _and_ realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
+And I will multiply upon you man and beast, and they shall increase and be fruitful. And I will cause you to be inhabited according to your former estate and I will do better for you than at your beginnings; and you shall know, understand, and realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
 
 
 
@@ -301,7 +301,7 @@ Thus says the Lord God: Because they say to you, You [O land] are a devourer of 
 
 
 
-Therefore you shall devour men no more, neither bereave your nation _or_ cause it to stumble any more, says the Lord God. 
+Therefore you shall devour men no more, neither bereave your nation or cause it to stumble any more, says the Lord God. 
 
 
 
@@ -322,7 +322,7 @@ Therefore you shall devour men no more, neither bereave your nation _or_ cause i
 
 
 
-Neither will I let you hear any more the reproach of the nations, nor shall you suffer the dishonor of the peoples any more, nor shall you cause your nation to stumble _and_ fall any more [through idolatry], says the Lord God. 
+Neither will I let you hear any more the reproach of the nations, nor shall you suffer the dishonor of the peoples any more, nor shall you cause your nation to stumble and fall any more [through idolatry], says the Lord God. 
 
 
 
@@ -406,7 +406,7 @@ So I poured out My wrath upon them for the blood that they had shed upon the lan
 
 
 
-And I scattered them among the nations, and they were dispersed through the countries; according to their conduct and their [idolatrous] deeds I judged _and_ punished them. 
+And I scattered them among the nations, and they were dispersed through the countries; according to their conduct and their [idolatrous] deeds I judged and punished them. 
 
 
 
@@ -448,7 +448,7 @@ And when they came to the nations to which they went, they profaned My holy name
 
 
 
-But I had regard, concern, _and_ compassion for My holy name, which the house of Israel had profaned among the nations to which they went. 
+But I had regard, concern, and compassion for My holy name, which the house of Israel had profaned among the nations to which they went. 
 
 
 
@@ -490,7 +490,7 @@ Therefore say to the house of Israel, Thus says the Lord God: I do not do this f
 
 
 
-And I will vindicate the holiness of My great name _and_ separate it for its holy purpose from all that defiles it--My name, which has been profaned among the nations, which you have profaned among them--and the nations will know, understand, _and_ realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service], when I shall be set apart by you _and_ My holiness vindicated in you before their eyes _and_ yours. 
+And I will vindicate the holiness of My great name and separate it for its holy purpose from all that defiles it--My name, which has been profaned among the nations, which you have profaned among them--and the nations will know, understand, and realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service], when I shall be set apart by you and My holiness vindicated in you before their eyes and yours. 
 
 
 
@@ -637,7 +637,7 @@ I will also save you from all your uncleannesses, and I will call forth the grai
 
 
 
-And I will multiply the fruit of the tree and the increase of the field, that you may no more suffer the reproach _and_ disgrace of famine among the nations. 
+And I will multiply the fruit of the tree and the increase of the field, that you may no more suffer the reproach and disgrace of famine among the nations. 
 
 
 
@@ -805,4 +805,4 @@ Thus says the Lord God: For this also I will let the house of Israel inquire of 
 
 
 
-Like the flock of holy things for sacrifice, like the flock of Jerusalem in her [solemn] appointed feasts, so shall the waste cities be filled with flocks of men; and they shall know, understand, _and_ realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service].
+Like the flock of holy things for sacrifice, like the flock of Jerusalem in her [solemn] appointed feasts, so shall the waste cities be filled with flocks of men; and they shall know, understand, and realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service].

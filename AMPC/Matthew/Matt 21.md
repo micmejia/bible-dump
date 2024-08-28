@@ -301,7 +301,7 @@ He said to them, The Scripture says, My house shall be called a house of prayer;
 
 
 
-And the blind and the lame came to Him in the porches _and_ courts of the temple, and He cured them. 
+And the blind and the lame came to Him in the porches and courts of the temple, and He cured them. 
 
 
 
@@ -322,7 +322,7 @@ And the blind and the lame came to Him in the porches _and_ courts of the temple
 
 
 
-But when the chief priests and the scribes saw the wonderful things that He did and the boys _and_ the girls _and_ the youths _and_ the maidens crying out in the porches _and_ courts of the temple, Hosanna (O be propitious, graciously inclined) to the Son of David! they were indignant. 
+But when the chief priests and the scribes saw the wonderful things that He did and the boys and the girls and the youths and the maidens crying out in the porches and courts of the temple, Hosanna (O be propitious, graciously inclined) to the Son of David! they were indignant. 
 
 
 
@@ -469,7 +469,7 @@ And Jesus answered them, Truly I say to you, if you have faith (a firm relying t
 
 
 
-And whatever you ask for in prayer, having faith _and_ [really] believing, you will receive. 
+And whatever you ask for in prayer, having faith and [really] believing, you will receive. 
 
 
 
@@ -532,7 +532,7 @@ Jesus answered them, I also will ask you a question, and if you give Me the answ
 
 
 
-The baptism of John--from where was it? From heaven or from men? And they reasoned _and_ argued with one another, If we say, From heaven, He will ask us, Why then did you not believe him? 
+The baptism of John--from where was it? From heaven or from men? And they reasoned and argued with one another, If we say, From heaven, He will ask us, Why then did you not believe him? 
 
 
 
@@ -553,7 +553,7 @@ The baptism of John--from where was it? From heaven or from men? And they reason
 
 
 
-But if we say, From men--we are afraid of _and_ must reckon with the multitude, for they all regard John as a prophet. 
+But if we say, From men--we are afraid of and must reckon with the multitude, for they all regard John as a prophet. 
 
 
 
@@ -784,7 +784,7 @@ Again he sent other servants, more than the first time, and they treated them th
 
 
 
-Finally he sent his own son to them, saying, They will respect _and_ give heed to my son. 
+Finally he sent his own son to them, saying, They will respect and give heed to my son. 
 
 
 
@@ -889,7 +889,7 @@ They said to Him, He will put those wretches to a miserable death and rent the v
 
 
 
-Jesus asked them, Have you never read in the Scriptures: The very Stone which the builders rejected _and_ threw away has become the Cornerstone; this is the Lord's doing, and it is marvelous in our eyes? 
+Jesus asked them, Have you never read in the Scriptures: The very Stone which the builders rejected and threw away has become the Cornerstone; this is the Lord's doing, and it is marvelous in our eyes? 
 
 
 
@@ -931,7 +931,7 @@ I tell you, for this reason the kingdom of God will be taken away from you and g
 
 
 
-_And whoever falls on this Stone will be broken to pieces, but he on whom It falls will be crushed to powder [and It will_ _winnow him_, _scattering him like dust]_. 
+And whoever falls on this Stone will be broken to pieces, but he on whom It falls will be crushed to powder [and It will winnow him, scattering him like dust]. 
 
 
 

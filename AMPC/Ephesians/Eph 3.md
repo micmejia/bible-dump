@@ -12,7 +12,7 @@ next: ['Eph 4']
 ###### 1 
 
 
-For this reason [because I preached that you are thus built up together], I, Paul, [am] the prisoner of Jesus the Christ for the sake _and_ on behalf of you Gentiles-- 
+For this reason [because I preached that you are thus built up together], I, Paul, [am] the prisoner of Jesus the Christ for the sake and on behalf of you Gentiles-- 
 
 
 ###### 2 
@@ -24,7 +24,7 @@ Assuming that you have heard of the stewardship of God's grace (His unmerited fa
 ###### 3 
 
 
-[And] that the mystery (secret) was made known to me _and_ I was allowed to comprehend it by direct revelation, as I already briefly wrote you. 
+[And] that the mystery (secret) was made known to me and I was allowed to comprehend it by direct revelation, as I already briefly wrote you. 
 
 
 ###### 4 
@@ -54,25 +54,25 @@ Of this [Gospel] I was made a minister according to the gift of God's free grace
 ###### 8 
 
 
-To me, though I am the very least of all the saints (God's consecrated people), this grace (favor, privilege) was granted _and_ graciously entrusted: to proclaim to the Gentiles the unending (boundless, fathomless, incalculable, and exhaustless) riches of Christ [wealth which no human being could have searched out], 
+To me, though I am the very least of all the saints (God's consecrated people), this grace (favor, privilege) was granted and graciously entrusted: to proclaim to the Gentiles the unending (boundless, fathomless, incalculable, and exhaustless) riches of Christ [wealth which no human being could have searched out], 
 
 
 ###### 9 
 
 
-Also to enlighten all men _and_ make plain to them what is the plan [regarding the Gentiles and providing for the salvation of all men] of the mystery kept hidden through the ages _and_ concealed until now in [the mind of] God Who created all things _by Christ Jesus_. 
+Also to enlighten all men and make plain to them what is the plan [regarding the Gentiles and providing for the salvation of all men] of the mystery kept hidden through the ages and concealed until now in [the mind of] God Who created all things by Christ Jesus. 
 
 
 ###### 10 
 
 
-[The purpose is] that through the church the complicated, many-sided wisdom of God in all its infinite variety _and_ innumerable aspects might now be made known to the angelic rulers and authorities (principalities and powers) in the heavenly sphere. 
+[The purpose is] that through the church the complicated, many-sided wisdom of God in all its infinite variety and innumerable aspects might now be made known to the angelic rulers and authorities (principalities and powers) in the heavenly sphere. 
 
 
 ###### 11 
 
 
-This is in accordance with the terms of the eternal _and_ timeless purpose which He has realized _and_ carried into effect in [the person of] Christ Jesus our Lord, 
+This is in accordance with the terms of the eternal and timeless purpose which He has realized and carried into effect in [the person of] Christ Jesus our Lord, 
 
 
 ###### 12 
@@ -90,7 +90,7 @@ So I ask you not to lose heart [not to faint or become despondent through fear] 
 ###### 14 
 
 
-For this reason [seeing the greatness of this plan by which you are built together in Christ], I bow my knees before the Father _of our Lord Jesus Christ_, 
+For this reason [seeing the greatness of this plan by which you are built together in Christ], I bow my knees before the Father of our Lord Jesus Christ, 
 
 
 ###### 15 
@@ -102,19 +102,19 @@ For Whom every family in heaven and on earth is named [that Father from Whom all
 ###### 16 
 
 
-May He grant you out of the rich treasury of His glory to be strengthened _and_ reinforced with mighty power in the inner man by the [Holy] Spirit [Himself indwelling your innermost being and personality]. 
+May He grant you out of the rich treasury of His glory to be strengthened and reinforced with mighty power in the inner man by the [Holy] Spirit [Himself indwelling your innermost being and personality]. 
 
 
 ###### 17 
 
 
-May Christ through your faith [actually] dwell (settle down, abide, make His permanent home) in your hearts! May you be rooted deep in love _and_ founded securely on love, 
+May Christ through your faith [actually] dwell (settle down, abide, make His permanent home) in your hearts! May you be rooted deep in love and founded securely on love, 
 
 
 ###### 18 
 
 
-That you may have the power _and_ be strong to apprehend _and_ grasp with all the saints [God's devoted people, the experience of that love] what is the breadth and length and height and depth [of it]; 
+That you may have the power and be strong to apprehend and grasp with all the saints [God's devoted people, the experience of that love] what is the breadth and length and height and depth [of it]; 
 
 
 ###### 19 
@@ -126,7 +126,7 @@ That you may have the power _and_ be strong to apprehend _and_ grasp with all th
 ###### 20 
 
 
-Now to Him Who, by (in consequence of) the [action of His] power that is at work within us, is able to [carry out His purpose and] do superabundantly, far over _and_ above all that we [dare] ask or think [infinitely beyond our highest prayers, desires, thoughts, hopes, or dreams]-- 
+Now to Him Who, by (in consequence of) the [action of His] power that is at work within us, is able to [carry out His purpose and] do superabundantly, far over and above all that we [dare] ask or think [infinitely beyond our highest prayers, desires, thoughts, hopes, or dreams]-- 
 
 
 ###### 21 

@@ -112,7 +112,7 @@ Again he sent other servants, saying, Tell those who are invited, Behold, I have
 
 
 
-But they were not concerned _and_ paid no attention [they ignored and made light of the summons, treating it with contempt] and they went away--one to his farm, another to his business, 
+But they were not concerned and paid no attention [they ignored and made light of the summons, treating it with contempt] and they went away--one to his farm, another to his business, 
 
 
 
@@ -301,7 +301,7 @@ Then the king said to the attendants, Tie him hand and foot, and throw him into 
 
 
 
-For many are called (invited and summoned), but few _are_ chosen. 
+For many are called (invited and summoned), but few are chosen. 
 
 
 
@@ -322,7 +322,7 @@ For many are called (invited and summoned), but few _are_ chosen.
 
 
 
-Then the Pharisees went and consulted _and_ plotted together how they might entangle Jesus in His talk. 
+Then the Pharisees went and consulted and plotted together how they might entangle Jesus in His talk. 
 
 
 
@@ -343,7 +343,7 @@ Then the Pharisees went and consulted _and_ plotted together how they might enta
 
 
 
-And they sent their disciples to Him along with the Herodians, saying, Teacher, we know that You are sincere _and_ what You profess to be and that You teach the way of God truthfully, regardless of consequences _and_ being afraid of no man; for You are impartial _and_ do not regard either the person _or_ the position of anyone. 
+And they sent their disciples to Him along with the Herodians, saying, Teacher, we know that You are sincere and what You profess to be and that You teach the way of God truthfully, regardless of consequences and being afraid of no man; for You are impartial and do not regard either the person or the position of anyone. 
 
 
 
@@ -385,7 +385,7 @@ Tell us then what You think about this: Is it lawful to pay tribute [levied on i
 
 
 
-But Jesus, aware of their malicious plot, asked, Why do you put Me to the test _and_ try to entrap Me, you pretenders (hypocrites)? 
+But Jesus, aware of their malicious plot, asked, Why do you put Me to the test and try to entrap Me, you pretenders (hypocrites)? 
 
 
 
@@ -406,7 +406,7 @@ But Jesus, aware of their malicious plot, asked, Why do you put Me to the test _
 
 
 
-Show me the money _used_ for the tribute. And they brought Him a denarius. 
+Show me the money used for the tribute. And they brought Him a denarius. 
 
 
 
@@ -469,7 +469,7 @@ They said, Caesar's. Then He said to them, Pay therefore to Caesar the things th
 
 
 
-When they heard it they were amazed _and_ marveled; and they left Him and departed. 
+When they heard it they were amazed and marveled; and they left Him and departed. 
 
 
 
@@ -700,7 +700,7 @@ I am the God of Abraham, and the God of Isaac, and the God of Jacob? He is not t
 
 
 
-And when the throng heard it, they were astonished _and_ filled with [glad] amazement at His teaching. 
+And when the throng heard it, they were astonished and filled with [glad] amazement at His teaching. 
 
 
 
@@ -847,7 +847,7 @@ And a second is like it: You shall love your neighbor as [you do] yourself.
 
 
 
-These two commandments sum up _and_ upon them depend all the Law and the Prophets. 
+These two commandments sum up and upon them depend all the Law and the Prophets. 
 
 
 
@@ -973,4 +973,4 @@ If then David thus calls Him Lord, how is He his Son?
 
 
 
-And no one was able to answer Him a word, nor from that day did anyone venture _or_ dare to question Him.
+And no one was able to answer Him a word, nor from that day did anyone venture or dare to question Him.

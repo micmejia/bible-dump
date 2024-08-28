@@ -70,7 +70,7 @@ And also some women who had been cured of evil spirits and diseases: Mary, calle
 
 
 
-And Joanna, the wife of Chuza, Herod's household manager; and Susanna; and many others, who ministered to _and_ provided for _Him and_ them out of their property _and_ personal belongings. 
+And Joanna, the wife of Chuza, Herod's household manager; and Susanna; and many others, who ministered to and provided for Him and them out of their property and personal belongings. 
 
 
 
@@ -175,7 +175,7 @@ And other [seed] fell in the midst of the thorns, and the thorns grew up with it
 
 
 
-And some seed fell into good soil, and grew up and yielded a crop a hundred times [as great]. As He said these things, He called out, He who has ears to hear, let him be listening _and_ let him consider _and_ understand by hearing! 
+And some seed fell into good soil, and grew up and yielded a crop a hundred times [as great]. As He said these things, He called out, He who has ears to hear, let him be listening and let him consider and understand by hearing! 
 
 
 
@@ -217,7 +217,7 @@ And when His disciples asked Him the meaning of this parable,
 
 
 
-He said to them, To you it has been given to [come progressively to] know (to recognize and understand more strongly and clearly) the mysteries _and_ secrets of the kingdom of God, but for others they are in parables, so that, [though] looking, they may not see; and hearing, they may not comprehend. 
+He said to them, To you it has been given to [come progressively to] know (to recognize and understand more strongly and clearly) the mysteries and secrets of the kingdom of God, but for others they are in parables, so that, [though] looking, they may not see; and hearing, they may not comprehend. 
 
 
 
@@ -280,7 +280,7 @@ Those along the traveled road are the people who have heard; then the devil come
 
 
 
-And those upon the rock [are the people] who, when they hear [the Word], receive _and_ welcome it with joy; but these have no root. They believe for a while, and in time of trial _and_ temptation fall away (withdraw and stand aloof). 
+And those upon the rock [are the people] who, when they hear [the Word], receive and welcome it with joy; but these have no root. They believe for a while, and in time of trial and temptation fall away (withdraw and stand aloof). 
 
 
 
@@ -301,7 +301,7 @@ And those upon the rock [are the people] who, when they hear [the Word], receive
 
 
 
-And as for what fell among the thorns, these are [the people] who hear, but as they go on their way they are choked _and_ suffocated with the anxieties _and_ cares and riches and pleasures of life, and their fruit does not ripen (come to maturity and perfection). 
+And as for what fell among the thorns, these are [the people] who hear, but as they go on their way they are choked and suffocated with the anxieties and cares and riches and pleasures of life, and their fruit does not ripen (come to maturity and perfection). 
 
 
 
@@ -385,7 +385,7 @@ For there is nothing hidden that shall not be disclosed, nor anything secret tha
 
 
 
-Be careful therefore how you listen. For to him who has [spiritual knowledge] will more be given; and from him who does not have [spiritual knowledge], even what he thinks _and_ guesses _and_ supposes that he has will be taken away. 
+Be careful therefore how you listen. For to him who has [spiritual knowledge] will more be given; and from him who does not have [spiritual knowledge], even what he thinks and guesses and supposes that he has will be taken away. 
 
 
 
@@ -511,7 +511,7 @@ But as they were sailing, He fell off to sleep. And a  whirlwind revolving from 
 
 
 
-And the disciples came and woke Him, saying, Master, Master, we are perishing! And He, being thoroughly awakened, censured _and_ blamed _and_ rebuked the wind and the raging waves; and they ceased, and there came a calm. 
+And the disciples came and woke Him, saying, Master, Master, we are perishing! And He, being thoroughly awakened, censured and blamed and rebuked the wind and the raging waves; and they ceased, and there came a calm. 
 
 
 
@@ -532,7 +532,7 @@ And the disciples came and woke Him, saying, Master, Master, we are perishing! A
 
 
 
-And He said to them, [Why are you so fearful?] Where is your faith (your trust, your confidence in Me--in My veracity and My integrity)? And they were seized with alarm _and_ profound _and_ reverent dread, and they marveled, saying to one another, Who then is this, that He commands even wind and sea, and they obey Him? 
+And He said to them, [Why are you so fearful?] Where is your faith (your trust, your confidence in Me--in My veracity and My integrity)? And they were seized with alarm and profound and reverent dread, and they marveled, saying to one another, Who then is this, that He commands even wind and sea, and they obey Him? 
 
 
 
@@ -616,7 +616,7 @@ And when he saw Jesus, he raised a deep (terrible) cry [from the depths of his t
 
 
 
-For Jesus was already commanding the unclean spirit to come out of the man. For many times it had snatched _and_ held him; he was kept under guard and bound with chains and fetters, but he would break the bonds and be driven by the demon into the wilderness (desert). 
+For Jesus was already commanding the unclean spirit to come out of the man. For many times it had snatched and held him; he was kept under guard and bound with chains and fetters, but he would break the bonds and be driven by the demon into the wilderness (desert). 
 
 
 
@@ -742,7 +742,7 @@ When the herdsmen saw what had happened, they ran away and told it in the town a
 
 
 
-And [people] went out to see what had occurred, and they came to Jesus and found the man from whom the demons had gone out, sitting at the feet of Jesus, clothed and in his right (sound) mind; and they were seized with alarm _and_ fear. 
+And [people] went out to see what had occurred, and they came to Jesus and found the man from whom the demons had gone out, sitting at the feet of Jesus, clothed and in his right (sound) mind; and they were seized with alarm and fear. 
 
 
 
@@ -784,7 +784,7 @@ And those [also] who had seen it told them how he who had been possessed with de
 
 
 
-Then all the people of the country surrounding the Gerasenes' district asked [Jesus] to depart from them, for they were possessed _and_ suffering with dread _and_ terror; so He entered a boat and returned [to the west side of the Sea of Galilee]. 
+Then all the people of the country surrounding the Gerasenes' district asked [Jesus] to depart from them, for they were possessed and suffering with dread and terror; so He entered a boat and returned [to the west side of the Sea of Galilee]. 
 
 
 
@@ -805,7 +805,7 @@ Then all the people of the country surrounding the Gerasenes' district asked [Je
 
 
 
-But the man from whom the demons had gone out kept begging _and_ praying that he might accompany Him _and_ be with Him, but [Jesus] sent him away, saying, 
+But the man from whom the demons had gone out kept begging and praying that he might accompany Him and be with Him, but [Jesus] sent him away, saying, 
 
 
 
@@ -826,7 +826,7 @@ But the man from whom the demons had gone out kept begging _and_ praying that he
 
 
 
-Return to your home, and recount [the story] of how many _and_ great things God has done for you. And [the man] departed, proclaiming throughout the whole city how much Jesus had done for him. 
+Return to your home, and recount [the story] of how many and great things God has done for you. And [the man] departed, proclaiming throughout the whole city how much Jesus had done for him. 
 
 
 
@@ -847,7 +847,7 @@ Return to your home, and recount [the story] of how many _and_ great things God 
 
 
 
-Now when Jesus came back [to Galilee], the crowd received _and_ welcomed Him gladly, for they were all waiting _and_ looking for Him. 
+Now when Jesus came back [to Galilee], the crowd received and welcomed Him gladly, for they were all waiting and looking for Him. 
 
 
 
@@ -910,7 +910,7 @@ For he had an only daughter, about twelve years of age, and she was dying. As [J
 
 
 
-And a woman who had suffered from a flow of blood for twelve years _and had spent all her living upon physicians_, and could not be healed by anyone, 
+And a woman who had suffered from a flow of blood for twelve years and had spent all her living upon physicians, and could not be healed by anyone, 
 
 
 
@@ -952,7 +952,7 @@ Came up behind Him and touched the fringe of His garment, and immediately her fl
 
 
 
-And Jesus said, Who is it who touched Me? When all were denying it, Peter _and those who were with him_ said, Master, the multitudes surround You _and_ press You on every side! 
+And Jesus said, Who is it who touched Me? When all were denying it, Peter and those who were with him said, Master, the multitudes surround You and press You on every side! 
 
 
 
@@ -1036,7 +1036,7 @@ And He said to her, Daughter, your faith (your confidence and trust in Me) has m
 
 
 
-While He was still speaking, a man from the house of the director of the synagogue came and said [to Jairus], Your daughter is dead; do not weary _and_ trouble the Teacher any further. 
+While He was still speaking, a man from the house of the director of the synagogue came and said [to Jairus], Your daughter is dead; do not weary and trouble the Teacher any further. 
 
 
 
@@ -1057,7 +1057,7 @@ While He was still speaking, a man from the house of the director of the synagog
 
 
 
-But Jesus, on hearing this, answered him, Do not be seized with alarm _or_ struck with fear; simply believe [in Me as able to do this], and she shall be made well. 
+But Jesus, on hearing this, answered him, Do not be seized with alarm or struck with fear; simply believe [in Me as able to do this], and she shall be made well. 
 
 
 

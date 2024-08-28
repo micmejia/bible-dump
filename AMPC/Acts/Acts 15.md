@@ -70,7 +70,7 @@ And when Paul and Barnabas had no small disagreement and discussion with them, i
 
 
 
-So, being fitted out _and_ sent on their way by the church, they went through both Phoenicia and Samaria telling of the conversion of the Gentiles (the heathen), and they caused great rejoicing among all the brethren. 
+So, being fitted out and sent on their way by the church, they went through both Phoenicia and Samaria telling of the conversion of the Gentiles (the heathen), and they caused great rejoicing among all the brethren. 
 
 
 
@@ -133,7 +133,7 @@ But some who believed [who acknowledged Jesus as their Savior and devoted themse
 
 
 
-The apostles and the elders were assembled together to look into _and_ consider this matter. 
+The apostles and the elders were assembled together to look into and consider this matter. 
 
 
 
@@ -154,7 +154,7 @@ The apostles and the elders were assembled together to look into _and_ consider 
 
 
 
-And after there had been a long debate, Peter got up and said to them, Brethren, you know that quite a while ago God made a choice _or_ selection from among you, that by my mouth the Gentiles should hear the message of the Gospel [concerning the attainment through Christ of salvation in the kingdom of God] and believe (credit and place their confidence in it). 
+And after there had been a long debate, Peter got up and said to them, Brethren, you know that quite a while ago God made a choice or selection from among you, that by my mouth the Gentiles should hear the message of the Gospel [concerning the attainment through Christ of salvation in the kingdom of God] and believe (credit and place their confidence in it). 
 
 
 
@@ -175,7 +175,7 @@ And after there had been a long debate, Peter got up and said to them, Brethren,
 
 
 
-And God, Who is acquainted with _and_ understands the heart, bore witness to them, giving them the Holy Spirit as He also did to us; 
+And God, Who is acquainted with and understands the heart, bore witness to them, giving them the Holy Spirit as He also did to us; 
 
 
 
@@ -406,7 +406,7 @@ Says the Lord, Who has been making these things known from the beginning of the 
 
 
 
-Therefore it is my opinion that we should not put obstacles in the way of _and_ annoy _and_ disturb those of the Gentiles who turn to God, 
+Therefore it is my opinion that we should not put obstacles in the way of and annoy and disturb those of the Gentiles who turn to God, 
 
 
 
@@ -427,7 +427,7 @@ Therefore it is my opinion that we should not put obstacles in the way of _and_ 
 
 
 
-But we should send word to them in writing to abstain from _and_ avoid anything that has been polluted by being offered to idols, and all sexual impurity, and [eating meat of animals] that have been strangled, and [tasting of] blood. 
+But we should send word to them in writing to abstain from and avoid anything that has been polluted by being offered to idols, and all sexual impurity, and [eating meat of animals] that have been strangled, and [tasting of] blood. 
 
 
 
@@ -469,7 +469,7 @@ For from ancient generations Moses has had his preachers in every town, for he i
 
 
 
-Then the apostles and the elders, together with the whole church, resolved to select men from among their number and send them to Antioch with Paul and Barnabas. They chose Judas called Barsabbas, and Silas, [both] leading men among the brethren, _and_ sent them. 
+Then the apostles and the elders, together with the whole church, resolved to select men from among their number and send them to Antioch with Paul and Barnabas. They chose Judas called Barsabbas, and Silas, [both] leading men among the brethren, and sent them. 
 
 
 
@@ -511,7 +511,7 @@ With [them they sent] the following letter: The brethren, both the apostles and 
 
 
 
-As we have heard that some persons from our number have disturbed you with their teaching, unsettling your minds _and_ throwing you into confusion, although we gave them no express orders _or_ instructions [on the points in question], 
+As we have heard that some persons from our number have disturbed you with their teaching, unsettling your minds and throwing you into confusion, although we gave them no express orders or instructions [on the points in question], 
 
 
 
@@ -658,7 +658,7 @@ So when [the messengers] were sent off, they went down to Antioch; and having as
 
 
 
-And when they read it, the people rejoiced at the consolation _and_ encouragement [it brought them]. 
+And when they read it, the people rejoiced at the consolation and encouragement [it brought them]. 
 
 
 
@@ -679,7 +679,7 @@ And when they read it, the people rejoiced at the consolation _and_ encouragemen
 
 
 
-And Judas and Silas, who were themselves prophets (inspired interpreters of the will and purposes of God), urged _and_ warned _and_ consoled _and_ encouraged the brethren with many words and strengthened them. 
+And Judas and Silas, who were themselves prophets (inspired interpreters of the will and purposes of God), urged and warned and consoled and encouraged the brethren with many words and strengthened them. 
 
 
 
@@ -721,7 +721,7 @@ And after spending some time there, they were sent back by the brethren with [th
 
 
 
-_However, Silas decided to stay on there._ 
+However, Silas decided to stay on there. 
 
 
 
@@ -763,7 +763,7 @@ But Paul and Barnabas remained in Antioch and with many others also continued te
 
 
 
-And after some time Paul said to Barnabas, Come, let us go back and again visit _and_ help _and_ minister to the brethren in every town where we made known the message of the Lord, and see how they are getting along. 
+And after some time Paul said to Barnabas, Come, let us go back and again visit and help and minister to the brethren in every town where we made known the message of the Lord, and see how they are getting along. 
 
 
 
@@ -805,7 +805,7 @@ Now Barnabas wanted to take with them John called Mark [his near relative].
 
 
 
-But Paul did not think it best to have along with them the one who had quit _and_ deserted them in Pamphylia and had not gone on with them to the work. 
+But Paul did not think it best to have along with them the one who had quit and deserted them in Pamphylia and had not gone on with them to the work. 
 
 
 
@@ -868,4 +868,4 @@ But Paul selected Silas and set out, being commended by the brethren to the grac
 
 
 
-And he passed through Syria and Cilicia, establishing _and_ strengthening the churches.
+And he passed through Syria and Cilicia, establishing and strengthening the churches.

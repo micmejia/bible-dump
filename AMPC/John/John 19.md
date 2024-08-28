@@ -154,7 +154,7 @@ When the chief priests and attendants (guards) saw Him, they cried out, Crucify 
 
 
 
-The Jews answered him, We have a law, and according to that law He should die, because He has claimed _and_ made Himself out to be the Son of God. 
+The Jews answered him, We have a law, and according to that law He should die, because He has claimed and made Himself out to be the Son of God. 
 
 
 
@@ -175,7 +175,7 @@ The Jews answered him, We have a law, and according to that law He should die, b
 
 
 
-So, when Pilate heard this said, he was more alarmed _and_ awestricken _and_ afraid than before. 
+So, when Pilate heard this said, he was more alarmed and awestricken and afraid than before. 
 
 
 
@@ -238,7 +238,7 @@ So Pilate said to Him, Will You not speak [even] to me? Do You not know that I h
 
 
 
-Jesus answered, You would not have any power _or_ authority whatsoever against (over) Me if it were not given you from above. For this reason the sin _and_ guilt of the one who delivered Me over to you is greater. 
+Jesus answered, You would not have any power or authority whatsoever against (over) Me if it were not given you from above. For this reason the sin and guilt of the one who delivered Me over to you is greater. 
 
 
 
@@ -364,7 +364,7 @@ Then he delivered Him over to them to be crucified.
 
 
 
-And they took Jesus _and_ led [Him] away; so He went out, bearing His own cross, to the spot called The Place of the Skull--in Hebrew it is called Golgotha. 
+And they took Jesus and led [Him] away; so He went out, bearing His own cross, to the spot called The Place of the Skull--in Hebrew it is called Golgotha. 
 
 
 
@@ -658,7 +658,7 @@ When Jesus had received the sour wine, He said, It is finished! And He bowed His
 
 
 
-Since it was the day of Preparation, in order to prevent the bodies from hanging on the cross on the Sabbath--for that Sabbath was a very solemn _and_ important one--the Jews requested Pilate to have the legs broken and the bodies taken away. 
+Since it was the day of Preparation, in order to prevent the bodies from hanging on the cross on the Sabbath--for that Sabbath was a very solemn and important one--the Jews requested Pilate to have the legs broken and the bodies taken away. 
 
 
 

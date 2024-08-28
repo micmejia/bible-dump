@@ -112,7 +112,7 @@ And He shall stand and feed His flock in the strength of the Lord, in the majest
 
 
 
-And this [One] shall be our peace. When the Assyrian comes into our land and treads upon our soil _and_ in our palaces, then will we raise against him seven shepherds and eight princes among men. 
+And this [One] shall be our peace. When the Assyrian comes into our land and treads upon our soil and in our palaces, then will we raise against him seven shepherds and eight princes among men. 
 
 
 
@@ -133,7 +133,7 @@ And this [One] shall be our peace. When the Assyrian comes into our land and tre
 
 
 
-And they shall rule _and_ waste the land of Assyria with the sword and the land of Nimrod within her [Assyria's own] gates. Thus shall He [the Messiah] deliver us from the Assyrian [representing the opposing powers] when he comes into our land and when he treads on our borders. 
+And they shall rule and waste the land of Assyria with the sword and the land of Nimrod within her [Assyria's own] gates. Thus shall He [the Messiah] deliver us from the Assyrian [representing the opposing powers] when he comes into our land and when he treads on our borders. 
 
 
 
@@ -259,7 +259,7 @@ And I will cut off the cities of your land and throw down all your strongholds.
 
 
 
-And I will cut off witchcrafts _and_ sorceries from your hand, and you shall have no more soothsayers. 
+And I will cut off witchcrafts and sorceries from your hand, and you shall have no more soothsayers. 
 
 
 
@@ -280,7 +280,7 @@ And I will cut off witchcrafts _and_ sorceries from your hand, and you shall hav
 
 
 
-Your carved images also I will cut off and your statues _or_ pillars out of your midst, and you shall no more worship the work of your hands. 
+Your carved images also I will cut off and your statues or pillars out of your midst, and you shall no more worship the work of your hands. 
 
 
 

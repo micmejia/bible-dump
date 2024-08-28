@@ -49,7 +49,7 @@ And Jesus, getting into a boat, crossed to the other side and came to His own to
 
 
 
-And behold, they brought to Him a man paralyzed _and_ prostrated by illness, lying on a sleeping pad; and when Jesus saw their faith, He said to the paralyzed man, Take courage, son; your sins are forgiven _and_ the penalty remitted. 
+And behold, they brought to Him a man paralyzed and prostrated by illness, lying on a sleeping pad; and when Jesus saw their faith, He said to the paralyzed man, Take courage, son; your sins are forgiven and the penalty remitted. 
 
 
 
@@ -91,7 +91,7 @@ And behold, some of the scribes said to themselves, This man blasphemes [He clai
 
 
 
-But Jesus, knowing (seeing) their thoughts, said, Why do you think evil _and_ harbor malice in your hearts? 
+But Jesus, knowing (seeing) their thoughts, said, Why do you think evil and harbor malice in your hearts? 
 
 
 
@@ -112,7 +112,7 @@ But Jesus, knowing (seeing) their thoughts, said, Why do you think evil _and_ ha
 
 
 
-For which is easier: to say, Your sins are forgiven _and_ the penalty remitted, or to say, Get up and walk? 
+For which is easier: to say, Your sins are forgiven and the penalty remitted, or to say, Get up and walk? 
 
 
 
@@ -133,7 +133,7 @@ For which is easier: to say, Your sins are forgiven _and_ the penalty remitted, 
 
 
 
-But in order that you may know that the Son of Man has authority on earth to forgive sins _and_ remit the penalty, He then said to the paralyzed man, Get up! Pick up your sleeping pad and go to your own house. 
+But in order that you may know that the Son of Man has authority on earth to forgive sins and remit the penalty, He then said to the paralyzed man, Get up! Pick up your sleeping pad and go to your own house. 
 
 
 
@@ -175,7 +175,7 @@ And he got up and went away to his own house.
 
 
 
-When the crowds saw it, they were struck with fear _and_ awe; and they recognized God _and_ praised _and_ thanked Him, Who had given such power _and_ authority to men. 
+When the crowds saw it, they were struck with fear and awe; and they recognized God and praised and thanked Him, Who had given such power and authority to men. 
 
 
 
@@ -259,7 +259,7 @@ And when the Pharisees saw this, they said to His disciples, Why does your Maste
 
 
 
-But when Jesus heard it, He replied, Those who are strong _and_ well (healthy) have no need of a physician, but those who are weak _and_ sick. 
+But when Jesus heard it, He replied, Those who are strong and well (healthy) have no need of a physician, but those who are weak and sick. 
 
 
 
@@ -280,7 +280,7 @@ But when Jesus heard it, He replied, Those who are strong _and_ well (healthy) h
 
 
 
-Go and learn what this means: I desire mercy [that is, readiness to help those in trouble] and not sacrifice _and_ sacrificial victims. For I came not to call _and_ invite [to repentance] the righteous (those who are upright and in right standing with God), but sinners (the erring ones and all those not free from sin). 
+Go and learn what this means: I desire mercy [that is, readiness to help those in trouble] and not sacrifice and sacrificial victims. For I came not to call and invite [to repentance] the righteous (those who are upright and in right standing with God), but sinners (the erring ones and all those not free from sin). 
 
 
 
@@ -301,7 +301,7 @@ Go and learn what this means: I desire mercy [that is, readiness to help those i
 
 
 
-Then the disciples of John came to Jesus, inquiring, Why is it that we and the Pharisees fast _often_, [that is, abstain from food and drink as a religious exercise], but Your disciples do not fast? 
+Then the disciples of John came to Jesus, inquiring, Why is it that we and the Pharisees fast often, [that is, abstain from food and drink as a religious exercise], but Your disciples do not fast? 
 
 
 
@@ -490,7 +490,7 @@ Jesus turned around and, seeing her, He said, Take courage, daughter! Your faith
 
 
 
-And when Jesus came to the ruler's house and saw the flute players and the crowd making an uproar _and_ din, 
+And when Jesus came to the ruler's house and saw the flute players and the crowd making an uproar and din, 
 
 
 
@@ -511,7 +511,7 @@ And when Jesus came to the ruler's house and saw the flute players and the crowd
 
 
 
-He said, Go away; for the girl is not dead but sleeping. And they laughed _and_ jeered at Him. 
+He said, Go away; for the girl is not dead but sleeping. And they laughed and jeered at Him. 
 
 
 
@@ -574,7 +574,7 @@ And the news about this spread through all that district.
 
 
 
-As Jesus passed on from there, two blind men followed Him, shouting loudly, Have pity _and_ mercy on us, Son of David! 
+As Jesus passed on from there, two blind men followed Him, shouting loudly, Have pity and mercy on us, Son of David! 
 
 
 
@@ -616,7 +616,7 @@ When He reached the house and went in, the blind men came to Him, and Jesus said
 
 
 
-Then He touched their eyes, saying, According to your faith _and_ trust _and_ reliance [on the power invested in Me] be it done to you; 
+Then He touched their eyes, saying, According to your faith and trust and reliance [on the power invested in Me] be it done to you; 
 
 
 
@@ -637,7 +637,7 @@ Then He touched their eyes, saying, According to your faith _and_ trust _and_ re
 
 
 
-And their eyes were opened. And Jesus earnestly _and_ sternly charged them, See that you let no one know about this. 
+And their eyes were opened. And Jesus earnestly and sternly charged them, See that you let no one know about this. 
 
 
 
@@ -658,7 +658,7 @@ And their eyes were opened. And Jesus earnestly _and_ sternly charged them, See 
 
 
 
-But they went off and blazed _and_ spread His fame abroad throughout that whole district. 
+But they went off and blazed and spread His fame abroad throughout that whole district. 
 
 
 
@@ -721,7 +721,7 @@ And when the demon was driven out, the dumb man spoke; and the crowds were stunn
 
 
 
-But the Pharisees said, He drives out demons through _and_ with the help of the prince of demons. 
+But the Pharisees said, He drives out demons through and with the help of the prince of demons. 
 
 
 
@@ -742,7 +742,7 @@ But the Pharisees said, He drives out demons through _and_ with the help of the 
 
 
 
-And Jesus went about all the cities and villages, teaching in their synagogues and proclaiming the good news (the Gospel) of the kingdom and curing all kinds of disease and every weakness _and_ infirmity. 
+And Jesus went about all the cities and villages, teaching in their synagogues and proclaiming the good news (the Gospel) of the kingdom and curing all kinds of disease and every weakness and infirmity. 
 
 
 
@@ -763,7 +763,7 @@ And Jesus went about all the cities and villages, teaching in their synagogues a
 
 
 
-When He saw the throngs, He was moved with pity _and_ sympathy for them, because they were bewildered (harassed and distressed and dejected and helpless), like sheep without a shepherd. 
+When He saw the throngs, He was moved with pity and sympathy for them, because they were bewildered (harassed and distressed and dejected and helpless), like sheep without a shepherd. 
 
 
 
@@ -805,4 +805,4 @@ Then He said to His disciples, The harvest is indeed plentiful, but the laborers
 
 
 
-So pray to the Lord of the harvest to force out _and_ thrust laborers into His harvest.
+So pray to the Lord of the harvest to force out and thrust laborers into His harvest.

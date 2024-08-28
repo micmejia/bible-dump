@@ -175,7 +175,7 @@ They wrote: To Darius the king: All peace.
 
 
 
-Be it known to the king that we went to the province of Judah, to the house of the great God. It is being built with huge stones, with timber laid in the walls; this work goes on with diligence _and_ care and prospers in their hands. 
+Be it known to the king that we went to the province of Judah, to the house of the great God. It is being built with huge stones, with timber laid in the walls; this work goes on with diligence and care and prospers in their hands. 
 
 
 

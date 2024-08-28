@@ -70,7 +70,7 @@ You shall speak all that I command you, and Aaron your brother shall tell Pharao
 
 
 
-And I will make Pharaoh's heart stubborn _and_ hard, and multiply My signs, My wonders, _and_ miracles in the land of Egypt. 
+And I will make Pharaoh's heart stubborn and hard, and multiply My signs, My wonders, and miracles in the land of Egypt. 
 
 
 
@@ -238,7 +238,7 @@ So Moses and Aaron went to Pharaoh and did as the Lord had commanded; Aaron thre
 
 
 
-Then Pharaoh called for the wise men [skilled in magic and divination] and the sorcerers (wizards and jugglers). And they also, these magicians of Egypt, did similar things with their enchantments _and_ secret arts. 
+Then Pharaoh called for the wise men [skilled in magic and divination] and the sorcerers (wizards and jugglers). And they also, these magicians of Egypt, did similar things with their enchantments and secret arts. 
 
 
 
@@ -280,7 +280,7 @@ For they cast down every man his rod and they became serpents; but Aaron's rod s
 
 
 
-But Pharaoh's heart was hardened _and_ stubborn and he would not listen to them, just as the Lord had said. 
+But Pharaoh's heart was hardened and stubborn and he would not listen to them, just as the Lord had said. 
 
 
 
@@ -301,7 +301,7 @@ But Pharaoh's heart was hardened _and_ stubborn and he would not listen to them,
 
 
 
-Then the Lord said to Moses, Pharaoh's heart is hard _and_ stubborn; he refuses to let the people go. 
+Then the Lord said to Moses, Pharaoh's heart is hard and stubborn; he refuses to let the people go. 
 
 
 
@@ -364,7 +364,7 @@ And say to him, The Lord, the God of the Hebrews has sent me to you, saying, Let
 
 
 
-Thus says the Lord, In this you shall know, recognize, _and_ understand that I am the Lord: behold, I will smite with the rod in my hand the waters in the [Nile] River, and they shall be turned to blood. 
+Thus says the Lord, In this you shall know, recognize, and understand that I am the Lord: behold, I will smite with the rod in my hand the waters in the [Nile] River, and they shall be turned to blood. 
 
 
 
@@ -469,7 +469,7 @@ And the fish in the river died; and the river became foul smelling, and the Egyp
 
 
 
-But the magicians of Egypt did the same by their enchantments _and_ secret arts; and Pharaoh's heart was made hard _and_ obstinate, and he did not listen to Moses and Aaron, just as the Lord had said. 
+But the magicians of Egypt did the same by their enchantments and secret arts; and Pharaoh's heart was made hard and obstinate, and he did not listen to Moses and Aaron, just as the Lord had said. 
 
 
 

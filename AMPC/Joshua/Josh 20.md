@@ -154,7 +154,7 @@ And he shall dwell in that city until he has been tried before the congregation 
 
 
 
-And they set apart _and_ consecrated Kedesh in Galilee in the hill country of Naphtali and Shechem in the hill country of Ephraim and Kiriath-arba (that is, Hebron) in the hill country of Judah. 
+And they set apart and consecrated Kedesh in Galilee in the hill country of Naphtali and Shechem in the hill country of Ephraim and Kiriath-arba (that is, Hebron) in the hill country of Judah. 
 
 
 

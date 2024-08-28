@@ -28,7 +28,7 @@ And Jacob heard that he had defiled Dinah his daughter. Now his sons were with h
 Then Hamor the father of Shechem went out to Jacob to speak with him. 
 
 ###### 7 
-And the sons of Jacob came in from the field when they heard _it;_ and the men were grieved and very angry, because he had done a disgraceful thing in Israel by lying with Jacob's daughter, a thing which ought not to be done. 
+And the sons of Jacob came in from the field when they heard it; and the men were grieved and very angry, because he had done a disgraceful thing in Israel by lying with Jacob's daughter, a thing which ought not to be done. 
 
 ###### 8 
 But Hamor spoke with them, saying, "The soul of my son Shechem longs for your daughter. Please give her to him as a wife. 
@@ -49,10 +49,10 @@ Ask me ever so much dowry and gift, and I will give according to what you say to
 But the sons of Jacob answered Shechem and Hamor his father, and spoke deceitfully, because he had defiled Dinah their sister. 
 
 ###### 14 
-And they said to them, "We cannot do this thing, to give our sister to one who is uncircumcised, for that _would be_ a reproach to us. 
+And they said to them, "We cannot do this thing, to give our sister to one who is uncircumcised, for that would be a reproach to us. 
 
 ###### 15 
-But on this _condition_ we will consent to you: If you will become as we _are,_ if every male of you is circumcised, 
+But on this condition we will consent to you: If you will become as we are, if every male of you is circumcised, 
 
 ###### 16 
 then we will give our daughters to you, and we will take your daughters to us; and we will dwell with you, and we will become one people. 
@@ -64,19 +64,19 @@ But if you will not heed us and be circumcised, then we will take our daughter a
 And their words pleased Hamor and Shechem, Hamor's son. 
 
 ###### 19 
-So the young man did not delay to do the thing, because he delighted in Jacob's daughter. He _was_ more honorable than all the household of his father. 
+So the young man did not delay to do the thing, because he delighted in Jacob's daughter. He was more honorable than all the household of his father. 
 
 ###### 20 
 And Hamor and Shechem his son came to the gate of their city, and spoke with the men of their city, saying: 
 
 ###### 21 
-"These men _are_ at peace with us. Therefore let them dwell in the land and trade in it. For indeed the land _is_ large enough for them. Let us take their daughters to us as wives, and let us give them our daughters. 
+"These men are at peace with us. Therefore let them dwell in the land and trade in it. For indeed the land is large enough for them. Let us take their daughters to us as wives, and let us give them our daughters. 
 
 ###### 22 
-Only on this _condition_ will the men consent to dwell with us, to be one people: if every male among us is circumcised as they _are_ circumcised. 
+Only on this condition will the men consent to dwell with us, to be one people: if every male among us is circumcised as they are circumcised. 
 
 ###### 23 
-_Will_ not their livestock, their property, and every animal of theirs _be_ ours? Only let us consent to them, and they will dwell with us." 
+Will not their livestock, their property, and every animal of theirs be ours? Only let us consent to them, and they will dwell with us." 
 
 ###### 24 
 And all who went out of the gate of his city heeded Hamor and Shechem his son; every male was circumcised, all who went out of the gate of his city. 
@@ -91,13 +91,13 @@ And they killed Hamor and Shechem his son with the edge of the sword, and took D
 The sons of Jacob came upon the slain, and plundered the city, because their sister had been defiled. 
 
 ###### 28 
-They took their sheep, their oxen, and their donkeys, what _was_ in the city and what _was_ in the field, 
+They took their sheep, their oxen, and their donkeys, what was in the city and what was in the field, 
 
 ###### 29 
-and all their wealth. All their little ones and their wives they took captive; and they plundered even all that _was_ in the houses. 
+and all their wealth. All their little ones and their wives they took captive; and they plundered even all that was in the houses. 
 
 ###### 30 
-Then Jacob said to Simeon and Levi, "You have troubled me by making me obnoxious among the inhabitants of the land, among the Canaanites and the Perizzites; and since I _am_ few in number, they will gather themselves together against me and kill me. I shall be destroyed, my household and I." 
+Then Jacob said to Simeon and Levi, "You have troubled me by making me obnoxious among the inhabitants of the land, among the Canaanites and the Perizzites; and since I am few in number, they will gather themselves together against me and kill me. I shall be destroyed, my household and I." 
 
 ###### 31 
 But they said, "Should he treat our sister like a harlot?"

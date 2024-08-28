@@ -49,7 +49,7 @@ And the word of the Lord came to Jonah the second time, saying,
 
 
 
-Arise, go to Nineveh, that great city, and preach _and_ cry out to it the preaching that I tell you. 
+Arise, go to Nineveh, that great city, and preach and cry out to it the preaching that I tell you. 
 
 
 

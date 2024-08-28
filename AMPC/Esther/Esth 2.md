@@ -259,7 +259,7 @@ And Mordecai [who was an attendant in the king's court] walked every day before 
 
 
 
-Now when the turn of each maiden came to go in to King Ahasuerus, after the regulations for the women had been carried out for twelve months--since this was the regular period for their beauty treatments, six months with oil of myrrh and six months with sweet spices _and_ perfumes and the things for the purifying of the women-- 
+Now when the turn of each maiden came to go in to King Ahasuerus, after the regulations for the women had been carried out for twelve months--since this was the regular period for their beauty treatments, six months with oil of myrrh and six months with sweet spices and perfumes and the things for the purifying of the women-- 
 
 
 

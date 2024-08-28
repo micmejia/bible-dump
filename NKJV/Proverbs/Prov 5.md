@@ -16,7 +16,7 @@ My son, pay attention to my wisdom; Lend your ear to my understanding,
 That you may preserve discretion, And your lips may keep knowledge. 
 
 ###### 3 
-For the lips of an immoral woman drip honey, And her mouth _is_ smoother than oil; 
+For the lips of an immoral woman drip honey, And her mouth is smoother than oil; 
 
 ###### 4 
 But in the end she is bitter as wormwood, Sharp as a two-edged sword. 
@@ -25,19 +25,19 @@ But in the end she is bitter as wormwood, Sharp as a two-edged sword.
 Her feet go down to death, Her steps lay hold of hell. 
 
 ###### 6 
-Lest you ponder _her_ path of life-- Her ways are unstable; You do not know _them._ 
+Lest you ponder her path of life-- Her ways are unstable; You do not know them. 
 
 ###### 7 
-Therefore hear me now, _my_ children, And do not depart from the words of my mouth. 
+Therefore hear me now, my children, And do not depart from the words of my mouth. 
 
 ###### 8 
 Remove your way far from her, And do not go near the door of her house, 
 
 ###### 9 
-Lest you give your honor to others, And your years to the cruel _one;_ 
+Lest you give your honor to others, And your years to the cruel one; 
 
 ###### 10 
-Lest aliens be filled with your wealth, And your labors _go_ to the house of a foreigner; 
+Lest aliens be filled with your wealth, And your labors go to the house of a foreigner; 
 
 ###### 11 
 And you mourn at last, When your flesh and your body are consumed, 
@@ -64,16 +64,16 @@ Let them be only your own, And not for strangers with you.
 Let your fountain be blessed, And rejoice with the wife of your youth. 
 
 ###### 19 
-_As a_ loving deer and a graceful doe, Let her breasts satisfy you at all times; And always be enraptured with her love. 
+As a loving deer and a graceful doe, Let her breasts satisfy you at all times; And always be enraptured with her love. 
 
 ###### 20 
 For why should you, my son, be enraptured by an immoral woman, And be embraced in the arms of a seductress? 
 
 ###### 21 
-For the ways of man _are_ before the eyes of the Lord, And He ponders all his paths. 
+For the ways of man are before the eyes of the Lord, And He ponders all his paths. 
 
 ###### 22 
-His own iniquities entrap the wicked _man,_ And he is caught in the cords of his sin. 
+His own iniquities entrap the wicked man, And he is caught in the cords of his sin. 
 
 ###### 23 
 He shall die for lack of instruction, And in the greatness of his folly he shall go astray.

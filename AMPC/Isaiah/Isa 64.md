@@ -28,7 +28,7 @@ next: ['Isa 65']
 
 
 
-Oh, that You would rend the heavens and that You would come down, that the mountains might quake _and_ flow down at Your presence-- 
+Oh, that You would rend the heavens and that You would come down, that the mountains might quake and flow down at Your presence-- 
 
 
 
@@ -91,7 +91,7 @@ When You did terrible things which we did not expect, You came down; the mountai
 
 
 
-For from of old no one has heard nor perceived by the ear, nor has the eye seen a God besides You, Who works _and_ shows Himself active on behalf of him who [earnestly] waits for Him. 
+For from of old no one has heard nor perceived by the ear, nor has the eye seen a God besides You, Who works and shows Himself active on behalf of him who [earnestly] waits for Him. 
 
 
 
@@ -112,7 +112,7 @@ For from of old no one has heard nor perceived by the ear, nor has the eye seen 
 
 
 
-You meet _and_ spare him who joyfully works righteousness (uprightness and justice), [earnestly] remembering You in Your ways. Behold, You were angry, for we sinned; we have long continued in our sins [prolonging Your anger]. And shall we be saved? 
+You meet and spare him who joyfully works righteousness (uprightness and justice), [earnestly] remembering You in Your ways. Behold, You were angry, for we sinned; we have long continued in our sins [prolonging Your anger]. And shall we be saved? 
 
 
 
@@ -133,7 +133,7 @@ You meet _and_ spare him who joyfully works righteousness (uprightness and justi
 
 
 
-For we have all become like one who is unclean [ceremonially, like a leper], and all our righteousness (our best deeds of rightness and justice) is like filthy rags _or_ a polluted garment; we all fade like a leaf, and our iniquities, like the wind, take us away [far from God's favor, hurrying us toward destruction]. 
+For we have all become like one who is unclean [ceremonially, like a leper], and all our righteousness (our best deeds of rightness and justice) is like filthy rags or a polluted garment; we all fade like a leaf, and our iniquities, like the wind, take us away [far from God's favor, hurrying us toward destruction]. 
 
 
 
@@ -154,7 +154,7 @@ For we have all become like one who is unclean [ceremonially, like a leper], and
 
 
 
-And no one calls on Your name and awakens _and_ bestirs himself to take _and_ keep hold of You; for You have hidden Your face from us and have delivered us into the [consuming] power of our iniquities. 
+And no one calls on Your name and awakens and bestirs himself to take and keep hold of You; for You have hidden Your face from us and have delivered us into the [consuming] power of our iniquities. 
 
 
 
@@ -238,7 +238,7 @@ Your holy cities have become a wilderness; Zion has become a wilderness, Jerusal
 
 
 
-Our holy and our beautiful house, [the temple] where our fathers praised You, is burned with fire, and all our pleasant _and_ desirable places are in ruins. 
+Our holy and our beautiful house, [the temple] where our fathers praised You, is burned with fire, and all our pleasant and desirable places are in ruins. 
 
 
 
@@ -259,4 +259,4 @@ Our holy and our beautiful house, [the temple] where our fathers praised You, is
 
 
 
-Considering these [calamities], will You restrain Yourself, O Lord [and not come to our aid]? Will You keep silent _and_ not command our deliverance but humble _and_ afflict us exceedingly?
+Considering these [calamities], will You restrain Yourself, O Lord [and not come to our aid]? Will You keep silent and not command our deliverance but humble and afflict us exceedingly?

@@ -49,7 +49,7 @@ The Lord said to Moses, Go to Pharaoh, for I have made his heart hard, and his s
 
 
 
-And that you may recount in the ears of your son and of your grandson what I have done in derision of the Egyptians _and_ what things I have [repeatedly] done there--My signs [of divine power] done among them--that you may recognize _and_ know that I am the Lord. 
+And that you may recount in the ears of your son and of your grandson what I have done in derision of the Egyptians and what things I have [repeatedly] done there--My signs [of divine power] done among them--that you may recognize and know that I am the Lord. 
 
 
 
@@ -154,7 +154,7 @@ The locusts shall fill your houses and those of all your servants and of all the
 
 
 
-And Pharaoh's servants said to him, How long shall this man be a snare to us? Let the men go, that they may serve the Lord their God; do you not yet understand _and_ know that Egypt is destroyed? 
+And Pharaoh's servants said to him, How long shall this man be a snare to us? Let the men go, that they may serve the Lord their God; do you not yet understand and know that Egypt is destroyed? 
 
 
 
@@ -427,7 +427,7 @@ And the Lord turned a violent west wind, which lifted the locusts and drove them
 
 
 
-But the Lord made Pharaoh's heart more strong _and_ obstinate, and he would not let the Israelites go. 
+But the Lord made Pharaoh's heart more strong and obstinate, and he would not let the Israelites go. 
 
 
 
@@ -574,7 +574,7 @@ Our livestock also shall go with us; there shall not a hoof be left behind; for 
 
 
 
-But the Lord made Pharaoh's heart stronger _and_ more stubborn, and he would not let them go. 
+But the Lord made Pharaoh's heart stronger and more stubborn, and he would not let them go. 
 
 
 

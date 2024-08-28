@@ -10,7 +10,7 @@ next: ['Isa 8']
 
 
 ###### 1 
-Now it came to pass in the days of Ahaz the son of Jotham, the son of Uzziah, king of Judah, _that_ Rezin king of Syria and Pekah the son of Remaliah, king of Israel, went up to Jerusalem to _make_ war against it, but could not prevail against it. 
+Now it came to pass in the days of Ahaz the son of Jotham, the son of Uzziah, king of Judah, that Rezin king of Syria and Pekah the son of Remaliah, king of Israel, went up to Jerusalem to make war against it, but could not prevail against it. 
 
 ###### 2 
 And it was told to the house of David, saying, "Syria's forces are deployed in Ephraim." So his heart and the heart of his people were moved as the trees of the woods are moved with the wind. 
@@ -31,10 +31,10 @@ Because Syria, Ephraim, and the son of Remaliah have plotted evil against you, s
 thus says the Lord God: "It shall not stand, Nor shall it come to pass. 
 
 ###### 8 
-For the head of Syria _is_ Damascus, And the head of Damascus _is_ Rezin. Within sixty-five years Ephraim will be broken, _So that it will_ not _be_ a people. 
+For the head of Syria is Damascus, And the head of Damascus is Rezin. Within sixty-five years Ephraim will be broken, So that it will not be a people. 
 
 ###### 9 
-The head of Ephraim _is_ Samaria, And the head of Samaria _is_ Remaliah's son. If you will not believe, Surely you shall not be established." ' " 
+The head of Ephraim is Samaria, And the head of Samaria is Remaliah's son. If you will not believe, Surely you shall not be established." ' " 
 
 ## The Immanuel Prophecy 
 
@@ -48,7 +48,7 @@ Moreover the Lord spoke again to Ahaz, saying,
 But Ahaz said, "I will not ask, nor will I test the Lord!" 
 
 ###### 13 
-Then he said, "Hear now, O house of David! _Is it_ a small thing for you to weary men, but will you weary my God also? 
+Then he said, "Hear now, O house of David! Is it a small thing for you to weary men, but will you weary my God also? 
 
 ###### 14 
 Therefore the Lord Himself will give you a sign: Behold, the virgin shall conceive and bear a Son, and shall call His name Immanuel. 
@@ -63,7 +63,7 @@ For before the Child shall know to refuse the evil and choose the good, the land
 The Lord will bring the king of Assyria upon you and your people and your father's house--days that have not come since the day that Ephraim departed from Judah." 
 
 ###### 18 
-And it shall come to pass in that day _That_ the Lord will whistle for the fly That _is_ in the farthest part of the rivers of Egypt, And for the bee that _is_ in the land of Assyria. 
+And it shall come to pass in that day That the Lord will whistle for the fly That is in the farthest part of the rivers of Egypt, And for the bee that is in the land of Assyria. 
 
 ###### 19 
 They will come, and all of them will rest In the desolate valleys and in the clefts of the rocks, And on all thorns and in all pastures. 
@@ -72,16 +72,16 @@ They will come, and all of them will rest In the desolate valleys and in the cle
 In the same day the Lord will shave with a hired razor, With those from beyond the River, with the king of Assyria, The head and the hair of the legs, And will also remove the beard. 
 
 ###### 21 
-It shall be in that day _That_ a man will keep alive a young cow and two sheep; 
+It shall be in that day That a man will keep alive a young cow and two sheep; 
 
 ###### 22 
 So it shall be, from the abundance of milk they give, That he will eat curds; For curds and honey everyone will eat who is left in the land. 
 
 ###### 23 
-It shall happen in that day, _That_ wherever there could be a thousand vines _Worth_ a thousand _shekels_ of silver, It will be for briers and thorns. 
+It shall happen in that day, That wherever there could be a thousand vines Worth a thousand shekels of silver, It will be for briers and thorns. 
 
 ###### 24 
-With arrows and bows _men_ will come there, Because all the land will become briers and thorns. 
+With arrows and bows men will come there, Because all the land will become briers and thorns. 
 
 ###### 25 
 And to any hill which could be dug with the hoe, You will not go there for fear of briers and thorns; But it will become a range for oxen And a place for sheep to roam.

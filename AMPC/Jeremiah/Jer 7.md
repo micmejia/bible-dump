@@ -112,7 +112,7 @@ Trust not in the lying words [of the false prophets who maintain that God will p
 
 
 
-For if you thoroughly amend your ways and your doings, if you thoroughly _and_ truly execute justice between every man and his neighbor, 
+For if you thoroughly amend your ways and your doings, if you thoroughly and truly execute justice between every man and his neighbor, 
 
 
 
@@ -133,7 +133,7 @@ For if you thoroughly amend your ways and your doings, if you thoroughly _and_ t
 
 
 
-If you do not oppress the transient _and_ the alien, the fatherless, and the widow or shed innocent blood [by oppression and by judicial murders] in [Jerusalem] or go after other gods to your own hurt, 
+If you do not oppress the transient and the alien, the fatherless, and the widow or shed innocent blood [by oppression and by judicial murders] in [Jerusalem] or go after other gods to your own hurt, 
 
 
 
@@ -217,7 +217,7 @@ Will you steal, murder, commit adultery, swear falsely, burn incense to Baal, an
 
 
 
-And [then dare to] come and stand before Me in this house, which is called by My Name, and say, [By the discharge of this religious formality] we are set free!--only to go on with this wickedness _and_ these abominations? 
+And [then dare to] come and stand before Me in this house, which is called by My Name, and say, [By the discharge of this religious formality] we are set free!--only to go on with this wickedness and these abominations? 
 
 
 
@@ -301,7 +301,7 @@ And now, because you have done all these things, says the Lord, and [because] wh
 
 
 
-Therefore will I do to this house (the temple), which is called by My Name _and_ in which you trust, to the place which I gave to you and to your fathers, as I did to Shiloh. 
+Therefore will I do to this house (the temple), which is called by My Name and in which you trust, to the place which I gave to you and to your fathers, as I did to Shiloh. 
 
 
 
@@ -343,7 +343,7 @@ And I will cast you out of My sight, as I have cast out all your brethren, even 
 
 
 
-Therefore do not pray for this people [of Judah] or lift up a cry or entreaty for them or make intercession to Me, for I will not listen to _or_ hear you. 
+Therefore do not pray for this people [of Judah] or lift up a cry or entreaty for them or make intercession to Me, for I will not listen to or hear you. 
 
 
 
@@ -406,7 +406,7 @@ The children gather wood, the fathers kindle the fire, and the women knead the d
 
 
 
-Am I the One Whom they provoke to anger? says the Lord. Is it not themselves [whom they provoke], to their own confusion _and_ vexation _and_ to their own shame? 
+Am I the One Whom they provoke to anger? says the Lord. Is it not themselves [whom they provoke], to their own confusion and vexation and to their own shame? 
 
 
 
@@ -490,7 +490,7 @@ For in the day that I brought them out of the land of Egypt, I did not speak to 
 
 
 
-But this thing I did command them: Listen to _and_ obey My voice, and I will be your God and you will be My people; and walk in the whole way that I command you, that it may be well with you. 
+But this thing I did command them: Listen to and obey My voice, and I will be your God and you will be My people; and walk in the whole way that I command you, that it may be well with you. 
 
 
 
@@ -511,7 +511,7 @@ But this thing I did command them: Listen to _and_ obey My voice, and I will be 
 
 
 
-But they would not listen to _and_ obey Me or bend their ear [to Me], but followed the counsels _and_ the stubborn promptings of their own evil hearts _and_ minds, and they turned their backs _and_ went in reverse instead of forward. 
+But they would not listen to and obey Me or bend their ear [to Me], but followed the counsels and the stubborn promptings of their own evil hearts and minds, and they turned their backs and went in reverse instead of forward. 
 
 
 
@@ -553,7 +553,7 @@ Since the day that your fathers came forth out of the land of Egypt to this day,
 
 
 
-Yet the people would not listen to _and_ obey Me or bend their ears [to Me], but stiffened their necks and behaved worse than their fathers. 
+Yet the people would not listen to and obey Me or bend their ears [to Me], but stiffened their necks and behaved worse than their fathers. 
 
 
 
@@ -574,7 +574,7 @@ Yet the people would not listen to _and_ obey Me or bend their ears [to Me], but
 
 
 
-Speak all these words to them, but they will not listen to _and_ obey you; also call to them, but they will not answer you. 
+Speak all these words to them, but they will not listen to and obey you; also call to them, but they will not answer you. 
 
 
 
@@ -595,7 +595,7 @@ Speak all these words to them, but they will not listen to _and_ obey you; also 
 
 
 
-Yet you shall say to them, This is the nation that did not obey the voice of the Lord their God or receive instruction _and_ correction _and_ warning; truth _and_ faithfulness have perished and have completely vanished from their mouths. 
+Yet you shall say to them, This is the nation that did not obey the voice of the Lord their God or receive instruction and correction and warning; truth and faithfulness have perished and have completely vanished from their mouths. 
 
 
 
@@ -658,7 +658,7 @@ For the children of Judah have done evil in My sight, says the Lord; they have s
 
 
 
-And they have built the high places of Topheth, which is in the Valley of Ben-hinnom [son of Hinnom], to burn their sons and their daughters in the fire [in honor of Molech, the fire god]--which I did not command, nor did it come into My mind _or_ heart. 
+And they have built the high places of Topheth, which is in the Valley of Ben-hinnom [son of Hinnom], to burn their sons and their daughters in the fire [in honor of Molech, the fire god]--which I did not command, nor did it come into My mind or heart. 
 
 
 
@@ -679,7 +679,7 @@ And they have built the high places of Topheth, which is in the Valley of Ben-hi
 
 
 
-Therefore, behold, the days are coming, says the Lord, when it shall no more be called Topheth or the Valley of Ben-hinnom [son of Hinnom], but the Valley of Slaughter, for [in bloody warfare] they will bury in Topheth till there is no more room _and_ no place else to bury. 
+Therefore, behold, the days are coming, says the Lord, when it shall no more be called Topheth or the Valley of Ben-hinnom [son of Hinnom], but the Valley of Slaughter, for [in bloody warfare] they will bury in Topheth till there is no more room and no place else to bury. 
 
 
 

@@ -70,7 +70,7 @@ A wise man's heart turns him toward his right hand, but a fool's heart toward hi
 
 
 
-Even when he who is a fool walks along the road, his heart _and_ understanding fail him, and he says of everyone _and_ to everyone that he is a fool. 
+Even when he who is a fool walks along the road, his heart and understanding fail him, and he says of everyone and to everyone that he is a fool. 
 
 
 
@@ -91,7 +91,7 @@ Even when he who is a fool walks along the road, his heart _and_ understanding f
 
 
 
-If the temper of the ruler rises up against you, do not leave your place [or show a resisting spirit]; for gentleness _and_ calmness prevent _or_ put a stop to great offenses. 
+If the temper of the ruler rises up against you, do not leave your place [or show a resisting spirit]; for gentleness and calmness prevent or put a stop to great offenses. 
 
 
 
@@ -133,7 +133,7 @@ There is an evil which I have seen under the sun, like an error which proceeds f
 
 
 
-Folly is set in great dignity _and_ in high places, and the rich sit in low places. 
+Folly is set in great dignity and in high places, and the rich sit in low places. 
 
 
 
@@ -175,7 +175,7 @@ I have seen slaves on horses, and princes walking like slaves on the earth.
 
 
 
-He who digs a pit [for others] will fall into it, and whoever breaks through a fence _or_ a [stone] wall, a serpent will bite him. 
+He who digs a pit [for others] will fall into it, and whoever breaks through a fence or a [stone] wall, a serpent will bite him. 
 
 
 
@@ -196,7 +196,7 @@ He who digs a pit [for others] will fall into it, and whoever breaks through a f
 
 
 
-Whoever removes [landmark] stones _or_ hews out [new ones with similar intent] will be hurt with them, _and_ he who fells trees will be endangered by them. 
+Whoever removes [landmark] stones or hews out [new ones with similar intent] will be hurt with them, and he who fells trees will be endangered by them. 
 
 
 
@@ -259,7 +259,7 @@ If the serpent bites before it is charmed, then it is no use to call a charmer [
 
 
 
-The words of a wise man's mouth are gracious _and_ win him favor, but the lips of a fool consume him. 
+The words of a wise man's mouth are gracious and win him favor, but the lips of a fool consume him. 
 
 
 
@@ -343,7 +343,7 @@ The labor of fools wearies every one of them, because [he is so ignorant of the 
 
 
 
-Woe to you, O land, when your king is a child _or_ a servant and when your officials feast in the morning! 
+Woe to you, O land, when your king is a child or a servant and when your officials feast in the morning! 
 
 
 
@@ -364,7 +364,7 @@ Woe to you, O land, when your king is a child _or_ a servant and when your offic
 
 
 
-Happy (fortunate and to be envied) are you, O land, when your king is a free man _and_ of noble birth _and_ character and when your officials feast at the proper time--for strength and not for drunkenness! 
+Happy (fortunate and to be envied) are you, O land, when your king is a free man and of noble birth and character and when your officials feast at the proper time--for strength and not for drunkenness! 
 
 
 
@@ -385,7 +385,7 @@ Happy (fortunate and to be envied) are you, O land, when your king is a free man
 
 
 
-Through indolence the rafters [of state affairs] decay _and_ the roof sinks in, and through idleness of the hands the house leaks. 
+Through indolence the rafters [of state affairs] decay and the roof sinks in, and through idleness of the hands the house leaks. 
 
 
 

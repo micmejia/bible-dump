@@ -91,7 +91,7 @@ And the tempter came and said to Him, If You are God's Son, command these stones
 
 
 
-But He replied, It has been written, Man shall not live _and_ be upheld _and_ sustained by bread alone, but by every word that comes forth from the mouth of God. 
+But He replied, It has been written, Man shall not live and be upheld and sustained by bread alone, but by every word that comes forth from the mouth of God. 
 
 
 
@@ -154,7 +154,7 @@ And he said to Him, If You are the Son of God, throw Yourself down; for it is wr
 
 
 
-Jesus said to him, On the other hand, it is written also, You shall not tempt, test thoroughly, _or_ try exceedingly the Lord your God. 
+Jesus said to him, On the other hand, it is written also, You shall not tempt, test thoroughly, or try exceedingly the Lord your God. 
 
 
 
@@ -196,7 +196,7 @@ Again, the devil took Him up on a very high mountain and showed Him all the king
 
 
 
-And he said to Him, These things, all taken together, I will give You, if You will prostrate Yourself before me and do homage _and_ worship me. 
+And he said to Him, These things, all taken together, I will give You, if You will prostrate Yourself before me and do homage and worship me. 
 
 
 
@@ -259,7 +259,7 @@ Then the devil departed from Him, and behold, angels came and ministered to Him.
 
 
 
-Now when Jesus heard that John had been arrested _and_ put in prison, He withdrew into Galilee. 
+Now when Jesus heard that John had been arrested and put in prison, He withdrew into Galilee. 
 
 
 
@@ -280,7 +280,7 @@ Now when Jesus heard that John had been arrested _and_ put in prison, He withdre
 
 
 
-And leaving Nazareth, He went _and_ dwelt in Capernaum by the sea, in the country of Zebulun and Naphtali-- 
+And leaving Nazareth, He went and dwelt in Capernaum by the sea, in the country of Zebulun and Naphtali-- 
 
 
 
@@ -448,7 +448,7 @@ At once they left their nets and became His disciples [sided with His party and 
 
 
 
-And going on further from there He noticed two other brothers, James son of Zebedee and his brother John, in the boat with their father Zebedee, mending their nets _and_ putting them right; and He called them. 
+And going on further from there He noticed two other brothers, James son of Zebedee and his brother John, in the boat with their father Zebedee, mending their nets and putting them right; and He called them. 
 
 
 
@@ -490,7 +490,7 @@ At once they left the boat and their father and joined Jesus as disciples [sided
 
 
 
-And He went about all Galilee, teaching in their synagogues and preaching the good news (Gospel) of the kingdom, and healing every disease and every weakness _and_ infirmity among the people. 
+And He went about all Galilee, teaching in their synagogues and preaching the good news (Gospel) of the kingdom, and healing every disease and every weakness and infirmity among the people. 
 
 
 
@@ -532,4 +532,4 @@ So the report of Him spread throughout all Syria, and they brought Him all who w
 
 
 
-And great crowds joined _and_ accompanied Him about, coming from Galilee and Decapolis [the district of the ten cities east of the Sea of Galilee] and Jerusalem and Judea and from the other [the east] side of the Jordan.
+And great crowds joined and accompanied Him about, coming from Galilee and Decapolis [the district of the ten cities east of the Sea of Galilee] and Jerusalem and Judea and from the other [the east] side of the Jordan.

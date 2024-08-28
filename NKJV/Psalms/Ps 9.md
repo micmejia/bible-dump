@@ -10,7 +10,7 @@ next: ['Ps 10']
 
 
 ###### 1 
-I will praise _You,_ O Lord, with my whole heart; I will tell of all Your marvelous works. 
+I will praise You, O Lord, with my whole heart; I will tell of all Your marvelous works. 
 
 ###### 2 
 I will be glad and rejoice in You; I will sing praise to Your name, O Most High. 
@@ -52,19 +52,19 @@ Have mercy on me, O Lord! Consider my trouble from those who hate me, You who li
 That I may tell of all Your praise In the gates of the daughter of Zion. I will rejoice in Your salvation. 
 
 ###### 15 
-The nations have sunk down in the pit _which_ they made; In the net which they hid, their own foot is caught. 
+The nations have sunk down in the pit which they made; In the net which they hid, their own foot is caught. 
 
 ###### 16 
-The Lord is known _by_ the judgment He executes; The wicked is snared in the work of his own hands. Meditation. Selah_ 
+The Lord is known by the judgment He executes; The wicked is snared in the work of his own hands. Meditation. Selah 
 
 ###### 17 
-The wicked shall be turned into hell, _And_ all the nations that forget God. 
+The wicked shall be turned into hell, And all the nations that forget God. 
 
 ###### 18 
-For the needy shall not always be forgotten; The expectation of the poor shall _not_ perish forever. 
+For the needy shall not always be forgotten; The expectation of the poor shall not perish forever. 
 
 ###### 19 
 Arise, O Lord, Do not let man prevail; Let the nations be judged in Your sight. 
 
 ###### 20 
-Put them in fear, O Lord, _That_ the nations may know themselves _to be but_ men. Selah_
+Put them in fear, O Lord, That the nations may know themselves to be but men. Selah

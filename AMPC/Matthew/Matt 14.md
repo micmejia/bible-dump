@@ -70,7 +70,7 @@ And he said to his attendants, This is John the Baptist; He has been raised from
 
 
 
-For Herod had arrested John and bound him and put him in prison [to stow him out of the way] on account _and_ for the sake of Herodias, his brother Philip's wife, 
+For Herod had arrested John and bound him and put him in prison [to stow him out of the way] on account and for the sake of Herodias, his brother Philip's wife, 
 
 
 
@@ -91,7 +91,7 @@ For Herod had arrested John and bound him and put him in prison [to stow him out
 
 
 
-For John had said to him, It is not lawful _or_ right for you to have her. 
+For John had said to him, It is not lawful or right for you to have her. 
 
 
 
@@ -133,7 +133,7 @@ Although he wished to have him put to death, he was afraid of the people, for th
 
 
 
-But when Herod's birthday came, the daughter of Herodias danced in the midst [before the company] and pleased _and_ fascinated Herod, 
+But when Herod's birthday came, the daughter of Herodias danced in the midst [before the company] and pleased and fascinated Herod, 
 
 
 
@@ -175,7 +175,7 @@ And so he promised with an oath to give her whatever she might ask.
 
 
 
-And she, being put forward _and_ prompted by her mother, said, Give me the head of John the Baptist right here on a platter. 
+And she, being put forward and prompted by her mother, said, Give me the head of John the Baptist right here on a platter. 
 
 
 
@@ -196,7 +196,7 @@ And she, being put forward _and_ prompted by her mother, said, Give me the head 
 
 
 
-And the king was distressed _and_ sorry, but because of his oaths and his guests, he ordered it to be given her; 
+And the king was distressed and sorry, but because of his oaths and his guests, he ordered it to be given her; 
 
 
 
@@ -322,7 +322,7 @@ When He went ashore and saw a great throng of people, He had compassion (pity an
 
 
 
-When evening came, the disciples came to Him and said, This is a remote _and_ barren place, and the day is now over; send the throngs away into the villages to buy food for themselves. 
+When evening came, the disciples came to Him and said, This is a remote and barren place, and the day is now over; send the throngs away into the villages to buy food for themselves. 
 
 
 
@@ -406,7 +406,7 @@ He said, Bring them here to Me.
 
 
 
-Then He ordered the crowds to recline on the grass; and He took the five loaves and the two fish, and, looking up to heaven, He gave thanks _and_ blessed and broke the loaves and handed the pieces to the disciples, and the disciples gave them to the people. 
+Then He ordered the crowds to recline on the grass; and He took the five loaves and the two fish, and, looking up to heaven, He gave thanks and blessed and broke the loaves and handed the pieces to the disciples, and the disciples gave them to the people. 
 
 
 
@@ -511,7 +511,7 @@ And after He had dismissed the multitudes, He went up into the hills by Himself 
 
 
 
-But the boat was by this time out on the sea, _many furlongs_ [a furlong is one-eighth of a mile] _distant from the land_, beaten and tossed by the waves, for the wind was against them. 
+But the boat was by this time out on the sea, many furlongs [a furlong is one-eighth of a mile] distant from the land, beaten and tossed by the waves, for the wind was against them. 
 
 
 
@@ -637,7 +637,7 @@ He said, Come! So Peter got out of the boat and walked on the water, and he came
 
 
 
-But when he perceived _and_ felt the strong wind, he was frightened, and as he began to sink, he cried out, Lord, save me [from death]! 
+But when he perceived and felt the strong wind, he was frightened, and as he began to sink, he cried out, Lord, save me [from death]! 
 
 
 
@@ -658,7 +658,7 @@ But when he perceived _and_ felt the strong wind, he was frightened, and as he b
 
 
 
-Instantly Jesus reached out His hand and caught _and_ held him, saying to him, O you of little faith, why did you doubt? 
+Instantly Jesus reached out His hand and caught and held him, saying to him, O you of little faith, why did you doubt? 
 
 
 

@@ -27,7 +27,7 @@ up: ['Malachi']
 
 
 
-For behold, the day comes that shall burn like an oven, and all the proud _and_ arrogant, yes, and all that do wickedly _and_ are lawless, shall be stubble; the day that comes shall burn them up, says the Lord of hosts, so that it will leave them neither root nor branch. 
+For behold, the day comes that shall burn like an oven, and all the proud and arrogant, yes, and all that do wickedly and are lawless, shall be stubble; the day that comes shall burn them up, says the Lord of hosts, so that it will leave them neither root nor branch. 
 
 
 
@@ -48,7 +48,7 @@ For behold, the day comes that shall burn like an oven, and all the proud _and_ 
 
 
 
-But unto you who revere _and_ worshipfully fear My name shall the Sun of Righteousness arise with healing in His wings _and_ His beams, and you shall go forth and gambol like calves [released] from the stall _and_ leap for joy. 
+But unto you who revere and worshipfully fear My name shall the Sun of Righteousness arise with healing in His wings and His beams, and you shall go forth and gambol like calves [released] from the stall and leap for joy. 
 
 
 
@@ -69,7 +69,7 @@ But unto you who revere _and_ worshipfully fear My name shall the Sun of Righteo
 
 
 
-And you shall tread down the lawless _and_ wicked, for they shall be ashes under the soles of your feet in the day that I shall do this, says the Lord of hosts. 
+And you shall tread down the lawless and wicked, for they shall be ashes under the soles of your feet in the day that I shall do this, says the Lord of hosts. 
 
 
 
@@ -132,4 +132,4 @@ Behold, I will send you Elijah the prophet before the great and terrible day of 
 
 
 
-And he shall turn _and_ reconcile the hearts of the [estranged] fathers to the [ungodly] children, and the hearts of the [rebellious] children to [the piety of] their fathers [a reconciliation produced by repentance of the ungodly], lest I come and smite the land with a curse _and_ a ban of utter destruction.
+And he shall turn and reconcile the hearts of the [estranged] fathers to the [ungodly] children, and the hearts of the [rebellious] children to [the piety of] their fathers [a reconciliation produced by repentance of the ungodly], lest I come and smite the land with a curse and a ban of utter destruction.

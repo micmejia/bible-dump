@@ -133,7 +133,7 @@ You shall fall in the open field, for I have spoken [it], says the Lord God.
 
 
 
-I will send fire on Magog and upon those who dwell securely in the coastlands, and they shall know, understand, _and_ realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
+I will send fire on Magog and upon those who dwell securely in the coastlands, and they shall know, understand, and realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
 
 
 
@@ -154,7 +154,7 @@ I will send fire on Magog and upon those who dwell securely in the coastlands, a
 
 
 
-And I will make My holy name known in the midst of My people Israel, and I will not let them profane My holy name any more; and the nations shall know, understand, _and_ realize that I am the Lord, the Holy One of Israel. 
+And I will make My holy name known in the midst of My people Israel, and I will not let them profane My holy name any more; and the nations shall know, understand, and realize that I am the Lord, the Holy One of Israel. 
 
 
 
@@ -196,7 +196,7 @@ Behold, it is coming and it will be done, says the Lord God; that is the day of 
 
 
 
-And [when you, Gog, are no longer] they who dwell in the cities of Israel shall go forth and shall set on fire and burn the battle gear, the shields and the bucklers, the bows and the arrows, the handspikes _or_ riding whips and the spears; and they shall burn them as fuel for seven years, 
+And [when you, Gog, are no longer] they who dwell in the cities of Israel shall go forth and shall set on fire and burn the battle gear, the shields and the bucklers, the bows and the arrows, the handspikes or riding whips and the spears; and they shall burn them as fuel for seven years, 
 
 
 
@@ -238,7 +238,7 @@ So that My people shall take no firewood out of the field or cut down any out of
 
 
 
-And in that day, I will give to Gog a place for burial there in Israel, the valley of those who pass through on the east side in front of the [Dead] Sea [the highway between Syria, Petra, and Egypt], and it will delay _and_ stop those who pass through. And there shall they bury Gog and all his multitude, and they shall call it the Valley of Hamon-gog [multitude of Gog]. 
+And in that day, I will give to Gog a place for burial there in Israel, the valley of those who pass through on the east side in front of the [Dead] Sea [the highway between Syria, Petra, and Egypt], and it will delay and stop those who pass through. And there shall they bury Gog and all his multitude, and they shall call it the Valley of Hamon-gog [multitude of Gog]. 
 
 
 
@@ -322,7 +322,7 @@ And they shall set apart men to work continually who shall pass through the land
 
 
 
-And when these pass through the land and anyone sees a human bone, he shall set up a marker by it as a sign to the buriers, until they have buried it in the Valley of Hamon-gog _or_ of Gog's multitude. 
+And when these pass through the land and anyone sees a human bone, he shall set up a marker by it as a sign to the buriers, until they have buried it in the Valley of Hamon-gog or of Gog's multitude. 
 
 
 
@@ -448,7 +448,7 @@ And you shall be filled at My table with horses and riders, with mighty men, and
 
 
 
-And I will manifest My honor _and_ glory among the nations, and all the nations shall see My judgment _and_ justice [in the punishment] which I have executed and My hand which I have laid on them. 
+And I will manifest My honor and glory among the nations, and all the nations shall see My judgment and justice [in the punishment] which I have executed and My hand which I have laid on them. 
 
 
 
@@ -469,7 +469,7 @@ And I will manifest My honor _and_ glory among the nations, and all the nations 
 
 
 
-So the house of Israel shall know, understand, _and_ realize beyond all question that I am the Lord their God from that day forward. 
+So the house of Israel shall know, understand, and realize beyond all question that I am the Lord their God from that day forward. 
 
 
 
@@ -490,7 +490,7 @@ So the house of Israel shall know, understand, _and_ realize beyond all question
 
 
 
-And the nations shall know, understand, _and_ realize positively that the house of Israel went into captivity for their iniquity, because they trespassed against Me; and I hid My face from them. So I gave them into the hand of their enemies and they all fell [into captivity or were slain] by the power of the sword. 
+And the nations shall know, understand, and realize positively that the house of Israel went into captivity for their iniquity, because they trespassed against Me; and I hid My face from them. So I gave them into the hand of their enemies and they all fell [into captivity or were slain] by the power of the sword. 
 
 
 
@@ -553,7 +553,7 @@ Therefore thus says the Lord God: Now will I reverse the captivity of Jacob and 
 
 
 
-They shall forget their shame _and_ self-reproach and all their treachery _and_ unfaithfulness in which they have transgressed against Me, when they dwell securely in their land and there is none who makes them afraid. 
+They shall forget their shame and self-reproach and all their treachery and unfaithfulness in which they have transgressed against Me, when they dwell securely in their land and there is none who makes them afraid. 
 
 
 
@@ -574,7 +574,7 @@ They shall forget their shame _and_ self-reproach and all their treachery _and_ 
 
 
 
-When I have brought them again from the peoples and gathered them out of their enemies' lands, and My justice _and_ holiness are set apart _and_ vindicated through them in the sight of many nations, 
+When I have brought them again from the peoples and gathered them out of their enemies' lands, and My justice and holiness are set apart and vindicated through them in the sight of many nations, 
 
 
 
@@ -595,7 +595,7 @@ When I have brought them again from the peoples and gathered them out of their e
 
 
 
-Then shall they know, understand, _and_ realize positively that I am the Lord their God, because I sent them into captivity _and_ exile among the nations and then gathered them to their own land. I will leave none of them remaining among the nations any more [in the latter days]. 
+Then shall they know, understand, and realize positively that I am the Lord their God, because I sent them into captivity and exile among the nations and then gathered them to their own land. I will leave none of them remaining among the nations any more [in the latter days]. 
 
 
 

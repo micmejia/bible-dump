@@ -49,7 +49,7 @@ For behold, the Lord, the Lord of hosts, is taking away from Jerusalem and from 
 
 
 
-The mighty man and the man of war, the judge _and_ the [professional] prophet, the one who foretells by divination and the old man, 
+The mighty man and the man of war, the judge and the [professional] prophet, the one who foretells by divination and the old man, 
 
 
 
@@ -112,7 +112,7 @@ And I will make boys their princes, and with childishness shall they rule over t
 
 
 
-And the people shall be oppressed, each one by another, and each one by his neighbor; the child shall behave himself proudly _and_ with insolence against the old man, and the lowborn against the honorable [person of rank]. 
+And the people shall be oppressed, each one by another, and each one by his neighbor; the child shall behave himself proudly and with insolence against the old man, and the lowborn against the honorable [person of rank]. 
 
 
 
@@ -133,7 +133,7 @@ And the people shall be oppressed, each one by another, and each one by his neig
 
 
 
-When a man shall take hold of his brother in the house of his father, saying, You have a robe, you shall be our judge _and_ ruler, and this heap of ruins shall be under your control-- 
+When a man shall take hold of his brother in the house of his father, saying, You have a robe, you shall be our judge and ruler, and this heap of ruins shall be under your control-- 
 
 
 
@@ -154,7 +154,7 @@ When a man shall take hold of his brother in the house of his father, saying, Yo
 
 
 
-In that day he will answer, saying, I will not be a healer _and_ one who binds up; _I am not a physician_. For in my house is neither bread nor clothing; you shall not make me judge _and_ ruler of the people. 
+In that day he will answer, saying, I will not be a healer and one who binds up; I am not a physician. For in my house is neither bread nor clothing; you shall not make me judge and ruler of the people. 
 
 
 
@@ -175,7 +175,7 @@ In that day he will answer, saying, I will not be a healer _and_ one who binds u
 
 
 
-For Jerusalem is ruined and Judah is fallen, because their speech and their deeds are against the Lord, to provoke the eyes of His glory _and_ defy His glorious presence. 
+For Jerusalem is ruined and Judah is fallen, because their speech and their deeds are against the Lord, to provoke the eyes of His glory and defy His glorious presence. 
 
 
 
@@ -196,7 +196,7 @@ For Jerusalem is ruined and Judah is fallen, because their speech and their deed
 
 
 
-Their respecting of persons _and_ showing of partiality witnesses against them; they proclaim their sin like Sodom; they do not hide it. Woe to them! For they have brought evil [as a reward upon themselves]. 
+Their respecting of persons and showing of partiality witnesses against them; they proclaim their sin like Sodom; they do not hide it. Woe to them! For they have brought evil [as a reward upon themselves]. 
 
 
 
@@ -280,7 +280,7 @@ As for My people, children are their oppressors, and women rule over them. O My 
 
 
 
-The Lord stands up to contend, and stands to judge the peoples _and_ His people. 
+The Lord stands up to contend, and stands to judge the peoples and His people. 
 
 
 
@@ -343,7 +343,7 @@ What do you mean by crushing My people and grinding the faces of the poor? says 
 
 
 
-Moreover, the Lord said, Because the daughters of Zion are haughty and walk with outstretched necks and with undisciplined (flirtatious and alluring) eyes, tripping along with mincing _and_ affected gait, and making a tinkling noise with [the anklets on] their feet, 
+Moreover, the Lord said, Because the daughters of Zion are haughty and walk with outstretched necks and with undisciplined (flirtatious and alluring) eyes, tripping along with mincing and affected gait, and making a tinkling noise with [the anklets on] their feet, 
 
 
 
@@ -406,7 +406,7 @@ In that day the Lord will take away the finery of their tinkling anklets, the ca
 
 
 
-The pendants, the bracelets _or_ chains, and the spangled face veils _and_ scarfs, 
+The pendants, the bracelets or chains, and the spangled face veils and scarfs, 
 
 
 
@@ -427,7 +427,7 @@ The pendants, the bracelets _or_ chains, and the spangled face veils _and_ scarf
 
 
 
-The headbands, the short ankle chains [attached from one foot to the other to insure a measured gait], the sashes, the perfume boxes, the amulets _or_ charms [suspended from the ears or neck], 
+The headbands, the short ankle chains [attached from one foot to the other to insure a measured gait], the sashes, the perfume boxes, the amulets or charms [suspended from the ears or neck], 
 
 
 
@@ -469,7 +469,7 @@ The signet rings and nose rings,
 
 
 
-The festal robes, the cloaks, the stoles _and_ shawls, and the handbags, 
+The festal robes, the cloaks, the stoles and shawls, and the handbags, 
 
 
 
@@ -553,4 +553,4 @@ Your men shall fall by the sword, and your mighty men in battle.
 
 
 
-And [Jerusalem's] gates shall lament and mourn [as those who wail for the dead]; and she, being ruined _and_ desolate, shall sit upon the ground.
+And [Jerusalem's] gates shall lament and mourn [as those who wail for the dead]; and she, being ruined and desolate, shall sit upon the ground.

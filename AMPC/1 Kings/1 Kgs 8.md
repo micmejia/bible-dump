@@ -490,7 +490,7 @@ Then Solomon stood [in the court] before the Lord's burnt offering altar in the 
 
 
 
-And he said, O Lord, the God of Israel, there is no God like You in heaven above or on earth beneath, keeping covenant and showing mercy _and_ loving-kindness to Your servants who walk before You with all their heart. 
+And he said, O Lord, the God of Israel, there is no God like You in heaven above or on earth beneath, keeping covenant and showing mercy and loving-kindness to Your servants who walk before You with all their heart. 
 
 
 
@@ -637,7 +637,7 @@ That Your eyes may be open toward this house night and day, toward the place of 
 
 
 
-Hearken to the prayer of Your servant and of Your people Israel when they pray in _or_ toward this place. Hear in heaven, Your dwelling place, and when You hear, forgive. 
+Hearken to the prayer of Your servant and of Your people Israel when they pray in or toward this place. Hear in heaven, Your dwelling place, and when You hear, forgive. 
 
 
 
@@ -847,7 +847,7 @@ Then hear in heaven, Your dwelling place, and forgive and act and give to every 
 
 
 
-That they may fear _and_ revere You all the days that they live in the land which You gave to our fathers. 
+That they may fear and revere You all the days that they live in the land which You gave to our fathers. 
 
 
 
@@ -910,7 +910,7 @@ For they will hear of Your great name (Your revelation of Yourself), Your strong
 
 
 
-Hear in heaven, Your dwelling place, and do according to all that the stranger asks of You, so that all peoples of the earth may know Your name [and Your revelation of Your presence] and fear _and_ revere You, as do Your people Israel, and may know _and_ comprehend that this house which I have built is called by Your Name [and contains the token of Your presence]. 
+Hear in heaven, Your dwelling place, and do according to all that the stranger asks of You, so that all peoples of the earth may know Your name [and Your revelation of Your presence] and fear and revere You, as do Your people Israel, and may know and comprehend that this house which I have built is called by Your Name [and contains the token of Your presence]. 
 
 
 
@@ -952,7 +952,7 @@ If Your people go out to battle against their enemy, wherever You shall send the
 
 
 
-Then hear in heaven their prayer and supplication, and defend their cause _and_ maintain their right. 
+Then hear in heaven their prayer and supplication, and defend their cause and maintain their right. 
 
 
 
@@ -994,7 +994,7 @@ If they sin against You--for there is no man who does not sin--and You are angry
 
 
 
-Yet if they think _and_ consider in the land where they were carried captive, and repent and make supplication to You there, saying, We have sinned and have done perversely and wickedly; 
+Yet if they think and consider in the land where they were carried captive, and repent and make supplication to You there, saying, We have sinned and have done perversely and wickedly; 
 
 
 
@@ -1015,7 +1015,7 @@ Yet if they think _and_ consider in the land where they were carried captive, an
 
 
 
-If they repent _and_ turn to You with all their mind and with all their heart in the land of their enemies who took them captive, and pray to You toward their land which You gave to their fathers, the city which You have chosen, and the house which I have built for Your Name; 
+If they repent and turn to You with all their mind and with all their heart in the land of their enemies who took them captive, and pray to You toward their land which You gave to their fathers, the city which You have chosen, and the house which I have built for Your Name; 
 
 
 
@@ -1036,7 +1036,7 @@ If they repent _and_ turn to You with all their mind and with all their heart in
 
 
 
-Then hear their prayer and their supplication in heaven, Your dwelling place, and defend their cause _and_ maintain their right. 
+Then hear their prayer and their supplication in heaven, Your dwelling place, and defend their cause and maintain their right. 
 
 
 
@@ -1246,7 +1246,7 @@ That He may incline our hearts to Him, to walk in all His ways and to keep His c
 
 
 
-Let these my words, with which I have made supplication before the Lord, be near to the Lord our God day and night, that He may maintain the cause _and_ right of His servant and of His people Israel as each day requires, 
+Let these my words, with which I have made supplication before the Lord, be near to the Lord our God day and night, that He may maintain the cause and right of His servant and of His people Israel as each day requires, 
 
 
 
@@ -1288,7 +1288,7 @@ That all the earth's people may know that the Lord is God and that there is no o
 
 
 
-Let your hearts therefore be blameless _and_ wholly true to the Lord our God, to walk in His statutes and to keep His commandments, as today. 
+Let your hearts therefore be blameless and wholly true to the Lord our God, to walk in His statutes and to keep His commandments, as today. 
 
 
 

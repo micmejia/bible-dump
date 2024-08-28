@@ -28,7 +28,7 @@ next: ['Acts 13']
 
 
 
-About that time Herod the king stretched forth his hands to afflict _and_ oppress _and_ torment some who belonged to the church (assembly). 
+About that time Herod the king stretched forth his hands to afflict and oppress and torment some who belonged to the church (assembly). 
 
 
 
@@ -238,7 +238,7 @@ When they had passed through the first guard and the second, they came to the ir
 
 
 
-Then Peter came to himself and said, Now I really know _and_ am sure that the Lord has sent His angel and delivered me from the hand of Herod and from all that the Jewish people were expecting [to do to me]. 
+Then Peter came to himself and said, Now I really know and am sure that the Lord has sent His angel and delivered me from the hand of Herod and from all that the Jewish people were expecting [to do to me]. 
 
 
 
@@ -322,7 +322,7 @@ And recognizing Peter's voice, in her joy she failed to open the gate, but ran i
 
 
 
-They said to her, You are crazy! But she persistently _and_ strongly _and_ confidently affirmed that it was the truth. They said, It is his angel! 
+They said to her, You are crazy! But she persistently and strongly and confidently affirmed that it was the truth. They said, It is his angel! 
 
 
 
@@ -364,7 +364,7 @@ But meanwhile Peter continued knocking, and when they opened the gate and saw hi
 
 
 
-But motioning to them with his hand to keep quiet _and_ listen, he related to them how the Lord had delivered him out of the prison. And he said, Report all this to James [the Less] and to the brethren. Then he left and went to some other place. 
+But motioning to them with his hand to keep quiet and listen, he related to them how the Lord had delivered him out of the prison. And he said, Report all this to James [the Less] and to the brethren. Then he left and went to some other place. 
 
 
 
@@ -427,7 +427,7 @@ And when Herod had looked for him and could not find him, he placed the guards o
 
 
 
-Now [Herod] cherished bitter animosity _and_ hostility for the people of Tyre and Sidon; and [their deputies] came to him in a united body, and having made Blastus the king's chamberlain their friend, they asked for peace, because their country was nourished by _and_ depended on the king's [country] for food. 
+Now [Herod] cherished bitter animosity and hostility for the people of Tyre and Sidon; and [their deputies] came to him in a united body, and having made Blastus the king's chamberlain their friend, they asked for peace, because their country was nourished by and depended on the king's [country] for food. 
 
 
 
@@ -490,7 +490,7 @@ And the assembled people shouted, It is the voice of a god, and not of a man!
 
 
 
-And at once an angel of the Lord smote him _and_ cut him down, because he did not give God the glory (the preeminence and kingly majesty that belong to Him as the supreme Ruler); and he was eaten by worms and died. 
+And at once an angel of the Lord smote him and cut him down, because he did not give God the glory (the preeminence and kingly majesty that belong to Him as the supreme Ruler); and he was eaten by worms and died. 
 
 
 

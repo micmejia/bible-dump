@@ -27,7 +27,7 @@ And they found Adoni-Bezek in Bezek, and fought against him; and they defeated t
 Then Adoni-Bezek fled, and they pursued him and caught him and cut off his thumbs and big toes. 
 
 ###### 7 
-And Adoni-Bezek said, "Seventy kings with their thumbs and big toes cut off used to gather _scraps_ under my table; as I have done, so God has repaid me." Then they brought him to Jerusalem, and there he died. 
+And Adoni-Bezek said, "Seventy kings with their thumbs and big toes cut off used to gather scraps under my table; as I have done, so God has repaid me." Then they brought him to Jerusalem, and there he died. 
 
 ###### 8 
 Now the children of Judah fought against Jerusalem and took it; they struck it with the edge of the sword and set the city on fire. 
@@ -36,10 +36,10 @@ Now the children of Judah fought against Jerusalem and took it; they struck it w
 And afterward the children of Judah went down to fight against the Canaanites who dwelt in the mountains, in the South, and in the lowland. 
 
 ###### 10 
-Then Judah went against the Canaanites who dwelt in Hebron. (Now the name of Hebron _was_ formerly Kirjath Arba.) And they killed Sheshai, Ahiman, and Talmai. 
+Then Judah went against the Canaanites who dwelt in Hebron. (Now the name of Hebron was formerly Kirjath Arba.) And they killed Sheshai, Ahiman, and Talmai. 
 
 ###### 11 
-From there they went against the inhabitants of Debir. (The name of Debir _was_ formerly Kirjath Sepher.) 
+From there they went against the inhabitants of Debir. (The name of Debir was formerly Kirjath Sepher.) 
 
 ###### 12 
 Then Caleb said, "Whoever attacks Kirjath Sepher and takes it, to him I will give my daughter Achsah as wife." 
@@ -48,13 +48,13 @@ Then Caleb said, "Whoever attacks Kirjath Sepher and takes it, to him I will giv
 And Othniel the son of Kenaz, Caleb's younger brother, took it; so he gave him his daughter Achsah as wife. 
 
 ###### 14 
-Now it happened, when she came _to him,_ that she urged him to ask her father for a field. And she dismounted from _her_ donkey, and Caleb said to her, "What do you wish?" 
+Now it happened, when she came to him, that she urged him to ask her father for a field. And she dismounted from her donkey, and Caleb said to her, "What do you wish?" 
 
 ###### 15 
 So she said to him, "Give me a blessing; since you have given me land in the South, give me also springs of water." And Caleb gave her the upper springs and the lower springs. 
 
 ###### 16 
-Now the children of the Kenite, Moses' father-in-law, went up from the City of Palms with the children of Judah into the Wilderness of Judah, which _lies_ in the South _near_ Arad; and they went and dwelt among the people. 
+Now the children of the Kenite, Moses' father-in-law, went up from the City of Palms with the children of Judah into the Wilderness of Judah, which lies in the South near Arad; and they went and dwelt among the people. 
 
 ###### 17 
 And Judah went with his brother Simeon, and they attacked the Canaanites who inhabited Zephath, and utterly destroyed it. So the name of the city was called Hormah. 
@@ -72,10 +72,10 @@ And they gave Hebron to Caleb, as Moses had said. Then he expelled from there th
 But the children of Benjamin did not drive out the Jebusites who inhabited Jerusalem; so the Jebusites dwell with the children of Benjamin in Jerusalem to this day. 
 
 ###### 22 
-And the house of Joseph also went up against Bethel, and the Lord _was_ with them. 
+And the house of Joseph also went up against Bethel, and the Lord was with them. 
 
 ###### 23 
-So the house of Joseph sent men to spy out Bethel. (The name of the city _was_ formerly Luz.) 
+So the house of Joseph sent men to spy out Bethel. (The name of the city was formerly Luz.) 
 
 ###### 24 
 And when the spies saw a man coming out of the city, they said to him, "Please show us the entrance to the city, and we will show you mercy." 
@@ -84,12 +84,12 @@ And when the spies saw a man coming out of the city, they said to him, "Please s
 So he showed them the entrance to the city, and they struck the city with the edge of the sword; but they let the man and all his family go. 
 
 ###### 26 
-And the man went to the land of the Hittites, built a city, and called its name Luz, which _is_ its name to this day.
+And the man went to the land of the Hittites, built a city, and called its name Luz, which is its name to this day.
 
 ## Incomplete Conquest of the Land 
 
 ###### 27 
-However, Manasseh did not drive out _the inhabitants of_ Beth Shean and its villages, or Taanach and its villages, or the inhabitants of Dor and its villages, or the inhabitants of Ibleam and its villages, or the inhabitants of Megiddo and its villages; for the Canaanites were determined to dwell in that land. 
+However, Manasseh did not drive out the inhabitants of Beth Shean and its villages, or Taanach and its villages, or the inhabitants of Dor and its villages, or the inhabitants of Ibleam and its villages, or the inhabitants of Megiddo and its villages; for the Canaanites were determined to dwell in that land. 
 
 ###### 28 
 And it came to pass, when Israel was strong, that they put the Canaanites under tribute, but did not completely drive them out. 
@@ -116,4 +116,4 @@ And the Amorites forced the children of Dan into the mountains, for they would n
 and the Amorites were determined to dwell in Mount Heres, in Aijalon, and in Shaalbim; yet when the strength of the house of Joseph became greater, they were put under tribute. 
 
 ###### 36 
-Now the boundary of the Amorites _was_ from the Ascent of Akrabbim, from Sela, and upward.
+Now the boundary of the Amorites was from the Ascent of Akrabbim, from Sela, and upward.

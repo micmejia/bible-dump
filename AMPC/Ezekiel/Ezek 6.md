@@ -133,7 +133,7 @@ And I will lay the dead bodies of the children of Israel before their idols, and
 
 
 
-In all your dwelling places the cities shall be laid waste and the high places shall be made desolate, that your altars may bear their guilt _and_ be laid waste and made desolate, your idols may be broken and destroyed, your sun-images may be hewn down, and your handiworks may be wiped away _and_ blotted out. 
+In all your dwelling places the cities shall be laid waste and the high places shall be made desolate, that your altars may bear their guilt and be laid waste and made desolate, your idols may be broken and destroyed, your sun-images may be hewn down, and your handiworks may be wiped away and blotted out. 
 
 
 
@@ -154,7 +154,7 @@ In all your dwelling places the cities shall be laid waste and the high places s
 
 
 
-And the slain shall fall in the midst of you, and you shall know, understand, _and_ realize that I am the Lord. 
+And the slain shall fall in the midst of you, and you shall know, understand, and realize that I am the Lord. 
 
 
 
@@ -196,7 +196,7 @@ Yet will I leave some of you alive. When you have some that shall escape the swo
 
 
 
-Then those of you who escape shall [earnestly] remember Me among the nations to which they shall be carried captive, how that I have been broken by their lewdness _and_ have Myself broken their wanton heart which has departed from Me and blinded their eyes which turn after their idols wantonly; and they shall be loathsome in their own sight for the evils which they have committed in all their abominations. 
+Then those of you who escape shall [earnestly] remember Me among the nations to which they shall be carried captive, how that I have been broken by their lewdness and have Myself broken their wanton heart which has departed from Me and blinded their eyes which turn after their idols wantonly; and they shall be loathsome in their own sight for the evils which they have committed in all their abominations. 
 
 
 
@@ -217,7 +217,7 @@ Then those of you who escape shall [earnestly] remember Me among the nations to 
 
 
 
-And they shall know, understand, _and_ realize that I am the Lord. I have not said in vain that I would bring this evil calamity [in punishment] upon them. 
+And they shall know, understand, and realize that I am the Lord. I have not said in vain that I would bring this evil calamity [in punishment] upon them. 
 
 
 
@@ -280,7 +280,7 @@ He who is far off shall die of the pestilence, and he that is near shall fall by
 
 
 
-Then shall you know, understand, _and_ realize that I am the Lord, when their slain shall lie among their idols round about their altars upon every high hill, on all the tops of the mountains, under every green tree, and under every thickly leafed oak, the places where they were accustomed to offer sweet incense to all their idols. 
+Then shall you know, understand, and realize that I am the Lord, when their slain shall lie among their idols round about their altars upon every high hill, on all the tops of the mountains, under every green tree, and under every thickly leafed oak, the places where they were accustomed to offer sweet incense to all their idols. 
 
 
 
@@ -301,4 +301,4 @@ Then shall you know, understand, _and_ realize that I am the Lord, when their sl
 
 
 
-And I will stretch out My hand upon them and make the land desolate and waste, yes, more desolate than the wilderness toward Diblah [a Moabite city], throughout all their dwelling places; and they shall know, understand, _and_ realize that I am the Lord.
+And I will stretch out My hand upon them and make the land desolate and waste, yes, more desolate than the wilderness toward Diblah [a Moabite city], throughout all their dwelling places; and they shall know, understand, and realize that I am the Lord.

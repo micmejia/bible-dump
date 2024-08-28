@@ -91,7 +91,7 @@ For I will pour water upon him who is thirsty, and floods upon the dry ground. I
 
 
 
-And they shall spring up among the grass like willows _or_ poplars by the watercourses. 
+And they shall spring up among the grass like willows or poplars by the watercourses. 
 
 
 
@@ -154,7 +154,7 @@ Thus says the Lord, the King of Israel and his Redeemer, the Lord of hosts: I am
 
 
 
-Who is like Me? Let him [stand and] proclaim it, declare it, and set [his proofs] in order before Me, since I made _and_ established the people of antiquity. [Who has announced from of old] the things that are coming? Then let them declare yet future things. 
+Who is like Me? Let him [stand and] proclaim it, declare it, and set [his proofs] in order before Me, since I made and established the people of antiquity. [Who has announced from of old] the things that are coming? Then let them declare yet future things. 
 
 
 
@@ -196,7 +196,7 @@ Fear not, nor be afraid [in the coming violent upheavals]; have I not told it to
 
 
 
-All who make graven idols are confusion, chaos, _and_ worthlessness. Their objects (idols) in which they delight do not profit them, and their own witnesses (worshipers) do not see or know, so that they are put to shame. 
+All who make graven idols are confusion, chaos, and worthlessness. Their objects (idols) in which they delight do not profit them, and their own witnesses (worshipers) do not see or know, so that they are put to shame. 
 
 
 
@@ -259,7 +259,7 @@ Behold, all his fellows shall be put to shame, and the craftsmen, [how can they 
 
 
 
-The ironsmith sharpens _and_ uses a chisel and works it over the coals; he shapes [the core of the idol] with hammers and forges it with his strong arm. He becomes hungry and his strength fails; he drinks no water and is faint. 
+The ironsmith sharpens and uses a chisel and works it over the coals; he shapes [the core of the idol] with hammers and forges it with his strong arm. He becomes hungry and his strength fails; he drinks no water and is faint. 
 
 
 
@@ -280,7 +280,7 @@ The ironsmith sharpens _and_ uses a chisel and works it over the coals; he shape
 
 
 
-The carpenter stretches out a line, he marks it out with a pencil _or_ red ocher; he fashions [an idol] with planes and marks it out with the compasses; and he shapes it to have the figure of a man, with the beauty of a man, that it may dwell in a house. 
+The carpenter stretches out a line, he marks it out with a pencil or red ocher; he fashions [an idol] with planes and marks it out with the compasses; and he shapes it to have the figure of a man, with the beauty of a man, that it may dwell in a house. 
 
 
 
@@ -301,7 +301,7 @@ The carpenter stretches out a line, he marks it out with a pencil _or_ red ocher
 
 
 
-He hews for himself cedars, and takes the holm tree and the oak and lets them grow strong for himself among the trees of the forest; he plants a fir tree _or_ an ash, and the rain nourishes it. 
+He hews for himself cedars, and takes the holm tree and the oak and lets them grow strong for himself among the trees of the forest; he plants a fir tree or an ash, and the rain nourishes it. 
 
 
 
@@ -385,7 +385,7 @@ And from what is left [of the log] he makes a god, his graven idol. He falls dow
 
 
 
-They do not know or understand, for their eyes God has let become besmeared so that they cannot see, _and_ their minds as well so that they cannot understand. 
+They do not know or understand, for their eyes God has let become besmeared so that they cannot see, and their minds as well so that they cannot understand. 
 
 
 
@@ -406,7 +406,7 @@ They do not know or understand, for their eyes God has let become besmeared so t
 
 
 
-And no one considers in his mind, nor has he knowledge and understanding [enough] to say [to himself], I have burned part of this log in the fire, and also I have baked bread on its coals and have roasted meat and eaten it. And shall I make the remainder of it into an abomination [the very essence of what is disgusting, detestable, and shamefully vile in the eyes of a jealous God]? Shall I fall down _and_ worship the stock of a tree [a block of wood without consciousness or life]? 
+And no one considers in his mind, nor has he knowledge and understanding [enough] to say [to himself], I have burned part of this log in the fire, and also I have baked bread on its coals and have roasted meat and eaten it. And shall I make the remainder of it into an abomination [the very essence of what is disgusting, detestable, and shamefully vile in the eyes of a jealous God]? Shall I fall down and worship the stock of a tree [a block of wood without consciousness or life]? 
 
 
 
@@ -427,7 +427,7 @@ And no one considers in his mind, nor has he knowledge and understanding [enough
 
 
 
-That kind of man feeds on ashes [and finds his satisfaction in ashes]! A deluded mind has led him astray, so that he cannot release _and_ save himself, or ask, Is not [this thing I am holding] in my right hand a lie? 
+That kind of man feeds on ashes [and finds his satisfaction in ashes]! A deluded mind has led him astray, so that he cannot release and save himself, or ask, Is not [this thing I am holding] in my right hand a lie? 
 
 
 
@@ -532,7 +532,7 @@ Thus says the Lord, your Redeemer, and He Who formed you from the womb: I am the
 
 
 
-[I am the Lord] Who frustrates the signs _and_ confounds the omens [upon which the false prophets' forecasts of the future are based] of the [boasting] liars and makes fools of diviners, Who turns the wise backward and makes their knowledge foolishness, 
+[I am the Lord] Who frustrates the signs and confounds the omens [upon which the false prophets' forecasts of the future are based] of the [boasting] liars and makes fools of diviners, Who turns the wise backward and makes their knowledge foolishness, 
 
 
 
@@ -595,4 +595,4 @@ Who says to the deep, Be dry, and I will dry up your rivers,
 
 
 
-Who says of Cyrus, He is My shepherd (ruler), and he shall perform all My pleasure _and_ fulfill all My purpose--even saying of Jerusalem, She shall [again] be built, and of the temple, Your foundation shall [again] be laid.
+Who says of Cyrus, He is My shepherd (ruler), and he shall perform all My pleasure and fulfill all My purpose--even saying of Jerusalem, She shall [again] be built, and of the temple, Your foundation shall [again] be laid.

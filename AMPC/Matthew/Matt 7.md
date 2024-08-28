@@ -28,7 +28,7 @@ next: ['Matt 8']
 
 
 
-Do not judge _and_ criticize _and_ condemn others, so that you may not be judged _and_ criticized _and_ condemned yourselves. 
+Do not judge and criticize and condemn others, so that you may not be judged and criticized and condemned yourselves. 
 
 
 
@@ -49,7 +49,7 @@ Do not judge _and_ criticize _and_ condemn others, so that you may not be judged
 
 
 
-For just as you judge _and_ criticize _and_ condemn others, you will be judged _and_ criticized _and_ condemned, and in accordance with the measure you [use to] deal out to others, it will be dealt out again to you. 
+For just as you judge and criticize and condemn others, you will be judged and criticized and condemned, and in accordance with the measure you [use to] deal out to others, it will be dealt out again to you. 
 
 
 
@@ -70,7 +70,7 @@ For just as you judge _and_ criticize _and_ condemn others, you will be judged _
 
 
 
-Why do you stare from without at the very small particle that is in your brother's eye but do not become aware of _and_ consider the beam of timber that is in your own eye? 
+Why do you stare from without at the very small particle that is in your brother's eye but do not become aware of and consider the beam of timber that is in your own eye? 
 
 
 
@@ -133,7 +133,7 @@ You hypocrite, first get the beam of timber out of your own eye, and then you wi
 
 
 
-Do not give that which is holy (the sacred thing) to the dogs, and do not throw your pearls before hogs, lest they trample upon them with their feet and turn _and_ tear you in pieces. 
+Do not give that which is holy (the sacred thing) to the dogs, and do not throw your pearls before hogs, lest they trample upon them with their feet and turn and tear you in pieces. 
 
 
 
@@ -238,7 +238,7 @@ Or if he asks for a fish, will hand him a serpent?
 
 
 
-If you then, evil as you are, know how to give good _and_ advantageous gifts to your children, how much more will your Father Who is in heaven [perfect as He is] give good _and_ advantageous things to those who keep on asking Him! 
+If you then, evil as you are, know how to give good and advantageous gifts to your children, how much more will your Father Who is in heaven [perfect as He is] give good and advantageous things to those who keep on asking Him! 
 
 
 
@@ -259,7 +259,7 @@ If you then, evil as you are, know how to give good _and_ advantageous gifts to 
 
 
 
-So then, whatever you desire that others would do to _and_ for you, even so do also to _and_ for them, for this is (sums up) the Law and the Prophets. 
+So then, whatever you desire that others would do to and for you, even so do also to and for them, for this is (sums up) the Law and the Prophets. 
 
 
 
@@ -280,7 +280,7 @@ So then, whatever you desire that others would do to _and_ for you, even so do a
 
 
 
-Enter through the narrow gate; for wide is the gate and spacious _and_ broad is the way that leads away to destruction, and many are those who are entering through it. 
+Enter through the narrow gate; for wide is the gate and spacious and broad is the way that leads away to destruction, and many are those who are entering through it. 
 
 
 
@@ -301,7 +301,7 @@ Enter through the narrow gate; for wide is the gate and spacious _and_ broad is 
 
 
 
-But the gate is narrow (contracted by pressure) and the way is straitened _and_ compressed that leads away to life, and few are those who find it. 
+But the gate is narrow (contracted by pressure) and the way is straitened and compressed that leads away to life, and few are those who find it. 
 
 
 
@@ -574,7 +574,7 @@ And everyone who hears these words of Mine and does not do them will be like a s
 
 
 
-And the rain fell and the floods came and the winds blew and beat against that house, and it fell--and great _and_ complete was the fall of it. 
+And the rain fell and the floods came and the winds blew and beat against that house, and it fell--and great and complete was the fall of it. 
 
 
 
@@ -595,7 +595,7 @@ And the rain fell and the floods came and the winds blew and beat against that h
 
 
 
-When Jesus had finished these sayings [the Sermon on the Mount], the crowds were astonished _and_ overwhelmed with bewildered wonder at His teaching, 
+When Jesus had finished these sayings [the Sermon on the Mount], the crowds were astonished and overwhelmed with bewildered wonder at His teaching, 
 
 
 
@@ -616,4 +616,4 @@ When Jesus had finished these sayings [the Sermon on the Mount], the crowds were
 
 
 
-For He was teaching as _One_ Who had [and was] authority, and not as [did] the scribes.
+For He was teaching as One Who had [and was] authority, and not as [did] the scribes.

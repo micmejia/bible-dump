@@ -70,7 +70,7 @@ Thus says the Lord: Stand in the court of the Lord's house [Jeremiah] and speak 
 
 
 
-It may be that they will listen and turn every man from his evil way, that I may relent _and_ reverse My decision concerning the evil which I purpose to do to them because of their evil doings. 
+It may be that they will listen and turn every man from his evil way, that I may relent and reverse My decision concerning the evil which I purpose to do to them because of their evil doings. 
 
 
 
@@ -91,7 +91,7 @@ It may be that they will listen and turn every man from his evil way, that I may
 
 
 
-And you will say to them, Thus says the Lord: If you will not listen to _and_ obey Me, to walk in My law, which I have set before you, 
+And you will say to them, Thus says the Lord: If you will not listen to and obey Me, to walk in My law, which I have set before you, 
 
 
 
@@ -112,7 +112,7 @@ And you will say to them, Thus says the Lord: If you will not listen to _and_ ob
 
 
 
-And to hear _and_ obey the words of My servants the prophets, whom I have sent to you urgently _and_ persistently--though you have not listened _and_ obeyed-- 
+And to hear and obey the words of My servants the prophets, whom I have sent to you urgently and persistently--though you have not listened and obeyed-- 
 
 
 
@@ -280,7 +280,7 @@ Then Jeremiah said to all the princes and to all the people: The Lord sent me to
 
 
 
-Therefore now amend your ways and your doings and obey the voice of the Lord your God; then the Lord will relent _and_ reverse the decision concerning the evil which He has pronounced against you. 
+Therefore now amend your ways and your doings and obey the voice of the Lord your God; then the Lord will relent and reverse the decision concerning the evil which He has pronounced against you. 
 
 
 
@@ -406,7 +406,7 @@ Micah of Moresheth prophesied in the days of Hezekiah king of Judah and said to 
 
 
 
-Did Hezekiah king of Judah and all Judah put [Micah] to death? Did he not [reverently] fear the Lord and entreat the Lord? And did not the Lord relent _and_ reverse the decision concerning the evil which He had pronounced against them? But [here] we are thinking of committing what will be a great evil against ourselves. 
+Did Hezekiah king of Judah and all Judah put [Micah] to death? Did he not [reverently] fear the Lord and entreat the Lord? And did not the Lord relent and reverse the decision concerning the evil which He had pronounced against them? But [here] we are thinking of committing what will be a great evil against ourselves. 
 
 
 

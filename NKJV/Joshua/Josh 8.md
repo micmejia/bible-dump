@@ -22,16 +22,16 @@ So Joshua arose, and all the people of war, to go up against Ai; and Joshua chos
 And he commanded them, saying: "Behold, you shall lie in ambush against the city, behind the city. Do not go very far from the city, but all of you be ready. 
 
 ###### 5 
-Then I and all the people who _are_ with me will approach the city; and it will come about, when they come out against us as at the first, that we shall flee before them. 
+Then I and all the people who are with me will approach the city; and it will come about, when they come out against us as at the first, that we shall flee before them. 
 
 ###### 6 
-For they will come out after us till we have drawn them from the city, for they will say, '_They are_ fleeing before us as at the first.' Therefore we will flee before them. 
+For they will come out after us till we have drawn them from the city, for they will say, 'They are fleeing before us as at the first.' Therefore we will flee before them. 
 
 ###### 7 
 Then you shall rise from the ambush and seize the city, for the Lord your God will deliver it into your hand. 
 
 ###### 8 
-And it will be, when you have taken the city, _that_ you shall set the city on fire. According to the commandment of the Lord you shall do. See, I have commanded you." 
+And it will be, when you have taken the city, that you shall set the city on fire. According to the commandment of the Lord you shall do. See, I have commanded you." 
 
 ###### 9 
 Joshua therefore sent them out; and they went to lie in ambush, and stayed between Bethel and Ai, on the west side of Ai; but Joshua lodged that night among the people. 
@@ -40,31 +40,31 @@ Joshua therefore sent them out; and they went to lie in ambush, and stayed betwe
 Then Joshua rose up early in the morning and mustered the people, and went up, he and the elders of Israel, before the people to Ai. 
 
 ###### 11 
-And all the people of war who _were_ with him went up and drew near; and they came before the city and camped on the north side of Ai. Now a valley _lay_ between them and Ai. 
+And all the people of war who were with him went up and drew near; and they came before the city and camped on the north side of Ai. Now a valley lay between them and Ai. 
 
 ###### 12 
 So he took about five thousand men and set them in ambush between Bethel and Ai, on the west side of the city. 
 
 ###### 13 
-And when they had set the people, all the army that _was_ on the north of the city, and its rear guard on the west of the city, Joshua went that night into the midst of the valley. 
+And when they had set the people, all the army that was on the north of the city, and its rear guard on the west of the city, Joshua went that night into the midst of the valley. 
 
 ###### 14 
-Now it happened, when the king of Ai saw _it,_ that the men of the city hurried and rose early and went out against Israel to battle, he and all his people, at an appointed place before the plain. But he did not know that _there was_ an ambush against him behind the city. 
+Now it happened, when the king of Ai saw it, that the men of the city hurried and rose early and went out against Israel to battle, he and all his people, at an appointed place before the plain. But he did not know that there was an ambush against him behind the city. 
 
 ###### 15 
 And Joshua and all Israel made as if they were beaten before them, and fled by the way of the wilderness. 
 
 ###### 16 
-So all the people who _were_ in Ai were called together to pursue them. And they pursued Joshua and were drawn away from the city. 
+So all the people who were in Ai were called together to pursue them. And they pursued Joshua and were drawn away from the city. 
 
 ###### 17 
 There was not a man left in Ai or Bethel who did not go out after Israel. So they left the city open and pursued Israel. 
 
 ###### 18 
-Then the Lord said to Joshua, "Stretch out the spear that _is_ in your hand toward Ai, for I will give it into your hand." And Joshua stretched out the spear that _was_ in his hand toward the city. 
+Then the Lord said to Joshua, "Stretch out the spear that is in your hand toward Ai, for I will give it into your hand." And Joshua stretched out the spear that was in his hand toward the city. 
 
 ###### 19 
-So _those in_ ambush arose quickly out of their place; they ran as soon as he had stretched out his hand, and they entered the city and took it, and hurried to set the city on fire. 
+So those in ambush arose quickly out of their place; they ran as soon as he had stretched out his hand, and they entered the city and took it, and hurried to set the city on fire. 
 
 ###### 20 
 And when the men of Ai looked behind them, they saw, and behold, the smoke of the city ascended to heaven. So they had no power to flee this way or that way, and the people who had fled to the wilderness turned back on the pursuers. 
@@ -73,7 +73,7 @@ And when the men of Ai looked behind them, they saw, and behold, the smoke of th
 Now when Joshua and all Israel saw that the ambush had taken the city and that the smoke of the city ascended, they turned back and struck down the men of Ai. 
 
 ###### 22 
-Then the others came out of the city against them; so they were _caught_ in the midst of Israel, some on this side and some on that side. And they struck them down, so that they let none of them remain or escape. 
+Then the others came out of the city against them; so they were caught in the midst of Israel, some on this side and some on that side. And they struck them down, so that they let none of them remain or escape. 
 
 ###### 23 
 But the king of Ai they took alive, and brought him to Joshua. 
@@ -82,7 +82,7 @@ But the king of Ai they took alive, and brought him to Joshua.
 And it came to pass when Israel had made an end of slaying all the inhabitants of Ai in the field, in the wilderness where they pursued them, and when they all had fallen by the edge of the sword until they were consumed, that all the Israelites returned to Ai and struck it with the edge of the sword. 
 
 ###### 25 
-So it was _that_ all who fell that day, both men and women, _were_ twelve thousand--all the people of Ai. 
+So it was that all who fell that day, both men and women, were twelve thousand--all the people of Ai. 
 
 ###### 26 
 For Joshua did not draw back his hand, with which he stretched out the spear, until he had utterly destroyed all the inhabitants of Ai. 
@@ -94,7 +94,7 @@ Only the livestock and the spoil of that city Israel took as booty for themselve
 So Joshua burned Ai and made it a heap forever, a desolation to this day. 
 
 ###### 29 
-And the king of Ai he hanged on a tree until evening. And as soon as the sun was down, Joshua commanded that they should take his corpse down from the tree, cast it at the entrance of the gate of the city, and raise over it a great heap of stones _that remains_ to this day.
+And the king of Ai he hanged on a tree until evening. And as soon as the sun was down, Joshua commanded that they should take his corpse down from the tree, cast it at the entrance of the gate of the city, and raise over it a great heap of stones that remains to this day.
 
 ## Joshua Renews the Covenant 
 
@@ -102,13 +102,13 @@ And the king of Ai he hanged on a tree until evening. And as soon as the sun was
 Now Joshua built an altar to the Lord God of Israel in Mount Ebal, 
 
 ###### 31 
-as Moses the servant of the Lord had commanded the children of Israel, as it is written in the Book of the Law of Moses: "an altar of whole stones over which no man has wielded an iron _tool._" And they offered on it burnt offerings to the Lord, and sacrificed peace offerings. 
+as Moses the servant of the Lord had commanded the children of Israel, as it is written in the Book of the Law of Moses: "an altar of whole stones over which no man has wielded an iron tool." And they offered on it burnt offerings to the Lord, and sacrificed peace offerings. 
 
 ###### 32 
 And there, in the presence of the children of Israel, he wrote on the stones a copy of the law of Moses, which he had written. 
 
 ###### 33 
-Then all Israel, with their elders and officers and judges, stood on either side of the ark before the priests, the Levites, who bore the ark of the covenant of the Lord, the stranger as well as he who was born among them. Half of them _were_ in front of Mount Gerizim and half of them in front of Mount Ebal, as Moses the servant of the Lord had commanded before, that they should bless the people of Israel. 
+Then all Israel, with their elders and officers and judges, stood on either side of the ark before the priests, the Levites, who bore the ark of the covenant of the Lord, the stranger as well as he who was born among them. Half of them were in front of Mount Gerizim and half of them in front of Mount Ebal, as Moses the servant of the Lord had commanded before, that they should bless the people of Israel. 
 
 ###### 34 
 And afterward he read all the words of the law, the blessings and the cursings, according to all that is written in the Book of the Law. 

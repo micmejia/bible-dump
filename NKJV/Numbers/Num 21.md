@@ -10,7 +10,7 @@ next: ['Num 22']
 
 
 ###### 1 
-The king of Arad, the Canaanite, who dwelt in the South, heard that Israel was coming on the road to Atharim. Then he fought against Israel and took _some_ of them prisoners. 
+The king of Arad, the Canaanite, who dwelt in the South, heard that Israel was coming on the road to Atharim. Then he fought against Israel and took some of them prisoners. 
 
 ###### 2 
 So Israel made a vow to the Lord, and said, "If You will indeed deliver this people into my hand, then I will utterly destroy their cities." 
@@ -24,7 +24,7 @@ And the Lord listened to the voice of Israel and delivered up the Canaanites, an
 Then they journeyed from Mount Hor by the Way of the Red Sea, to go around the land of Edom; and the soul of the people became very discouraged on the way. 
 
 ###### 5 
-And the people spoke against God and against Moses: "Why have you brought us up out of Egypt to die in the wilderness? For _there is_ no food and no water, and our soul loathes this worthless bread." 
+And the people spoke against God and against Moses: "Why have you brought us up out of Egypt to die in the wilderness? For there is no food and no water, and our soul loathes this worthless bread." 
 
 ###### 6 
 So the Lord sent fiery serpents among the people, and they bit the people; and many of the people of Israel died. 
@@ -33,7 +33,7 @@ So the Lord sent fiery serpents among the people, and they bit the people; and m
 Therefore the people came to Moses, and said, "We have sinned, for we have spoken against the Lord and against you; pray to the Lord that He take away the serpents from us." So Moses prayed for the people. 
 
 ###### 8 
-Then the Lord said to Moses, "Make a fiery _serpent,_ and set it on a pole; and it shall be that everyone who is bitten, when he looks at it, shall live." 
+Then the Lord said to Moses, "Make a fiery serpent, and set it on a pole; and it shall be that everyone who is bitten, when he looks at it, shall live." 
 
 ###### 9 
 So Moses made a bronze serpent, and put it on a pole; and so it was, if a serpent had bitten anyone, when he looked at the bronze serpent, he lived.
@@ -44,13 +44,13 @@ So Moses made a bronze serpent, and put it on a pole; and so it was, if a serpen
 Now the children of Israel moved on and camped in Oboth. 
 
 ###### 11 
-And they journeyed from Oboth and camped at Ije Abarim, in the wilderness which _is_ east of Moab, toward the sunrise. 
+And they journeyed from Oboth and camped at Ije Abarim, in the wilderness which is east of Moab, toward the sunrise. 
 
 ###### 12 
 From there they moved and camped in the Valley of Zered. 
 
 ###### 13 
-From there they moved and camped on the other side of the Arnon, which _is_ in the wilderness that extends from the border of the Amorites; for the Arnon _is_ the border of Moab, between Moab and the Amorites. 
+From there they moved and camped on the other side of the Arnon, which is in the wilderness that extends from the border of the Amorites; for the Arnon is the border of Moab, between Moab and the Amorites. 
 
 ###### 14 
 Therefore it is said in the Book of the Wars of the Lord: "Waheb in Suphah, The brooks of the Arnon, 
@@ -59,19 +59,19 @@ Therefore it is said in the Book of the Wars of the Lord: "Waheb in Suphah, The 
 And the slope of the brooks That reaches to the dwelling of Ar, And lies on the border of Moab." 
 
 ###### 16 
-From there _they went_ to Beer, which _is_ the well where the Lord said to Moses, "Gather the people together, and I will give them water." 
+From there they went to Beer, which is the well where the Lord said to Moses, "Gather the people together, and I will give them water." 
 
 ###### 17 
 Then Israel sang this song: "Spring up, O well! All of you sing to it-- 
 
 ###### 18 
-The well the leaders sank, Dug by the nation's nobles, By the lawgiver, with their staves." And from the wilderness _they went_ to Mattanah, 
+The well the leaders sank, Dug by the nation's nobles, By the lawgiver, with their staves." And from the wilderness they went to Mattanah, 
 
 ###### 19 
 from Mattanah to Nahaliel, from Nahaliel to Bamoth, 
 
 ###### 20 
-and from Bamoth, _in_ the valley that _is_ in the country of Moab, to the top of Pisgah which looks down on the wasteland.
+and from Bamoth, in the valley that is in the country of Moab, to the top of Pisgah which looks down on the wasteland.
 
 ## King Sihon Defeated 
 
@@ -85,13 +85,13 @@ Then Israel sent messengers to Sihon king of the Amorites, saying,
 But Sihon would not allow Israel to pass through his territory. So Sihon gathered all his people together and went out against Israel in the wilderness, and he came to Jahaz and fought against Israel. 
 
 ###### 24 
-Then Israel defeated him with the edge of the sword, and took possession of his land from the Arnon to the Jabbok, as far as the people of Ammon; for the border of the people of Ammon _was_ fortified. 
+Then Israel defeated him with the edge of the sword, and took possession of his land from the Arnon to the Jabbok, as far as the people of Ammon; for the border of the people of Ammon was fortified. 
 
 ###### 25 
 So Israel took all these cities, and Israel dwelt in all the cities of the Amorites, in Heshbon and in all its villages. 
 
 ###### 26 
-For Heshbon _was_ the city of Sihon king of the Amorites, who had fought against the former king of Moab, and had taken all his land from his hand as far as the Arnon. 
+For Heshbon was the city of Sihon king of the Amorites, who had fought against the former king of Moab, and had taken all his land from his hand as far as the Arnon. 
 
 ###### 27 
 Therefore those who speak in proverbs say: "Come to Heshbon, let it be built; Let the city of Sihon be repaired. 
@@ -103,13 +103,13 @@ Therefore those who speak in proverbs say: "Come to Heshbon, let it be built; Le
 Woe to you, Moab! You have perished, O people of Chemosh! He has given his sons as fugitives, And his daughters into captivity, To Sihon king of the Amorites. 
 
 ###### 30 
-"But we have shot at them; Heshbon has perished as far as Dibon. Then we laid waste as far as Nophah, Which _reaches_ to Medeba." 
+"But we have shot at them; Heshbon has perished as far as Dibon. Then we laid waste as far as Nophah, Which reaches to Medeba." 
 
 ###### 31 
 Thus Israel dwelt in the land of the Amorites. 
 
 ###### 32 
-Then Moses sent to spy out Jazer; and they took its villages and drove out the Amorites who _were_ there.
+Then Moses sent to spy out Jazer; and they took its villages and drove out the Amorites who were there.
 
 ## King Og Defeated 
 

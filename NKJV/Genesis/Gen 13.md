@@ -13,7 +13,7 @@ next: ['Gen 14']
 Then Abram went up from Egypt, he and his wife and all that he had, and Lot with him, to the South. 
 
 ###### 2 
-Abram _was_ very rich in livestock, in silver, and in gold. 
+Abram was very rich in livestock, in silver, and in gold. 
 
 ###### 3 
 And he went on his journey from the South as far as Bethel, to the place where his tent had been at the beginning, between Bethel and Ai, 
@@ -31,22 +31,22 @@ Now the land was not able to support them, that they might dwell together, for t
 And there was strife between the herdsmen of Abram's livestock and the herdsmen of Lot's livestock. The Canaanites and the Perizzites then dwelt in the land. 
 
 ###### 8 
-So Abram said to Lot, "Please let there be no strife between you and me, and between my herdsmen and your herdsmen; for we _are_ brethren. 
+So Abram said to Lot, "Please let there be no strife between you and me, and between my herdsmen and your herdsmen; for we are brethren. 
 
 ###### 9 
-_Is_ not the whole land before you? Please separate from me. If _you take_ the left, then I will go to the right; or, if _you go_ to the right, then I will go to the left." 
+Is not the whole land before you? Please separate from me. If you take the left, then I will go to the right; or, if you go to the right, then I will go to the left." 
 
 ###### 10 
-And Lot lifted his eyes and saw all the plain of Jordan, that it _was_ well watered everywhere (before the Lord destroyed Sodom and Gomorrah) like the garden of the Lord, like the land of Egypt as you go toward Zoar. 
+And Lot lifted his eyes and saw all the plain of Jordan, that it was well watered everywhere (before the Lord destroyed Sodom and Gomorrah) like the garden of the Lord, like the land of Egypt as you go toward Zoar. 
 
 ###### 11 
 Then Lot chose for himself all the plain of Jordan, and Lot journeyed east. And they separated from each other. 
 
 ###### 12 
-Abram dwelt in the land of Canaan, and Lot dwelt in the cities of the plain and pitched _his_ tent even as far as Sodom. 
+Abram dwelt in the land of Canaan, and Lot dwelt in the cities of the plain and pitched his tent even as far as Sodom. 
 
 ###### 13 
-But the men of Sodom _were_ exceedingly wicked and sinful against the Lord. 
+But the men of Sodom were exceedingly wicked and sinful against the Lord. 
 
 ###### 14 
 And the Lord said to Abram, after Lot had separated from him: "Lift your eyes now and look from the place where you are--northward, southward, eastward, and westward; 
@@ -55,10 +55,10 @@ And the Lord said to Abram, after Lot had separated from him: "Lift your eyes no
 for all the land which you see I give to you and your descendants forever. 
 
 ###### 16 
-And I will make your descendants as the dust of the earth; so that if a man could number the dust of the earth, _then_ your descendants also could be numbered. 
+And I will make your descendants as the dust of the earth; so that if a man could number the dust of the earth, then your descendants also could be numbered. 
 
 ###### 17 
 Arise, walk in the land through its length and its width, for I give it to you." 
 
 ###### 18 
-Then Abram moved _his_ tent, and went and dwelt by the terebinth trees of Mamre, which _are_ in Hebron, and built an altar there to the Lord.
+Then Abram moved his tent, and went and dwelt by the terebinth trees of Mamre, which are in Hebron, and built an altar there to the Lord.

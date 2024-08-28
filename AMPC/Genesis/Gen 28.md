@@ -280,7 +280,7 @@ And he dreamed that there was a ladder set up on the earth, and the top of it re
 
 
 
-And behold, the Lord stood over _and_ beside him and said, I am the Lord, the God of Abraham your father [forefather] and the God of Isaac; I will give to you and to your descendants the land on which you are lying. 
+And behold, the Lord stood over and beside him and said, I am the Lord, the God of Abraham your father [forefather] and the God of Isaac; I will give to you and to your descendants the land on which you are lying. 
 
 
 
@@ -301,7 +301,7 @@ And behold, the Lord stood over _and_ beside him and said, I am the Lord, the Go
 
 
 
-And your offspring shall be as [countless as] the dust _or_ sand of the ground, and you shall spread abroad to the west and the east and the north and the south; and by you and your Offspring shall all the families of the earth be blessed _and_ bless themselves. 
+And your offspring shall be as [countless as] the dust or sand of the ground, and you shall spread abroad to the west and the east and the north and the south; and by you and your Offspring shall all the families of the earth be blessed and bless themselves. 
 
 
 
@@ -364,7 +364,7 @@ And Jacob awoke from his sleep and he said, Surely the Lord is in this place and
 
 
 
-He was afraid and said, How to be feared _and_ reverenced is this place! This is none other than the house of God, and this is the gateway to heaven! 
+He was afraid and said, How to be feared and reverenced is this place! This is none other than the house of God, and this is the gateway to heaven! 
 
 
 

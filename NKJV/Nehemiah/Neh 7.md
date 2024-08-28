@@ -13,24 +13,24 @@ next: ['Neh 8']
 Then it was, when the wall was built and I had hung the doors, when the gatekeepers, the singers, and the Levites had been appointed, 
 
 ###### 2 
-that I gave the charge of Jerusalem to my brother Hanani, and Hananiah the leader of the citadel, for he _was_ a faithful man and feared God more than many. 
+that I gave the charge of Jerusalem to my brother Hanani, and Hananiah the leader of the citadel, for he was a faithful man and feared God more than many. 
 
 ###### 3 
-And I said to them, "Do not let the gates of Jerusalem be opened until the sun is hot; and while they stand _guard,_ let them shut and bar the doors; and appoint guards from among the inhabitants of Jerusalem, one at his watch station and another in front of his own house." 
+And I said to them, "Do not let the gates of Jerusalem be opened until the sun is hot; and while they stand guard, let them shut and bar the doors; and appoint guards from among the inhabitants of Jerusalem, one at his watch station and another in front of his own house." 
 
 ## The Captives Who Returned to Jerusalem 
 
 ###### 4 
-Now the city _was_ large and spacious, but the people in it _were_ few, and the houses _were_ not rebuilt. 
+Now the city was large and spacious, but the people in it were few, and the houses were not rebuilt. 
 
 ###### 5 
-Then my God put it into my heart to gather the nobles, the rulers, and the people, that they might be registered by genealogy. And I found a register of the genealogy of those who had come up in the first _return,_ and found written in it: 
+Then my God put it into my heart to gather the nobles, the rulers, and the people, that they might be registered by genealogy. And I found a register of the genealogy of those who had come up in the first return, and found written in it: 
 
 ###### 6 
-These _are_ the people of the province who came back from the captivity, of those who had been carried away, whom Nebuchadnezzar the king of Babylon had carried away, and who returned to Jerusalem and Judah, everyone to his city. 
+These are the people of the province who came back from the captivity, of those who had been carried away, whom Nebuchadnezzar the king of Babylon had carried away, and who returned to Jerusalem and Judah, everyone to his city. 
 
 ###### 7 
-Those who came with Zerubbabel _were_ Jeshua, Nehemiah, Azariah, Raamiah, Nahamani, Mordecai, Bilshan, Mispereth, Bigvai, Nehum, and Baanah. The number of the men of the people of Israel: 
+Those who came with Zerubbabel were Jeshua, Nehemiah, Azariah, Raamiah, Nahamani, Mordecai, Bilshan, Mispereth, Bigvai, Nehum, and Baanah. The number of the men of the people of Israel: 
 
 ###### 8 
 the sons of Parosh, two thousand one hundred and seventy-two; 
@@ -138,7 +138,7 @@ the sons of Pashhur, one thousand two hundred and forty-seven;
 the sons of Harim, one thousand and seventeen. 
 
 ###### 43 
-The Levites: the sons of Jeshua, of Kadmiel, _and_ of the sons of Hodevah, seventy-four. 
+The Levites: the sons of Jeshua, of Kadmiel, and of the sons of Hodevah, seventy-four. 
 
 ###### 44 
 The singers: the sons of Asaph, one hundred and forty-eight. 
@@ -189,10 +189,10 @@ the sons of Jaala, the sons of Darkon, the sons of Giddel,
 the sons of Shephatiah, the sons of Hattil, the sons of Pochereth of Zebaim, and the sons of Amon. 
 
 ###### 60 
-All the Nethinim, and the sons of Solomon's servants, _were_ three hundred and ninety-two. 
+All the Nethinim, and the sons of Solomon's servants, were three hundred and ninety-two. 
 
 ###### 61 
-And these _were_ the ones who came up from Tel Melah, Tel Harsha, Cherub, Addon, and Immer, but they could not identify their father's house nor their lineage, whether they _were_ of Israel: 
+And these were the ones who came up from Tel Melah, Tel Harsha, Cherub, Addon, and Immer, but they could not identify their father's house nor their lineage, whether they were of Israel: 
 
 ###### 62 
 the sons of Delaiah, the sons of Tobiah, the sons of Nekoda, six hundred and forty-two; 
@@ -201,33 +201,33 @@ the sons of Delaiah, the sons of Tobiah, the sons of Nekoda, six hundred and for
 and of the priests: the sons of Habaiah, the sons of Koz, the sons of Barzillai, who took a wife of the daughters of Barzillai the Gileadite, and was called by their name. 
 
 ###### 64 
-These sought their listing _among_ those who were registered by genealogy, but it was not found; therefore they were excluded from the priesthood as defiled. 
+These sought their listing among those who were registered by genealogy, but it was not found; therefore they were excluded from the priesthood as defiled. 
 
 ###### 65 
 And the governor said to them that they should not eat of the most holy things till a priest could consult with the Urim and Thummim. 
 
 ###### 66 
-Altogether the whole assembly _was_ forty-two thousand three hundred and sixty, 
+Altogether the whole assembly was forty-two thousand three hundred and sixty, 
 
 ###### 67 
-besides their male and female servants, of whom _there were_ seven thousand three hundred and thirty-seven; and they had two hundred and forty-five men and women singers. 
+besides their male and female servants, of whom there were seven thousand three hundred and thirty-seven; and they had two hundred and forty-five men and women singers. 
 
 ###### 68 
 Their horses were seven hundred and thirty-six, their mules two hundred and forty-five, 
 
 ###### 69 
-_their_ camels four hundred and thirty-five, _and_ donkeys six thousand seven hundred and twenty. 
+their camels four hundred and thirty-five, and donkeys six thousand seven hundred and twenty. 
 
 ###### 70 
-And some of the heads of the fathers' _houses_ gave to the work. The governor gave to the treasury one thousand gold drachmas, fifty basins, and five hundred and thirty priestly garments. 
+And some of the heads of the fathers' houses gave to the work. The governor gave to the treasury one thousand gold drachmas, fifty basins, and five hundred and thirty priestly garments. 
 
 ###### 71 
-Some of the heads of the fathers' _houses_ gave to the treasury of the work twenty thousand gold drachmas, and two thousand two hundred silver minas. 
+Some of the heads of the fathers' houses gave to the treasury of the work twenty thousand gold drachmas, and two thousand two hundred silver minas. 
 
 ###### 72 
-And that which the rest of the people gave _was_ twenty thousand gold drachmas, two thousand silver minas, and sixty-seven priestly garments. 
+And that which the rest of the people gave was twenty thousand gold drachmas, two thousand silver minas, and sixty-seven priestly garments. 
 
 ###### 73 
-So the priests, the Levites, the gatekeepers, the singers, _some_ of the people, the Nethinim, and all Israel dwelt in their cities.
+So the priests, the Levites, the gatekeepers, the singers, some of the people, the Nethinim, and all Israel dwelt in their cities.
 
-## Ezra Reads the Law When the seventh month came, the children of Israel _were_ in their cities.
+## Ezra Reads the Law When the seventh month came, the children of Israel were in their cities.

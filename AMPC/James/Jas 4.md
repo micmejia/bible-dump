@@ -12,13 +12,13 @@ next: ['Jas 5']
 ###### 1 
 
 
-What leads to strife (discord and feuds) _and_ how do conflicts (quarrels and fightings) originate among you? Do they not arise from your sensual desires that are ever warring in your bodily members? 
+What leads to strife (discord and feuds) and how do conflicts (quarrels and fightings) originate among you? Do they not arise from your sensual desires that are ever warring in your bodily members? 
 
 
 ###### 2 
 
 
-You are jealous _and_ covet [what others have] and your desires go unfulfilled; [so] you become murderers. [To hate is to murder as far as your hearts are concerned.] You burn with envy _and_ anger and are not able to obtain [the gratification, the contentment, and the happiness that you seek], so you fight and war. You do not have, because you do not ask. 
+You are jealous and covet [what others have] and your desires go unfulfilled; [so] you become murderers. [To hate is to murder as far as your hearts are concerned.] You burn with envy and anger and are not able to obtain [the gratification, the contentment, and the happiness that you seek], so you fight and war. You do not have, because you do not ask. 
 
 
 ###### 3 
@@ -36,7 +36,7 @@ You [are like] unfaithful wives [having illicit love affairs with the world and 
 ###### 5 
 
 
-Or do you suppose that the Scripture is speaking to no purpose that says, The Spirit Whom He has caused to dwell in us yearns over us _and_ He yearns for the Spirit [to be welcome] with a jealous love? 
+Or do you suppose that the Scripture is speaking to no purpose that says, The Spirit Whom He has caused to dwell in us yearns over us and He yearns for the Spirit [to be welcome] with a jealous love? 
 
 
 ###### 6 
@@ -60,7 +60,7 @@ Come close to God and He will come close to you. [Recognize that you are] sinner
 ###### 9 
 
 
-[As you draw near to God] be deeply penitent and grieve, even weep [over your disloyalty]. Let your laughter be turned to grief and your mirth to dejection _and_ heartfelt shame [for your sins]. 
+[As you draw near to God] be deeply penitent and grieve, even weep [over your disloyalty]. Let your laughter be turned to grief and your mirth to dejection and heartfelt shame [for your sins]. 
 
 
 ###### 10 
@@ -72,19 +72,19 @@ Humble yourselves [feeling very insignificant] in the presence of the Lord, and 
 ###### 11 
 
 
-[My] brethren, do not speak evil about or accuse one another. He that maligns a brother or judges his brother is maligning _and_ criticizing the Law _and_ judging the Law. But if you judge the Law, you are not a practicer of the Law but a censor _and_ judge [of it]. 
+[My] brethren, do not speak evil about or accuse one another. He that maligns a brother or judges his brother is maligning and criticizing the Law and judging the Law. But if you judge the Law, you are not a practicer of the Law but a censor and judge [of it]. 
 
 
 ###### 12 
 
 
-One only is the Lawgiver _and_ Judge Who is able to save and to destroy [the One Who has the absolute power of life and death]. [But you] who are you that [you presume to] pass judgment on your neighbor? 
+One only is the Lawgiver and Judge Who is able to save and to destroy [the One Who has the absolute power of life and death]. [But you] who are you that [you presume to] pass judgment on your neighbor? 
 
 
 ###### 13 
 
 
-Come now, you who say, Today or tomorrow we will go into such _and_ such a city and spend a year there and carry on our business and make money. 
+Come now, you who say, Today or tomorrow we will go into such and such a city and spend a year there and carry on our business and make money. 
 
 
 ###### 14 
@@ -102,7 +102,7 @@ You ought instead to say, If the Lord is willing, we shall live and we shall do 
 ###### 16 
 
 
-But as it is, you boast [falsely] in your presumption _and_ your self-conceit. All such boasting is wrong. 
+But as it is, you boast [falsely] in your presumption and your self-conceit. All such boasting is wrong. 
 
 
 ###### 17 

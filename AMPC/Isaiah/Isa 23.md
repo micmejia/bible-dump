@@ -49,7 +49,7 @@ The mournful, inspired prediction (a burden to be lifted up) concerning Tyre: Wa
 
 
 
-Be still, you inhabitants of the coast, you merchants of Sidon, _your messengers_ passing over the sea have replenished you [with wealth and industry], 
+Be still, you inhabitants of the coast, you merchants of Sidon, your messengers passing over the sea have replenished you [with wealth and industry], 
 
 
 
@@ -70,7 +70,7 @@ Be still, you inhabitants of the coast, you merchants of Sidon, _your messengers
 
 
 
-And were on great waters. The seed _or_ grain of the Shihor, the harvest [due to the overflow] of the Nile River, was [Tyre's] revenue, and she became the merchandise of the nations. 
+And were on great waters. The seed or grain of the Shihor, the harvest [due to the overflow] of the Nile River, was [Tyre's] revenue, and she became the merchandise of the nations. 
 
 
 
@@ -91,7 +91,7 @@ And were on great waters. The seed _or_ grain of the Shihor, the harvest [due to
 
 
 
-Be ashamed, O Sidon [mother-city of Tyre, now a widow bereaved of her children], for the sea has spoken, the stronghold of the sea, saying, I have neither travailed nor brought forth children; I have neither nourished _and_ reared young men nor brought up virgins. 
+Be ashamed, O Sidon [mother-city of Tyre, now a widow bereaved of her children], for the sea has spoken, the stronghold of the sea, saying, I have neither travailed nor brought forth children; I have neither nourished and reared young men nor brought up virgins. 
 
 
 
@@ -196,7 +196,7 @@ Who has purposed this against Tyre, the bestower of crowns, whose merchants were
 
 
 
-The Lord of hosts has purposed it [in accordance with a fixed principle of His government], to defile the pride of all glory and to bring into dishonor _and_ contempt all the honored of the earth. 
+The Lord of hosts has purposed it [in accordance with a fixed principle of His government], to defile the pride of all glory and to bring into dishonor and contempt all the honored of the earth. 
 
 
 
@@ -238,7 +238,7 @@ Overflow your land like [the overflow of] the Nile River, O Daughter of Tarshish
 
 
 
-He stretched out His hand over the sea, He shook the kingdoms; the Lord has given a command concerning Canaan to destroy her strongholds _and_ fortresses [Tyre, Sidon, etc.]. 
+He stretched out His hand over the sea, He shook the kingdoms; the Lord has given a command concerning Canaan to destroy her strongholds and fortresses [Tyre, Sidon, etc.]. 
 
 
 
@@ -259,7 +259,7 @@ He stretched out His hand over the sea, He shook the kingdoms; the Lord has give
 
 
 
-And He said, You shall no more exult, you oppressed _and_ crushed one, O Virgin Daughter of Sidon. Arise, pass over to Kittim (Cyprus); but even there you will have no rest. 
+And He said, You shall no more exult, you oppressed and crushed one, O Virgin Daughter of Sidon. Arise, pass over to Kittim (Cyprus); but even there you will have no rest. 
 
 
 
@@ -280,7 +280,7 @@ And He said, You shall no more exult, you oppressed _and_ crushed one, O Virgin 
 
 
 
-Look at the land of the Chaldeans! That people and not the Assyrians designed _and_ assigned [Tyre] for the wild beasts _and_ those who [previously] dwelt in the wilderness. They set up their siege works, they overthrew its palaces, they made it a ruin! 
+Look at the land of the Chaldeans! That people and not the Assyrians designed and assigned [Tyre] for the wild beasts and those who [previously] dwelt in the wilderness. They set up their siege works, they overthrew its palaces, they made it a ruin! 
 
 
 
@@ -322,7 +322,7 @@ Howl, you ships of Tarshish, for your stronghold [of Tyre] is laid waste [your s
 
 
 
-And in that day Tyre will be in obscurity _and_ forgotten for seventy years, according to the days of one dynasty. After the end of seventy years will Tyre sing as a harlot [who has been forgotten but again attracts her lovers]. 
+And in that day Tyre will be in obscurity and forgotten for seventy years, according to the days of one dynasty. After the end of seventy years will Tyre sing as a harlot [who has been forgotten but again attracts her lovers]. 
 
 
 
@@ -343,7 +343,7 @@ And in that day Tyre will be in obscurity _and_ forgotten for seventy years, acc
 
 
 
-Take a harp, go about the city, forgotten harlot; play skillfully _and_ make sweet melody, sing many songs, that you may be remembered. 
+Take a harp, go about the city, forgotten harlot; play skillfully and make sweet melody, sing many songs, that you may be remembered. 
 
 
 
@@ -385,4 +385,4 @@ And after the end of seventy years the Lord will remember Tyre; and she will ret
 
 
 
-But her gain and her hire [the profits of Tyre's new prosperity] will be dedicated to the Lord [eventually]; it will not be treasured or stored up, for her gain will be used for those who dwell in the presence of the Lord [the ministers], that they may eat sufficiently and have durable _and_ stately clothing [suitable for those who minister at God's altar].
+But her gain and her hire [the profits of Tyre's new prosperity] will be dedicated to the Lord [eventually]; it will not be treasured or stored up, for her gain will be used for those who dwell in the presence of the Lord [the ministers], that they may eat sufficiently and have durable and stately clothing [suitable for those who minister at God's altar].

@@ -27,7 +27,7 @@ next: ['Amos 2']
 
 
 
-The words of Amos, who was among the herdsmen _and_ sheep masters of Tekoa, which he saw [in divine revelation] concerning Israel in the days of Uzziah king of Judah and in the days of Jeroboam the son of Joash, king of Israel, two years before the earthquake. 
+The words of Amos, who was among the herdsmen and sheep masters of Tekoa, which he saw [in divine revelation] concerning Israel in the days of Uzziah king of Judah and in the days of Jeroboam the son of Joash, king of Israel, two years before the earthquake. 
 
 
 
@@ -69,7 +69,7 @@ And he said, The Lord roars out of Zion and utters His voice from Jerusalem; the
 
 
 
-Thus says the Lord: For three transgressions of Damascus [the capital of Syria] and for four [for multiplied delinquencies], I will not reverse the punishment of it _or_ revoke My word concerning it, because they have threshed Gilead [east of the Jordan River] with iron sledges. 
+Thus says the Lord: For three transgressions of Damascus [the capital of Syria] and for four [for multiplied delinquencies], I will not reverse the punishment of it or revoke My word concerning it, because they have threshed Gilead [east of the Jordan River] with iron sledges. 
 
 
 
@@ -90,7 +90,7 @@ Thus says the Lord: For three transgressions of Damascus [the capital of Syria] 
 
 
 
-So I will send a fire [of war, conquest, and destruction] upon the house of Hazael [who killed and succeeded King Ben-hadad] which shall devour the palaces _and_ strongholds of Ben-hadad. 
+So I will send a fire [of war, conquest, and destruction] upon the house of Hazael [who killed and succeeded King Ben-hadad] which shall devour the palaces and strongholds of Ben-hadad. 
 
 
 
@@ -111,7 +111,7 @@ So I will send a fire [of war, conquest, and destruction] upon the house of Haza
 
 
 
-I will break also the bar [of the gate] of Damascus and cut off the inhabitant from the plain of Aven _or_ On, and him who holds the scepter from Beth-eden; and the people of Syria [conquered by the Assyrians] shall go into exile to Kir, says the Lord. 
+I will break also the bar [of the gate] of Damascus and cut off the inhabitant from the plain of Aven or On, and him who holds the scepter from Beth-eden; and the people of Syria [conquered by the Assyrians] shall go into exile to Kir, says the Lord. 
 
 
 
@@ -132,7 +132,7 @@ I will break also the bar [of the gate] of Damascus and cut off the inhabitant f
 
 
 
-Thus says the Lord: For three transgressions of Gaza [a city in Philistia] and for four [for multiplied delinquencies], I will not reverse the punishment of it _or_ revoke My word concerning it, because [as slave traders] they carried away captive the whole [Jewish] population [of defenseless Judean border villages, of which none was spared, none left behind] and delivered them up to Edom [for the slave trade]. 
+Thus says the Lord: For three transgressions of Gaza [a city in Philistia] and for four [for multiplied delinquencies], I will not reverse the punishment of it or revoke My word concerning it, because [as slave traders] they carried away captive the whole [Jewish] population [of defenseless Judean border villages, of which none was spared, none left behind] and delivered them up to Edom [for the slave trade]. 
 
 
 
@@ -195,7 +195,7 @@ And I will cut off the inhabitants from Ashdod and him who holds the scepter fro
 
 
 
-Thus says the Lord: For three transgressions of Tyre and for four [for multiplied delinquencies], I will not reverse the punishment of it _or_ revoke My word concerning it, because they [as middlemen] delivered up a whole [Jewish] population to Edom and did not [seriously] remember their brotherly covenant. 
+Thus says the Lord: For three transgressions of Tyre and for four [for multiplied delinquencies], I will not reverse the punishment of it or revoke My word concerning it, because they [as middlemen] delivered up a whole [Jewish] population to Edom and did not [seriously] remember their brotherly covenant. 
 
 
 
@@ -237,7 +237,7 @@ So I will send a fire on the wall of Tyre which shall devour its strongholds.
 
 
 
-Thus says the Lord: For three transgressions of Edom [descendants of Esau] and for four [for multiplied delinquencies], I will not reverse the punishment of it _or_ revoke My word concerning it, because he pursued his brother Jacob (Israel) with the sword, corrupting his compassions _and_ casting off all pity, and his anger tore perpetually and his wrath he kept _and_ heeded forever. 
+Thus says the Lord: For three transgressions of Edom [descendants of Esau] and for four [for multiplied delinquencies], I will not reverse the punishment of it or revoke My word concerning it, because he pursued his brother Jacob (Israel) with the sword, corrupting his compassions and casting off all pity, and his anger tore perpetually and his wrath he kept and heeded forever. 
 
 
 
@@ -279,7 +279,7 @@ So I will send a fire upon Teman which shall devour the strongholds of Bozrah [i
 
 
 
-Thus says the Lord: For three transgressions of the children of Ammon [descendants of Lot] and for four [for multiplied delinquencies], I will not reverse the punishment of it _or_ revoke My word concerning it, because [the Ammonites] have ripped up women with child in Gilead, that they might enlarge their border. 
+Thus says the Lord: For three transgressions of the children of Ammon [descendants of Lot] and for four [for multiplied delinquencies], I will not reverse the punishment of it or revoke My word concerning it, because [the Ammonites] have ripped up women with child in Gilead, that they might enlarge their border. 
 
 
 

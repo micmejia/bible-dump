@@ -70,7 +70,7 @@ But he who enters by the door is the shepherd of the sheep.
 
 
 
-The watchman opens the door for this man, and the sheep listen to his voice _and_ heed it; and he calls his own sheep by name and brings (leads) them out. 
+The watchman opens the door for this man, and the sheep listen to his voice and heed it; and he calls his own sheep by name and brings (leads) them out. 
 
 
 
@@ -112,7 +112,7 @@ When he has brought his own sheep outside, he walks on before them, and the shee
 
 
 
-They will never [on any account] follow a stranger, but will run away from him because they do not know the voice of strangers _or_ recognize their call. 
+They will never [on any account] follow a stranger, but will run away from him because they do not know the voice of strangers or recognize their call. 
 
 
 
@@ -175,7 +175,7 @@ So Jesus said again, I assure you, most solemnly I tell you, that I Myself am th
 
 
 
-All others who came [as such] before Me are thieves and robbers, but the [true] sheep did not listen to _and_ obey them. 
+All others who came [as such] before Me are thieves and robbers, but the [true] sheep did not listen to and obey them. 
 
 
 
@@ -217,7 +217,7 @@ I am the Door; anyone who enters in through Me will be saved (will live). He wil
 
 
 
-The thief comes only in order to steal and kill and destroy. I came that they may have _and_ enjoy life, and have it in abundance (to the full, till it overflows). 
+The thief comes only in order to steal and kill and destroy. I came that they may have and enjoy life, and have it in abundance (to the full, till it overflows). 
 
 
 
@@ -238,7 +238,7 @@ The thief comes only in order to steal and kill and destroy. I came that they ma
 
 
 
-I am the Good Shepherd. The Good Shepherd risks _and_ lays down His [own] life for the sheep. 
+I am the Good Shepherd. The Good Shepherd risks and lays down His [own] life for the sheep. 
 
 
 
@@ -259,7 +259,7 @@ I am the Good Shepherd. The Good Shepherd risks _and_ lays down His [own] life f
 
 
 
-But the hired servant (he who merely serves for wages) who is neither the shepherd nor the owner of the sheep, when he sees the wolf coming, deserts the flock and runs away. And the wolf chases _and_ snatches them and scatters [the flock]. 
+But the hired servant (he who merely serves for wages) who is neither the shepherd nor the owner of the sheep, when he sees the wolf coming, deserts the flock and runs away. And the wolf chases and snatches them and scatters [the flock]. 
 
 
 
@@ -301,7 +301,7 @@ Now the hireling flees because he merely serves for wages and is not himself con
 
 
 
-I am the Good Shepherd; and I know _and_ recognize My own, and My own know _and_ recognize Me-- 
+I am the Good Shepherd; and I know and recognize My own, and My own know and recognize Me-- 
 
 
 
@@ -322,7 +322,7 @@ I am the Good Shepherd; and I know _and_ recognize My own, and My own know _and_
 
 
 
-Even as [truly as] the Father knows Me and I also know the Father--and I am giving My [very own] life _and_ laying it down on behalf of the sheep. 
+Even as [truly as] the Father knows Me and I also know the Father--and I am giving My [very own] life and laying it down on behalf of the sheep. 
 
 
 
@@ -343,7 +343,7 @@ Even as [truly as] the Father knows Me and I also know the Father--and I am givi
 
 
 
-And I have other sheep [beside these] that are not of this fold. I must bring _and_ impel those also; and they will listen to My voice _and_ heed My call, and so there will be [they will become] one flock under one Shepherd. 
+And I have other sheep [beside these] that are not of this fold. I must bring and impel those also; and they will listen to My voice and heed My call, and so there will be [they will become] one flock under one Shepherd. 
 
 
 
@@ -385,7 +385,7 @@ For this [reason] the Father loves Me, because I lay down My [own] life--to take
 
 
 
-No one takes it away from Me. On the contrary, I lay it down voluntarily. [I put it from Myself.] I am authorized _and_ have power to lay it down (to resign it) and I am authorized _and_ have power to take it back again. These are the instructions (orders) which I have received [as My charge] from My Father. 
+No one takes it away from Me. On the contrary, I lay it down voluntarily. [I put it from Myself.] I am authorized and have power to lay it down (to resign it) and I am authorized and have power to take it back again. These are the instructions (orders) which I have received [as My charge] from My Father. 
 
 
 
@@ -448,7 +448,7 @@ And many of them said, He has a demon and He is mad (insane--He raves, He ramble
 
 
 
-Others argued, These are not the thoughts _and_ the language of one possessed. Can a demon-possessed person open blind eyes? 
+Others argued, These are not the thoughts and the language of one possessed. Can a demon-possessed person open blind eyes? 
 
 
 
@@ -511,7 +511,7 @@ And Jesus was walking in Solomon's Porch in the temple area.
 
 
 
-So the Jews surrounded Him and began asking Him, How long are You going to keep us in doubt _and_ suspense? If You are really the Christ (the Messiah), tell us so plainly _and_ openly. 
+So the Jews surrounded Him and began asking Him, How long are You going to keep us in doubt and suspense? If You are really the Christ (the Messiah), tell us so plainly and openly. 
 
 
 
@@ -532,7 +532,7 @@ So the Jews surrounded Him and began asking Him, How long are You going to keep 
 
 
 
-Jesus answered them, I have told you so, yet you do not believe Me [you do not trust Me _and_ rely on Me]. The very works that I do by the power of My Father _and_ in My Father's name bear witness concerning Me [they are My credentials and evidence in support of Me]. 
+Jesus answered them, I have told you so, yet you do not believe Me [you do not trust Me and rely on Me]. The very works that I do by the power of My Father and in My Father's name bear witness concerning Me [they are My credentials and evidence in support of Me]. 
 
 
 
@@ -553,7 +553,7 @@ Jesus answered them, I have told you so, yet you do not believe Me [you do not t
 
 
 
-But you do not believe _and_ trust _and_ rely on Me because you do not belong to My fold [you are no sheep of Mine]. 
+But you do not believe and trust and rely on Me because you do not belong to My fold [you are no sheep of Mine]. 
 
 
 
@@ -574,7 +574,7 @@ But you do not believe _and_ trust _and_ rely on Me because you do not belong to
 
 
 
-The sheep that are My own hear _and_ are listening to My voice; and I know them, and they follow Me. 
+The sheep that are My own hear and are listening to My voice; and I know them, and they follow Me. 
 
 
 
@@ -595,7 +595,7 @@ The sheep that are My own hear _and_ are listening to My voice; and I know them,
 
 
 
-And I give them eternal life, and they shall never lose it _or_ perish throughout the ages. [To all eternity they shall never by any means be destroyed.] And no one is able to snatch them out of My hand. 
+And I give them eternal life, and they shall never lose it or perish throughout the ages. [To all eternity they shall never by any means be destroyed.] And no one is able to snatch them out of My hand. 
 
 
 
@@ -616,7 +616,7 @@ And I give them eternal life, and they shall never lose it _or_ perish throughou
 
 
 
-My Father, Who has given them to Me, is greater _and_ mightier than all [else]; and no one is able to snatch [them] out of the Father's hand. 
+My Father, Who has given them to Me, is greater and mightier than all [else]; and no one is able to snatch [them] out of the Father's hand. 
 
 
 
@@ -742,7 +742,7 @@ Jesus answered, Is it not written in your Law, I said, You are gods?
 
 
 
-So men are called gods [by the Law], men to whom God's message came--and the Scripture cannot be set aside _or_ cancelled _or_ broken _or_ annulled-- 
+So men are called gods [by the Law], men to whom God's message came--and the Scripture cannot be set aside or cancelled or broken or annulled-- 
 
 
 
@@ -763,7 +763,7 @@ So men are called gods [by the Law], men to whom God's message came--and the Scr
 
 
 
-[If that is true] do you say of the One Whom the Father consecrated _and_ dedicated _and_ set apart for Himself and sent into the world, You are blaspheming, because I said, I am the Son of God? 
+[If that is true] do you say of the One Whom the Father consecrated and dedicated and set apart for Himself and sent into the world, You are blaspheming, because I said, I am the Son of God? 
 
 
 
@@ -805,7 +805,7 @@ If I am not doing the works [performing the deeds] of My Father, then do not bel
 
 
 
-But if I do them, even though you do not believe Me _or_ have faith in Me, [at least] believe the works _and_ have faith in what I do, in order that you may know and understand [clearly] that the Father is in Me, and I am in the Father [One with Him]. 
+But if I do them, even though you do not believe Me or have faith in Me, [at least] believe the works and have faith in what I do, in order that you may know and understand [clearly] that the Father is in Me, and I am in the Father [One with Him]. 
 
 
 
@@ -868,7 +868,7 @@ He went back again across the Jordan to the locality where John was when he firs
 
 
 
-And many came to Him, and they kept saying, John did not perform a [single] sign _or_ miracle, but everything John said about this Man was true. 
+And many came to Him, and they kept saying, John did not perform a [single] sign or miracle, but everything John said about this Man was true. 
 
 
 
@@ -889,4 +889,4 @@ And many came to Him, and they kept saying, John did not perform a [single] sign
 
 
 
-And many [people] there became believers in Him. [They adhered to _and_ trusted in _and_ relied on Him.]
+And many [people] there became believers in Him. [They adhered to and trusted in and relied on Him.]

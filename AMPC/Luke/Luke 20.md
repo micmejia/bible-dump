@@ -112,7 +112,7 @@ Was the baptism of John from heaven, or from men?
 
 
 
-And they argued _and_ discussed [it] _and_ reasoned together with themselves, saying, If we reply, From heaven, He will say, Why then did you not believe him? 
+And they argued and discussed [it] and reasoned together with themselves, saying, If we reply, From heaven, He will say, Why then did you not believe him? 
 
 
 
@@ -238,7 +238,7 @@ When the [right] season came, he sent a bond servant to the tenants, that they m
 
 
 
-And he sent still another servant; him they also beat (thrashed) and dishonored _and_ insulted him disgracefully and sent him away empty-handed. 
+And he sent still another servant; him they also beat (thrashed) and dishonored and insulted him disgracefully and sent him away empty-handed. 
 
 
 
@@ -406,7 +406,7 @@ Everyone who falls on that Stone will be broken [in pieces]; but upon whomever I
 
 
 
-The scribes and the chief priests desired _and_ tried to find a way to arrest Him at that very hour, but they were afraid of the people; for they discerned that He had related this parable against them. 
+The scribes and the chief priests desired and tried to find a way to arrest Him at that very hour, but they were afraid of the people; for they discerned that He had related this parable against them. 
 
 
 
@@ -448,7 +448,7 @@ So they watched [for an opportunity to ensnare] Him, and sent spies who pretende
 
 
 
-They asked Him, Teacher, we know that You speak and teach what is right, and that You show no partiality to anyone but teach the way of God honestly _and_ in truth. 
+They asked Him, Teacher, we know that You speak and teach what is right, and that You show no partiality to anyone but teach the way of God honestly and in truth. 
 
 
 
@@ -490,7 +490,7 @@ Is it lawful for us to give tribute to Caesar or not?
 
 
 
-But He recognized _and_ understood their cunning _and_ unscrupulousness and said to them, 
+But He recognized and understood their cunning and unscrupulousness and said to them, 
 
 
 
@@ -721,7 +721,7 @@ Now in the resurrection whose wife will the woman be? For the seven married her.
 
 
 
-And Jesus said to them, The people of this world _and_ present age marry and are given in marriage; 
+And Jesus said to them, The people of this world and present age marry and are given in marriage; 
 
 
 
@@ -742,7 +742,7 @@ And Jesus said to them, The people of this world _and_ present age marry and are
 
 
 
-But those who are considered worthy to gain that other world _and_ that future age and to attain to the resurrection from the dead neither marry nor are given in marriage; 
+But those who are considered worthy to gain that other world and that future age and to attain to the resurrection from the dead neither marry nor are given in marriage; 
 
 
 
@@ -763,7 +763,7 @@ But those who are considered worthy to gain that other world _and_ that future a
 
 
 
-For they cannot die again, but they are angel-like _and_ equal to angels. And being sons of _and_ sharers in the resurrection, they are sons of God. 
+For they cannot die again, but they are angel-like and equal to angels. And being sons of and sharers in the resurrection, they are sons of God. 
 
 
 
@@ -784,7 +784,7 @@ For they cannot die again, but they are angel-like _and_ equal to angels. And be
 
 
 
-But that the dead are raised [from death]--even Moses made known _and_ showed in the passage concerning the [burning] bush, where he calls the Lord, The God of Abraham, the God of Isaac, and the God of Jacob. 
+But that the dead are raised [from death]--even Moses made known and showed in the passage concerning the [burning] bush, where he calls the Lord, The God of Abraham, the God of Isaac, and the God of Jacob. 
 
 
 
@@ -805,7 +805,7 @@ But that the dead are raised [from death]--even Moses made known _and_ showed in
 
 
 
-Now He is not the God of the dead, but of the living, for to Him all men are alive [whether in the body or out of it] _and_ they are alive [not dead] unto Him [in definite relationship to Him]. 
+Now He is not the God of the dead, but of the living, for to Him all men are alive [whether in the body or out of it] and they are alive [not dead] unto Him [in definite relationship to Him]. 
 
 
 
@@ -826,7 +826,7 @@ Now He is not the God of the dead, but of the living, for to Him all men are ali
 
 
 
-And some of the scribes replied, Teacher, you have spoken well _and_ expertly [so that there is no room for blame]. 
+And some of the scribes replied, Teacher, you have spoken well and expertly [so that there is no room for blame]. 
 
 
 
@@ -973,7 +973,7 @@ And with all the people listening, He said to His disciples,
 
 
 
-Beware of the scribes, who like to walk about in long robes and love to be saluted [with honor] in places where people congregate and love the front _and_ best seats in the synagogues and places of distinction at feasts, 
+Beware of the scribes, who like to walk about in long robes and love to be saluted [with honor] in places where people congregate and love the front and best seats in the synagogues and places of distinction at feasts, 
 
 
 
@@ -994,4 +994,4 @@ Beware of the scribes, who like to walk about in long robes and love to be salut
 
 
 
-Who make away with _and_ devour widows' houses, and [to cover it up] with pretense make long prayers. They will receive the greater condemnation (the heavier sentence, the severer punishment).
+Who make away with and devour widows' houses, and [to cover it up] with pretense make long prayers. They will receive the greater condemnation (the heavier sentence, the severer punishment).

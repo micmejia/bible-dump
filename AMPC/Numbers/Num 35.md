@@ -238,7 +238,7 @@ Say to the Israelites, When you cross the Jordan into the land of Canaan,
 
 
 
-Then you shall select cities to be cities of refuge for you, that the slayer who kills any person unintentionally _and_ unawares may flee there. 
+Then you shall select cities to be cities of refuge for you, that the slayer who kills any person unintentionally and unawares may flee there. 
 
 
 
@@ -322,7 +322,7 @@ You shall give three cities on this [east] side of the Jordan and three cities i
 
 
 
-These six cities shall be a refuge for the Israelites and for the stranger and the temporary resident among them; that anyone who kills any person unintentionally _and_ unawares may flee there. 
+These six cities shall be a refuge for the Israelites and for the stranger and the temporary resident among them; that anyone who kills any person unintentionally and unawares may flee there. 
 
 
 
@@ -469,7 +469,7 @@ Or in enmity struck him down with his hand so that he died, he that smote him sh
 
 
 
-But if he stabbed him suddenly without enmity or threw anything at _or_ upon him without lying in wait 
+But if he stabbed him suddenly without enmity or threw anything at or upon him without lying in wait 
 
 
 
@@ -616,7 +616,7 @@ Because the manslayer should have remained in his city of refuge until the death
 
 
 
-And these things shall be for a statute _and_ ordinance to you throughout your generations in all your dwellings. 
+And these things shall be for a statute and ordinance to you throughout your generations in all your dwellings. 
 
 
 

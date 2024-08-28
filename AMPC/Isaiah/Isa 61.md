@@ -28,7 +28,7 @@ next: ['Isa 62']
 
 
 
-The Spirit of the Lord God is upon me, because the Lord has anointed _and_ qualified me to preach the Gospel _of_ good tidings to the meek, the poor, _and_ afflicted; He has sent me to bind up _and_ heal the brokenhearted, to proclaim liberty to the [physical and spiritual] captives and the opening of the prison _and_ of the eyes to those who are bound, 
+The Spirit of the Lord God is upon me, because the Lord has anointed and qualified me to preach the Gospel of good tidings to the meek, the poor, and afflicted; He has sent me to bind up and heal the brokenhearted, to proclaim liberty to the [physical and spiritual] captives and the opening of the prison and of the eyes to those who are bound, 
 
 
 
@@ -70,7 +70,7 @@ To proclaim the acceptable year of the Lord [the year of His favor] and the day 
 
 
 
-To grant [consolation and joy] to those who mourn in Zion--to give them an ornament (a garland or diadem) of beauty instead of ashes, the oil of joy instead of mourning, the garment [expressive] of praise instead of a heavy, burdened, _and_ failing spirit--that they may be called oaks of righteousness [lofty, strong, and magnificent, distinguished for uprightness, justice, and right standing with God], the planting of the Lord, that He may be glorified. 
+To grant [consolation and joy] to those who mourn in Zion--to give them an ornament (a garland or diadem) of beauty instead of ashes, the oil of joy instead of mourning, the garment [expressive] of praise instead of a heavy, burdened, and failing spirit--that they may be called oaks of righteousness [lofty, strong, and magnificent, distinguished for uprightness, justice, and right standing with God], the planting of the Lord, that He may be glorified. 
 
 
 
@@ -154,7 +154,7 @@ But you shall be called the priests of the Lord; people will speak of you as the
 
 
 
-Instead of your [former] shame you shall have a twofold recompense; instead of dishonor _and_ reproach [your people] shall rejoice in their portion. Therefore in their land they shall possess double [what they had forfeited]; everlasting joy shall be theirs. 
+Instead of your [former] shame you shall have a twofold recompense; instead of dishonor and reproach [your people] shall rejoice in their portion. Therefore in their land they shall possess double [what they had forfeited]; everlasting joy shall be theirs. 
 
 
 
@@ -175,7 +175,7 @@ Instead of your [former] shame you shall have a twofold recompense; instead of d
 
 
 
-For I the Lord love justice; I hate robbery _and_ wrong with violence _or_ a burnt offering. And I will faithfully give them their recompense in truth, and I will make an everlasting covenant _or_ league with them. 
+For I the Lord love justice; I hate robbery and wrong with violence or a burnt offering. And I will faithfully give them their recompense in truth, and I will make an everlasting covenant or league with them. 
 
 
 
@@ -196,7 +196,7 @@ For I the Lord love justice; I hate robbery _and_ wrong with violence _or_ a bur
 
 
 
-And their offspring shall be known among the nations and their descendants among the peoples. All who see them [in their prosperity] will recognize _and_ acknowledge that they are the people whom the Lord has blessed. 
+And their offspring shall be known among the nations and their descendants among the peoples. All who see them [in their prosperity] will recognize and acknowledge that they are the people whom the Lord has blessed. 
 
 
 
@@ -238,4 +238,4 @@ I will greatly rejoice in the Lord, my soul will exult in my God; for He has clo
 
 
 
-For as [surely as] the earth brings forth its shoots, and as a garden causes what is sown in it to spring forth, so [surely] the Lord God will cause rightness _and_ justice and praise to spring forth before all the nations [through the self-fulfilling power of His word].
+For as [surely as] the earth brings forth its shoots, and as a garden causes what is sown in it to spring forth, so [surely] the Lord God will cause rightness and justice and praise to spring forth before all the nations [through the self-fulfilling power of His word].

@@ -49,7 +49,7 @@ And the Lord said to Moses,
 
 
 
-Speak to the Israelites and get from them rods _or_ staves, one for each father's house, from all their leaders according to their father's houses, twelve rods. Write every man's name on his rod. 
+Speak to the Israelites and get from them rods or staves, one for each father's house, from all their leaders according to their father's houses, twelve rods. Write every man's name on his rod. 
 
 
 
@@ -133,7 +133,7 @@ And the rod of the man whom I choose shall bud, and I will make to cease from Me
 
 
 
-And Moses spoke to the Israelites, and every one of their leaders gave him a rod _or_ staff, one for each leader according to their fathers' houses, twelve rods, and the rod of Aaron was among their rods. 
+And Moses spoke to the Israelites, and every one of their leaders gave him a rod or staff, one for each leader according to their fathers' houses, twelve rods, and the rod of Aaron was among their rods. 
 
 
 
@@ -280,4 +280,4 @@ The Israelites said to Moses, Behold, we perish, we are undone, all undone!
 
 
 
-Everyone who comes near, who comes near the tabernacle of the Lord, dies _or_ shall die! Are we all to perish?
+Everyone who comes near, who comes near the tabernacle of the Lord, dies or shall die! Are we all to perish?

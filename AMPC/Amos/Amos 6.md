@@ -28,7 +28,7 @@ next: ['Amos 7']
 
 
 
-Woe to those who are at ease in Zion and to those on the mountain of Samaria who are careless _and_ feel secure, the notable men of the chief [because chosen by God] of the nations, to whom the house of Israel comes! 
+Woe to those who are at ease in Zion and to those on the mountain of Samaria who are careless and feel secure, the notable men of the chief [because chosen by God] of the nations, to whom the house of Israel comes! 
 
 
 
@@ -133,7 +133,7 @@ Who sing idle songs to the sound of the harp and invent for themselves instrumen
 
 
 
-Who drink wine in bowls and anoint themselves with the finest oils, but are not grieved _and_ sick at heart over the affliction _and_ ruin of Joseph (Israel)! 
+Who drink wine in bowls and anoint themselves with the finest oils, but are not grieved and sick at heart over the affliction and ruin of Joseph (Israel)! 
 
 
 
@@ -154,7 +154,7 @@ Who drink wine in bowls and anoint themselves with the finest oils, but are not 
 
 
 
-Therefore now shall they go captive with the first who go into exile, and the revelry _and_ banqueting of those who stretch themselves shall be ended. 
+Therefore now shall they go captive with the first who go into exile, and the revelry and banqueting of those who stretch themselves shall be ended. 
 
 
 
@@ -175,7 +175,7 @@ Therefore now shall they go captive with the first who go into exile, and the re
 
 
 
-The Lord God has sworn by Himself--the Lord, the God of hosts, says: I abhor, reject, _and_ despise the pride _and_ false, futile glory of Jacob (Israel), and I hate his palaces _and_ strongholds; and I will deliver up the city [idol-worshiping Samaria] with all that is in it. 
+The Lord God has sworn by Himself--the Lord, the God of hosts, says: I abhor, reject, and despise the pride and false, futile glory of Jacob (Israel), and I hate his palaces and strongholds; and I will deliver up the city [idol-worshiping Samaria] with all that is in it. 
 
 
 
@@ -217,7 +217,7 @@ And it shall come to pass that if there remain ten men in one house, they shall 
 
 
 
-And then a man's uncle _or_ kinsman, he who is to make a burning to cremate _and_ dispose [of his pestilence-infected body], comes in to bring the bones out of the house, and he shall say to another still alive in the farthest parts of the house, Is there anyone else with you? and he shall say, No. Then shall the newcomer say, Hush! Hold your [cursing] tongue! We dare not so mention the name of the Lord [lest we invoke more punishment]. 
+And then a man's uncle or kinsman, he who is to make a burning to cremate and dispose [of his pestilence-infected body], comes in to bring the bones out of the house, and he shall say to another still alive in the farthest parts of the house, Is there anyone else with you? and he shall say, No. Then shall the newcomer say, Hush! Hold your [cursing] tongue! We dare not so mention the name of the Lord [lest we invoke more punishment]. 
 
 
 
@@ -280,7 +280,7 @@ Do horses run upon rocks? Do men plow the ocean with oxen? But you have turned j
 
 
 
-You who rejoice in Lo-debar [a thing of nought], who say, Have we not by our own strength taken Karnaim _or_ horns [of resistance] for ourselves? 
+You who rejoice in Lo-debar [a thing of nought], who say, Have we not by our own strength taken Karnaim or horns [of resistance] for ourselves? 
 
 
 
@@ -301,4 +301,4 @@ You who rejoice in Lo-debar [a thing of nought], who say, Have we not by our own
 
 
 
-For behold, I will raise up against you a nation, O house of Israel, says the Lord, the God of hosts; and they shall afflict _and_ oppress you [to the entire limits of Israel] from the entrance of Hamath to the brook of the Arabah.
+For behold, I will raise up against you a nation, O house of Israel, says the Lord, the God of hosts; and they shall afflict and oppress you [to the entire limits of Israel] from the entrance of Hamath to the brook of the Arabah.

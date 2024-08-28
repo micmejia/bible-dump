@@ -70,7 +70,7 @@ Judah mourns and her gates languish; [her people] sit in black [mourning garb] u
 
 
 
-And their nobles send their little ones _and_ their inferiors for water; they come to the cisterns and find no water. They return with empty vessels; they are put to shame and confounded and cover their heads. 
+And their nobles send their little ones and their inferiors for water; they come to the cisterns and find no water. They return with empty vessels; they are put to shame and confounded and cover their heads. 
 
 
 
@@ -91,7 +91,7 @@ And their nobles send their little ones _and_ their inferiors for water; they co
 
 
 
-Because the ground is cracked _and_ the tillers are dismayed, since there has been no rain on the land, the plowmen are put to shame, and they cover their heads. 
+Because the ground is cracked and the tillers are dismayed, since there has been no rain on the land, the plowmen are put to shame, and they cover their heads. 
 
 
 
@@ -112,7 +112,7 @@ Because the ground is cracked _and_ the tillers are dismayed, since there has be
 
 
 
-Yes, even the hind gives birth to her calf in the field and forsakes it, because there is no grass _or_ herbage. 
+Yes, even the hind gives birth to her calf in the field and forsakes it, because there is no grass or herbage. 
 
 
 
@@ -133,7 +133,7 @@ Yes, even the hind gives birth to her calf in the field and forsakes it, because
 
 
 
-And the wild donkeys stand on the bare heights; they pant for air like jackals _or_ crocodiles; their eyesight fails because there is no grass. 
+And the wild donkeys stand on the bare heights; they pant for air like jackals or crocodiles; their eyesight fails because there is no grass. 
 
 
 
@@ -154,7 +154,7 @@ And the wild donkeys stand on the bare heights; they pant for air like jackals _
 
 
 
-O Lord, though our iniquities testify against us [prays Jeremiah], deal _and_ work with us for Your own name's sake [that the heathen may witness Your might and faithfulness]! For our backslidings are many; we have sinned against You. 
+O Lord, though our iniquities testify against us [prays Jeremiah], deal and work with us for Your own name's sake [that the heathen may witness Your might and faithfulness]! For our backslidings are many; we have sinned against You. 
 
 
 
@@ -175,7 +175,7 @@ O Lord, though our iniquities testify against us [prays Jeremiah], deal _and_ wo
 
 
 
-O Hope of Israel, her Savior in time of trouble, why should You be like a sojourner in the land and like a wayfaring man who turns aside _and_ spreads his tent to tarry [only] for a night? 
+O Hope of Israel, her Savior in time of trouble, why should You be like a sojourner in the land and like a wayfaring man who turns aside and spreads his tent to tarry [only] for a night? 
 
 
 
@@ -196,7 +196,7 @@ O Hope of Israel, her Savior in time of trouble, why should You be like a sojour
 
 
 
-Why should You be [hesitant and inactive] like a man stunned _and_ confused, like a mighty man who cannot save? Yet You, O Lord, are in the midst of us, and we are called by Your name; do not leave us! 
+Why should You be [hesitant and inactive] like a man stunned and confused, like a mighty man who cannot save? Yet You, O Lord, are in the midst of us, and we are called by Your name; do not leave us! 
 
 
 
@@ -217,7 +217,7 @@ Why should You be [hesitant and inactive] like a man stunned _and_ confused, lik
 
 
 
-[And the Lord replied to Jeremiah] Thus says the Lord to this people [Judah]: In the manner _and_ to the degree already pointed out have they loved to wander; they have not restrained their feet. Therefore the Lord does not accept them; He will now [seriously] remember their iniquity and punish them for their sins. 
+[And the Lord replied to Jeremiah] Thus says the Lord to this people [Judah]: In the manner and to the degree already pointed out have they loved to wander; they have not restrained their feet. Therefore the Lord does not accept them; He will now [seriously] remember their iniquity and punish them for their sins. 
 
 
 
@@ -301,7 +301,7 @@ Then said I, Alas, Lord God! Behold, the [false] prophets say to them, You will 
 
 
 
-Then the Lord said to me, The [false] prophets prophesy lies in My name. I sent them not, neither have I commanded them, nor have I spoken to them. They prophesy to you a false _or_ pretended vision, a worthless divination [conjuring or practicing magic, trying to call forth the responses supposed to be given by idols], and the deceit of their own minds. 
+Then the Lord said to me, The [false] prophets prophesy lies in My name. I sent them not, neither have I commanded them, nor have I spoken to them. They prophesy to you a false or pretended vision, a worthless divination [conjuring or practicing magic, trying to call forth the responses supposed to be given by idols], and the deceit of their own minds. 
 
 
 
@@ -385,7 +385,7 @@ Therefore [Jeremiah] you shall say to them, Let my eyes run down with tears nigh
 
 
 
-If I go out into the field, then behold, those slain with the sword! And if I enter the city, then behold, those tormented with the diseases of famine! For both prophet and priest go about not knowing what to do _or_ as beggars [exiled] in a land that they know not, and they have no knowledge. 
+If I go out into the field, then behold, those slain with the sword! And if I enter the city, then behold, those tormented with the diseases of famine! For both prophet and priest go about not knowing what to do or as beggars [exiled] in a land that they know not, and they have no knowledge. 
 
 
 
@@ -406,7 +406,7 @@ If I go out into the field, then behold, those slain with the sword! And if I en
 
 
 
-[O Lord] have You utterly rejected Judah? Do You loathe Zion? Why have You smitten us so that there is no healing for us? We looked for peace _and_ completeness, but no good came, and for a time of healing, but behold, dismay, disaster, _and_ terror! 
+[O Lord] have You utterly rejected Judah? Do You loathe Zion? Why have You smitten us so that there is no healing for us? We looked for peace and completeness, but no good came, and for a time of healing, but behold, dismay, disaster, and terror! 
 
 
 
@@ -427,7 +427,7 @@ If I go out into the field, then behold, those slain with the sword! And if I en
 
 
 
-We know _and_ acknowledge, O Lord, our wickedness and the iniquity of our fathers; for we have sinned against You. 
+We know and acknowledge, O Lord, our wickedness and the iniquity of our fathers; for we have sinned against You. 
 
 
 
@@ -448,7 +448,7 @@ We know _and_ acknowledge, O Lord, our wickedness and the iniquity of our father
 
 
 
-Do not abhor, condemn, _and_ spurn us, for Your name's sake; do not dishonor, debase, _and_ lightly esteem Your glorious throne; [earnestly] remember, break not Your covenant _or_ solemn pledge with us. 
+Do not abhor, condemn, and spurn us, for Your name's sake; do not dishonor, debase, and lightly esteem Your glorious throne; [earnestly] remember, break not Your covenant or solemn pledge with us. 
 
 
 

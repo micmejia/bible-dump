@@ -34,13 +34,13 @@ From there they journeyed to Gudgodah, and from Gudgodah to Jotbathah, a land of
 At that time the Lord separated the tribe of Levi to bear the ark of the covenant of the Lord, to stand before the Lord to minister to Him and to bless in His name, to this day. 
 
 ###### 9 
-Therefore Levi has no portion nor inheritance with his brethren; the Lord _is_ his inheritance, just as the Lord your God promised him.) 
+Therefore Levi has no portion nor inheritance with his brethren; the Lord is his inheritance, just as the Lord your God promised him.) 
 
 ###### 10 
-"As at the first time, I stayed in the mountain forty days and forty nights; the Lord also heard me at that time, _and_ the Lord chose not to destroy you. 
+"As at the first time, I stayed in the mountain forty days and forty nights; the Lord also heard me at that time, and the Lord chose not to destroy you. 
 
 ###### 11 
-Then the Lord said to me, 'Arise, begin _your_ journey before the people, that they may go in and possess the land which I swore to their fathers to give them.' 
+Then the Lord said to me, 'Arise, begin your journey before the people, that they may go in and possess the land which I swore to their fathers to give them.' 
 
 ## The Essence of the Law 
 
@@ -48,19 +48,19 @@ Then the Lord said to me, 'Arise, begin _your_ journey before the people, that t
 "And now, Israel, what does the Lord your God require of you, but to fear the Lord your God, to walk in all His ways and to love Him, to serve the Lord your God with all your heart and with all your soul, 
 
 ###### 13 
-_and_ to keep the commandments of the Lord and His statutes which I command you today for your good? 
+and to keep the commandments of the Lord and His statutes which I command you today for your good? 
 
 ###### 14 
-Indeed heaven and the highest heavens belong to the Lord your God, _also_ the earth with all that _is_ in it. 
+Indeed heaven and the highest heavens belong to the Lord your God, also the earth with all that is in it. 
 
 ###### 15 
-The Lord delighted only in your fathers, to love them; and He chose their descendants after them, you above all peoples, as _it is_ this day. 
+The Lord delighted only in your fathers, to love them; and He chose their descendants after them, you above all peoples, as it is this day. 
 
 ###### 16 
 Therefore circumcise the foreskin of your heart, and be stiff-necked no longer. 
 
 ###### 17 
-For the Lord your God _is_ God of gods and Lord of lords, the great God, mighty and awesome, who shows no partiality nor takes a bribe. 
+For the Lord your God is God of gods and Lord of lords, the great God, mighty and awesome, who shows no partiality nor takes a bribe. 
 
 ###### 18 
 He administers justice for the fatherless and the widow, and loves the stranger, giving him food and clothing. 
@@ -72,7 +72,7 @@ Therefore love the stranger, for you were strangers in the land of Egypt.
 You shall fear the Lord your God; you shall serve Him, and to Him you shall hold fast, and take oaths in His name. 
 
 ###### 21 
-He _is_ your praise, and He _is_ your God, who has done for you these great and awesome things which your eyes have seen. 
+He is your praise, and He is your God, who has done for you these great and awesome things which your eyes have seen. 
 
 ###### 22 
 Your fathers went down to Egypt with seventy persons, and now the Lord your God has made you as the stars of heaven in multitude.

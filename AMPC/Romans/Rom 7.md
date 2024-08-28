@@ -49,7 +49,7 @@ Do you not know, brethren--for I am speaking to men who are acquainted with the 
 
 
 
-For [instance] a married woman is bound by law to her husband as long as he lives; but if her husband dies, she is loosed _and_ discharged from the law concerning her husband. 
+For [instance] a married woman is bound by law to her husband as long as he lives; but if her husband dies, she is loosed and discharged from the law concerning her husband. 
 
 
 
@@ -112,7 +112,7 @@ Likewise, my brethren, you have undergone death as to the Law through the [cruci
 
 
 
-When we were living in the flesh (mere physical lives), the sinful passions that were awakened _and_ aroused up by [what] the Law [makes sin] were constantly operating in our natural powers (in our bodily organs, in the sensitive appetites and wills of the flesh), so that we bore fruit for death. 
+When we were living in the flesh (mere physical lives), the sinful passions that were awakened and aroused up by [what] the Law [makes sin] were constantly operating in our natural powers (in our bodily organs, in the sensitive appetites and wills of the flesh), so that we bore fruit for death. 
 
 
 
@@ -133,7 +133,7 @@ When we were living in the flesh (mere physical lives), the sinful passions that
 
 
 
-But now we are discharged from the Law _and_ have terminated all intercourse with it, having died to what once restrained _and_ held us captive. So now we serve not under [obedience to] the old code of written regulations, but [under obedience to the promptings] of the Spirit in newness [of life]. 
+But now we are discharged from the Law and have terminated all intercourse with it, having died to what once restrained and held us captive. So now we serve not under [obedience to] the old code of written regulations, but [under obedience to the promptings] of the Spirit in newness [of life]. 
 
 
 
@@ -154,7 +154,7 @@ But now we are discharged from the Law _and_ have terminated all intercourse wit
 
 
 
-What then do we conclude? Is the Law identical with sin? Certainly not! Nevertheless, if it had not been for the Law, I should not have recognized sin _or_ have known its meaning. [For instance] I would not have known about covetousness [would have had no consciousness of sin or sense of guilt] if the Law had not [repeatedly] said, You shall not covet _and_ have an evil desire [for one thing and another]. 
+What then do we conclude? Is the Law identical with sin? Certainly not! Nevertheless, if it had not been for the Law, I should not have recognized sin or have known its meaning. [For instance] I would not have known about covetousness [would have had no consciousness of sin or sense of guilt] if the Law had not [repeatedly] said, You shall not covet and have an evil desire [for one thing and another]. 
 
 
 
@@ -175,7 +175,7 @@ What then do we conclude? Is the Law identical with sin? Certainly not! Neverthe
 
 
 
-But sin, finding opportunity in the commandment [to express itself], got a hold on me _and_ aroused _and_ stimulated all kinds of forbidden desires (lust, covetousness). For without the Law sin is dead [the sense of it is inactive and a lifeless thing]. 
+But sin, finding opportunity in the commandment [to express itself], got a hold on me and aroused and stimulated all kinds of forbidden desires (lust, covetousness). For without the Law sin is dead [the sense of it is inactive and a lifeless thing]. 
 
 
 
@@ -196,7 +196,7 @@ But sin, finding opportunity in the commandment [to express itself], got a hold 
 
 
 
-Once I was alive, but quite apart from _and_ unconscious of the Law. But when the commandment came, sin lived again and I died (was sentenced by the Law to death). 
+Once I was alive, but quite apart from and unconscious of the Law. But when the commandment came, sin lived again and I died (was sentenced by the Law to death). 
 
 
 
@@ -217,7 +217,7 @@ Once I was alive, but quite apart from _and_ unconscious of the Law. But when th
 
 
 
-And the very legal ordinance which was designed _and_ intended to bring life actually proved [to mean to me] death. 
+And the very legal ordinance which was designed and intended to bring life actually proved [to mean to me] death. 
 
 
 
@@ -238,7 +238,7 @@ And the very legal ordinance which was designed _and_ intended to bring life act
 
 
 
-For sin, seizing the opportunity _and_ getting a hold on me [by taking its incentive] from the commandment, beguiled _and_ entrapped _and_ cheated me, and using it [as a weapon], killed me. 
+For sin, seizing the opportunity and getting a hold on me [by taking its incentive] from the commandment, beguiled and entrapped and cheated me, and using it [as a weapon], killed me. 
 
 
 
@@ -322,7 +322,7 @@ We know that the Law is spiritual; but I am a creature of the flesh [carnal, uns
 
 
 
-For I do not understand my own actions [I am baffled, bewildered]. I do not practice _or_ accomplish what I wish, but I do the very thing that I loathe [which my moral instinct condemns]. 
+For I do not understand my own actions [I am baffled, bewildered]. I do not practice or accomplish what I wish, but I do the very thing that I loathe [which my moral instinct condemns]. 
 
 
 
@@ -343,7 +343,7 @@ For I do not understand my own actions [I am baffled, bewildered]. I do not prac
 
 
 
-Now if I do [habitually] what is contrary to my desire, [that means that] I acknowledge _and_ agree that the Law is good (morally excellent) _and_ that I take sides with it. 
+Now if I do [habitually] what is contrary to my desire, [that means that] I acknowledge and agree that the Law is good (morally excellent) and that I take sides with it. 
 
 
 
@@ -364,7 +364,7 @@ Now if I do [habitually] what is contrary to my desire, [that means that] I ackn
 
 
 
-However, it is no longer I who do the deed, but the sin [principle] which is at home in me _and_ has possession of me. 
+However, it is no longer I who do the deed, but the sin [principle] which is at home in me and has possession of me. 
 
 
 
@@ -448,7 +448,7 @@ Now if I do what I do not desire to do, it is no longer I doing it [it is not my
 
 
 
-So I find it to be a law (rule of action of my being) that when I want to do what is right _and_ good, evil is ever present with me _and_ I am subject to its insistent demands. 
+So I find it to be a law (rule of action of my being) that when I want to do what is right and good, evil is ever present with me and I am subject to its insistent demands. 
 
 
 
@@ -469,7 +469,7 @@ So I find it to be a law (rule of action of my being) that when I want to do wha
 
 
 
-For I endorse _and_ delight in the Law of God in my inmost self [with my new nature]. 
+For I endorse and delight in the Law of God in my inmost self [with my new nature]. 
 
 
 
@@ -511,7 +511,7 @@ But I discern in my bodily members [in the sensitive appetites and wills of the 
 
 
 
-O unhappy _and_ pitiable _and_ wretched man that I am! Who will release _and_ deliver me from [the shackles of] this body of death? 
+O unhappy and pitiable and wretched man that I am! Who will release and deliver me from [the shackles of] this body of death? 
 
 
 
@@ -532,4 +532,4 @@ O unhappy _and_ pitiable _and_ wretched man that I am! Who will release _and_ de
 
 
 
-O thank God! [He will!] through Jesus Christ (the Anointed One) our Lord! So then indeed I, of myself with the mind _and_ heart, serve the Law of God, but with the flesh the law of sin.
+O thank God! [He will!] through Jesus Christ (the Anointed One) our Lord! So then indeed I, of myself with the mind and heart, serve the Law of God, but with the flesh the law of sin.

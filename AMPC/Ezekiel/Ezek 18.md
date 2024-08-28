@@ -301,7 +301,7 @@ And has charged interest or percentage of increase on what he has loaned [in sup
 
 
 
-But if this wicked man begets a son who sees all the sins which his father has committed, and considers _and_ fears [God] and does not do like his father, 
+But if this wicked man begets a son who sees all the sins which his father has committed, and considers and fears [God] and does not do like his father, 
 
 
 
@@ -385,7 +385,7 @@ Who has withdrawn his hand from [oppressing] the poor, who has not received inte
 
 
 
-As for his father, because he cruelly oppressed, robbed his brother, and did that which is not good among his people, behold, he shall die for his iniquity _and_ guilt. 
+As for his father, because he cruelly oppressed, robbed his brother, and did that which is not good among his people, behold, he shall die for his iniquity and guilt. 
 
 
 
@@ -427,7 +427,7 @@ Yet do you say, Why does not the son bear the iniquity of the father? When the s
 
 
 
-The soul that sins, it [is the one that] shall die. The son shall not bear _and_ be punished for the iniquity of the father, neither shall the father bear _and_ be punished for the iniquity of the son; the righteousness of the righteous shall be upon him only, and the wickedness of the wicked shall be upon the wicked only. 
+The soul that sins, it [is the one that] shall die. The son shall not bear and be punished for the iniquity of the father, neither shall the father bear and be punished for the iniquity of the son; the righteousness of the righteous shall be upon him only, and the wickedness of the wicked shall be upon the wicked only. 
 
 
 
@@ -490,7 +490,7 @@ None of his transgressions which he has committed shall be remembered against hi
 
 
 
-Have I any pleasure in the death of the wicked? says the Lord, and not rather that he should turn from his evil way _and_ return [to his God] and live? 
+Have I any pleasure in the death of the wicked? says the Lord, and not rather that he should turn from his evil way and return [to his God] and live? 
 
 
 
@@ -532,7 +532,7 @@ But if the righteous man turns away from his righteousness and commits iniquity 
 
 
 
-Yet you say, The way of the Lord is not fair _and_ just. Hear now, O house of Israel: Is not My way fair _and_ just? Are not your ways unfair _and_ unjust? 
+Yet you say, The way of the Lord is not fair and just. Hear now, O house of Israel: Is not My way fair and just? Are not your ways unfair and unjust? 
 
 
 
@@ -637,7 +637,7 @@ Yet says the house of Israel, The way of the Lord is not fair and just! O house 
 
 
 
-Therefore I will judge you, O house of Israel, every one according to his ways, says the Lord God. Repent and turn from all your transgressions, lest iniquity be your ruin _and_ so shall they not be a stumbling block to you. 
+Therefore I will judge you, O house of Israel, every one according to his ways, says the Lord God. Repent and turn from all your transgressions, lest iniquity be your ruin and so shall they not be a stumbling block to you. 
 
 
 
@@ -658,7 +658,7 @@ Therefore I will judge you, O house of Israel, every one according to his ways, 
 
 
 
-Cast away from you all your transgressions by which you have transgressed against Me, and make you a new mind _and_ heart and a new spirit. For why will you die, O house of Israel? 
+Cast away from you all your transgressions by which you have transgressed against Me, and make you a new mind and heart and a new spirit. For why will you die, O house of Israel? 
 
 
 

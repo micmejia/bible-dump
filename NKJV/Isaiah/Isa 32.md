@@ -22,13 +22,13 @@ The eyes of those who see will not be dim, And the ears of those who hear will l
 Also the heart of the rash will understand knowledge, And the tongue of the stammerers will be ready to speak plainly. 
 
 ###### 5 
-The foolish person will no longer be called generous, Nor the miser said _to be_ bountiful; 
+The foolish person will no longer be called generous, Nor the miser said to be bountiful; 
 
 ###### 6 
 For the foolish person will speak foolishness, And his heart will work iniquity: To practice ungodliness, To utter error against the Lord, To keep the hungry unsatisfied, And he will cause the drink of the thirsty to fail. 
 
 ###### 7 
-Also the schemes of the schemer _are_ evil; He devises wicked plans To destroy the poor with lying words, Even when the needy speaks justice. 
+Also the schemes of the schemer are evil; He devises wicked plans To destroy the poor with lying words, Even when the needy speaks justice. 
 
 ###### 8 
 But a generous man devises generous things, And by generosity he shall stand.
@@ -39,16 +39,16 @@ But a generous man devises generous things, And by generosity he shall stand.
 Rise up, you women who are at ease, Hear my voice; You complacent daughters, Give ear to my speech. 
 
 ###### 10 
-In a year and _some_ days You will be troubled, you complacent women; For the vintage will fail, The gathering will not come. 
+In a year and some days You will be troubled, you complacent women; For the vintage will fail, The gathering will not come. 
 
 ###### 11 
-Tremble, you _women_ who are at ease; Be troubled, you complacent ones; Strip yourselves, make yourselves bare, And gird _sackcloth_ on _your_ waists. 
+Tremble, you women who are at ease; Be troubled, you complacent ones; Strip yourselves, make yourselves bare, And gird sackcloth on your waists. 
 
 ###### 12 
 People shall mourn upon their breasts For the pleasant fields, for the fruitful vine. 
 
 ###### 13 
-On the land of my people will come up thorns _and_ briers, Yes, on all the happy homes _in_ the joyous city; 
+On the land of my people will come up thorns and briers, Yes, on all the happy homes in the joyous city; 
 
 ###### 14 
 Because the palaces will be forsaken, The bustling city will be deserted. The forts and towers will become lairs forever, A joy of wild donkeys, a pasture of flocks-- 
@@ -71,4 +71,4 @@ My people will dwell in a peaceful habitation, In secure dwellings, and in quiet
 Though hail comes down on the forest, And the city is brought low in humiliation. 
 
 ###### 20 
-Blessed _are_ you who sow beside all waters, Who send out freely the feet of the ox and the donkey.
+Blessed are you who sow beside all waters, Who send out freely the feet of the ox and the donkey.

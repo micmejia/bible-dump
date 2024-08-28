@@ -595,7 +595,7 @@ And Gideon made an ephod [a sacred, high priest's garment] of it, and put it in 
 
 
 
-Thus was Midian subdued before the Israelites so that they lifted up their heads no more. And the land had peace _and_ rest for forty years in the days of Gideon. 
+Thus was Midian subdued before the Israelites so that they lifted up their heads no more. And the land had peace and rest for forty years in the days of Gideon. 
 
 
 

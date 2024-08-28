@@ -154,7 +154,7 @@ But there went up a mist (fog, vapor) from the land and watered the whole surfac
 
 
 
-Then the Lord God formed man from the dust of the ground and breathed into his nostrils the breath _or_ spirit of life, and man became a living being. 
+Then the Lord God formed man from the dust of the ground and breathed into his nostrils the breath or spirit of life, and man became a living being. 
 
 
 
@@ -196,7 +196,7 @@ And the Lord God planted a garden toward the east, in Eden [delight]; and there 
 
 
 
-And out of the ground the Lord God made to grow every tree that is pleasant to the sight _or_ to be desired--good (suitable, pleasant) for food; the tree of life also in the center of the garden, and the tree of the knowledge of [the difference between] good and evil _and_ blessing and calamity. 
+And out of the ground the Lord God made to grow every tree that is pleasant to the sight or to be desired--good (suitable, pleasant) for food; the tree of life also in the center of the garden, and the tree of the knowledge of [the difference between] good and evil and blessing and calamity. 
 
 
 
@@ -322,7 +322,7 @@ The third river is named Hiddekel [the Tigris]; it is the one flowing east of As
 
 
 
-And the Lord God took the man and put him in the Garden of Eden to tend and guard _and_ keep it. 
+And the Lord God took the man and put him in the Garden of Eden to tend and guard and keep it. 
 
 
 
@@ -364,7 +364,7 @@ And the Lord God commanded the man, saying, You may freely eat of every tree of 
 
 
 
-But of the tree of the knowledge of good and evil _and_ blessing and calamity you shall not eat, for in the day that you eat of it you shall surely die. 
+But of the tree of the knowledge of good and evil and blessing and calamity you shall not eat, for in the day that you eat of it you shall surely die. 
 
 
 
@@ -406,7 +406,7 @@ Now the Lord God said, It is not good (sufficient, satisfactory) that the man sh
 
 
 
-And out of the ground the Lord God formed every [wild] beast _and_ living creature of the field and every bird of the air and brought them to Adam to see what he would call them; and whatever Adam called every living creature, that was its name. 
+And out of the ground the Lord God formed every [wild] beast and living creature of the field and every bird of the air and brought them to Adam to see what he would call them; and whatever Adam called every living creature, that was its name. 
 
 
 
@@ -448,7 +448,7 @@ And Adam gave names to all the livestock and to the birds of the air and to ever
 
 
 
-And the Lord God caused a deep sleep to fall upon Adam; and while he slept, He took one of his ribs _or_ a part of his side and closed up the [place with] flesh. 
+And the Lord God caused a deep sleep to fall upon Adam; and while he slept, He took one of his ribs or a part of his side and closed up the [place with] flesh. 
 
 
 
@@ -469,7 +469,7 @@ And the Lord God caused a deep sleep to fall upon Adam; and while he slept, He t
 
 
 
-And the rib _or_ part of his side which the Lord God had taken from the man He built up _and_ made into a woman, and He brought her to the man. 
+And the rib or part of his side which the Lord God had taken from the man He built up and made into a woman, and He brought her to the man. 
 
 
 
@@ -511,7 +511,7 @@ Then Adam said, This [creature] is now bone of my bones and flesh of my flesh; s
 
 
 
-Therefore a man shall leave his father and his mother and shall become united _and_ cleave to his wife, and they shall become one flesh. 
+Therefore a man shall leave his father and his mother and shall become united and cleave to his wife, and they shall become one flesh. 
 
 
 
@@ -532,4 +532,4 @@ Therefore a man shall leave his father and his mother and shall become united _a
 
 
 
-And the man and his wife were both naked and were not embarrassed _or_ ashamed in each other's presence.
+And the man and his wife were both naked and were not embarrassed or ashamed in each other's presence.

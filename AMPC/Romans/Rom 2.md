@@ -28,7 +28,7 @@ next: ['Rom 3']
 
 
 
-Therefore you have no excuse _or_ defense _or_ justification, O man, whoever you are who judges _and_ condemns another. For in posing as judge _and_ passing sentence on another, you condemn yourself, because you who judge are habitually practicing the very same things [that you censure and denounce]. 
+Therefore you have no excuse or defense or justification, O man, whoever you are who judges and condemns another. For in posing as judge and passing sentence on another, you condemn yourself, because you who judge are habitually practicing the very same things [that you censure and denounce]. 
 
 
 
@@ -49,7 +49,7 @@ Therefore you have no excuse _or_ defense _or_ justification, O man, whoever you
 
 
 
-[But] we know that the judgment (adverse verdict, sentence) of God falls justly _and_ in accordance with truth upon those who practice such things. 
+[But] we know that the judgment (adverse verdict, sentence) of God falls justly and in accordance with truth upon those who practice such things. 
 
 
 
@@ -70,7 +70,7 @@ Therefore you have no excuse _or_ defense _or_ justification, O man, whoever you
 
 
 
-And do you think _or_ imagine, O man, when you judge _and_ condemn those who practice such things and yet do them yourself, that you will escape God's judgment _and_ elude His sentence _and_ adverse verdict? 
+And do you think or imagine, O man, when you judge and condemn those who practice such things and yet do them yourself, that you will escape God's judgment and elude His sentence and adverse verdict? 
 
 
 
@@ -91,7 +91,7 @@ And do you think _or_ imagine, O man, when you judge _and_ condemn those who pra
 
 
 
-Or are you [so blind as to] trifle with _and_ presume upon _and_ despise _and_ underestimate the wealth of His kindness and forbearance and long-suffering patience? Are you unmindful _or_ actually ignorant [of the fact] that God's kindness is intended to lead you to repent (to change your mind and inner man to accept God's will)? 
+Or are you [so blind as to] trifle with and presume upon and despise and underestimate the wealth of His kindness and forbearance and long-suffering patience? Are you unmindful or actually ignorant [of the fact] that God's kindness is intended to lead you to repent (to change your mind and inner man to accept God's will)? 
 
 
 
@@ -112,7 +112,7 @@ Or are you [so blind as to] trifle with _and_ presume upon _and_ despise _and_ u
 
 
 
-But by your callous stubbornness _and_ impenitence of heart you are storing up wrath _and_ indignation for yourself on the day of wrath _and_ indignation, when God's righteous judgment (just doom) will be revealed. 
+But by your callous stubbornness and impenitence of heart you are storing up wrath and indignation for yourself on the day of wrath and indignation, when God's righteous judgment (just doom) will be revealed. 
 
 
 
@@ -175,7 +175,7 @@ To those who by patient persistence in well-doing [springing from piety] seek [u
 
 
 
-But for those who are self-seeking _and_ self-willed _and_ disobedient to the Truth but responsive to wickedness, there will be indignation and wrath. 
+But for those who are self-seeking and self-willed and disobedient to the Truth but responsive to wickedness, there will be indignation and wrath. 
 
 
 
@@ -196,7 +196,7 @@ But for those who are self-seeking _and_ self-willed _and_ disobedient to the Tr
 
 
 
-[And] there will be tribulation _and_ anguish and calamity _and_ constraint for every soul of man who [habitually] does evil, the Jew first and also the Greek (Gentile). 
+[And] there will be tribulation and anguish and calamity and constraint for every soul of man who [habitually] does evil, the Jew first and also the Greek (Gentile). 
 
 
 
@@ -259,7 +259,7 @@ For God shows no partiality [undue favor or unfairness; with Him one man is not 
 
 
 
-All who have sinned without the Law will also perish without [regard to] the Law, and all who have sinned under the Law will be judged _and_ condemned by the Law. 
+All who have sinned without the Law will also perish without [regard to] the Law, and all who have sinned under the Law will be judged and condemned by the Law. 
 
 
 
@@ -280,7 +280,7 @@ All who have sinned without the Law will also perish without [regard to] the Law
 
 
 
-For it is not merely hearing the Law [read] that makes one righteous before God, but it is the doers of the Law who will be held guiltless _and_ acquitted _and_ justified. 
+For it is not merely hearing the Law [read] that makes one righteous before God, but it is the doers of the Law who will be held guiltless and acquitted and justified. 
 
 
 
@@ -322,7 +322,7 @@ When Gentiles who have not the [divine] Law do instinctively what the Law requir
 
 
 
-They show that the essential requirements of the Law are written in their hearts _and_ are operating there, with which their consciences (sense of right and wrong) also bear witness; and their [moral] decisions (their arguments of reason, their condemning or approving thoughts) will accuse or perhaps defend _and_ excuse [them] 
+They show that the essential requirements of the Law are written in their hearts and are operating there, with which their consciences (sense of right and wrong) also bear witness; and their [moral] decisions (their arguments of reason, their condemning or approving thoughts) will accuse or perhaps defend and excuse [them] 
 
 
 
@@ -364,7 +364,7 @@ On that day when, as my Gospel proclaims, God by Jesus Christ will judge men in 
 
 
 
-But if you bear the name of Jew and rely upon the Law and pride yourselves in God _and_ your relationship to Him, 
+But if you bear the name of Jew and rely upon the Law and pride yourselves in God and your relationship to Him, 
 
 
 
@@ -385,7 +385,7 @@ But if you bear the name of Jew and rely upon the Law and pride yourselves in Go
 
 
 
-And know _and_ understand His will and discerningly approve the better things _and_ have a sense of what is vital, because you are instructed by the Law; 
+And know and understand His will and discerningly approve the better things and have a sense of what is vital, because you are instructed by the Law; 
 
 
 
@@ -469,7 +469,7 @@ Well then, you who teach others, do you not teach yourself? While you teach agai
 
 
 
-You who say not to commit adultery, do you commit adultery [are you unchaste in action or in thought]? You who abhor _and_ loathe idols, do you rob temples [do you appropriate to your own use what is consecrated to God, thus robbing the sanctuary and doing sacrilege]? 
+You who say not to commit adultery, do you commit adultery [are you unchaste in action or in thought]? You who abhor and loathe idols, do you rob temples [do you appropriate to your own use what is consecrated to God, thus robbing the sanctuary and doing sacrilege]? 
 
 
 
@@ -511,7 +511,7 @@ You who boast in the Law, do you dishonor God by breaking the Law [by stealthily
 
 
 
-For, as it is written, The name of God is maligned _and_ blasphemed among the Gentiles because of you! [The words to this effect are from your own Scriptures.] 
+For, as it is written, The name of God is maligned and blasphemed among the Gentiles because of you! [The words to this effect are from your own Scriptures.] 
 
 
 
@@ -595,7 +595,7 @@ Then those who are physically uncircumcised but keep the Law will condemn you wh
 
 
 
-For he is not a [real] Jew who is only one outwardly _and_ publicly, nor is [true] circumcision something external and physical. 
+For he is not a [real] Jew who is only one outwardly and publicly, nor is [true] circumcision something external and physical. 
 
 
 

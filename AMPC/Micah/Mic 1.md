@@ -48,7 +48,7 @@ The word of the Lord that came to Micah of Moresheth in the days of Jotham, Ahaz
 
 
 
-Hear, all you people; listen closely, O earth and all that is in it, and let the Lord God be witness among you _and_ against you, the Lord from His holy temple. 
+Hear, all you people; listen closely, O earth and all that is in it, and let the Lord God be witness among you and against you, the Lord from His holy temple. 
 
 
 
@@ -216,7 +216,7 @@ For [Samaria's] wounds are incurable and they come even to Judah; He [the Lord] 
 
 
 
-In Gath [a city in Philistia] announce it not; _in_ _Acco_ weep not at all, [betraying your grief to foreigners; but among your own people] in Beth-le-aphrah [house of dust] roll yourself in the dust. 
+In Gath [a city in Philistia] announce it not; in Acco weep not at all, [betraying your grief to foreigners; but among your own people] in Beth-le-aphrah [house of dust] roll yourself in the dust. 
 
 
 
@@ -321,7 +321,7 @@ Therefore you must give parting gifts to Moresheth-gath [Micah's home town]; the
 
 
 
-Yet will I bring a conqueror upon you, O lady inhabitant of Mareshah, who shall possess you; the glory _and_ nobility of Israel shall come to Adullam [to hide in the caves, as did David]. 
+Yet will I bring a conqueror upon you, O lady inhabitant of Mareshah, who shall possess you; the glory and nobility of Israel shall come to Adullam [to hide in the caves, as did David]. 
 
 
 

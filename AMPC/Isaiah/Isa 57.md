@@ -28,7 +28,7 @@ next: ['Isa 58']
 
 
 
-The righteous man perishes, and no one lays it to heart; and merciful _and_ devout men are taken away, with no one considering that the uncompromisingly upright _and_ godly person is taken away from the calamity _and_ evil to come [even through wickedness]. 
+The righteous man perishes, and no one lays it to heart; and merciful and devout men are taken away, with no one considering that the uncompromisingly upright and godly person is taken away from the calamity and evil to come [even through wickedness]. 
 
 
 
@@ -49,7 +49,7 @@ The righteous man perishes, and no one lays it to heart; and merciful _and_ devo
 
 
 
-He [in death] enters into peace; they rest in their beds, each one who walks straight _and_ in his uprightness. 
+He [in death] enters into peace; they rest in their beds, each one who walks straight and in his uprightness. 
 
 
 
@@ -91,7 +91,7 @@ But come close, you sons of a sorceress [nursed in witchcraft and superstition],
 
 
 
-Against whom do you make sport _and_ take your delight? Against whom do you open wide your mouth and put out your tongue? Are you not yourselves the children of transgression, the offspring of deceit-- 
+Against whom do you make sport and take your delight? Against whom do you open wide your mouth and put out your tongue? Are you not yourselves the children of transgression, the offspring of deceit-- 
 
 
 
@@ -154,7 +154,7 @@ Among the smooth stones of the valley is your portion; they, they [the idols] ar
 
 
 
-Upon a lofty and high mountain you have openly _and_ shamelessly set your [idolatrous and adulterous] bed; even there you went up to offer sacrifice [in spiritual unfaithfulness to your divine Husband]. 
+Upon a lofty and high mountain you have openly and shamelessly set your [idolatrous and adulterous] bed; even there you went up to offer sacrifice [in spiritual unfaithfulness to your divine Husband]. 
 
 
 
@@ -196,7 +196,7 @@ Behind the door and the doorpost you have set up your [idol] symbol [as a substi
 
 
 
-And you went to the king [of foreign lands with gifts] _or_ to Molech [the god] with oil and increased your perfumes _and_ ointments; you sent your messengers far off and debased yourself even to Sheol (Hades) [symbol of an abysmal depth of degradation]. 
+And you went to the king [of foreign lands with gifts] or to Molech [the god] with oil and increased your perfumes and ointments; you sent your messengers far off and debased yourself even to Sheol (Hades) [symbol of an abysmal depth of degradation]. 
 
 
 
@@ -217,7 +217,7 @@ And you went to the king [of foreign lands with gifts] _or_ to Molech [the god] 
 
 
 
-You were wearied with the length of your way [in trying to find rest and satisfaction in alliances apart from the true God], yet you did not say, There is no result _or_ profit. You found quickened strength; therefore you were not faint _or_ heartsick [or penitent]. 
+You were wearied with the length of your way [in trying to find rest and satisfaction in alliances apart from the true God], yet you did not say, There is no result or profit. You found quickened strength; therefore you were not faint or heartsick [or penitent]. 
 
 
 
@@ -238,7 +238,7 @@ You were wearied with the length of your way [in trying to find rest and satisfa
 
 
 
-Of whom have you been so afraid and in dread that you lied _and_ were treacherous and did not [seriously] remember Me, did not even give Me a thought? Have I not been silent, even for a long time, and so you do not fear Me? 
+Of whom have you been so afraid and in dread that you lied and were treacherous and did not [seriously] remember Me, did not even give Me a thought? Have I not been silent, even for a long time, and so you do not fear Me? 
 
 
 
@@ -343,7 +343,7 @@ For thus says the high and lofty One--He Who inhabits eternity, Whose name is Ho
 
 
 
-For I will not contend forever, neither will I be angry always, for [if I did stay angry] the spirit [of man] would faint _and_ be consumed before Me, and [My purpose in] creating the souls of men would be frustrated. 
+For I will not contend forever, neither will I be angry always, for [if I did stay angry] the spirit [of man] would faint and be consumed before Me, and [My purpose in] creating the souls of men would be frustrated. 
 
 
 
@@ -364,7 +364,7 @@ For I will not contend forever, neither will I be angry always, for [if I did st
 
 
 
-Because of the iniquity of his [Judah's] covetousness _and_ unjust gain I was angry and smote him. I hid my face and was angry, and he went on turning away _and_ backsliding in the way of his [own willful] heart. 
+Because of the iniquity of his [Judah's] covetousness and unjust gain I was angry and smote him. I hid my face and was angry, and he went on turning away and backsliding in the way of his [own willful] heart. 
 
 
 

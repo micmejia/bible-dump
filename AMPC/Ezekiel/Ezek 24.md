@@ -49,7 +49,7 @@ Again in the ninth year [of King Jehoiachin's captivity by Nebuchadnezzar of Bab
 
 
 
-Son of man, record the name of the day, even of this same day; the king of Babylon set himself against _and_ assailed Jerusalem this same day. 
+Son of man, record the name of the day, even of this same day; the king of Babylon set himself against and assailed Jerusalem this same day. 
 
 
 
@@ -133,7 +133,7 @@ Take the choicest of the flock and burn also the unused bones under it, and make
 
 
 
-Therefore thus says the Lord God: Woe to the bloody city, to the pot whose rust _and_ scum are in it and whose rust _and_ scum have not gone out of it! Take out of it piece by piece, without making any choice. 
+Therefore thus says the Lord God: Woe to the bloody city, to the pot whose rust and scum are in it and whose rust and scum have not gone out of it! Take out of it piece by piece, without making any choice. 
 
 
 
@@ -217,7 +217,7 @@ Therefore thus says the Lord God: Woe to the bloodguilty city! Also I will make 
 
 
 
-Heap on wood, kindle the fire _and_ make it hot, boil well the meat _and_ mix the spices, pour out the broth when thick, and let the bones be burned up. 
+Heap on wood, kindle the fire and make it hot, boil well the meat and mix the spices, pour out the broth when thick, and let the bones be burned up. 
 
 
 
@@ -238,7 +238,7 @@ Heap on wood, kindle the fire _and_ make it hot, boil well the meat _and_ mix th
 
 
 
-Then set [the pot Jerusalem] back empty upon the coals, that the bronze of it may be hot and may glow and the filthiness of it may be melted in it and the rust _and_ scum of it may be consumed. 
+Then set [the pot Jerusalem] back empty upon the coals, that the bronze of it may be hot and may glow and the filthiness of it may be melted in it and the rust and scum of it may be consumed. 
 
 
 
@@ -259,7 +259,7 @@ Then set [the pot Jerusalem] back empty upon the coals, that the bronze of it ma
 
 
 
-She has wearied herself _and_ Me with toil; yet her great rust _and_ scum go not forth out of her, for however hotly the fire burns, her thick rust _and_ filth will not go out of her by fire. 
+She has wearied herself and Me with toil; yet her great rust and scum go not forth out of her, for however hotly the fire burns, her thick rust and filth will not go out of her by fire. 
 
 
 
@@ -280,7 +280,7 @@ She has wearied herself _and_ Me with toil; yet her great rust _and_ scum go not
 
 
 
-In your filthiness is abomination; [and therefore] because I would have cleansed you and you were not cleansed, you shall not be cleansed from your filthiness any more until I have satisfied My wrath against _and_ upon you. 
+In your filthiness is abomination; [and therefore] because I would have cleansed you and you were not cleansed, you shall not be cleansed from your filthiness any more until I have satisfied My wrath against and upon you. 
 
 
 
@@ -301,7 +301,7 @@ In your filthiness is abomination; [and therefore] because I would have cleansed
 
 
 
-I the Lord have spoken it; it shall come to pass and I will do it; I will not go back, neither will I spare, neither will I relent; according to your ways and according to your doings shall they judge _and_ punish you, says the Lord God. 
+I the Lord have spoken it; it shall come to pass and I will do it; I will not go back, neither will I spare, neither will I relent; according to your ways and according to your doings shall they judge and punish you, says the Lord God. 
 
 
 
@@ -364,7 +364,7 @@ Son of man [Ezekiel], behold, I take away from you the desire of your eyes [your
 
 
 
-Sigh _and_ groan, but not aloud [be silent]; make no mourning for the dead; bind your turban upon your head and put your shoes on your feet, and do not cover your beard or eat the bread of mourners [furnished by others]. 
+Sigh and groan, but not aloud [be silent]; make no mourning for the dead; bind your turban upon your head and put your shoes on your feet, and do not cover your beard or eat the bread of mourners [furnished by others]. 
 
 
 
@@ -448,7 +448,7 @@ Then I answered them, The word of the Lord came to me, saying,
 
 
 
-Speak to the house of Israel, Thus says the Lord God: Behold, I will profane My sanctuary--[in which you take] pride as your strength, the desire of your eyes, and the pity _and_ sympathy of your soul [that you would spare with your life]; and your sons and your daughters whom you have left behind shall fall by the sword. 
+Speak to the house of Israel, Thus says the Lord God: Behold, I will profane My sanctuary--[in which you take] pride as your strength, the desire of your eyes, and the pity and sympathy of your soul [that you would spare with your life]; and your sons and your daughters whom you have left behind shall fall by the sword. 
 
 
 
@@ -490,7 +490,7 @@ And you shall do as I [Ezekiel] have done; you shall not cover your beard nor ea
 
 
 
-And your turbans shall be upon your heads and your shoes upon your feet; you shall not mourn or weep, but you shall pine away for your iniquities (your guilt) and sigh _and_ groan to one another. 
+And your turbans shall be upon your heads and your shoes upon your feet; you shall not mourn or weep, but you shall pine away for your iniquities (your guilt) and sigh and groan to one another. 
 
 
 
@@ -511,7 +511,7 @@ And your turbans shall be upon your heads and your shoes upon your feet; you sha
 
 
 
-Thus Ezekiel is to you a sign; according to all that he has done you shall do. And when this [destruction of the temple] comes, you shall know, understand, _and_ realize that I am the Lord God [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
+Thus Ezekiel is to you a sign; according to all that he has done you shall do. And when this [destruction of the temple] comes, you shall know, understand, and realize that I am the Lord God [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
 
 
 
@@ -532,7 +532,7 @@ Thus Ezekiel is to you a sign; according to all that he has done you shall do. A
 
 
 
-And you, son of man, on the day when I take from them [My temple] their strength _and_ their stronghold, their joy and their glory, the delight of their eyes and their hearts' chief desire, and also [take] their sons and their daughters-- 
+And you, son of man, on the day when I take from them [My temple] their strength and their stronghold, their joy and their glory, the delight of their eyes and their hearts' chief desire, and also [take] their sons and their daughters-- 
 
 
 
@@ -574,4 +574,4 @@ On that day an escaped fugitive shall come to you to cause you to hear of it [th
 
 
 
-In that day your mouth shall be open to him who has escaped, and you shall speak and be no more speechless, and you shall be a sign to them and they shall know, understand, _and_ realize that I am the Lord.
+In that day your mouth shall be open to him who has escaped, and you shall speak and be no more speechless, and you shall be a sign to them and they shall know, understand, and realize that I am the Lord.

@@ -28,7 +28,7 @@ next: ['Deut 23']
 
 
 
-You shall not see your brother's ox or his sheep being driven away _or_ stolen, and hide yourself from [your duty to help] them; you shall surely take them back to your brother. 
+You shall not see your brother's ox or his sheep being driven away or stolen, and hide yourself from [your duty to help] them; you shall surely take them back to your brother. 
 
 
 
@@ -343,7 +343,7 @@ Then the father of the young woman, and her mother, shall get and bring out the 
 
 
 
-And her father shall say to the elders, I gave my daughter to this man as wife, but he hates _and_ spurns her; 
+And her father shall say to the elders, I gave my daughter to this man as wife, but he hates and spurns her; 
 
 
 
@@ -385,7 +385,7 @@ And behold, he has made shameful charges against her, saying, I found not in you
 
 
 
-And the elders of that city shall take the man and rebuke _and_ whip him. 
+And the elders of that city shall take the man and rebuke and whip him. 
 
 
 

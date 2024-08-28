@@ -91,7 +91,7 @@ And He said, Truly I say to you, this poor widow has put in more than all of the
 
 
 
-For they all gave out of their abundance (their surplus); but she has contributed out of her lack _and_ her want, putting in all that she had on which to live. 
+For they all gave out of their abundance (their surplus); but she has contributed out of her lack and her want, putting in all that she had on which to live. 
 
 
 
@@ -175,7 +175,7 @@ And they asked Him, Teacher, when will this happen? And what sign will there be 
 
 
 
-And He said, Be on your guard _and_ be careful that you are not led astray; for many will come in My name [appropriating to themselves the name Messiah which belongs to Me], saying, I am He! and, The time is at hand! Do not go out after them. 
+And He said, Be on your guard and be careful that you are not led astray; for many will come in My name [appropriating to themselves the name Messiah which belongs to Me], saying, I am He! and, The time is at hand! Do not go out after them. 
 
 
 
@@ -196,7 +196,7 @@ And He said, Be on your guard _and_ be careful that you are not led astray; for 
 
 
 
-And when you hear of wars and insurrections (disturbances, disorder, and confusion), do not become alarmed _and_ panic-stricken _and_ terrified; for all this must take place first, but the end will not [come] immediately. 
+And when you hear of wars and insurrections (disturbances, disorder, and confusion), do not become alarmed and panic-stricken and terrified; for all this must take place first, but the end will not [come] immediately. 
 
 
 
@@ -238,7 +238,7 @@ Then He told them, Nation will rise against nation, and kingdom against kingdom.
 
 
 
-There will be mighty _and_ violent earthquakes, and in various places famines and pestilences (plagues: malignant and contagious or infectious epidemic diseases which are deadly and devastating); and there will be sights of terror and great signs from heaven. 
+There will be mighty and violent earthquakes, and in various places famines and pestilences (plagues: malignant and contagious or infectious epidemic diseases which are deadly and devastating); and there will be sights of terror and great signs from heaven. 
 
 
 
@@ -301,7 +301,7 @@ This will be a time (an opportunity) for you to bear testimony.
 
 
 
-Resolve _and_ settle it in your minds not to meditate _and_ prepare beforehand how you are to make your defense _and_ how you will answer. 
+Resolve and settle it in your minds not to meditate and prepare beforehand how you are to make your defense and how you will answer. 
 
 
 
@@ -322,7 +322,7 @@ Resolve _and_ settle it in your minds not to meditate _and_ prepare beforehand h
 
 
 
-For I [Myself] will give you a mouth _and_ such utterance and wisdom that all of your foes combined will be unable to stand against or refute. 
+For I [Myself] will give you a mouth and such utterance and wisdom that all of your foes combined will be unable to stand against or refute. 
 
 
 
@@ -343,7 +343,7 @@ For I [Myself] will give you a mouth _and_ such utterance and wisdom that all of
 
 
 
-You will be delivered up _and_ betrayed even by parents and brothers and relatives and friends, and [some] of you they will put to death. 
+You will be delivered up and betrayed even by parents and brothers and relatives and friends, and [some] of you they will put to death. 
 
 
 
@@ -364,7 +364,7 @@ You will be delivered up _and_ betrayed even by parents and brothers and relativ
 
 
 
-And you will be hated (despised) by everyone because [you bear] My name _and_ for its sake. 
+And you will be hated (despised) by everyone because [you bear] My name and for its sake. 
 
 
 
@@ -406,7 +406,7 @@ But not a hair of your head shall perish.
 
 
 
-By your steadfastness _and_ patient endurance you shall win the true life of your souls. 
+By your steadfastness and patient endurance you shall win the true life of your souls. 
 
 
 
@@ -427,7 +427,7 @@ By your steadfastness _and_ patient endurance you shall win the true life of you
 
 
 
-But when you see Jerusalem surrounded by armies, then know _and_ understand that its desolation has come near. 
+But when you see Jerusalem surrounded by armies, then know and understand that its desolation has come near. 
 
 
 
@@ -490,7 +490,7 @@ For those are days of vengeance [of rendering full justice or satisfaction], tha
 
 
 
-Alas for those who are pregnant and for those who have babies which they are nursing in those days! For great misery _and_ anguish _and_ distress shall be upon the land and indignation _and_ punishment _and_ retribution upon this people. 
+Alas for those who are pregnant and for those who have babies which they are nursing in those days! For great misery and anguish and distress shall be upon the land and indignation and punishment and retribution upon this people. 
 
 
 
@@ -511,7 +511,7 @@ Alas for those who are pregnant and for those who have babies which they are nur
 
 
 
-They will fall by the mouth _and_ the edge of the sword and will be led away as captives to _and_ among all nations; and Jerusalem will be trodden down by the Gentiles until the times of the Gentiles are fulfilled (completed). 
+They will fall by the mouth and the edge of the sword and will be led away as captives to and among all nations; and Jerusalem will be trodden down by the Gentiles until the times of the Gentiles are fulfilled (completed). 
 
 
 
@@ -532,7 +532,7 @@ They will fall by the mouth _and_ the edge of the sword and will be led away as 
 
 
 
-And there will be signs in the sun and moon and stars; and upon the earth [there will be] distress (trouble and anguish) of nations in bewilderment _and_ perplexity [without resources, left wanting, embarrassed, in doubt, not knowing which way to turn] at the roaring (the echo) of the tossing of the sea, 
+And there will be signs in the sun and moon and stars; and upon the earth [there will be] distress (trouble and anguish) of nations in bewilderment and perplexity [without resources, left wanting, embarrassed, in doubt, not knowing which way to turn] at the roaring (the echo) of the tossing of the sea, 
 
 
 
@@ -553,7 +553,7 @@ And there will be signs in the sun and moon and stars; and upon the earth [there
 
 
 
-Men swooning away _or_ expiring with fear _and_ dread _and_ apprehension and expectation of the things that are coming on the world; for the [very] powers of the heavens will be shaken _and_ caused to totter. 
+Men swooning away or expiring with fear and dread and apprehension and expectation of the things that are coming on the world; for the [very] powers of the heavens will be shaken and caused to totter. 
 
 
 
@@ -637,7 +637,7 @@ And He told them a parable: Look at the fig tree and all the trees;
 
 
 
-When they put forth their buds _and_ come out in leaf, you see for yourselves and perceive _and_ know that summer is already near. 
+When they put forth their buds and come out in leaf, you see for yourselves and perceive and know that summer is already near. 
 
 
 
@@ -658,7 +658,7 @@ When they put forth their buds _and_ come out in leaf, you see for yourselves an
 
 
 
-Even so, when you see these things taking place, understand _and_ know that the kingdom of God is at hand. 
+Even so, when you see these things taking place, understand and know that the kingdom of God is at hand. 
 
 
 
@@ -679,7 +679,7 @@ Even so, when you see these things taking place, understand _and_ know that the 
 
 
 
-Truly I tell you, this generation (those living at that definite period of time) will not perish _and_ pass away until all has taken place. 
+Truly I tell you, this generation (those living at that definite period of time) will not perish and pass away until all has taken place. 
 
 
 
@@ -721,7 +721,7 @@ The sky and the earth (the universe, the world) will pass away, but My words wil
 
 
 
-But take heed to yourselves _and_ be on your guard, lest your hearts be overburdened _and_ depressed (weighed down) with the giddiness _and_ headache _and_ nausea of self-indulgence, drunkenness, and worldly worries _and_ cares pertaining to [the business of] this life, and [lest] that day come upon you suddenly like a trap _or_ a noose; 
+But take heed to yourselves and be on your guard, lest your hearts be overburdened and depressed (weighed down) with the giddiness and headache and nausea of self-indulgence, drunkenness, and worldly worries and cares pertaining to [the business of] this life, and [lest] that day come upon you suddenly like a trap or a noose; 
 
 
 
@@ -763,7 +763,7 @@ For it will come upon all who live upon the face of the entire earth.
 
 
 
-Keep awake then _and_ watch at all times [be discreet, attentive, and ready], praying that you may have the full strength _and_ ability _and_ be accounted worthy to escape all these things [taken together] that will take place, and to stand in the presence of the Son of Man. 
+Keep awake then and watch at all times [be discreet, attentive, and ready], praying that you may have the full strength and ability and be accounted worthy to escape all these things [taken together] that will take place, and to stand in the presence of the Son of Man. 
 
 
 

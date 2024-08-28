@@ -70,7 +70,7 @@ Which Jeremiah the prophet spoke to all the people of Judah and to all the inhab
 
 
 
-For these twenty-three years--from the thirteenth year of Josiah son of Amon king of Judah, even to this day--the word of the Lord has come to me and I have spoken to you persistently early and late, but you have not listened _and_ obeyed. 
+For these twenty-three years--from the thirteenth year of Josiah son of Amon king of Judah, even to this day--the word of the Lord has come to me and I have spoken to you persistently early and late, but you have not listened and obeyed. 
 
 
 
@@ -112,7 +112,7 @@ Although the Lord persistently sent you all the prophets, His servants, yet you 
 
 
 
-[The prophets came on My behalf] saying, Turn again now every one from his evil way and wrongdoing; [that you may not forfeit the right to] dwell in the land that the Lord gave to you and to your fathers from of old _and_ forevermore. 
+[The prophets came on My behalf] saying, Turn again now every one from his evil way and wrongdoing; [that you may not forfeit the right to] dwell in the land that the Lord gave to you and to your fathers from of old and forevermore. 
 
 
 
@@ -154,7 +154,7 @@ Do not go after other gods to serve and worship them, and do not provoke Me to a
 
 
 
-Yet you have not listened to _and_ obeyed Me, says the Lord, that you might provoke Me to anger with the works (idols) made by your hands to your own hurt. 
+Yet you have not listened to and obeyed Me, says the Lord, that you might provoke Me to anger with the works (idols) made by your hands to your own hurt. 
 
 
 
@@ -175,7 +175,7 @@ Yet you have not listened to _and_ obeyed Me, says the Lord, that you might prov
 
 
 
-Therefore thus says the Lord of hosts: Because you have not heard _and_ obeyed My words, 
+Therefore thus says the Lord of hosts: Because you have not heard and obeyed My words, 
 
 
 
@@ -196,7 +196,7 @@ Therefore thus says the Lord of hosts: Because you have not heard _and_ obeyed M
 
 
 
-Behold, I will send for all the tribes of the north, says the Lord, and I will send for Nebuchadrezzar king of Babylon, My servant [or agent to fulfill My designs], and I will bring them against this land and its inhabitants and against all these nations round about; and I will devote them [to God] _and_ utterly destroy them and make them an amazement, a hissing, and perpetual _and_ agelong desolations. 
+Behold, I will send for all the tribes of the north, says the Lord, and I will send for Nebuchadrezzar king of Babylon, My servant [or agent to fulfill My designs], and I will bring them against this land and its inhabitants and against all these nations round about; and I will devote them [to God] and utterly destroy them and make them an amazement, a hissing, and perpetual and agelong desolations. 
 
 
 
@@ -469,7 +469,7 @@ Edom, Moab, and the children of Ammon;
 
 
 
-All the kings of Tyre, all the kings of Sidon, and the kings of the islands _and_ the coastlands across the [Mediterranean] Sea; 
+All the kings of Tyre, all the kings of Sidon, and the kings of the islands and the coastlands across the [Mediterranean] Sea; 
 
 
 
@@ -490,7 +490,7 @@ All the kings of Tyre, all the kings of Sidon, and the kings of the islands _and
 
 
 
-Dedan, Tema, Buz [neighboring tribes north of Arabia], and all who clip off the corners of their hair _and_ beards; 
+Dedan, Tema, Buz [neighboring tribes north of Arabia], and all who clip off the corners of their hair and beards; 
 
 
 
@@ -637,7 +637,7 @@ For behold, I am beginning to work evil in the city which is called by My Name, 
 
 
 
-Therefore prophesy against them all these words and say to them: The Lord shall roar from on high and utter His voice from His holy habitation; He shall roar mightily against His fold _and_ pasture. He shall give a shout like those who tread grapes [in the winepress, but His shout will be] against all the inhabitants of the earth. 
+Therefore prophesy against them all these words and say to them: The Lord shall roar from on high and utter His voice from His holy habitation; He shall roar mightily against His fold and pasture. He shall give a shout like those who tread grapes [in the winepress, but His shout will be] against all the inhabitants of the earth. 
 
 
 
@@ -721,7 +721,7 @@ And those slain by the Lord shall be at that day from one end of the earth even 
 
 
 
-Wail, you shepherds, and cry; and roll in ashes, you principal ones of the flock. For the days of your slaughter and of your dispersions have fully come, and you shall fall _and_ be dashed into pieces like a choice vessel. 
+Wail, you shepherds, and cry; and roll in ashes, you principal ones of the flock. For the days of your slaughter and of your dispersions have fully come, and you shall fall and be dashed into pieces like a choice vessel. 
 
 
 
@@ -763,7 +763,7 @@ And the shepherds shall have no way to flee, nor the principal ones of the flock
 
 
 
-A voice! The cry of the shepherds and the wailing of the principal ones of the flock! For the Lord is laying waste _and_ destroying their pasture. 
+A voice! The cry of the shepherds and the wailing of the principal ones of the flock! For the Lord is laying waste and destroying their pasture. 
 
 
 
@@ -784,7 +784,7 @@ A voice! The cry of the shepherds and the wailing of the principal ones of the f
 
 
 
-And the peaceable folds are devastated _and_ brought to silence because of the fierce anger of the Lord. 
+And the peaceable folds are devastated and brought to silence because of the fierce anger of the Lord. 
 
 
 
@@ -805,4 +805,4 @@ And the peaceable folds are devastated _and_ brought to silence because of the f
 
 
 
-He has left His shelter like the lion; for their land has become a waste _and_ an astonishment because of the fierceness of the oppressor and because of [the Lord's] fierce anger.
+He has left His shelter like the lion; for their land has become a waste and an astonishment because of the fierceness of the oppressor and because of [the Lord's] fierce anger.

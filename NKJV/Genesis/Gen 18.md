@@ -13,7 +13,7 @@ next: ['Gen 19']
 Then the Lord appeared to him by the terebinth trees of Mamre, as he was sitting in the tent door in the heat of the day. 
 
 ###### 2 
-So he lifted his eyes and looked, and behold, three men were standing by him; and when he saw _them,_ he ran from the tent door to meet them, and bowed himself to the ground, 
+So he lifted his eyes and looked, and behold, three men were standing by him; and when he saw them, he ran from the tent door to meet them, and bowed himself to the ground, 
 
 ###### 3 
 and said, "My Lord, if I have now found favor in Your sight, do not pass on by Your servant. 
@@ -25,34 +25,34 @@ Please let a little water be brought, and wash your feet, and rest yourselves un
 And I will bring a morsel of bread, that you may refresh your hearts. After that you may pass by, inasmuch as you have come to your servant." They said, "Do as you have said." 
 
 ###### 6 
-So Abraham hurried into the tent to Sarah and said, "Quickly, make ready three measures of fine meal; knead _it_ and make cakes." 
+So Abraham hurried into the tent to Sarah and said, "Quickly, make ready three measures of fine meal; knead it and make cakes." 
 
 ###### 7 
-And Abraham ran to the herd, took a tender and good calf, gave _it_ to a young man, and he hastened to prepare it. 
+And Abraham ran to the herd, took a tender and good calf, gave it to a young man, and he hastened to prepare it. 
 
 ###### 8 
-So he took butter and milk and the calf which he had prepared, and set _it_ before them; and he stood by them under the tree as they ate. 
+So he took butter and milk and the calf which he had prepared, and set it before them; and he stood by them under the tree as they ate. 
 
 ###### 9 
-Then they said to him, "Where _is_ Sarah your wife?" So he said, "Here, in the tent." 
+Then they said to him, "Where is Sarah your wife?" So he said, "Here, in the tent." 
 
 ###### 10 
-And He said, "I will certainly return to you according to the time of life, and behold, Sarah your wife shall have a son." (Sarah was listening in the tent door which _was_ behind him.) 
+And He said, "I will certainly return to you according to the time of life, and behold, Sarah your wife shall have a son." (Sarah was listening in the tent door which was behind him.) 
 
 ###### 11 
-Now Abraham and Sarah were old, well advanced in age; _and_ Sarah had passed the age of childbearing. 
+Now Abraham and Sarah were old, well advanced in age; and Sarah had passed the age of childbearing. 
 
 ###### 12 
 Therefore Sarah laughed within herself, saying, "After I have grown old, shall I have pleasure, my lord being old also?" 
 
 ###### 13 
-And the Lord said to Abraham, "Why did Sarah laugh, saying, 'Shall I surely bear _a child,_ since I am old?' 
+And the Lord said to Abraham, "Why did Sarah laugh, saying, 'Shall I surely bear a child, since I am old?' 
 
 ###### 14 
 Is anything too hard for the Lord? At the appointed time I will return to you, according to the time of life, and Sarah shall have a son." 
 
 ###### 15 
-But Sarah denied _it,_ saying, "I did not laugh," for she was afraid. And He said, "No, but you did laugh!" 
+But Sarah denied it, saying, "I did not laugh," for she was afraid. And He said, "No, but you did laugh!" 
 
 ## Abraham Intercedes for Sodom 
 
@@ -81,7 +81,7 @@ Then the men turned away from there and went toward Sodom, but Abraham still sto
 And Abraham came near and said, "Would You also destroy the righteous with the wicked? 
 
 ###### 24 
-Suppose there were fifty righteous within the city; would You also destroy the place and not spare _it_ for the fifty righteous that were in it? 
+Suppose there were fifty righteous within the city; would You also destroy the place and not spare it for the fifty righteous that were in it? 
 
 ###### 25 
 Far be it from You to do such a thing as this, to slay the righteous with the wicked, so that the righteous should be as the wicked; far be it from You! Shall not the Judge of all the earth do right?" 
@@ -90,22 +90,22 @@ Far be it from You to do such a thing as this, to slay the righteous with the wi
 So the Lord said, "If I find in Sodom fifty righteous within the city, then I will spare all the place for their sakes." 
 
 ###### 27 
-Then Abraham answered and said, "Indeed now, I who _am_ _but_ dust and ashes have taken it upon myself to speak to the Lord: 
+Then Abraham answered and said, "Indeed now, I who am but dust and ashes have taken it upon myself to speak to the Lord: 
 
 ###### 28 
-Suppose there were five less than the fifty righteous; would You destroy all of the city for _lack of_ five?" So He said, "If I find there forty-five, I will not destroy _it._" 
+Suppose there were five less than the fifty righteous; would You destroy all of the city for lack of five?" So He said, "If I find there forty-five, I will not destroy it." 
 
 ###### 29 
-And he spoke to Him yet again and said, "Suppose there should be forty found there?" So He said, "I will not do _it_ for the sake of forty." 
+And he spoke to Him yet again and said, "Suppose there should be forty found there?" So He said, "I will not do it for the sake of forty." 
 
 ###### 30 
-Then he said, "Let not the Lord be angry, and I will speak: Suppose thirty should be found there?" So He said, "I will not do _it_ if I find thirty there." 
+Then he said, "Let not the Lord be angry, and I will speak: Suppose thirty should be found there?" So He said, "I will not do it if I find thirty there." 
 
 ###### 31 
-And he said, "Indeed now, I have taken it upon myself to speak to the Lord: Suppose twenty should be found there?" So He said, "I will not destroy _it_ for the sake of twenty." 
+And he said, "Indeed now, I have taken it upon myself to speak to the Lord: Suppose twenty should be found there?" So He said, "I will not destroy it for the sake of twenty." 
 
 ###### 32 
-Then he said, "Let not the Lord be angry, and I will speak but once more: Suppose ten should be found there?" And He said, "I will not destroy _it_ for the sake of ten." 
+Then he said, "Let not the Lord be angry, and I will speak but once more: Suppose ten should be found there?" And He said, "I will not destroy it for the sake of ten." 
 
 ###### 33 
 So the Lord went His way as soon as He had finished speaking with Abraham; and Abraham returned to his place.

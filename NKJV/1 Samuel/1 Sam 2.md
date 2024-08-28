@@ -13,16 +13,16 @@ next: ['1 Sam 3']
 And Hannah prayed and said: "My heart rejoices in the Lord; My horn is exalted in the Lord. I smile at my enemies, Because I rejoice in Your salvation. 
 
 ###### 2 
-"No one is holy like the Lord, For _there is_ none besides You, Nor _is there_ any rock like our God. 
+"No one is holy like the Lord, For there is none besides You, Nor is there any rock like our God. 
 
 ###### 3 
-"Talk no more so very proudly; Let no arrogance come from your mouth, For the Lord _is_ the God of knowledge; And by Him actions are weighed. 
+"Talk no more so very proudly; Let no arrogance come from your mouth, For the Lord is the God of knowledge; And by Him actions are weighed. 
 
 ###### 4 
-"The bows of the mighty men _are_ broken, And those who stumbled are girded with strength. 
+"The bows of the mighty men are broken, And those who stumbled are girded with strength. 
 
 ###### 5 
-_Those who were_ full have hired themselves out for bread, And the hungry have ceased _to hunger._ Even the barren has borne seven, And she who has many children has become feeble. 
+Those who were full have hired themselves out for bread, And the hungry have ceased to hunger. Even the barren has borne seven, And she who has many children has become feeble. 
 
 ###### 6 
 "The Lord kills and makes alive; He brings down to the grave and brings up. 
@@ -31,7 +31,7 @@ _Those who were_ full have hired themselves out for bread, And the hungry have c
 The Lord makes poor and makes rich; He brings low and lifts up. 
 
 ###### 8 
-He raises the poor from the dust _And_ lifts the beggar from the ash heap, To set _them_ among princes And make them inherit the throne of glory. "For the pillars of the earth _are_ the Lord's, And He has set the world upon them. 
+He raises the poor from the dust And lifts the beggar from the ash heap, To set them among princes And make them inherit the throne of glory. "For the pillars of the earth are the Lord's, And He has set the world upon them. 
 
 ###### 9 
 He will guard the feet of His saints, But the wicked shall be silent in darkness. "For by strength no man shall prevail. 
@@ -45,19 +45,19 @@ Then Elkanah went to his house at Ramah. But the child ministered to the Lord be
 ## The Wicked Sons of Eli 
 
 ###### 12 
-Now the sons of Eli _were_ corrupt; they did not know the Lord. 
+Now the sons of Eli were corrupt; they did not know the Lord. 
 
 ###### 13 
-And the priests' custom with the people _was that_ when any man offered a sacrifice, the priest's servant would come with a three-pronged fleshhook in his hand while the meat was boiling. 
+And the priests' custom with the people was that when any man offered a sacrifice, the priest's servant would come with a three-pronged fleshhook in his hand while the meat was boiling. 
 
 ###### 14 
-Then he would thrust _it_ into the pan, or kettle, or caldron, or pot; and the priest would take for himself all that the fleshhook brought up. So they did in Shiloh to all the Israelites who came there. 
+Then he would thrust it into the pan, or kettle, or caldron, or pot; and the priest would take for himself all that the fleshhook brought up. So they did in Shiloh to all the Israelites who came there. 
 
 ###### 15 
 Also, before they burned the fat, the priest's servant would come and say to the man who sacrificed, "Give meat for roasting to the priest, for he will not take boiled meat from you, but raw." 
 
 ###### 16 
-And _if_ the man said to him, "They should really burn the fat first; _then_ you may take _as much_ as your heart desires," he would then answer him, "_No,_ but you must give _it_ now; and if not, I will take _it_ by force." 
+And if the man said to him, "They should really burn the fat first; then you may take as much as your heart desires," he would then answer him, "No, but you must give it now; and if not, I will take it by force." 
 
 ###### 17 
 Therefore the sin of the young men was very great before the Lord, for men abhorred the offering of the Lord.
@@ -65,10 +65,10 @@ Therefore the sin of the young men was very great before the Lord, for men abhor
 ## Samuel's Childhood Ministry 
 
 ###### 18 
-But Samuel ministered before the Lord, _even as_ a child, wearing a linen ephod. 
+But Samuel ministered before the Lord, even as a child, wearing a linen ephod. 
 
 ###### 19 
-Moreover his mother used to make him a little robe, and bring _it_ to him year by year when she came up with her husband to offer the yearly sacrifice. 
+Moreover his mother used to make him a little robe, and bring it to him year by year when she came up with her husband to offer the yearly sacrifice. 
 
 ###### 20 
 And Eli would bless Elkanah and his wife, and say, "The Lord give you descendants from this woman for the loan that was given to the Lord." Then they would go to their own home. 
@@ -85,7 +85,7 @@ Now Eli was very old; and he heard everything his sons did to all Israel, and ho
 So he said to them, "Why do you do such things? For I hear of your evil dealings from all the people. 
 
 ###### 24 
-No, my sons! For _it is_ not a good report that I hear. You make the Lord's people transgress. 
+No, my sons! For it is not a good report that I hear. You make the Lord's people transgress. 
 
 ###### 25 
 If one man sins against another, God will judge him. But if a man sins against the Lord, who will intercede for him?" Nevertheless they did not heed the voice of their father, because the Lord desired to kill them. 
@@ -97,28 +97,28 @@ And the child Samuel grew in stature, and in favor both with the Lord and men.
 Then a man of God came to Eli and said to him, "Thus says the Lord: 'Did I not clearly reveal Myself to the house of your father when they were in Egypt in Pharaoh's house? 
 
 ###### 28 
-Did I not choose him out of all the tribes of Israel _to be_ My priest, to offer upon My altar, to burn incense, and to wear an ephod before Me? And did I not give to the house of your father all the offerings of the children of Israel made by fire? 
+Did I not choose him out of all the tribes of Israel to be My priest, to offer upon My altar, to burn incense, and to wear an ephod before Me? And did I not give to the house of your father all the offerings of the children of Israel made by fire? 
 
 ###### 29 
-Why do you kick at My sacrifice and My offering which I have commanded _in My_ dwelling place, and honor your sons more than Me, to make yourselves fat with the best of all the offerings of Israel My people?' 
+Why do you kick at My sacrifice and My offering which I have commanded in My dwelling place, and honor your sons more than Me, to make yourselves fat with the best of all the offerings of Israel My people?' 
 
 ###### 30 
-Therefore the Lord God of Israel says: 'I said indeed _that_ your house and the house of your father would walk before Me forever.' But now the Lord says: 'Far be it from Me; for those who honor Me I will honor, and those who despise Me shall be lightly esteemed. 
+Therefore the Lord God of Israel says: 'I said indeed that your house and the house of your father would walk before Me forever.' But now the Lord says: 'Far be it from Me; for those who honor Me I will honor, and those who despise Me shall be lightly esteemed. 
 
 ###### 31 
 Behold, the days are coming that I will cut off your arm and the arm of your father's house, so that there will not be an old man in your house. 
 
 ###### 32 
-And you will see an enemy _in My_ dwelling place, _despite_ all the good which God does for Israel. And there shall not be an old man in your house forever. 
+And you will see an enemy in My dwelling place, despite all the good which God does for Israel. And there shall not be an old man in your house forever. 
 
 ###### 33 
-But any of your men _whom_ I do not cut off from My altar shall consume your eyes and grieve your heart. And all the descendants of your house shall die in the flower of their age. 
+But any of your men whom I do not cut off from My altar shall consume your eyes and grieve your heart. And all the descendants of your house shall die in the flower of their age. 
 
 ###### 34 
-Now this _shall be_ a sign to you that will come upon your two sons, on Hophni and Phinehas: in one day they shall die, both of them. 
+Now this shall be a sign to you that will come upon your two sons, on Hophni and Phinehas: in one day they shall die, both of them. 
 
 ###### 35 
-Then I will raise up for Myself a faithful priest _who_ shall do according to what _is_ in My heart and in My mind. I will build him a sure house, and he shall walk before My anointed forever. 
+Then I will raise up for Myself a faithful priest who shall do according to what is in My heart and in My mind. I will build him a sure house, and he shall walk before My anointed forever. 
 
 ###### 36 
-And it shall come to pass that everyone who is left in your house will come _and_ bow down to him for a piece of silver and a morsel of bread, and say, "Please, put me in one of the priestly positions, that I may eat a piece of bread." ' "
+And it shall come to pass that everyone who is left in your house will come and bow down to him for a piece of silver and a morsel of bread, and say, "Please, put me in one of the priestly positions, that I may eat a piece of bread." ' "

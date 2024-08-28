@@ -49,7 +49,7 @@ And the Lord said to Moses,
 
 
 
-Make two trumpets of silver; of hammered _or_ turned work you shall make them, that you may use them to call the congregation and for breaking camp. 
+Make two trumpets of silver; of hammered or turned work you shall make them, that you may use them to call the congregation and for breaking camp. 
 
 
 
@@ -91,7 +91,7 @@ When they both are blown, all the congregation shall assemble before you at the 
 
 
 
-And if one blast on a single trumpet is blown, then the princes _or_ leaders, heads of the tribes of Israel, shall gather themselves to you. 
+And if one blast on a single trumpet is blown, then the princes or leaders, heads of the tribes of Israel, shall gather themselves to you. 
 
 
 

@@ -132,7 +132,7 @@ Who is this who comes up from the wilderness leaning upon her beloved? [And as t
 
 
 
-Set me like a seal upon your heart, like a seal upon your arm; for love is as strong as death, jealousy is as hard _and_ cruel as Sheol (the place of the dead). Its flashes are flashes of fire, a most vehement flame [the very flame of the Lord]! 
+Set me like a seal upon your heart, like a seal upon your arm; for love is as strong as death, jealousy is as hard and cruel as Sheol (the place of the dead). Its flashes are flashes of fire, a most vehement flame [the very flame of the Lord]! 
 
 
 
@@ -153,7 +153,7 @@ Set me like a seal upon your heart, like a seal upon your arm; for love is as st
 
 
 
-Many waters cannot quench love, neither can floods drown it. If a man would offer all the goods of his house for love, he would be utterly scorned _and_ despised. 
+Many waters cannot quench love, neither can floods drown it. If a man would offer all the goods of his house for love, he would be utterly scorned and despised. 
 
 
 
@@ -300,4 +300,4 @@ O you who dwell in the gardens, your companions have been listening to your voic
 
 
 
-[Joyfully the radiant bride turned to him, the one altogether lovely, the chief among ten thousand to her soul, and with unconcealed eagerness to begin her life of sweet companionship with him, she answered] Make haste, my beloved, _and_ come quickly, like a gazelle or a young hart [and take me to our waiting home] upon the mountains of spices!
+[Joyfully the radiant bride turned to him, the one altogether lovely, the chief among ten thousand to her soul, and with unconcealed eagerness to begin her life of sweet companionship with him, she answered] Make haste, my beloved, and come quickly, like a gazelle or a young hart [and take me to our waiting home] upon the mountains of spices!

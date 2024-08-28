@@ -22,7 +22,7 @@ And the people contended with Moses and spoke, saying: "If only we had died when
 Why have you brought up the assembly of the Lord into this wilderness, that we and our animals should die here? 
 
 ###### 5 
-And why have you made us come up out of Egypt, to bring us to this evil place? It _is_ not a place of grain or figs or vines or pomegranates; nor _is_ there any water to drink." 
+And why have you made us come up out of Egypt, to bring us to this evil place? It is not a place of grain or figs or vines or pomegranates; nor is there any water to drink." 
 
 ###### 6 
 So Moses and Aaron went from the presence of the assembly to the door of the tabernacle of meeting, and they fell on their faces. And the glory of the Lord appeared to them. 
@@ -46,7 +46,7 @@ Then Moses lifted his hand and struck the rock twice with his rod; and water cam
 Then the Lord spoke to Moses and Aaron, "Because you did not believe Me, to hallow Me in the eyes of the children of Israel, therefore you shall not bring this assembly into the land which I have given them." 
 
 ###### 13 
-This _was_ the water of Meribah, because the children of Israel contended with the Lord, and He was hallowed among them.
+This was the water of Meribah, because the children of Israel contended with the Lord, and He was hallowed among them.
 
 ## Passage Through Edom Refused 
 
@@ -63,10 +63,10 @@ When we cried out to the Lord, He heard our voice and sent the Angel and brought
 Please let us pass through your country. We will not pass through fields or vineyards, nor will we drink water from wells; we will go along the King's Highway; we will not turn aside to the right hand or to the left until we have passed through your territory.' " 
 
 ###### 18 
-Then Edom said to him, "You shall not pass through my _land,_ lest I come out against you with the sword." 
+Then Edom said to him, "You shall not pass through my land, lest I come out against you with the sword." 
 
 ###### 19 
-So the children of Israel said to him, "We will go by the Highway, and if I or my livestock drink any of your water, then I will pay for it; let me only pass through on foot, nothing _more._" 
+So the children of Israel said to him, "We will go by the Highway, and if I or my livestock drink any of your water, then I will pay for it; let me only pass through on foot, nothing more." 
 
 ###### 20 
 Then he said, "You shall not pass through." So Edom came out against them with many men and with a strong hand. 
@@ -89,7 +89,7 @@ And the Lord spoke to Moses and Aaron in Mount Hor by the border of the land of 
 Take Aaron and Eleazar his son, and bring them up to Mount Hor; 
 
 ###### 26 
-and strip Aaron of his garments and put them on Eleazar his son; for Aaron shall be gathered _to his people_ and die there." 
+and strip Aaron of his garments and put them on Eleazar his son; for Aaron shall be gathered to his people and die there." 
 
 ###### 27 
 So Moses did just as the Lord commanded, and they went up to Mount Hor in the sight of all the congregation. 

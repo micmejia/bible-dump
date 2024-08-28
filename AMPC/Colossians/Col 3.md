@@ -12,13 +12,13 @@ next: ['Col 4']
 ###### 1 
 
 
-If then you have been raised with Christ [to a new life, thus sharing His resurrection from the dead], aim at _and_ seek the [rich, eternal treasures] that are above, where Christ is, seated at the right hand of God. 
+If then you have been raised with Christ [to a new life, thus sharing His resurrection from the dead], aim at and seek the [rich, eternal treasures] that are above, where Christ is, seated at the right hand of God. 
 
 
 ###### 2 
 
 
-And set your minds _and_ keep them set on what is above (the higher things), not on the things that are on the earth. 
+And set your minds and keep them set on what is above (the higher things), not on the things that are on the earth. 
 
 
 ###### 3 
@@ -36,7 +36,7 @@ When Christ, Who is our life, appears, then you also will appear with Him in [th
 ###### 5 
 
 
-So kill (deaden, deprive of power) the evil desire lurking in your members [those animal impulses and all that is earthly in you that is employed in sin]: sexual vice, impurity, sensual appetites, unholy desires, and all greed _and_ covetousness, for that is idolatry (the deifying of self and other created things instead of God). 
+So kill (deaden, deprive of power) the evil desire lurking in your members [those animal impulses and all that is earthly in you that is employed in sin]: sexual vice, impurity, sensual appetites, unholy desires, and all greed and covetousness, for that is idolatry (the deifying of self and other created things instead of God). 
 
 
 ###### 6 
@@ -48,13 +48,13 @@ It is on account of these [very sins] that the [holy] anger of God is ever comin
 ###### 7 
 
 
-Among whom you also once walked, when you were living in _and_ addicted to [such practices]. 
+Among whom you also once walked, when you were living in and addicted to [such practices]. 
 
 
 ###### 8 
 
 
-But now put away _and_ rid yourselves [completely] of all these things: anger, rage, bad feeling toward others, curses _and_ slander, and foulmouthed abuse _and_ shameful utterances from your lips! 
+But now put away and rid yourselves [completely] of all these things: anger, rage, bad feeling toward others, curses and slander, and foulmouthed abuse and shameful utterances from your lips! 
 
 
 ###### 9 
@@ -66,31 +66,31 @@ Do not lie to one another, for you have stripped off the old (unregenerate) self
 ###### 10 
 
 
-And have clothed yourselves with the new [spiritual self], which is [ever in the process of being] renewed _and_ remolded into [fuller and more perfect knowledge upon] knowledge after the image (the likeness) of Him Who created it. 
+And have clothed yourselves with the new [spiritual self], which is [ever in the process of being] renewed and remolded into [fuller and more perfect knowledge upon] knowledge after the image (the likeness) of Him Who created it. 
 
 
 ###### 11 
 
 
-[In this new creation all distinctions vanish.] There is no room for _and_ there can be neither Greek nor Jew, circumcised nor uncircumcised, [nor difference between nations whether alien] barbarians or Scythians [who are the most savage of all], nor slave or free man; but Christ is all and in all [everything and everywhere, to all men, without distinction of person]. 
+[In this new creation all distinctions vanish.] There is no room for and there can be neither Greek nor Jew, circumcised nor uncircumcised, [nor difference between nations whether alien] barbarians or Scythians [who are the most savage of all], nor slave or free man; but Christ is all and in all [everything and everywhere, to all men, without distinction of person]. 
 
 
 ###### 12 
 
 
-Clothe yourselves therefore, as God's own chosen ones (His own picked representatives), [who are] purified _and_ holy and well-beloved [by God Himself, by putting on behavior marked by] tenderhearted pity _and_ mercy, kind feeling, a lowly opinion of yourselves, gentle ways, [and] patience [which is tireless and long-suffering, and has the power to endure whatever comes, with good temper]. 
+Clothe yourselves therefore, as God's own chosen ones (His own picked representatives), [who are] purified and holy and well-beloved [by God Himself, by putting on behavior marked by] tenderhearted pity and mercy, kind feeling, a lowly opinion of yourselves, gentle ways, [and] patience [which is tireless and long-suffering, and has the power to endure whatever comes, with good temper]. 
 
 
 ###### 13 
 
 
-Be gentle _and_ forbearing with one another and, if one has a difference (a grievance or complaint) against another, readily pardoning each other; even as the Lord has [freely] forgiven you, so must you also [forgive]. 
+Be gentle and forbearing with one another and, if one has a difference (a grievance or complaint) against another, readily pardoning each other; even as the Lord has [freely] forgiven you, so must you also [forgive]. 
 
 
 ###### 14 
 
 
-And above all these [put on] love _and_ enfold yourselves with the bond of perfectness [which binds everything together completely in ideal harmony]. 
+And above all these [put on] love and enfold yourselves with the bond of perfectness [which binds everything together completely in ideal harmony]. 
 
 
 ###### 15 
@@ -102,25 +102,25 @@ And let the peace (soul harmony which comes) from Christ rule (act as umpire con
 ###### 16 
 
 
-Let the word [spoken by] Christ (the Messiah) have its home [in your hearts and minds] _and_ dwell in you in [all its] richness, as you teach and admonish _and_ train one another in all insight _and_ intelligence _and_ wisdom [in spiritual things, and as you sing] psalms and hymns and spiritual songs, making melody to God with [His] grace in your hearts. 
+Let the word [spoken by] Christ (the Messiah) have its home [in your hearts and minds] and dwell in you in [all its] richness, as you teach and admonish and train one another in all insight and intelligence and wisdom [in spiritual things, and as you sing] psalms and hymns and spiritual songs, making melody to God with [His] grace in your hearts. 
 
 
 ###### 17 
 
 
-And whatever you do [no matter what it is] in word or deed, do everything in the name of the Lord Jesus _and_ in [dependence upon] His Person, giving praise to God the Father through Him. 
+And whatever you do [no matter what it is] in word or deed, do everything in the name of the Lord Jesus and in [dependence upon] His Person, giving praise to God the Father through Him. 
 
 
 ###### 18 
 
 
-Wives, be subject to your husbands [subordinate and adapt yourselves to them], as is right _and_ fitting _and_ your proper duty in the Lord. 
+Wives, be subject to your husbands [subordinate and adapt yourselves to them], as is right and fitting and your proper duty in the Lord. 
 
 
 ###### 19 
 
 
-Husbands, love your wives [be affectionate and sympathetic with them] and do not be harsh _or_ bitter _or_ resentful toward them. 
+Husbands, love your wives [be affectionate and sympathetic with them] and do not be harsh or bitter or resentful toward them. 
 
 
 ###### 20 
@@ -132,13 +132,13 @@ Children, obey your parents in everything, for this is pleasing to the Lord.
 ###### 21 
 
 
-Fathers, do not provoke _or_ irritate _or_ fret your children [do not be hard on them or harass them], lest they become discouraged _and_ sullen _and_ morose _and_ feel inferior _and_ frustrated. [Do not break their spirit.] 
+Fathers, do not provoke or irritate or fret your children [do not be hard on them or harass them], lest they become discouraged and sullen and morose and feel inferior and frustrated. [Do not break their spirit.] 
 
 
 ###### 22 
 
 
-Servants, obey in everything those who are your earthly masters, not only when their eyes are on you as pleasers of men, but in simplicity of purpose [with all your heart] because of your reverence for the Lord _and_ as a sincere expression of your devotion to Him. 
+Servants, obey in everything those who are your earthly masters, not only when their eyes are on you as pleasers of men, but in simplicity of purpose [with all your heart] because of your reverence for the Lord and as a sincere expression of your devotion to Him. 
 
 
 ###### 23 

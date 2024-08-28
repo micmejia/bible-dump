@@ -10,33 +10,33 @@ next: ['Josh 13']
 
 
 ###### 1 
-These _are_ the kings of the land whom the children of Israel defeated, and whose land they possessed on the other side of the Jordan toward the rising of the sun, from the River Arnon to Mount Hermon, and all the eastern Jordan plain: 
+These are the kings of the land whom the children of Israel defeated, and whose land they possessed on the other side of the Jordan toward the rising of the sun, from the River Arnon to Mount Hermon, and all the eastern Jordan plain: 
 
 ###### 2 
-_One king was_ Sihon king of the Amorites, who dwelt in Heshbon _and_ ruled half of Gilead, from Aroer, which is on the bank of the River Arnon, from the middle of that river, even as far as the River Jabbok, _which is_ the border of the Ammonites, 
+One king was Sihon king of the Amorites, who dwelt in Heshbon and ruled half of Gilead, from Aroer, which is on the bank of the River Arnon, from the middle of that river, even as far as the River Jabbok, which is the border of the Ammonites, 
 
 ###### 3 
 and the eastern Jordan plain from the Sea of Chinneroth as far as the Sea of the Arabah (the Salt Sea), the road to Beth Jeshimoth, and southward below the slopes of Pisgah. 
 
 ###### 4 
-_The other king was_ Og king of Bashan and his territory, _who was_ of the remnant of the giants, who dwelt at Ashtaroth and at Edrei, 
+The other king was Og king of Bashan and his territory, who was of the remnant of the giants, who dwelt at Ashtaroth and at Edrei, 
 
 ###### 5 
-and reigned over Mount Hermon, over Salcah, over all Bashan, as far as the border of the Geshurites and the Maachathites, and over half of Gilead _to_ the border of Sihon king of Heshbon. 
+and reigned over Mount Hermon, over Salcah, over all Bashan, as far as the border of the Geshurites and the Maachathites, and over half of Gilead to the border of Sihon king of Heshbon. 
 
 ###### 6 
-These Moses the servant of the Lord and the children of Israel had conquered; and Moses the servant of the Lord had given it _as_ a possession to the Reubenites, the Gadites, and half the tribe of Manasseh.
+These Moses the servant of the Lord and the children of Israel had conquered; and Moses the servant of the Lord had given it as a possession to the Reubenites, the Gadites, and half the tribe of Manasseh.
 
 ## The Kings Conquered by Joshua 
 
 ###### 7 
-And these _are_ the kings of the country which Joshua and the children of Israel conquered on this side of the Jordan, on the west, from Baal Gad in the Valley of Lebanon as far as Mount Halak and the ascent to Seir, which Joshua gave to the tribes of Israel _as_ a possession according to their divisions, 
+And these are the kings of the country which Joshua and the children of Israel conquered on this side of the Jordan, on the west, from Baal Gad in the Valley of Lebanon as far as Mount Halak and the ascent to Seir, which Joshua gave to the tribes of Israel as a possession according to their divisions, 
 
 ###### 8 
-in the mountain country, in the lowlands, in the _Jordan_ plain, in the slopes, in the wilderness, and in the South--the Hittites, the Amorites, the Canaanites, the Perizzites, the Hivites, and the Jebusites: 
+in the mountain country, in the lowlands, in the Jordan plain, in the slopes, in the wilderness, and in the South--the Hittites, the Amorites, the Canaanites, the Perizzites, the Hivites, and the Jebusites: 
 
 ###### 9 
-the king of Jericho, one; the king of Ai, which _is_ beside Bethel, one; 
+the king of Jericho, one; the king of Ai, which is beside Bethel, one; 
 
 ###### 10 
 the king of Jerusalem, one; the king of Hebron, one; 

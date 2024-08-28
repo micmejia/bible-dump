@@ -28,7 +28,7 @@ next: ['Jer 52']
 
 
 
-Thus says the Lord: Behold, I will raise up against Babylon and against those who dwell among those rebelling against Me a destroying wind _and_ spirit; 
+Thus says the Lord: Behold, I will raise up against Babylon and against those who dwell among those rebelling against Me a destroying wind and spirit; 
 
 
 
@@ -49,7 +49,7 @@ Thus says the Lord: Behold, I will raise up against Babylon and against those wh
 
 
 
-And I will send to Babylon strangers _or_ winnowers who will winnow her and will empty her land; for in the day of calamity they will be against her on every side. 
+And I will send to Babylon strangers or winnowers who will winnow her and will empty her land; for in the day of calamity they will be against her on every side. 
 
 
 
@@ -112,7 +112,7 @@ Thus they shall fall down slain in the land of the Chaldeans, and wounded in her
 
 
 
-For Israel has not been widowed _and_ forsaken, nor has Judah, by his God, the Lord of hosts, though their land is full of guilt against the Holy One of Israel. 
+For Israel has not been widowed and forsaken, nor has Judah, by his God, the Lord of hosts, though their land is full of guilt against the Holy One of Israel. 
 
 
 
@@ -133,7 +133,7 @@ For Israel has not been widowed _and_ forsaken, nor has Judah, by his God, the L
 
 
 
-Flee out of the midst of Babylon! Let every man save his life! Let not destruction come upon you through her [punishment for] sin _and_ guilt. For it is the time of the Lord's vengeance; He will render to her a recompense. 
+Flee out of the midst of Babylon! Let every man save his life! Let not destruction come upon you through her [punishment for] sin and guilt. For it is the time of the Lord's vengeance; He will render to her a recompense. 
 
 
 
@@ -196,7 +196,7 @@ Babylon has suddenly fallen and is shattered (destroyed)! Wail for her [if you c
 
 
 
-We would have healed Babylon, but she is not healed. Forsake her and let us each go to his own country, for her guilt _and_ the judgment against her reach to heaven and are lifted even to the skies. 
+We would have healed Babylon, but she is not healed. Forsake her and let us each go to his own country, for her guilt and the judgment against her reach to heaven and are lifted even to the skies. 
 
 
 
@@ -217,7 +217,7 @@ We would have healed Babylon, but she is not healed. Forsake her and let us each
 
 
 
-The Lord has brought forth _and_ made known the righteousness [of our cause]; come and let us declare in Zion the work of the Lord our God. 
+The Lord has brought forth and made known the righteousness [of our cause]; come and let us declare in Zion the work of the Lord our God. 
 
 
 
@@ -238,7 +238,7 @@ The Lord has brought forth _and_ made known the righteousness [of our cause]; co
 
 
 
-Make clean _and_ sharp the arrows, take up the shields _or_ coats of armor [and cover your bodies with them]! The Lord has stirred up the spirit of the kings of the Medes [who with the Persians will destroy the Babylonian Empire], for His purpose concerning Babylon is to destroy it; for that is the vengeance of the Lord, the vengeance [upon Babylon for the plundering and destruction] of His temple. 
+Make clean and sharp the arrows, take up the shields or coats of armor [and cover your bodies with them]! The Lord has stirred up the spirit of the kings of the Medes [who with the Persians will destroy the Babylonian Empire], for His purpose concerning Babylon is to destroy it; for that is the vengeance of the Lord, the vengeance [upon Babylon for the plundering and destruction] of His temple. 
 
 
 
@@ -259,7 +259,7 @@ Make clean _and_ sharp the arrows, take up the shields _or_ coats of armor [and 
 
 
 
-Set up a standard _or_ signal [to spread the news] upon the walls of Babylon! Make the watch _and_ blockade strong, set the guards, prepare the ambushes! For the Lord has both purposed and done that which He spoke against the inhabitants of Babylon. 
+Set up a standard or signal [to spread the news] upon the walls of Babylon! Make the watch and blockade strong, set the guards, prepare the ambushes! For the Lord has both purposed and done that which He spoke against the inhabitants of Babylon. 
 
 
 
@@ -301,7 +301,7 @@ O [Babylon] you who dwell by many waters, rich in treasures, your end has come, 
 
 
 
-The Lord of hosts has sworn by Himself, saying, Surely I will fill you with men, as with [a swarm of] locusts [who strip a land clean], and they will lift up a song _and_ shout [of victory] over you. 
+The Lord of hosts has sworn by Himself, saying, Surely I will fill you with men, as with [a swarm of] locusts [who strip a land clean], and they will lift up a song and shout [of victory] over you. 
 
 
 
@@ -364,7 +364,7 @@ When He utters His voice, there is a tumult of waters in the heavens, and He cau
 
 
 
-Every man has become stupid _and_ brutelike, without knowledge [of God]; every goldsmith is put to shame by the images he has made; for his molten idols are a lie, and there is no breath [of life] in them. 
+Every man has become stupid and brutelike, without knowledge [of God]; every goldsmith is put to shame by the images he has made; for his molten idols are a lie, and there is no breath [of life] in them. 
 
 
 
@@ -385,7 +385,7 @@ Every man has become stupid _and_ brutelike, without knowledge [of God]; every g
 
 
 
-They are worthless (emptiness, falsity, futility), a work of delusion _and_ worthy of derision; in the time of their inspection _and_ punishment they shall [helplessly] perish. 
+They are worthless (emptiness, falsity, futility), a work of delusion and worthy of derision; in the time of their inspection and punishment they shall [helplessly] perish. 
 
 
 
@@ -427,7 +427,7 @@ Not like these [gods] is He Who is the Portion of Jacob [the true God on Whom Is
 
 
 
-You [Cyrus of Persia, soon to conquer Babylon] are My battle-ax _or_ maul and weapon of war--for with you I break nations in pieces, with you I destroy kingdoms, 
+You [Cyrus of Persia, soon to conquer Babylon] are My battle-ax or maul and weapon of war--for with you I break nations in pieces, with you I destroy kingdoms, 
 
 
 
@@ -532,7 +532,7 @@ And I will [completely] repay Babylon and all the inhabitants of Chaldea for all
 
 
 
-Behold, I am against you, says the Lord, O destroying mountain [which is burning out, you who will be as barren and desolate as an extinct volcano], you who [would] destroy the whole earth. I will stretch out My hand over _and_ against you and roll you down from the [burnt] crags and will make you a burnt-out mountain [of combustive fires]. 
+Behold, I am against you, says the Lord, O destroying mountain [which is burning out, you who will be as barren and desolate as an extinct volcano], you who [would] destroy the whole earth. I will stretch out My hand over and against you and roll you down from the [burnt] crags and will make you a burnt-out mountain [of combustive fires]. 
 
 
 
@@ -553,7 +553,7 @@ Behold, I am against you, says the Lord, O destroying mountain [which is burning
 
 
 
-And [O Babylon] they shall not take your cracked stones for a cornerstone, or any stone for foundations, but you shall be waste _and_ desolate forever, says the Lord. 
+And [O Babylon] they shall not take your cracked stones for a cornerstone, or any stone for foundations, but you shall be waste and desolate forever, says the Lord. 
 
 
 
@@ -574,7 +574,7 @@ And [O Babylon] they shall not take your cracked stones for a cornerstone, or an
 
 
 
-Set up a standard _or_ signal in the land [to spread the news]! Blow the trumpet among the nations! Prepare _and_ dedicate the nations for war against her; call against her the kingdoms of Ararat, Minni, and Ashkenaz. Appoint a marshal against her; cause the horses to come up like [a swarm of] locusts [when their wings are not yet released from their horny cases]. 
+Set up a standard or signal in the land [to spread the news]! Blow the trumpet among the nations! Prepare and dedicate the nations for war against her; call against her the kingdoms of Ararat, Minni, and Ashkenaz. Appoint a marshal against her; cause the horses to come up like [a swarm of] locusts [when their wings are not yet released from their horny cases]. 
 
 
 
@@ -595,7 +595,7 @@ Set up a standard _or_ signal in the land [to spread the news]! Blow the trumpet
 
 
 
-Prepare _and_ dedicate the nations for war against her--the kings of Media, with their governors and commanders (deputies), and every land of their dominion. 
+Prepare and dedicate the nations for war against her--the kings of Media, with their governors and commanders (deputies), and every land of their dominion. 
 
 
 
@@ -616,7 +616,7 @@ Prepare _and_ dedicate the nations for war against her--the kings of Media, with
 
 
 
-[I foresee this:] The land trembles and writhes in pain _and_ sorrow, for the purposes of the Lord against Babylon stand--to make the land of Babylon a desolation without inhabitant. 
+[I foresee this:] The land trembles and writhes in pain and sorrow, for the purposes of the Lord against Babylon stand--to make the land of Babylon a desolation without inhabitant. 
 
 
 
@@ -658,7 +658,7 @@ The mighty warriors of Babylon have ceased to fight; they have remained in their
 
 
 
-One post shall run to meet another and one messenger to meet another to show the king of Babylon that his city is taken on every side _and_ to its farthest end, 
+One post shall run to meet another and one messenger to meet another to show the king of Babylon that his city is taken on every side and to its farthest end, 
 
 
 
@@ -721,7 +721,7 @@ For thus says the Lord of hosts, the God of Israel: The Daughter of Babylon is l
 
 
 
-[The inhabitants of Zion say] Nebuchadrezzar king of Babylon has devoured us, he has crushed us, he has made us an empty vessel. Like a monster he has swallowed us up, he has filled his belly with our delicacies; he has rinsed us out _and_ cast us away. 
+[The inhabitants of Zion say] Nebuchadrezzar king of Babylon has devoured us, he has crushed us, he has made us an empty vessel. Like a monster he has swallowed us up, he has filled his belly with our delicacies; he has rinsed us out and cast us away. 
 
 
 
@@ -742,7 +742,7 @@ For thus says the Lord of hosts, the God of Israel: The Daughter of Babylon is l
 
 
 
-May the violence done to me and to my flesh _and_ blood be upon Babylon, will the inhabitant of Zion say; and, May my blood be upon the inhabitants of Chaldea, will Jerusalem say. 
+May the violence done to me and to my flesh and blood be upon Babylon, will the inhabitant of Zion say; and, May my blood be upon the inhabitants of Chaldea, will Jerusalem say. 
 
 
 
@@ -763,7 +763,7 @@ May the violence done to me and to my flesh _and_ blood be upon Babylon, will th
 
 
 
-Therefore thus says the Lord: Behold, I will plead your cause and take vengeance for you. I will dry up her lake _or_ great reservoir and make her fountain dry. 
+Therefore thus says the Lord: Behold, I will plead your cause and take vengeance for you. I will dry up her lake or great reservoir and make her fountain dry. 
 
 
 
@@ -868,7 +868,7 @@ I will bring them down like lambs to the slaughter, like rams together with he-g
 
 
 
-How Sheshach [Babylon] is taken! And the praise of the whole earth is surprised _and_ seized! How Babylon has become an astonishing desolation _and_ a horror among the nations! 
+How Sheshach [Babylon] is taken! And the praise of the whole earth is surprised and seized! How Babylon has become an astonishing desolation and a horror among the nations! 
 
 
 
@@ -889,7 +889,7 @@ How Sheshach [Babylon] is taken! And the praise of the whole earth is surprised 
 
 
 
-The sea has come up upon Babylon; she is covered with the tumult _and_ multitude of its waves. 
+The sea has come up upon Babylon; she is covered with the tumult and multitude of its waves. 
 
 
 
@@ -910,7 +910,7 @@ The sea has come up upon Babylon; she is covered with the tumult _and_ multitude
 
 
 
-Her cities have become a desolation _and_ a horror, a land of drought and a wilderness, a land in which no one lives, nor does any son of man pass through it. 
+Her cities have become a desolation and a horror, a land of drought and a wilderness, a land in which no one lives, nor does any son of man pass through it. 
 
 
 
@@ -931,7 +931,7 @@ Her cities have become a desolation _and_ a horror, a land of drought and a wild
 
 
 
-And I will punish _and_ execute judgment upon Bel [the god] in Babylon and take out of his mouth what he has swallowed up [the sacred vessels and the people of Judah and elsewhere who were taken captive]. The nations will not flow any more to him. Yes, the wall of Babylon has fallen! 
+And I will punish and execute judgment upon Bel [the god] in Babylon and take out of his mouth what he has swallowed up [the sacred vessels and the people of Judah and elsewhere who were taken captive]. The nations will not flow any more to him. Yes, the wall of Babylon has fallen! 
 
 
 
@@ -994,7 +994,7 @@ And beware, lest your heart faint and you be afraid at the report (rumor) heard 
 
 
 
-Therefore behold, the days will come when I will execute judgment _and_ punishment upon the idols of Babylon; her whole land will be confounded _and_ put to shame, and all her slain will fall in the midst of her. 
+Therefore behold, the days will come when I will execute judgment and punishment upon the idols of Babylon; her whole land will be confounded and put to shame, and all her slain will fall in the midst of her. 
 
 
 
@@ -1078,7 +1078,7 @@ You who have escaped the sword, go away, stand not still! [Seriously and earnest
 
 
 
-We are confounded _and_ ashamed, for we have heard reproach; confusion _and_ shame have covered our faces, for strangers have come into the [most] sacred parts of the sanctuary of the Lord [even those forbidden for entrance by all but the high priest or the appointed priests]. 
+We are confounded and ashamed, for we have heard reproach; confusion and shame have covered our faces, for strangers have come into the [most] sacred parts of the sanctuary of the Lord [even those forbidden for entrance by all but the high priest or the appointed priests]. 
 
 
 
@@ -1099,7 +1099,7 @@ We are confounded _and_ ashamed, for we have heard reproach; confusion _and_ sha
 
 
 
-Therefore behold, the days are coming, says the Lord, when I will execute judgment upon [Babylon's] idols _and_ images, and throughout all her land the wounded will groan. 
+Therefore behold, the days are coming, says the Lord, when I will execute judgment upon [Babylon's] idols and images, and throughout all her land the wounded will groan. 
 
 
 
@@ -1141,7 +1141,7 @@ Though Babylon should mount up to heaven, and though she should fortify her stro
 
 
 
-The sound of a cry [comes] from Babylon, and [the sound of] great destruction _and_ ruin from the land of the Chaldeans! 
+The sound of a cry [comes] from Babylon, and [the sound of] great destruction and ruin from the land of the Chaldeans! 
 
 
 
@@ -1162,7 +1162,7 @@ The sound of a cry [comes] from Babylon, and [the sound of] great destruction _a
 
 
 
-For the Lord is destroying Babylon _and_ laying her waste and stilling her great voice [the hum of the city's life]. And the waves [of her conquerors] roar like great waters, the noise of their voices is raised up [like the tramping of an army]. 
+For the Lord is destroying Babylon and laying her waste and stilling her great voice [the hum of the city's life]. And the waves [of her conquerors] roar like great waters, the noise of their voices is raised up [like the tramping of an army]. 
 
 
 
@@ -1225,7 +1225,7 @@ And I will make drunk her princes and her wise men, her governors and her comman
 
 
 
-Thus says the Lord of hosts: The broad walls of Babylon shall be utterly overthrown _and_ [the foundations] made bare, and her high gates shall be burned with fire; the peoples shall labor in vain, and the nations [only] to satisfy the fire, and they shall be weary. 
+Thus says the Lord of hosts: The broad walls of Babylon shall be utterly overthrown and [the foundations] made bare, and her high gates shall be burned with fire; the peoples shall labor in vain, and the nations [only] to satisfy the fire, and they shall be weary. 
 
 
 
@@ -1246,7 +1246,7 @@ Thus says the Lord of hosts: The broad walls of Babylon shall be utterly overthr
 
 
 
-The word that Jeremiah the prophet commanded Seraiah son of Neriah, the son of Mahseiah, when he went with Zedekiah king of Judah to Babylon in the fourth year of his reign. Now this Seraiah was chief chamberlain _or_ quartermaster [and brother of Baruch]. 
+The word that Jeremiah the prophet commanded Seraiah son of Neriah, the son of Mahseiah, when he went with Zedekiah king of Judah to Babylon in the fourth year of his reign. Now this Seraiah was chief chamberlain or quartermaster [and brother of Baruch]. 
 
 
 

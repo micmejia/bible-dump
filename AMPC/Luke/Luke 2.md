@@ -70,7 +70,7 @@ This was the first enrollment, and it was made when Quirinius was governor of Sy
 
 
 
-And all the people were going to be registered, each to his own city _or_ town. 
+And all the people were going to be registered, each to his own city or town. 
 
 
 
@@ -154,7 +154,7 @@ And while they were there, the time came for her delivery,
 
 
 
-And she gave birth to her Son, her Firstborn; and she wrapped Him in swaddling clothes and laid Him in a manger, because there was no room _or_ place for them in the inn. 
+And she gave birth to her Son, her Firstborn; and she wrapped Him in swaddling clothes and laid Him in a manger, because there was no room or place for them in the inn. 
 
 
 
@@ -196,7 +196,7 @@ And in that vicinity there were shepherds living [out under the open sky] in the
 
 
 
-And _behold_, an angel of the Lord stood by them, and the glory of the Lord flashed _and_ shone all about them, and they were terribly frightened. 
+And behold, an angel of the Lord stood by them, and the glory of the Lord flashed and shone all about them, and they were terribly frightened. 
 
 
 
@@ -385,7 +385,7 @@ And when they saw it, they made known what had been told them concerning this Ch
 
 
 
-And all who heard it were astounded _and_ marveled at what the shepherds told them. 
+And all who heard it were astounded and marveled at what the shepherds told them. 
 
 
 
@@ -406,7 +406,7 @@ And all who heard it were astounded _and_ marveled at what the shepherds told th
 
 
 
-But Mary was keeping within herself all these things (sayings), weighing _and_ pondering them in her heart. 
+But Mary was keeping within herself all these things (sayings), weighing and pondering them in her heart. 
 
 
 
@@ -490,7 +490,7 @@ And when the time for their purification [the mother's purification and the Baby
 
 
 
-As it is written in the Law of the Lord, Every [firstborn] male that opens the womb shall be set apart _and_ dedicated _and_ called holy to the Lord-- 
+As it is written in the Law of the Lord, Every [firstborn] male that opens the womb shall be set apart and dedicated and called holy to the Lord-- 
 
 
 
@@ -595,7 +595,7 @@ And prompted by the [Holy] Spirit, he came into the temple [enclosure]; and when
 
 
 
-[Simeon] took Him up in his arms and praised _and_ thanked God and said, 
+[Simeon] took Him up in his arms and praised and thanked God and said, 
 
 
 
@@ -658,7 +658,7 @@ For with my [own] eyes I have seen Your Salvation,
 
 
 
-Which You have ordained _and_ prepared before (in the presence of) all peoples, 
+Which You have ordained and prepared before (in the presence of) all peoples, 
 
 
 
@@ -679,7 +679,7 @@ Which You have ordained _and_ prepared before (in the presence of) all peoples,
 
 
 
-A Light for revelation to the Gentiles [to disclose what was before unknown] and [to bring] praise _and_ honor _and_ glory to Your people Israel. 
+A Light for revelation to the Gentiles [to disclose what was before unknown] and [to bring] praise and honor and glory to Your people Israel. 
 
 
 
@@ -721,7 +721,7 @@ And His [legal] father and [His] mother were marveling at what was said about Hi
 
 
 
-And Simeon blessed them and said to Mary His mother, Behold, this Child is appointed _and_ destined for the fall and rising of many in Israel, and for a sign that is spoken against-- 
+And Simeon blessed them and said to Mary His mother, Behold, this Child is appointed and destined for the fall and rising of many in Israel, and for a sign that is spoken against-- 
 
 
 
@@ -742,7 +742,7 @@ And Simeon blessed them and said to Mary His mother, Behold, this Child is appoi
 
 
 
-And a sword will pierce through your own soul also--that the secret thoughts _and_ purposes of many hearts may be brought out _and_ disclosed. 
+And a sword will pierce through your own soul also--that the secret thoughts and purposes of many hearts may be brought out and disclosed. 
 
 
 
@@ -847,7 +847,7 @@ And when they had done everything according to the Law of the Lord, they went ba
 
 
 
-And the Child grew and became strong _in spirit_, filled with wisdom; and the grace (favor and spiritual blessing) of God was upon Him. 
+And the Child grew and became strong in spirit, filled with wisdom; and the grace (favor and spiritual blessing) of God was upon Him. 
 
 
 
@@ -994,7 +994,7 @@ After three days they found Him [came upon Him] in the [court of the] temple, si
 
 
 
-And all who heard Him were astonished _and_ overwhelmed with bewildered wonder at His intelligence _and_ understanding and His replies. 
+And all who heard Him were astonished and overwhelmed with bewildered wonder at His intelligence and understanding and His replies. 
 
 
 
@@ -1036,7 +1036,7 @@ And when they [Joseph and Mary] saw Him, they were amazed; and His mother said t
 
 
 
-And He said to them, How is it that you had to look for Me? Did you not see _and_ know that it is necessary [as a duty] for Me to be in My Father's house _and_ [occupied] about My Father's business? 
+And He said to them, How is it that you had to look for Me? Did you not see and know that it is necessary [as a duty] for Me to be in My Father's house and [occupied] about My Father's business? 
 
 
 
@@ -1078,7 +1078,7 @@ But they did not comprehend what He was saying to them.
 
 
 
-And He went down with them and came to Nazareth and was [habitually] obedient to them; and his mother kept _and_ closely and persistently guarded all these things in her heart. 
+And He went down with them and came to Nazareth and was [habitually] obedient to them; and his mother kept and closely and persistently guarded all these things in her heart. 
 
 
 
@@ -1099,4 +1099,4 @@ And He went down with them and came to Nazareth and was [habitually] obedient to
 
 
 
-And Jesus increased in wisdom (in broad and full understanding) and in stature _and_ years, and in favor with God and man.
+And Jesus increased in wisdom (in broad and full understanding) and in stature and years, and in favor with God and man.

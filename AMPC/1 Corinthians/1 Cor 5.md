@@ -28,7 +28,7 @@ next: ['1 Cor 6']
 
 
 
-It is actually reported that there is sexual immorality among you, impurity of a sort that is condemned _and_ does not occur even among the heathen; for a man has [his own] father's wife. 
+It is actually reported that there is sexual immorality among you, impurity of a sort that is condemned and does not occur even among the heathen; for a man has [his own] father's wife. 
 
 
 
@@ -49,7 +49,7 @@ It is actually reported that there is sexual immorality among you, impurity of a
 
 
 
-And you are proud _and_ arrogant! And you ought rather to mourn (bow in sorrow and in shame) until the person who has done this [shameful] thing is removed from your fellowship _and_ your midst! 
+And you are proud and arrogant! And you ought rather to mourn (bow in sorrow and in shame) until the person who has done this [shameful] thing is removed from your fellowship and your midst! 
 
 
 
@@ -70,7 +70,7 @@ And you are proud _and_ arrogant! And you ought rather to mourn (bow in sorrow a
 
 
 
-As for my attitude, though I am absent [from you] in body, I am present in spirit, and I have already decided _and_ passed judgment, as if actually present, 
+As for my attitude, though I am absent [from you] in body, I am present in spirit, and I have already decided and passed judgment, as if actually present, 
 
 
 
@@ -91,7 +91,7 @@ As for my attitude, though I am absent [from you] in body, I am present in spiri
 
 
 
-In the name of the Lord Jesus _Christ_, on the man who has committed such a deed. When you and my own spirit are met together with the power of our Lord Jesus, 
+In the name of the Lord Jesus Christ, on the man who has committed such a deed. When you and my own spirit are met together with the power of our Lord Jesus, 
 
 
 
@@ -175,7 +175,7 @@ Purge (clean out) the old leaven that you may be fresh (new) dough, still uncont
 
 
 
-Therefore, let us keep the feast, not with old leaven, nor with leaven of vice _and_ malice and wickedness, but with the unleavened [bread] of purity (nobility, honor) _and_ sincerity and [unadulterated] truth. 
+Therefore, let us keep the feast, not with old leaven, nor with leaven of vice and malice and wickedness, but with the unleavened [bread] of purity (nobility, honor) and sincerity and [unadulterated] truth. 
 
 
 
@@ -217,7 +217,7 @@ I wrote you in my [previous] letter not to associate [closely and habitually] wi
 
 
 
-Not [meaning of course that you must] altogether shun the immoral people of this world, or the greedy graspers and cheats _and_ thieves or idolaters, since otherwise you would need to get out of the world _and_ human society altogether! 
+Not [meaning of course that you must] altogether shun the immoral people of this world, or the greedy graspers and cheats and thieves or idolaters, since otherwise you would need to get out of the world and human society altogether! 
 
 
 
@@ -238,7 +238,7 @@ Not [meaning of course that you must] altogether shun the immoral people of this
 
 
 
-But now I write to you not to associate with anyone who bears the name of [Christian] brother if he is known to be guilty of immorality or greed, or is an idolater [whose soul is devoted to any object that usurps the place of God], or is a person with a foul tongue [railing, abusing, reviling, slandering], or is a drunkard or a swindler _or_ a robber. [No] you must not so much as eat with such a person. 
+But now I write to you not to associate with anyone who bears the name of [Christian] brother if he is known to be guilty of immorality or greed, or is an idolater [whose soul is devoted to any object that usurps the place of God], or is a person with a foul tongue [railing, abusing, reviling, slandering], or is a drunkard or a swindler or a robber. [No] you must not so much as eat with such a person. 
 
 
 
@@ -259,7 +259,7 @@ But now I write to you not to associate with anyone who bears the name of [Chris
 
 
 
-What [business] of mine is it _and_ what right have I to judge outsiders? Is it not those inside [the church] upon whom you are to pass disciplinary judgment [passing censuring sentence on them as the facts require]? 
+What [business] of mine is it and what right have I to judge outsiders? Is it not those inside [the church] upon whom you are to pass disciplinary judgment [passing censuring sentence on them as the facts require]? 
 
 
 

@@ -10,10 +10,10 @@ next: ['Job 40']
 
 
 ###### 1 
-"Do you know the time when the wild mountain goats bear young? _Or_ can you mark when the deer gives birth? 
+"Do you know the time when the wild mountain goats bear young? Or can you mark when the deer gives birth? 
 
 ###### 2 
-Can you number the months _that_ they fulfill? Or do you know the time when they bear young? 
+Can you number the months that they fulfill? Or do you know the time when they bear young? 
 
 ###### 3 
 They bow down, They bring forth their young, They deliver their offspring. 
@@ -31,7 +31,7 @@ Whose home I have made the wilderness, And the barren land his dwelling?
 He scorns the tumult of the city; He does not heed the shouts of the driver. 
 
 ###### 8 
-The range of the mountains _is_ his pasture, And he searches after every green thing. 
+The range of the mountains is his pasture, And he searches after every green thing. 
 
 ###### 9 
 "Will the wild ox be willing to serve you? Will he bed by your manger? 
@@ -40,13 +40,13 @@ The range of the mountains _is_ his pasture, And he searches after every green t
 Can you bind the wild ox in the furrow with ropes? Or will he plow the valleys behind you? 
 
 ###### 11 
-Will you trust him because his strength _is_ great? Or will you leave your labor to him? 
+Will you trust him because his strength is great? Or will you leave your labor to him? 
 
 ###### 12 
 Will you trust him to bring home your grain, And gather it to your threshing floor? 
 
 ###### 13 
-"The wings of the ostrich wave proudly, But are her wings and pinions _like the_ kindly stork's? 
+"The wings of the ostrich wave proudly, But are her wings and pinions like the kindly stork's? 
 
 ###### 14 
 For she leaves her eggs on the ground, And warms them in the dust; 
@@ -55,7 +55,7 @@ For she leaves her eggs on the ground, And warms them in the dust;
 She forgets that a foot may crush them, Or that a wild beast may break them. 
 
 ###### 16 
-She treats her young harshly, as though _they were_ not hers; Her labor is in vain, without concern, 
+She treats her young harshly, as though they were not hers; Her labor is in vain, without concern, 
 
 ###### 17 
 Because God deprived her of wisdom, And did not endow her with understanding. 
@@ -70,7 +70,7 @@ When she lifts herself on high, She scorns the horse and its rider.
 Can you frighten him like a locust? His majestic snorting strikes terror. 
 
 ###### 21 
-He paws in the valley, and rejoices in _his_ strength; He gallops into the clash of arms. 
+He paws in the valley, and rejoices in his strength; He gallops into the clash of arms. 
 
 ###### 22 
 He mocks at fear, and is not frightened; Nor does he turn back from the sword. 
@@ -79,13 +79,13 @@ He mocks at fear, and is not frightened; Nor does he turn back from the sword.
 The quiver rattles against him, The glittering spear and javelin. 
 
 ###### 24 
-He devours the distance with fierceness and rage; Nor does he come to a halt because the trumpet _has_ sounded. 
+He devours the distance with fierceness and rage; Nor does he come to a halt because the trumpet has sounded. 
 
 ###### 25 
-At _the blast of_ the trumpet he says, 'Aha!' He smells the battle from afar, The thunder of captains and shouting. 
+At the blast of the trumpet he says, 'Aha!' He smells the battle from afar, The thunder of captains and shouting. 
 
 ###### 26 
-"Does the hawk fly by your wisdom, _And_ spread its wings toward the south? 
+"Does the hawk fly by your wisdom, And spread its wings toward the south? 
 
 ###### 27 
 Does the eagle mount up at your command, And make its nest on high? 
@@ -97,4 +97,4 @@ On the rock it dwells and resides, On the crag of the rock and the stronghold.
 From there it spies out the prey; Its eyes observe from afar. 
 
 ###### 30 
-Its young ones suck up blood; And where the slain _are,_ there it _is._"
+Its young ones suck up blood; And where the slain are, there it is."

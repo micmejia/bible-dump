@@ -28,7 +28,7 @@ next: ['Hos 8']
 
 
 
-When I would heal Israel, then Ephraim's guilt is uncovered, and the wickedness of Samaria; how they practice falsehood, and the thief enters and the troop of bandits ravage _and_ raid without. 
+When I would heal Israel, then Ephraim's guilt is uncovered, and the wickedness of Samaria; how they practice falsehood, and the thief enters and the troop of bandits ravage and raid without. 
 
 
 
@@ -49,7 +49,7 @@ When I would heal Israel, then Ephraim's guilt is uncovered, and the wickedness 
 
 
 
-But they do not consider _and_ say to their minds _and_ hearts that I [earnestly] remember all their wickedness. Now their own doings surround and entangle them; they are before My face. 
+But they do not consider and say to their minds and hearts that I [earnestly] remember all their wickedness. Now their own doings surround and entangle them; they are before My face. 
 
 
 
@@ -112,7 +112,7 @@ They are all [idolatrous] adulterers; their passion smolders like heat of an ove
 
 
 
-On the [special] day of our king the princes made themselves _and_ him sick with the heat of wine; [the king] stretched out his hand with scoffers _and_ lawless men. 
+On the [special] day of our king the princes made themselves and him sick with the heat of wine; [the king] stretched out his hand with scoffers and lawless men. 
 
 
 
@@ -133,7 +133,7 @@ On the [special] day of our king the princes made themselves _and_ him sick with
 
 
 
-For they have made ready their heart, _and_ their mind burns [with intrigue] like an oven while they lie in wait. Their anger smolders all night; in the morning it blazes forth as a flaming fire. 
+For they have made ready their heart, and their mind burns [with intrigue] like an oven while they lie in wait. Their anger smolders all night; in the morning it blazes forth as a flaming fire. 
 
 
 
@@ -217,7 +217,7 @@ Strangers have devoured his strength, and he knows it not; yes, gray hairs are s
 
 
 
-And the pride of Israel testifies against him _and_ to his face. But they do not return to the Lord their God, nor seek _nor_ inquire of _nor_ require Him in spite of all this. 
+And the pride of Israel testifies against him and to his face. But they do not return to the Lord their God, nor seek nor inquire of nor require Him in spite of all this. 
 
 
 
@@ -238,7 +238,7 @@ And the pride of Israel testifies against him _and_ to his face. But they do not
 
 
 
-Ephraim also is like a silly dove without heart _or_ understanding; they call to Egypt; they go to Assyria. 
+Ephraim also is like a silly dove without heart or understanding; they call to Egypt; they go to Assyria. 
 
 
 
@@ -280,7 +280,7 @@ As they go, I will spread My net over them; I will bring them down like birds of
 
 
 
-Woe to them, for they have wandered from Me! Destruction to them, because they have rebelled _and_ trespassed against Me! Though I would redeem them, yet they have spoken lies against Me. 
+Woe to them, for they have wandered from Me! Destruction to them, because they have rebelled and trespassed against Me! Though I would redeem them, yet they have spoken lies against Me. 
 
 
 
@@ -301,7 +301,7 @@ Woe to them, for they have wandered from Me! Destruction to them, because they h
 
 
 
-They do not cry to Me from their heart, but they wail upon their beds; they gash _and_ distress _and_ assemble themselves [in mourning] for grain and new wine; they rebel against Me. 
+They do not cry to Me from their heart, but they wail upon their beds; they gash and distress and assemble themselves [in mourning] for grain and new wine; they rebel against Me. 
 
 
 
@@ -322,7 +322,7 @@ They do not cry to Me from their heart, but they wail upon their beds; they gash
 
 
 
-Although I have chastened them _and_ trained and strengthened their arms, yet they think _and_ devise evil against Me. 
+Although I have chastened them and trained and strengthened their arms, yet they think and devise evil against Me. 
 
 
 
@@ -343,4 +343,4 @@ Although I have chastened them _and_ trained and strengthened their arms, yet th
 
 
 
-They turn back, shift, _or_ change, but not upwards [to the Most High]. They are like a deceitful bow; their princes shall fall by the sword for the insolence _and_ rage of their tongue. This shall be [cause for] their derision _and_ scorning in the land of Egypt.
+They turn back, shift, or change, but not upwards [to the Most High]. They are like a deceitful bow; their princes shall fall by the sword for the insolence and rage of their tongue. This shall be [cause for] their derision and scorning in the land of Egypt.

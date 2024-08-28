@@ -196,7 +196,7 @@ The nakedness of your father's wife you shall not uncover; it is your father's n
 
 
 
-You shall not have intercourse with _or_ uncover the nakedness of your sister, the daughter of your father or of your mother, whether born at home or born abroad. 
+You shall not have intercourse with or uncover the nakedness of your sister, the daughter of your father or of your mother, whether born at home or born abroad. 
 
 
 
@@ -364,7 +364,7 @@ You shall not have intercourse with your brother's wife; she belongs to your bro
 
 
 
-You shall not marry a woman and her daughter, nor shall you take her son's daughter or her daughter's daughter to have intercourse; they are [her] near kinswomen; it is wickedness _and_ an outrageous offense. 
+You shall not marry a woman and her daughter, nor shall you take her son's daughter or her daughter's daughter to have intercourse; they are [her] near kinswomen; it is wickedness and an outrageous offense. 
 
 
 
@@ -448,7 +448,7 @@ Moreover, you shall not lie carnally with your neighbor's wife, to defile yourse
 
 
 
-You shall not give any of your children to pass through the fire _and_ sacrifice them to Molech [the fire god], nor shall you profane the name of your God [by giving it to false gods]. I am the Lord. 
+You shall not give any of your children to pass through the fire and sacrifice them to Molech [the fire god], nor shall you profane the name of your God [by giving it to false gods]. I am the Lord. 
 
 
 
@@ -490,7 +490,7 @@ You shall not lie with a man as with a woman; it is an abomination.
 
 
 
-Neither shall you lie with any beast and defile yourself with it; neither shall any woman yield herself to a beast to lie with it; it is confusion, perversion, _and_ degradedly carnal. 
+Neither shall you lie with any beast and defile yourself with it; neither shall any woman yield herself to a beast to lie with it; it is confusion, perversion, and degradedly carnal. 
 
 
 

@@ -28,7 +28,7 @@ next: ['Isa 29']
 
 
 
-Woe to [Samaria] the crown of pride of the drunkards of Ephraim [the ten tribes], and to the fading flower of its glorious beauty, which is on the head of the rich valley of those overcome _and_ smitten down with wine! 
+Woe to [Samaria] the crown of pride of the drunkards of Ephraim [the ten tribes], and to the fading flower of its glorious beauty, which is on the head of the rich valley of those overcome and smitten down with wine! 
 
 
 
@@ -133,7 +133,7 @@ And the fading flower of its glorious beauty, which is on the head of the rich v
 
 
 
-And a spirit of justice to him who sits in judgment _and_ administers the law, and strength to those who turn back the battle at the gate. 
+And a spirit of justice to him who sits in judgment and administers the law, and strength to those who turn back the battle at the gate. 
 
 
 
@@ -154,7 +154,7 @@ And a spirit of justice to him who sits in judgment _and_ administers the law, a
 
 
 
-But even these reel from wine and stagger from strong drink: the priest and the prophet reel from strong drink; they are confused from wine, they stagger _and_ are gone astray through strong drink; they err in vision, they stumble when pronouncing judgment. 
+But even these reel from wine and stagger from strong drink: the priest and the prophet reel from strong drink; they are confused from wine, they stagger and are gone astray through strong drink; they err in vision, they stumble when pronouncing judgment. 
 
 
 
@@ -343,7 +343,7 @@ Because you have said, We have made a covenant with death, and with Sheol (the p
 
 
 
-Therefore thus says the Lord God, Behold, I am laying in Zion for a foundation a Stone, a tested Stone, a precious Cornerstone of sure foundation; he who believes (trusts in, relies on, and adheres to that Stone) will not _be ashamed or_ give way _or_ hasten away [in sudden panic]. 
+Therefore thus says the Lord God, Behold, I am laying in Zion for a foundation a Stone, a tested Stone, a precious Cornerstone of sure foundation; he who believes (trusts in, relies on, and adheres to that Stone) will not be ashamed or give way or hasten away [in sudden panic]. 
 
 
 
@@ -406,7 +406,7 @@ And your covenant with death shall be annulled, and your agreement with Sheol (t
 
 
 
-As often as it passes through, it [the enemy's scourge] will take you; for morning by morning will it pass through, by day and by night. And it will be utter terror merely to hear _and_ comprehend the report _and_ the message of it [but only hard treatment and dispersion will make you understand God's instruction]. 
+As often as it passes through, it [the enemy's scourge] will take you; for morning by morning will it pass through, by day and by night. And it will be utter terror merely to hear and comprehend the report and the message of it [but only hard treatment and dispersion will make you understand God's instruction]. 
 
 
 
@@ -469,7 +469,7 @@ For the Lord will rise up as on Mount Perazim, He will be wrathful as in the Val
 
 
 
-Now therefore do not be scoffers, lest the bands which bind you be made strong; for a decree of destruction have I heard from the Lord God of hosts upon the whole land _and_ the whole earth. 
+Now therefore do not be scoffers, lest the bands which bind you be made strong; for a decree of destruction have I heard from the Lord God of hosts upon the whole land and the whole earth. 
 
 
 
@@ -532,7 +532,7 @@ Does he who plows for sowing plow continually? Does he continue to plow and harr
 
 
 
-When he has leveled its surface, does he not cast abroad [the seed of] dill _or_ fennel and scatter cummin [a seasoning], and put the wheat in rows, and barley in its intended place, and spelt [an inferior kind of wheat] as the border? 
+When he has leveled its surface, does he not cast abroad [the seed of] dill or fennel and scatter cummin [a seasoning], and put the wheat in rows, and barley in its intended place, and spelt [an inferior kind of wheat] as the border? 
 
 
 
@@ -616,4 +616,4 @@ Does one crush bread grain? No, he does not thresh it continuously. But when he 
 
 
 
-This also comes from the Lord of hosts, Who is wonderful in counsel [and] excellent in wisdom _and_ effectual working.
+This also comes from the Lord of hosts, Who is wonderful in counsel [and] excellent in wisdom and effectual working.

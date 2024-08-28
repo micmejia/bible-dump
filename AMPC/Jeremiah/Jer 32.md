@@ -364,7 +364,7 @@ Now when I had delivered the purchase deed to Baruch son of Neriah, I prayed to 
 
 
 
-Alas, Lord God! Behold, You have made the heavens and the earth by Your great power and by Your outstretched arm! There is nothing too hard _or_ too wonderful for You-- 
+Alas, Lord God! Behold, You have made the heavens and the earth by Your great power and by Your outstretched arm! There is nothing too hard or too wonderful for You-- 
 
 
 
@@ -406,7 +406,7 @@ You Who show loving-kindness to thousands but recompense the iniquity of the fat
 
 
 
-Great [are You] in counsel and mighty in deeds, Whose eyes are open to all the ways of the sons of men, to reward _or_ repay each one according to his ways and according to the fruit of his doings, 
+Great [are You] in counsel and mighty in deeds, Whose eyes are open to all the ways of the sons of men, to reward or repay each one according to his ways and according to the fruit of his doings, 
 
 
 
@@ -742,7 +742,7 @@ But they set their abominations [of idol worship] in the house which is called b
 
 
 
-And they built the high places [for worship] of Baal in the Valley of Ben-hinnom [son of Hinnom] to cause their sons and their daughters to pass through the fire [in worship also of and] to Molech--which I did not command them, nor did it come into My mind _or_ heart that they should do this abomination, to cause Judah to sin. 
+And they built the high places [for worship] of Baal in the Valley of Ben-hinnom [son of Hinnom] to cause their sons and their daughters to pass through the fire [in worship also of and] to Molech--which I did not command them, nor did it come into My mind or heart that they should do this abomination, to cause Judah to sin. 
 
 
 
@@ -868,7 +868,7 @@ And I will make an everlasting covenant with them: I will not turn away from fol
 
 
 
-Yes, I will rejoice over them to do them good, and I will plant them in this land assuredly _and_ in truth with My whole heart and with My whole being. 
+Yes, I will rejoice over them to do them good, and I will plant them in this land assuredly and in truth with My whole heart and with My whole being. 
 
 
 

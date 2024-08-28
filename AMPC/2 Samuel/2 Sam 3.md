@@ -175,7 +175,7 @@ Now Saul had a concubine whose name was Rizpah daughter of Aiah. And Ish-bosheth
 
 
 
-Then Abner was very angry at the words of Ish-bosheth and said, Am I a dog's head [despicable and hostile] against Judah? This day I keep showing kindness _and_ loyalty to the house of Saul your father, to his brothers, and his friends, and have not delivered you into the hands of David; and yet you charge me today with a fault concerning this woman! 
+Then Abner was very angry at the words of Ish-bosheth and said, Am I a dog's head [despicable and hostile] against Judah? This day I keep showing kindness and loyalty to the house of Saul your father, to his brothers, and his friends, and have not delivered you into the hands of David; and yet you charge me today with a fault concerning this woman! 
 
 
 
@@ -616,7 +616,7 @@ When David heard of it, he said, I and my kingdom are guiltless before the Lord 
 
 
 
-Let it fall on the head of Joab and on all his father's house; and let the house of Joab never be without one who has a discharge or is a leper or walks with a crutch _or_ is a distaff holder [unfit for war] or who falls by the sword or lacks food! 
+Let it fall on the head of Joab and on all his father's house; and let the house of Joab never be without one who has a discharge or is a leper or walks with a crutch or is a distaff holder [unfit for war] or who falls by the sword or lacks food! 
 
 
 

@@ -49,7 +49,7 @@ Job again took up his discourse and said,
 
 
 
-As God lives, Who has taken away my right _and_ denied me justice, and the Almighty, Who has vexed _and_ embittered my life, 
+As God lives, Who has taken away my right and denied me justice, and the Almighty, Who has vexed and embittered my life, 
 
 
 
@@ -133,7 +133,7 @@ God forbid that I should justify you--saying you are right [in your accusations 
 
 
 
-My uprightness _and_ my right standing with God I hold fast and will not let them go; my heart does not reproach me for any of my days _and_ it shall not reproach me as long as I live. 
+My uprightness and my right standing with God I hold fast and will not let them go; my heart does not reproach me for any of my days and it shall not reproach me as long as I live. 
 
 
 
@@ -175,7 +175,7 @@ Let my enemy be as the wicked, and let him who rises up against me be as the unr
 
 
 
-For what is the hope of the godless _and_ polluted, even though he has gained [in this world], when God cuts him off _and_ takes away his life? 
+For what is the hope of the godless and polluted, even though he has gained [in this world], when God cuts him off and takes away his life? 
 
 
 
@@ -238,7 +238,7 @@ Will he take delight in the Almighty? Will he call upon God at all times?
 
 
 
-I will teach you regarding the hand _and_ handiwork of God; that which is with the Almighty [God's actual treatment of the wicked man] will I not conceal. 
+I will teach you regarding the hand and handiwork of God; that which is with the Almighty [God's actual treatment of the wicked man] will I not conceal. 
 
 
 
@@ -385,7 +385,7 @@ He may prepare it, but the just will wear it, and the innocent will divide the s
 
 
 
-He builds his house like a moth _or_ a spider, like a booth which a watchman makes [to last for a season]. 
+He builds his house like a moth or a spider, like a booth which a watchman makes [to last for a season]. 
 
 
 
@@ -469,7 +469,7 @@ The east wind lifts him up, and he is gone; it sweeps him out of his place.
 
 
 
-For [God and the storm] hurl at him without pity _and_ unsparingly [their thunderbolts of wrath]; he flees in haste before His power. 
+For [God and the storm] hurl at him without pity and unsparingly [their thunderbolts of wrath]; he flees in haste before His power. 
 
 
 

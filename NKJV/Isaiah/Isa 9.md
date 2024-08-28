@@ -10,25 +10,25 @@ next: ['Isa 10']
 
 
 ###### 1 
-Nevertheless the gloom _will_ not _be_ upon her who _is_ distressed, As when at first He lightly esteemed The land of Zebulun and the land of Naphtali, And afterward more heavily oppressed _her,_ _By_ the way of the sea, beyond the Jordan, In Galilee of the Gentiles. 
+Nevertheless the gloom will not be upon her who is distressed, As when at first He lightly esteemed The land of Zebulun and the land of Naphtali, And afterward more heavily oppressed her, By the way of the sea, beyond the Jordan, In Galilee of the Gentiles. 
 
 ###### 2 
 The people who walked in darkness Have seen a great light; Those who dwelt in the land of the shadow of death, Upon them a light has shined. 
 
 ###### 3 
-You have multiplied the nation _And_ increased its joy; They rejoice before You According to the joy of harvest, As _men_ rejoice when they divide the spoil. 
+You have multiplied the nation And increased its joy; They rejoice before You According to the joy of harvest, As men rejoice when they divide the spoil. 
 
 ###### 4 
 For You have broken the yoke of his burden And the staff of his shoulder, The rod of his oppressor, As in the day of Midian. 
 
 ###### 5 
-For every warrior's sandal from the noisy battle, And garments rolled in blood, Will be used for burning _and_ fuel of fire. 
+For every warrior's sandal from the noisy battle, And garments rolled in blood, Will be used for burning and fuel of fire. 
 
 ###### 6 
 For unto us a Child is born, Unto us a Son is given; And the government will be upon His shoulder. And His name will be called Wonderful, Counselor, Mighty God, Everlasting Father, Prince of Peace. 
 
 ###### 7 
-Of the increase of _His_ government and peace _There will be_ no end, Upon the throne of David and over His kingdom, To order it and establish it with judgment and justice From that time forward, even forever. The zeal of the Lord of hosts will perform this.
+Of the increase of His government and peace There will be no end, Upon the throne of David and over His kingdom, To order it and establish it with judgment and justice From that time forward, even forever. The zeal of the Lord of hosts will perform this.
 
 ## The Punishment of Samaria 
 
@@ -39,13 +39,13 @@ The Lord sent a word against Jacob, And it has fallen on Israel.
 All the people will know-- Ephraim and the inhabitant of Samaria-- Who say in pride and arrogance of heart: 
 
 ###### 10 
-"The bricks have fallen down, But we will rebuild with hewn stones; The sycamores are cut down, But we will replace _them_ with cedars." 
+"The bricks have fallen down, But we will rebuild with hewn stones; The sycamores are cut down, But we will replace them with cedars." 
 
 ###### 11 
 Therefore the Lord shall set up The adversaries of Rezin against him, And spur his enemies on, 
 
 ###### 12 
-The Syrians before and the Philistines behind; And they shall devour Israel with an open mouth. For all this His anger is not turned away, But His hand _is_ stretched out still. 
+The Syrians before and the Philistines behind; And they shall devour Israel with an open mouth. For all this His anger is not turned away, But His hand is stretched out still. 
 
 ###### 13 
 For the people do not turn to Him who strikes them, Nor do they seek the Lord of hosts. 
@@ -54,16 +54,16 @@ For the people do not turn to Him who strikes them, Nor do they seek the Lord of
 Therefore the Lord will cut off head and tail from Israel, Palm branch and bulrush in one day. 
 
 ###### 15 
-The elder and honorable, he _is_ the head; The prophet who teaches lies, he _is_ the tail. 
+The elder and honorable, he is the head; The prophet who teaches lies, he is the tail. 
 
 ###### 16 
-For the leaders of this people cause _them_ to err, And _those who are_ led by them are destroyed. 
+For the leaders of this people cause them to err, And those who are led by them are destroyed. 
 
 ###### 17 
-Therefore the Lord will have no joy in their young men, Nor have mercy on their fatherless and widows; For everyone _is_ a hypocrite and an evildoer, And every mouth speaks folly. For all this His anger is not turned away, But His hand _is_ stretched out still. 
+Therefore the Lord will have no joy in their young men, Nor have mercy on their fatherless and widows; For everyone is a hypocrite and an evildoer, And every mouth speaks folly. For all this His anger is not turned away, But His hand is stretched out still. 
 
 ###### 18 
-For wickedness burns as the fire; It shall devour the briers and thorns, And kindle in the thickets of the forest; They shall mount up _like_ rising smoke. 
+For wickedness burns as the fire; It shall devour the briers and thorns, And kindle in the thickets of the forest; They shall mount up like rising smoke. 
 
 ###### 19 
 Through the wrath of the Lord of hosts The land is burned up, And the people shall be as fuel for the fire; No man shall spare his brother. 
@@ -72,4 +72,4 @@ Through the wrath of the Lord of hosts The land is burned up, And the people sha
 And he shall snatch on the right hand And be hungry; He shall devour on the left hand And not be satisfied; Every man shall eat the flesh of his own arm. 
 
 ###### 21 
-Manasseh _shall devour_ Ephraim, and Ephraim Manasseh; Together they _shall be_ against Judah. For all this His anger is not turned away, But His hand _is_ stretched out still.
+Manasseh shall devour Ephraim, and Ephraim Manasseh; Together they shall be against Judah. For all this His anger is not turned away, But His hand is stretched out still.

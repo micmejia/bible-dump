@@ -133,7 +133,7 @@ Other seeds fell on rocky ground, where they had not much soil; and at once they
 
 
 
-But when the sun rose, they were scorched, and because they had no root, they dried up _and_ withered away. 
+But when the sun rose, they were scorched, and because they had no root, they dried up and withered away. 
 
 
 
@@ -196,7 +196,7 @@ Other seeds fell on good soil, and yielded grain--some a hundred times as much a
 
 
 
-He who has ears [to hear], let him be listening _and_ let him consider _and_ perceive _and_ comprehend by hearing. 
+He who has ears [to hear], let him be listening and let him consider and perceive and comprehend by hearing. 
 
 
 
@@ -238,7 +238,7 @@ Then the disciples came to Him and said, Why do You speak to them in parables?
 
 
 
-And He replied to them, To you it has been given to know the secrets _and_ mysteries of the kingdom of heaven, but to them it has not been given. 
+And He replied to them, To you it has been given to know the secrets and mysteries of the kingdom of heaven, but to them it has not been given. 
 
 
 
@@ -259,7 +259,7 @@ And He replied to them, To you it has been given to know the secrets _and_ myste
 
 
 
-For whoever has [spiritual knowledge], to him will more be given _and_ he will be furnished richly so that he will have abundance; but from him who has not, even what he has will be taken away. 
+For whoever has [spiritual knowledge], to him will more be given and he will be furnished richly so that he will have abundance; but from him who has not, even what he has will be taken away. 
 
 
 
@@ -280,7 +280,7 @@ For whoever has [spiritual knowledge], to him will more be given _and_ he will b
 
 
 
-This is the reason that I speak to them in parables: because having the power of seeing, they do not see; and having the power of hearing, they do not hear, nor do they grasp _and_ understand. 
+This is the reason that I speak to them in parables: because having the power of seeing, they do not see; and having the power of hearing, they do not hear, nor do they grasp and understand. 
 
 
 
@@ -301,7 +301,7 @@ This is the reason that I speak to them in parables: because having the power of
 
 
 
-In them indeed is the process of fulfillment of the prophecy of Isaiah, which says: You shall indeed hear _and_ hear but never grasp _and_ understand; and you shall indeed look _and_ look but never see _and_ perceive. 
+In them indeed is the process of fulfillment of the prophecy of Isaiah, which says: You shall indeed hear and hear but never grasp and understand; and you shall indeed look and look but never see and perceive. 
 
 
 
@@ -322,7 +322,7 @@ In them indeed is the process of fulfillment of the prophecy of Isaiah, which sa
 
 
 
-For this nation's heart has grown gross (fat and dull), and their ears heavy _and_ difficult of hearing, and their eyes they have tightly closed, lest they see _and_ perceive with their eyes, and hear _and_ comprehend the sense with their ears, and grasp _and_ understand with their heart, and turn _and_ I should heal them. 
+For this nation's heart has grown gross (fat and dull), and their ears heavy and difficult of hearing, and their eyes they have tightly closed, lest they see and perceive with their eyes, and hear and comprehend the sense with their ears, and grasp and understand with their heart, and turn and I should heal them. 
 
 
 
@@ -406,7 +406,7 @@ Listen then to the [meaning of the] parable of the sower:
 
 
 
-While anyone is hearing the Word of the kingdom and does not grasp _and_ comprehend it, the evil one comes and snatches away what was sown in his heart. This is what was sown along the roadside. 
+While anyone is hearing the Word of the kingdom and does not grasp and comprehend it, the evil one comes and snatches away what was sown in his heart. This is what was sown along the roadside. 
 
 
 
@@ -427,7 +427,7 @@ While anyone is hearing the Word of the kingdom and does not grasp _and_ compreh
 
 
 
-As for what was sown on thin (rocky) soil, this is he who hears the Word and at once welcomes _and_ accepts it with joy; 
+As for what was sown on thin (rocky) soil, this is he who hears the Word and at once welcomes and accepts it with joy; 
 
 
 
@@ -448,7 +448,7 @@ As for what was sown on thin (rocky) soil, this is he who hears the Word and at 
 
 
 
-Yet it has no real root in him, but is temporary (inconstant, lasts but a little while); and when affliction _or_ trouble _or_ persecution comes on account of the Word, at once he is caused to stumble [he is repelled and begins to distrust and desert Him Whom he ought to trust and obey] _and_ he falls away. 
+Yet it has no real root in him, but is temporary (inconstant, lasts but a little while); and when affliction or trouble or persecution comes on account of the Word, at once he is caused to stumble [he is repelled and begins to distrust and desert Him Whom he ought to trust and obey] and he falls away. 
 
 
 
@@ -469,7 +469,7 @@ Yet it has no real root in him, but is temporary (inconstant, lasts but a little
 
 
 
-As for what was sown among thorns, this is he who hears the Word, but the cares of the world and the pleasure _and_ delight _and_ glamour _and_ deceitfulness of riches choke _and_ suffocate the Word, and it yields no fruit. 
+As for what was sown among thorns, this is he who hears the Word, but the cares of the world and the pleasure and delight and glamour and deceitfulness of riches choke and suffocate the Word, and it yields no fruit. 
 
 
 
@@ -490,7 +490,7 @@ As for what was sown among thorns, this is he who hears the Word, but the cares 
 
 
 
-As for what was sown on good soil, this is he who hears the Word and grasps _and_ comprehends it; he indeed bears fruit and yields in one case a hundred times as much as was sown, in another sixty times as much, and in another thirty. 
+As for what was sown on good soil, this is he who hears the Word and grasps and comprehends it; he indeed bears fruit and yields in one case a hundred times as much as was sown, in another sixty times as much, and in another thirty. 
 
 
 
@@ -700,7 +700,7 @@ Of all the seeds it is the smallest, but when it has grown it is the largest of 
 
 
 
-He told them another parable: The kingdom of heaven is like leaven (sour dough) which a woman took and covered over in three measures of meal _or_ flour till all of it was leavened. 
+He told them another parable: The kingdom of heaven is like leaven (sour dough) which a woman took and covered over in three measures of meal or flour till all of it was leavened. 
 
 
 
@@ -826,7 +826,7 @@ The field is the world, and the good seed means the children of the kingdom; the
 
 
 
-And the enemy who sowed it is the devil. The harvest is the close _and_ consummation of the age, and the reapers are angels. 
+And the enemy who sowed it is the devil. The harvest is the close and consummation of the age, and the reapers are angels. 
 
 
 
@@ -868,7 +868,7 @@ Just as the darnel (weeds resembling wheat) is gathered and burned with fire, so
 
 
 
-The Son of Man will send forth His angels, and they will gather out of His kingdom all causes of offense [persons by whom others are drawn into error or sin] and all who do iniquity _and_ act wickedly, 
+The Son of Man will send forth His angels, and they will gather out of His kingdom all causes of offense [persons by whom others are drawn into error or sin] and all who do iniquity and act wickedly, 
 
 
 
@@ -889,7 +889,7 @@ The Son of Man will send forth His angels, and they will gather out of His kingd
 
 
 
-And will cast them into the furnace of fire; there will be weeping _and_ wailing and grinding of teeth. 
+And will cast them into the furnace of fire; there will be weeping and wailing and grinding of teeth. 
 
 
 
@@ -910,7 +910,7 @@ And will cast them into the furnace of fire; there will be weeping _and_ wailing
 
 
 
-Then will the righteous (those who are upright and in right standing with God) shine forth like the sun in the kingdom of their Father. Let him who has ears [to hear] be listening, _and_ let him consider _and_ perceive _and_ understand by hearing. 
+Then will the righteous (those who are upright and in right standing with God) shine forth like the sun in the kingdom of their Father. Let him who has ears [to hear] be listening, and let him consider and perceive and understand by hearing. 
 
 
 
@@ -952,7 +952,7 @@ The kingdom of heaven is like something precious buried in a field, which a man 
 
 
 
-Again the kingdom of heaven is like a man who is a dealer in search of fine _and_ precious pearls, 
+Again the kingdom of heaven is like a man who is a dealer in search of fine and precious pearls, 
 
 
 
@@ -1036,7 +1036,7 @@ When it was full, men dragged it up on the beach, and sat down and sorted out th
 
 
 
-So it will be at the close _and_ consummation of the age. The angels will go forth and separate the wicked from the righteous (those who are upright and in right standing with God) 
+So it will be at the close and consummation of the age. The angels will go forth and separate the wicked from the righteous (those who are upright and in right standing with God) 
 
 
 
@@ -1057,7 +1057,7 @@ So it will be at the close _and_ consummation of the age. The angels will go for
 
 
 
-And cast them [the wicked] into the furnace of fire; there will be weeping _and_ wailing and grinding of teeth. 
+And cast them [the wicked] into the furnace of fire; there will be weeping and wailing and grinding of teeth. 
 
 
 
@@ -1078,7 +1078,7 @@ And cast them [the wicked] into the furnace of fire; there will be weeping _and_
 
 
 
-Have you understood all these things [parables] taken together? They said to Him, Yes, _Lord_. 
+Have you understood all these things [parables] taken together? They said to Him, Yes, Lord. 
 
 
 
@@ -1099,7 +1099,7 @@ Have you understood all these things [parables] taken together? They said to Him
 
 
 
-He said to them, Therefore every teacher _and_ interpreter of the Sacred Writings who has been instructed about _and_ trained for the kingdom of heaven and has become a disciple is like a householder who brings forth out of his storehouse treasure that is new and [treasure that is] old [the fresh as well as the familiar]. 
+He said to them, Therefore every teacher and interpreter of the Sacred Writings who has been instructed about and trained for the kingdom of heaven and has become a disciple is like a householder who brings forth out of his storehouse treasure that is new and [treasure that is] old [the fresh as well as the familiar]. 
 
 
 

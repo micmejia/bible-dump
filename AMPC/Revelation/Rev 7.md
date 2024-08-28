@@ -18,7 +18,7 @@ After this I saw four angels stationed at the four corners of the earth, firmly 
 ###### 2 
 
 
-Then I saw a second angel coming up from the east (the rising of the sun) and carrying the seal of the living God. And with a loud voice he called out to the four angels who had been given authority _and_ power to injure earth and sea, 
+Then I saw a second angel coming up from the east (the rising of the sun) and carrying the seal of the living God. And with a loud voice he called out to the four angels who had been given authority and power to injure earth and sea, 
 
 
 ###### 3 
@@ -78,7 +78,7 @@ And all the angels were standing round the throne and round the elders [of the h
 ###### 12 
 
 
-Amen! (So be it!) they cried. Blessing and glory _and_ majesty _and_ splendor and wisdom and thanks and honor and power and might [be ascribed] to our God to the ages and ages (forever and ever, throughout the eternities of the eternities)! Amen! (So be it!) 
+Amen! (So be it!) they cried. Blessing and glory and majesty and splendor and wisdom and thanks and honor and power and might [be ascribed] to our God to the ages and ages (forever and ever, throughout the eternities of the eternities)! Amen! (So be it!) 
 
 
 ###### 13 
@@ -96,7 +96,7 @@ I replied, Sir, you know. And he said to me, These are they who have come out of
 ###### 15 
 
 
-For this reason they are [now] before the [very] throne of God and serve Him day and night in His sanctuary (temple); and He Who is sitting upon the throne will protect _and_ spread His tabernacle over _and_ shelter them with His presence. 
+For this reason they are [now] before the [very] throne of God and serve Him day and night in His sanctuary (temple); and He Who is sitting upon the throne will protect and spread His tabernacle over and shelter them with His presence. 
 
 
 ###### 16 

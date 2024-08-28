@@ -28,7 +28,7 @@ next: ['Ps 7']
 
 
 
-O Lord, rebuke me not in Your anger nor discipline _and_ chasten me in Your hot displeasure. 
+O Lord, rebuke me not in Your anger nor discipline and chasten me in Your hot displeasure. 
 
 
 
@@ -49,7 +49,7 @@ O Lord, rebuke me not in Your anger nor discipline _and_ chasten me in Your hot 
 
 
 
-Have mercy on me _and_ be gracious to me, O Lord, for I am weak (faint and withered away); O Lord, heal me, for my bones are troubled. 
+Have mercy on me and be gracious to me, O Lord, for I am weak (faint and withered away); O Lord, heal me, for my bones are troubled. 
 
 
 
@@ -70,7 +70,7 @@ Have mercy on me _and_ be gracious to me, O Lord, for I am weak (faint and withe
 
 
 
-My [inner] self [as well as my body] is also exceedingly disturbed _and_ troubled. But You, O Lord, how long [until You return and speak peace to me]? 
+My [inner] self [as well as my body] is also exceedingly disturbed and troubled. But You, O Lord, how long [until You return and speak peace to me]? 
 
 
 
@@ -91,7 +91,7 @@ My [inner] self [as well as my body] is also exceedingly disturbed _and_ trouble
 
 
 
-Return [to my relief], O Lord, deliver my life; save me for the sake of Your steadfast love _and_ mercy. 
+Return [to my relief], O Lord, deliver my life; save me for the sake of Your steadfast love and mercy. 
 
 
 
@@ -217,4 +217,4 @@ The Lord has heard my supplication; the Lord receives my prayer.
 
 
 
-Let all my enemies be ashamed and sorely troubled; let them turn back _and_ be put to shame suddenly.
+Let all my enemies be ashamed and sorely troubled; let them turn back and be put to shame suddenly.

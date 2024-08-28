@@ -27,7 +27,7 @@ next: ['Neh 2']
 
 
 
-The words _or_ story of Nehemiah son of Hacaliah: Now in the month of Chislev in the twentieth year [of the Persian king], as I was in the castle of Shushan, 
+The words or story of Nehemiah son of Hacaliah: Now in the month of Chislev in the twentieth year [of the Persian king], as I was in the castle of Shushan, 
 
 
 
@@ -111,7 +111,7 @@ When I heard this, I sat down and wept and mourned for days and fasted and praye
 
 
 
-And I said, O Lord God of heaven, the great and terrible God, Who keeps covenant, loving-kindness, _and_ mercy for those who love Him and keep His commandments, 
+And I said, O Lord God of heaven, the great and terrible God, Who keeps covenant, loving-kindness, and mercy for those who love Him and keep His commandments, 
 
 
 
@@ -174,7 +174,7 @@ We have acted very corruptly against You and have not kept the commandments, sta
 
 
 
-Remember [earnestly] what You commanded Your servant Moses: If you transgress _and_ are unfaithful, I will scatter you abroad among the nations; 
+Remember [earnestly] what You commanded Your servant Moses: If you transgress and are unfaithful, I will scatter you abroad among the nations; 
 
 
 
@@ -237,4 +237,4 @@ Now these are Your servants and Your people, whom You have redeemed by Your grea
 
 
 
-O Lord, let Your ear be attentive to the prayer of Your servant and the prayer of Your servants who delight to revere _and_ fear Your name (Your nature and attributes); and prosper, I pray You, Your servant this day and grant him mercy in the sight of this man. For I was cupbearer to the king.
+O Lord, let Your ear be attentive to the prayer of Your servant and the prayer of Your servants who delight to revere and fear Your name (Your nature and attributes); and prosper, I pray You, Your servant this day and grant him mercy in the sight of this man. For I was cupbearer to the king.

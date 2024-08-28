@@ -10,41 +10,41 @@ next: ['Eccl 5']
 
 
 ###### 1 
-Then I returned and considered all the oppression that is done under the sun: And look! The tears of the oppressed, But they have no comforter-- On the side of their oppressors _there is_ power, But they have no comforter. 
+Then I returned and considered all the oppression that is done under the sun: And look! The tears of the oppressed, But they have no comforter-- On the side of their oppressors there is power, But they have no comforter. 
 
 ###### 2 
 Therefore I praised the dead who were already dead, More than the living who are still alive. 
 
 ###### 3 
-Yet, better than both _is he_ who has never existed, Who has not seen the evil work that is done under the sun.
+Yet, better than both is he who has never existed, Who has not seen the evil work that is done under the sun.
 
 ## The Vanity of Selfish Toil 
 
 ###### 4 
-Again, I saw that for all toil and every skillful work a man is envied by his neighbor. This also _is_ vanity and grasping for the wind. 
+Again, I saw that for all toil and every skillful work a man is envied by his neighbor. This also is vanity and grasping for the wind. 
 
 ###### 5 
 The fool folds his hands And consumes his own flesh. 
 
 ###### 6 
-Better a handful _with_ quietness Than both hands full, _together with_ toil and grasping for the wind. 
+Better a handful with quietness Than both hands full, together with toil and grasping for the wind. 
 
 ###### 7 
 Then I returned, and I saw vanity under the sun: 
 
 ###### 8 
-There is one alone, without companion: He has neither son nor brother. Yet _there is_ no end to all his labors, Nor is his eye satisfied with riches. _But_ _he never asks,_ "For whom do I toil and deprive myself of good?" This also _is_ vanity and a grave misfortune.
+There is one alone, without companion: He has neither son nor brother. Yet there is no end to all his labors, Nor is his eye satisfied with riches. But he never asks, "For whom do I toil and deprive myself of good?" This also is vanity and a grave misfortune.
 
 ## The Value of a Friend 
 
 ###### 9 
-Two _are_ better than one, Because they have a good reward for their labor. 
+Two are better than one, Because they have a good reward for their labor. 
 
 ###### 10 
-For if they fall, one will lift up his companion. But woe to him _who is_ alone when he falls, For _he has_ no one to help him up. 
+For if they fall, one will lift up his companion. But woe to him who is alone when he falls, For he has no one to help him up. 
 
 ###### 11 
-Again, if two lie down together, they will keep warm; But how can one be warm _alone?_ 
+Again, if two lie down together, they will keep warm; But how can one be warm alone? 
 
 ###### 12 
 Though one may be overpowered by another, two can withstand him. And a threefold cord is not quickly broken.
@@ -61,4 +61,4 @@ For he comes out of prison to be king, Although he was born poor in his kingdom.
 I saw all the living who walk under the sun; They were with the second youth who stands in his place. 
 
 ###### 16 
-_There was_ no end of all the people over whom he was made king; Yet those who come afterward will not rejoice in him. Surely this also _is_ vanity and grasping for the wind.
+There was no end of all the people over whom he was made king; Yet those who come afterward will not rejoice in him. Surely this also is vanity and grasping for the wind.

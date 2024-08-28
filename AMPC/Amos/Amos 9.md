@@ -195,7 +195,7 @@ Behold, the eyes of the Lord God are upon the sinful kingdom [of Israel's ten tr
 
 
 
-For behold, I will command, and I will sift the house of Israel among all nations _and_ cause it to move to and fro as grain is sifted in a sieve, yet shall not the least kernel fall upon the earth _and_ be lost [from My sight]. 
+For behold, I will command, and I will sift the house of Israel among all nations and cause it to move to and fro as grain is sifted in a sieve, yet shall not the least kernel fall upon the earth and be lost [from My sight]. 
 
 
 
@@ -237,7 +237,7 @@ All the sinners of My people shall die by the sword, who say, The evil shall not
 
 
 
-In that day will I raise up the tabernacle of David, the fallen hut _or_ booth, and close up its breaches; and I will raise up its ruins, and I will build it as in the days of old, 
+In that day will I raise up the tabernacle of David, the fallen hut or booth, and close up its breaches; and I will raise up its ruins, and I will build it as in the days of old, 
 
 
 

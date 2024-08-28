@@ -49,7 +49,7 @@ How the gold has become dim! How the most pure gold has changed! The hallowed st
 
 
 
-The noble _and_ precious sons of Zion, [once] worth their weight in fine gold--how they are esteemed [merely] as earthen pots _or_ pitchers, the work of the hands of the potter! 
+The noble and precious sons of Zion, [once] worth their weight in fine gold--how they are esteemed [merely] as earthen pots or pitchers, the work of the hands of the potter! 
 
 
 
@@ -112,7 +112,7 @@ The tongue of the nursing babe cleaves to the roof of its mouth because of thirs
 
 
 
-Those who feasted on dainties are perishing in the streets; those who were brought up in purple lie cleaving to refuse _and_ ash heaps. 
+Those who feasted on dainties are perishing in the streets; those who were brought up in purple lie cleaving to refuse and ash heaps. 
 
 
 
@@ -133,7 +133,7 @@ Those who feasted on dainties are perishing in the streets; those who were broug
 
 
 
-For the punishment of the iniquity of the daughter of my people is greater than the punishment of the sin of Sodom, which was overthrown in a moment, and no hands had come against her _or_ been laid on her. 
+For the punishment of the iniquity of the daughter of my people is greater than the punishment of the sin of Sodom, which was overthrown in a moment, and no hands had come against her or been laid on her. 
 
 
 
@@ -154,7 +154,7 @@ For the punishment of the iniquity of the daughter of my people is greater than 
 
 
 
-[In physical appearance] her princes were purer than snow, they were whiter than milk; they were more ruddy in body than rubies _or_ corals, their shapely figures [suggested a carefully cut] sapphire. 
+[In physical appearance] her princes were purer than snow, they were whiter than milk; they were more ruddy in body than rubies or corals, their shapely figures [suggested a carefully cut] sapphire. 
 
 
 
@@ -196,7 +196,7 @@ For the punishment of the iniquity of the daughter of my people is greater than 
 
 
 
-Those who are slain with the sword are more fortunate than those who are the victims of hunger [slain by the famine]; for they [the hungry] pine _and_ ebb away, stricken through for want of the fruits of the field. 
+Those who are slain with the sword are more fortunate than those who are the victims of hunger [slain by the famine]; for they [the hungry] pine and ebb away, stricken through for want of the fruits of the field. 
 
 
 
@@ -280,7 +280,7 @@ The kings of the earth did not believe, nor did any of the inhabitants of the ea
 
 
 
-[But this happened] because of the sins of her [false] prophets and the iniquities of her priests, who shed the blood of the just _and_ righteous in the midst of her. 
+[But this happened] because of the sins of her [false] prophets and the iniquities of her priests, who shed the blood of the just and righteous in the midst of her. 
 
 
 
@@ -364,7 +364,7 @@ The anger of the Lord has scattered [and divided them among the nations]; He wil
 
 
 
-As for us, our eyes yet failed _and_ wasted away in looking for our worthless help. In our watching [on our watchtower] we have watched _and_ waited expectantly for a nation [Egypt or some other one to come to our rescue] that could not save us. 
+As for us, our eyes yet failed and wasted away in looking for our worthless help. In our watching [on our watchtower] we have watched and waited expectantly for a nation [Egypt or some other one to come to our rescue] that could not save us. 
 
 
 
@@ -469,4 +469,4 @@ Rejoice and be glad, O Daughter of Edom, you who dwell in the land of Uz. But th
 
 
 
-The punishment of your iniquity will be accomplished _and_ completed, O Daughter of Zion; [the Lord] will no more carry you away _or_ keep you in exile. But He will inspect _and_ punish your iniquity _and_ guilt, O Daughter of Edom; He will uncover your sins.
+The punishment of your iniquity will be accomplished and completed, O Daughter of Zion; [the Lord] will no more carry you away or keep you in exile. But He will inspect and punish your iniquity and guilt, O Daughter of Edom; He will uncover your sins.

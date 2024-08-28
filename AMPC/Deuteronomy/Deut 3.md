@@ -112,7 +112,7 @@ And we took all his cities at that time; there was not a city which we did not t
 
 
 
-All these cities were fortified with high _and_ haughty walls, gates, and bars, besides a great many unwalled villages. 
+All these cities were fortified with high and haughty walls, gates, and bars, besides a great many unwalled villages. 
 
 
 
@@ -448,7 +448,7 @@ Until the Lord has given rest to your brethren as to you, and until they also po
 
 
 
-And I commanded Joshua at that time, saying, Your _own_ eyes have seen all that the Lord your God has done to these two kings [Sihon and Og]; so shall the Lord do to all the kingdoms into which you are going over [the Jordan]. 
+And I commanded Joshua at that time, saying, Your own eyes have seen all that the Lord your God has done to these two kings [Sihon and Og]; so shall the Lord do to all the kingdoms into which you are going over [the Jordan]. 
 
 
 

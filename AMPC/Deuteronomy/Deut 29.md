@@ -133,7 +133,7 @@ I have led you forty years in the wilderness; your clothes have not worn out upo
 
 
 
-You have not eaten [grain] bread, nor have you drunk wine or strong drink, that you might recognize _and_ know [your dependence on Him Who is saying], I am the Lord your God. 
+You have not eaten [grain] bread, nor have you drunk wine or strong drink, that you might recognize and know [your dependence on Him Who is saying], I am the Lord your God. 
 
 
 
@@ -196,7 +196,7 @@ We took their land and gave it as an inheritance to the Reubenites, the Gadites,
 
 
 
-Therefore keep the words of this covenant and do them, that you may deal wisely _and_ prosper in all that you do. 
+Therefore keep the words of this covenant and do them, that you may deal wisely and prosper in all that you do. 
 
 
 
@@ -238,7 +238,7 @@ All of you stand today before the Lord your God--your heads, your tribes, your e
 
 
 
-Your little ones, your wives, and the stranger _and_ sojourner in your camp, from the hewer of your wood to the drawer of your water-- 
+Your little ones, your wives, and the stranger and sojourner in your camp, from the hewer of your wood to the drawer of your water-- 
 
 
 
@@ -406,7 +406,7 @@ Beware lest there should be among you a man or woman, or family or tribe, whose 
 
 
 
-And lest, when he hears the words of this curse _and_ oath, he flatters _and_ congratulates himself in his [mind and] heart, saying, I shall have peace _and_ safety, though I walk in the stubbornness of my [mind and] heart [bringing down a hurricane of destruction] and sweep away the watered land with the dry. 
+And lest, when he hears the words of this curse and oath, he flatters and congratulates himself in his [mind and] heart, saying, I shall have peace and safety, though I walk in the stubbornness of my [mind and] heart [bringing down a hurricane of destruction] and sweep away the watered land with the dry. 
 
 
 
@@ -448,7 +448,7 @@ The Lord will not pardon him, but then the anger of the Lord and His jealousy wi
 
 
 
-And the Lord will single him out for ruin _and_ destruction from all the tribes of Israel, according to all the curses of the covenant that are written in this Book of the Law, 
+And the Lord will single him out for ruin and destruction from all the tribes of Israel, according to all the curses of the covenant that are written in this Book of the Law, 
 
 
 

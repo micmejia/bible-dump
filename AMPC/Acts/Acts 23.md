@@ -91,7 +91,7 @@ Then Paul said to him, God is about to strike you, you whitewashed wall! Do you 
 
 
 
-Those who stood near exclaimed, Do you rail at _and_ insult the high priest of God? 
+Those who stood near exclaimed, Do you rail at and insult the high priest of God? 
 
 
 
@@ -133,7 +133,7 @@ And Paul said, I was not conscious, brethren, that he was a high priest; for the
 
 
 
-But Paul, when he perceived that one part of them were Sadducees and the other part Pharisees, cried out to the council (Sanhedrin), Brethren, I am a Pharisee, a son of Pharisees; it is with regard to the hope and the resurrection of the dead that I am indicted _and_ being judged. 
+But Paul, when he perceived that one part of them were Sadducees and the other part Pharisees, cried out to the council (Sanhedrin), Brethren, I am a Pharisee, a son of Pharisees; it is with regard to the hope and the resurrection of the dead that I am indicted and being judged. 
 
 
 
@@ -175,7 +175,7 @@ So when he had said this, an angry dispute arose between the Pharisees and the S
 
 
 
-For the Sadducees hold that there is no resurrection, nor angel nor spirit, but the Pharisees declare openly _and_ speak out freely, acknowledging [their belief in] them both. 
+For the Sadducees hold that there is no resurrection, nor angel nor spirit, but the Pharisees declare openly and speak out freely, acknowledging [their belief in] them both. 
 
 
 
@@ -196,7 +196,7 @@ For the Sadducees hold that there is no resurrection, nor angel nor spirit, but 
 
 
 
-Then a great uproar ensued, and some of the scribes of the Pharisees' party stood up and thoroughly fought the case, [contending fiercely] and declaring, We find nothing evil _or_ wrong in this man. But if a spirit or an angel [really] spoke to him--? _Let us not fight against God_! 
+Then a great uproar ensued, and some of the scribes of the Pharisees' party stood up and thoroughly fought the case, [contending fiercely] and declaring, We find nothing evil or wrong in this man. But if a spirit or an angel [really] spoke to him--? Let us not fight against God! 
 
 
 
@@ -217,7 +217,7 @@ Then a great uproar ensued, and some of the scribes of the Pharisees' party stoo
 
 
 
-And when the strife became more and more tense _and_ violent, the commandant, fearing that Paul would be torn in pieces by them, ordered the troops to go down and take him forcibly from among them and conduct him back into the barracks. 
+And when the strife became more and more tense and violent, the commandant, fearing that Paul would be torn in pieces by them, ordered the troops to go down and take him forcibly from among them and conduct him back into the barracks. 
 
 
 
@@ -238,7 +238,7 @@ And when the strife became more and more tense _and_ violent, the commandant, fe
 
 
 
-And [that same] following night the Lord stood beside Paul and said, Take courage, _Paul_, for as you have borne faithful witness concerning Me at Jerusalem, so you must also bear witness at Rome. 
+And [that same] following night the Lord stood beside Paul and said, Take courage, Paul, for as you have borne faithful witness concerning Me at Jerusalem, so you must also bear witness at Rome. 
 
 
 
@@ -259,7 +259,7 @@ And [that same] following night the Lord stood beside Paul and said, Take courag
 
 
 
-Now when daylight came, the Jews formed a plot and bound themselves by an oath _and_ under a curse neither to eat nor drink till they had done away with Paul. 
+Now when daylight came, the Jews formed a plot and bound themselves by an oath and under a curse neither to eat nor drink till they had done away with Paul. 
 
 
 
@@ -301,7 +301,7 @@ There were more than forty [men of them], who formed this conspiracy [swearing t
 
 
 
-And they went to the chief priests and elders, saying, We have strictly bound ourselves by an oath _and_ under a curse not to taste any food until we have slain Paul. 
+And they went to the chief priests and elders, saying, We have strictly bound ourselves by an oath and under a curse not to taste any food until we have slain Paul. 
 
 
 
@@ -448,7 +448,7 @@ And he replied, The Jews have agreed to ask you to bring Paul down to the counci
 
 
 
-But do not yield to their persuasion, for more than forty of their men are lying in ambush waiting for him, having bound themselves by an oath _and_ under a curse neither to eat nor drink till they have killed him; and even now they are all ready, [just] waiting for your promise. 
+But do not yield to their persuasion, for more than forty of their men are lying in ambush waiting for him, having bound themselves by an oath and under a curse neither to eat nor drink till they have killed him; and even now they are all ready, [just] waiting for your promise. 
 
 
 

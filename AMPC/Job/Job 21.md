@@ -91,7 +91,7 @@ Allow me, and I also will speak; and after I have spoken, mock on.
 
 
 
-As for me, is my complaint to man _or_ of him? And why should I not be impatient _and_ my spirit be troubled? 
+As for me, is my complaint to man or of him? And why should I not be impatient and my spirit be troubled? 
 
 
 
@@ -133,7 +133,7 @@ Look at me and be astonished (appalled); and lay your hand upon your mouth.
 
 
 
-Even when I remember, I am troubled _and_ afraid; horror _and_ trembling take hold of my flesh. 
+Even when I remember, I am troubled and afraid; horror and trembling take hold of my flesh. 
 
 
 
@@ -196,7 +196,7 @@ Their children are established with them in their sight, and their offspring bef
 
 
 
-Their houses are safe _and_ in peace, without fear; neither is the rod of God upon them. 
+Their houses are safe and in peace, without fear; neither is the rod of God upon them. 
 
 
 
@@ -259,7 +259,7 @@ They send forth their little ones like a flock, and their children skip about.
 
 
 
-They themselves lift up their voices _and_ sing to the tambourine and the lyre and rejoice to the sound of the pipe. 
+They themselves lift up their voices and sing to the tambourine and the lyre and rejoice to the sound of the pipe. 
 
 
 
@@ -280,7 +280,7 @@ They themselves lift up their voices _and_ sing to the tambourine and the lyre a
 
 
 
-They spend their days in prosperity and go down to Sheol (the unseen state) in a moment _and_ peacefully. 
+They spend their days in prosperity and go down to Sheol (the unseen state) in a moment and peacefully. 
 
 
 
@@ -364,7 +364,7 @@ But notice, [you say] the prosperity of the wicked is not in their power; the my
 
 
 
-How often [then] is it that the lamp of the wicked is put out? That their calamity comes upon them? That God distributes pains _and_ sorrows to them in His anger? 
+How often [then] is it that the lamp of the wicked is put out? That their calamity comes upon them? That God distributes pains and sorrows to them in His anger? 
 
 
 
@@ -385,7 +385,7 @@ How often [then] is it that the lamp of the wicked is put out? That their calami
 
 
 
-That they are like stubble before the wind and like chaff that the storm steals _and_ carries away? 
+That they are like stubble before the wind and like chaff that the storm steals and carries away? 
 
 
 
@@ -406,7 +406,7 @@ That they are like stubble before the wind and like chaff that the storm steals 
 
 
 
-You say, God lays up [the punishment of the wicked man's] iniquity for his children. Let Him recompense it to the man himself, that he may know _and_ feel it. 
+You say, God lays up [the punishment of the wicked man's] iniquity for his children. Let Him recompense it to the man himself, that he may know and feel it. 
 
 
 
@@ -448,7 +448,7 @@ Let his own eyes see his destruction, and let him drink of the wrath of the Almi
 
 
 
-For what pleasure _or_ interest has a man in his house _and_ family after he is dead, when the number of his months is cut off? 
+For what pleasure or interest has a man in his house and family after he is dead, when the number of his months is cut off? 
 
 
 
@@ -511,7 +511,7 @@ One dies in his full strength, being wholly at ease and quiet;
 
 
 
-His pails are full of milk [his veins are filled with nourishment], and the marrow of his bones is fresh _and_ moist, 
+His pails are full of milk [his veins are filled with nourishment], and the marrow of his bones is fresh and moist, 
 
 
 
@@ -532,7 +532,7 @@ His pails are full of milk [his veins are filled with nourishment], and the marr
 
 
 
-Whereas another man dies in bitterness of soul and never tastes of pleasure _or_ good fortune. 
+Whereas another man dies in bitterness of soul and never tastes of pleasure or good fortune. 
 
 
 
@@ -574,7 +574,7 @@ They lie down alike in the dust, and the worm spreads a covering over them.
 
 
 
-Behold, I know your thoughts _and_ plans and the devices with which you would wrong me. 
+Behold, I know your thoughts and plans and the devices with which you would wrong me. 
 
 
 
@@ -595,7 +595,7 @@ Behold, I know your thoughts _and_ plans and the devices with which you would wr
 
 
 
-For you say, Where is the house of the rich _and_ liberal prince [meaning me]? And where is the tent in which the wicked [Job] dwelt? 
+For you say, Where is the house of the rich and liberal prince [meaning me]? And where is the tent in which the wicked [Job] dwelt? 
 
 
 
@@ -616,7 +616,7 @@ For you say, Where is the house of the rich _and_ liberal prince [meaning me]? A
 
 
 
-Have you not asked those who travel this way, and do you not accept their testimony _and_ evidences-- 
+Have you not asked those who travel this way, and do you not accept their testimony and evidences-- 
 
 
 
@@ -637,7 +637,7 @@ Have you not asked those who travel this way, and do you not accept their testim
 
 
 
-That the evil man is [now] spared in the day of calamity _and_ destruction, and they are led forth _and_ away on the day of [God's] wrath? 
+That the evil man is [now] spared in the day of calamity and destruction, and they are led forth and away on the day of [God's] wrath? 
 
 
 
@@ -721,4 +721,4 @@ The clods of the valley are sweet to him, and every man shall follow him to a gr
 
 
 
-How then can you comfort me with empty _and_ futile words, since in your replies there lurks falsehood?
+How then can you comfort me with empty and futile words, since in your replies there lurks falsehood?

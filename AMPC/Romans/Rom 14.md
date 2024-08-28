@@ -28,7 +28,7 @@ next: ['Rom 15']
 
 
 
-As for the man who is a weak believer, welcome him [into your fellowship], but not to criticize his opinions _or_ pass judgment on his scruples _or_ perplex him with discussions. 
+As for the man who is a weak believer, welcome him [into your fellowship], but not to criticize his opinions or pass judgment on his scruples or perplex him with discussions. 
 
 
 
@@ -70,7 +70,7 @@ One [man's faith permits him to] believe he may eat anything, while a weaker one
 
 
 
-Let not him who eats look down on _or_ despise him who abstains, and let not him who abstains criticize _and_ pass judgment on him who eats; for God has accepted _and_ welcomed him. 
+Let not him who eats look down on or despise him who abstains, and let not him who abstains criticize and pass judgment on him who eats; for God has accepted and welcomed him. 
 
 
 
@@ -91,7 +91,7 @@ Let not him who eats look down on _or_ despise him who abstains, and let not him
 
 
 
-Who are you to pass judgment on _and_ censure another's household servant? It is before his own master that he stands or falls. And he shall stand _and_ be upheld, for the Master (the Lord) is mighty to support him _and_ make him stand. 
+Who are you to pass judgment on and censure another's household servant? It is before his own master that he stands or falls. And he shall stand and be upheld, for the Master (the Lord) is mighty to support him and make him stand. 
 
 
 
@@ -217,7 +217,7 @@ For Christ died and lived again for this very purpose, that He might be Lord bot
 
 
 
-Why do you criticize _and_ pass judgment on your brother? Or you, why do you look down upon _or_ despise your brother? For we shall all stand before the judgment seat of God. 
+Why do you criticize and pass judgment on your brother? Or you, why do you look down upon or despise your brother? For we shall all stand before the judgment seat of God. 
 
 
 
@@ -280,7 +280,7 @@ And so each of us shall give an account of himself [give an answer in reference 
 
 
 
-Then let us no more criticize _and_ blame _and_ pass judgment on one another, but rather decide _and_ endeavor never to put a stumbling block _or_ an obstacle or a hindrance in the way of a brother. 
+Then let us no more criticize and blame and pass judgment on one another, but rather decide and endeavor never to put a stumbling block or an obstacle or a hindrance in the way of a brother. 
 
 
 
@@ -322,7 +322,7 @@ I know and am convinced (persuaded) as one in the Lord Jesus, that nothing is [f
 
 
 
-But if your brother is being pained _or_ his feelings hurt _or_ if he is being injured by what you eat, [then] you are no longer walking in love. [You have ceased to be living and conducting yourself by the standard of love toward him.] Do not let what you eat hurt _or_ cause the ruin of one for whom Christ died! 
+But if your brother is being pained or his feelings hurt or if he is being injured by what you eat, [then] you are no longer walking in love. [You have ceased to be living and conducting yourself by the standard of love toward him.] Do not let what you eat hurt or cause the ruin of one for whom Christ died! 
 
 
 
@@ -385,7 +385,7 @@ Do not therefore let what seems good to you be considered an evil thing [by some
 
 
 
-He who serves Christ in this way is acceptable _and_ pleasing to God and is approved by men. 
+He who serves Christ in this way is acceptable and pleasing to God and is approved by men. 
 
 
 
@@ -406,7 +406,7 @@ He who serves Christ in this way is acceptable _and_ pleasing to God and is appr
 
 
 
-So let us then definitely aim for _and_ eagerly pursue what makes for harmony and for mutual upbuilding (edification and development) of one another. 
+So let us then definitely aim for and eagerly pursue what makes for harmony and for mutual upbuilding (edification and development) of one another. 
 
 
 
@@ -427,7 +427,7 @@ So let us then definitely aim for _and_ eagerly pursue what makes for harmony an
 
 
 
-You must not, for the sake of food, undo _and_ break down and destroy the work of God! Everything is indeed [ceremonially] clean _and_ pure, but it is wrong for anyone to hurt the conscience of others _or_ to make them fall by what he eats. 
+You must not, for the sake of food, undo and break down and destroy the work of God! Everything is indeed [ceremonially] clean and pure, but it is wrong for anyone to hurt the conscience of others or to make them fall by what he eats. 
 
 
 
@@ -448,7 +448,7 @@ You must not, for the sake of food, undo _and_ break down and destroy the work o
 
 
 
-The right thing is to eat no meat or drink no wine [at all], or [do anything else] if it makes your brother stumble _or_ hurts his conscience _or_ offends or weakens him. 
+The right thing is to eat no meat or drink no wine [at all], or [do anything else] if it makes your brother stumble or hurts his conscience or offends or weakens him. 
 
 
 
@@ -490,4 +490,4 @@ Your personal convictions [on such matters]--exercise [them] as in God's presenc
 
 
 
-But the man who has doubts (misgivings, an uneasy conscience) about eating, and then eats [perhaps because of you], stands condemned [before God], because he is not true to his convictions _and_ he does not act from faith. For whatever does not originate _and_ proceed from faith is sin [whatever is done without a conviction of its approval by God is sinful].
+But the man who has doubts (misgivings, an uneasy conscience) about eating, and then eats [perhaps because of you], stands condemned [before God], because he is not true to his convictions and he does not act from faith. For whatever does not originate and proceed from faith is sin [whatever is done without a conviction of its approval by God is sinful].

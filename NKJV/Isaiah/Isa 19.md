@@ -37,22 +37,22 @@ The fishermen also will mourn; All those will lament who cast hooks into the Riv
 Moreover those who work in fine flax And those who weave fine fabric will be ashamed; 
 
 ###### 10 
-And its foundations will be broken. All who make wages _will be_ troubled of soul. 
+And its foundations will be broken. All who make wages will be troubled of soul. 
 
 ###### 11 
-Surely the princes of Zoan _are_ fools; Pharaoh's wise counselors give foolish counsel. How do you say to Pharaoh, "I _am_ the son of the wise, The son of ancient kings?" 
+Surely the princes of Zoan are fools; Pharaoh's wise counselors give foolish counsel. How do you say to Pharaoh, "I am the son of the wise, The son of ancient kings?" 
 
 ###### 12 
-Where _are_ they? Where are your wise men? Let them tell you now, And let them know what the Lord of hosts has purposed against Egypt. 
+Where are they? Where are your wise men? Let them tell you now, And let them know what the Lord of hosts has purposed against Egypt. 
 
 ###### 13 
-The princes of Zoan have become fools; The princes of Noph are deceived; They have also deluded Egypt, _Those who are_ the mainstay of its tribes. 
+The princes of Zoan have become fools; The princes of Noph are deceived; They have also deluded Egypt, Those who are the mainstay of its tribes. 
 
 ###### 14 
 The Lord has mingled a perverse spirit in her midst; And they have caused Egypt to err in all her work, As a drunken man staggers in his vomit. 
 
 ###### 15 
-Neither will there be _any_ work for Egypt, Which the head or tail, Palm branch or bulrush, may do. 
+Neither will there be any work for Egypt, Which the head or tail, Palm branch or bulrush, may do. 
 
 ###### 16 
 In that day Egypt will be like women, and will be afraid and fear because of the waving of the hand of the Lord of hosts, which He waves over it. 
@@ -72,10 +72,10 @@ In that day there will be an altar to the Lord in the midst of the land of Egypt
 And it will be for a sign and for a witness to the Lord of hosts in the land of Egypt; for they will cry to the Lord because of the oppressors, and He will send them a Savior and a Mighty One, and He will deliver them. 
 
 ###### 21 
-Then the Lord will be known to Egypt, and the Egyptians will know the Lord in that day, and will make sacrifice and offering; yes, they will make a vow to the Lord and perform _it._ 
+Then the Lord will be known to Egypt, and the Egyptians will know the Lord in that day, and will make sacrifice and offering; yes, they will make a vow to the Lord and perform it. 
 
 ###### 22 
-And the Lord will strike Egypt, He will strike and heal _it;_ they will return to the Lord, and He will be entreated by them and heal them. 
+And the Lord will strike Egypt, He will strike and heal it; they will return to the Lord, and He will be entreated by them and heal them. 
 
 ###### 23 
 In that day there will be a highway from Egypt to Assyria, and the Assyrian will come into Egypt and the Egyptian into Assyria, and the Egyptians will serve with the Assyrians. 
@@ -84,4 +84,4 @@ In that day there will be a highway from Egypt to Assyria, and the Assyrian will
 In that day Israel will be one of three with Egypt and Assyria--a blessing in the midst of the land, 
 
 ###### 25 
-whom the Lord of hosts shall bless, saying, "Blessed _is_ Egypt My people, and Assyria the work of My hands, and Israel My inheritance."
+whom the Lord of hosts shall bless, saying, "Blessed is Egypt My people, and Assyria the work of My hands, and Israel My inheritance."

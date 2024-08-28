@@ -70,7 +70,7 @@ What you know, I also know; I am not inferior to you.
 
 
 
-Surely I wish to speak to the Almighty, and I desire to argue _and_ reason my case with God [that He may explain the conflict between what I believe of Him and what I see of Him]. 
+Surely I wish to speak to the Almighty, and I desire to argue and reason my case with God [that He may explain the conflict between what I believe of Him and what I see of Him]. 
 
 
 
@@ -91,7 +91,7 @@ Surely I wish to speak to the Almighty, and I desire to argue _and_ reason my ca
 
 
 
-But you are forgers of lies [you defame my character most untruthfully]; you are all physicians of no value _and_ have no remedy to offer. 
+But you are forgers of lies [you defame my character most untruthfully]; you are all physicians of no value and have no remedy to offer. 
 
 
 
@@ -112,7 +112,7 @@ But you are forgers of lies [you defame my character most untruthfully]; you are
 
 
 
-Oh, that you would altogether hold your peace! Then you would evidence your wisdom _and_ you might pass for wise men. 
+Oh, that you would altogether hold your peace! Then you would evidence your wisdom and you might pass for wise men. 
 
 
 
@@ -196,7 +196,7 @@ Will you show partiality to Him [be unjust to me in order to gain favor with Him
 
 
 
-Would it be profitable for you if He should investigate your tactics [with me]? Or as one deceives _and_ mocks a man, do you deceive _and_ mock Him? 
+Would it be profitable for you if He should investigate your tactics [with me]? Or as one deceives and mocks a man, do you deceive and mock Him? 
 
 
 
@@ -322,7 +322,7 @@ Why should I take my flesh in my teeth and put my life in my hands [incurring th
 
 
 
-[I do it because, though He slay me, yet will I wait for and trust Him and] behold, He will slay me; I have no hope--nevertheless, I will maintain _and_ argue my ways before Him _and_ even to His face. 
+[I do it because, though He slay me, yet will I wait for and trust Him and] behold, He will slay me; I have no hope--nevertheless, I will maintain and argue my ways before Him and even to His face. 
 
 
 
@@ -343,7 +343,7 @@ Why should I take my flesh in my teeth and put my life in my hands [incurring th
 
 
 
-This will be my salvation, that a polluted _and_ godless man shall not come before Him. 
+This will be my salvation, that a polluted and godless man shall not come before Him. 
 
 
 
@@ -385,7 +385,7 @@ Listen diligently to my speech, and let my declaration be in your ears.
 
 
 
-Behold now, I have prepared my case; I know that I shall be justified _and_ vindicated. 
+Behold now, I have prepared my case; I know that I shall be justified and vindicated. 
 
 
 
@@ -406,7 +406,7 @@ Behold now, I have prepared my case; I know that I shall be justified _and_ vind
 
 
 
-Who is he who will argue against _and_ refute me? For then I would hold my peace and expire. 
+Who is he who will argue against and refute me? For then I would hold my peace and expire. 
 
 
 
@@ -490,7 +490,7 @@ Then [Lord] call and I will answer, or let me speak, and You answer me.
 
 
 
-How many are my iniquities and sins [that so much sorrow should come to me]? Make me recognize _and_ know my transgression and my sin. 
+How many are my iniquities and sins [that so much sorrow should come to me]? Make me recognize and know my transgression and my sin. 
 
 
 
@@ -532,7 +532,7 @@ Why do You hide Your face [as if offended] and alienate me as if I were Your ene
 
 
 
-Will You harass _and_ frighten a [poor, helpless] leaf driven to and fro, and will You pursue the chaff of the dry stubble? 
+Will You harass and frighten a [poor, helpless] leaf driven to and fro, and will You pursue the chaff of the dry stubble? 
 
 
 
@@ -553,7 +553,7 @@ Will You harass _and_ frighten a [poor, helpless] leaf driven to and fro, and wi
 
 
 
-For You write bitter things against me [in Your bill of indictment] and make me inherit _and_ be accountable now for the iniquities of my youth. 
+For You write bitter things against me [in Your bill of indictment] and make me inherit and be accountable now for the iniquities of my youth. 
 
 
 
@@ -574,7 +574,7 @@ For You write bitter things against me [in Your bill of indictment] and make me 
 
 
 
-You put my feet also in the stocks and observe critically all my paths; You set a circle _and_ limit around the soles of my feet [which I must not overstep]. 
+You put my feet also in the stocks and observe critically all my paths; You set a circle and limit around the soles of my feet [which I must not overstep]. 
 
 
 

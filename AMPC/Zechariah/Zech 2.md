@@ -91,7 +91,7 @@ And behold, the angel who talked with me went forth and another angel went out t
 
 
 
-And he said to the second angel, Run, speak to this young man, saying, Jerusalem shall be inhabited _and_ dwell as villages without walls, because of the multitude of people and livestock in it. 
+And he said to the second angel, Run, speak to this young man, saying, Jerusalem shall be inhabited and dwell as villages without walls, because of the multitude of people and livestock in it. 
 
 
 
@@ -175,7 +175,7 @@ Ho! Escape to Zion, you who dwell with the daughter of Babylon!
 
 
 
-For thus said the Lord of hosts, after [His] glory had sent me [His messenger] to the nations who plundered you--for he who touches you touches the apple _or_ pupil of His eye: 
+For thus said the Lord of hosts, after [His] glory had sent me [His messenger] to the nations who plundered you--for he who touches you touches the apple or pupil of His eye: 
 
 
 
@@ -280,4 +280,4 @@ And the Lord shall inherit Judah as His portion in the holy land and shall again
 
 
 
-Be still, all flesh, before the Lord, for He is aroused _and_ risen from His holy habitation.
+Be still, all flesh, before the Lord, for He is aroused and risen from His holy habitation.

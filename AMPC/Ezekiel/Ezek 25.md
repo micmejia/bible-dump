@@ -70,7 +70,7 @@ Son of man, set your face toward the Ammonites and prophesy against them.
 
 
 
-And say to the Ammonites, Hear the word of the Lord God, for thus says the Lord God: Because you said Aha! over My sanctuary when it was profaned and over the land of Israel when it was made desolate and over the house of Judah when it went into captivity _and_ exile, 
+And say to the Ammonites, Hear the word of the Lord God, for thus says the Lord God: Because you said Aha! over My sanctuary when it was profaned and over the land of Israel when it was made desolate and over the house of Judah when it went into captivity and exile, 
 
 
 
@@ -133,7 +133,7 @@ And I will make Rabbah [your chief city] a stable for camels and [the cities of]
 
 
 
-For thus says the Lord God: Because you have clapped your hands and stamped with the feet and rejoiced [in heart] with all the contempt, malice, _and_ spite that is in you against the land of Israel, 
+For thus says the Lord God: Because you have clapped your hands and stamped with the feet and rejoiced [in heart] with all the contempt, malice, and spite that is in you against the land of Israel, 
 
 
 
@@ -154,7 +154,7 @@ For thus says the Lord God: Because you have clapped your hands and stamped with
 
 
 
-Therefore behold, I have stretched out My hand against you and will hand you over for a prey _and_ a spoil to the nations, and I will cut you off from the peoples and will cause you to perish _and_ be lost out of the countries; I will destroy you. Then will you know (understand and realize) that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
+Therefore behold, I have stretched out My hand against you and will hand you over for a prey and a spoil to the nations, and I will cut you off from the peoples and will cause you to perish and be lost out of the countries; I will destroy you. Then will you know (understand and realize) that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
 
 
 
@@ -196,7 +196,7 @@ Thus says the Lord God: Because Moab says, as does Seir [Edom], Behold, the hous
 
 
 
-Therefore behold, I will lay open the flank of Moab from the cities, from its cities on its frontiers _and_ in every quarter, the glory of the country, Beth-jeshimoth, Baal-meon, and Kiriathaim. 
+Therefore behold, I will lay open the flank of Moab from the cities, from its cities on its frontiers and in every quarter, the glory of the country, Beth-jeshimoth, Baal-meon, and Kiriathaim. 
 
 
 
@@ -217,7 +217,7 @@ Therefore behold, I will lay open the flank of Moab from the cities, from its ci
 
 
 
-I will give it along with the children of Ammon to the people of the East for a possession, that it _and_ the children of Ammon may not be [any more seriously] remembered among the nations. 
+I will give it along with the children of Ammon to the people of the East for a possession, that it and the children of Ammon may not be [any more seriously] remembered among the nations. 
 
 
 
@@ -238,7 +238,7 @@ I will give it along with the children of Ammon to the people of the East for a 
 
 
 
-And I will execute judgments _and_ punishments upon Moab, and they shall know (understand and realize) that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
+And I will execute judgments and punishments upon Moab, and they shall know (understand and realize) that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
 
 
 
@@ -259,7 +259,7 @@ And I will execute judgments _and_ punishments upon Moab, and they shall know (u
 
 
 
-Thus says the Lord God: Because Edom has dealt against the house of Judah by taking vengeance and has greatly offended _and_ has become doubly guilty by taking revenge upon them, 
+Thus says the Lord God: Because Edom has dealt against the house of Judah by taking vengeance and has greatly offended and has become doubly guilty by taking revenge upon them, 
 
 
 
@@ -280,7 +280,7 @@ Thus says the Lord God: Because Edom has dealt against the house of Judah by tak
 
 
 
-Therefore thus says the Lord God: I will also stretch out My hand against Edom and will cut off _and_ root out man and beast from it, and I will make it desolate; from Teman even to Dedan they shall fall by the sword. 
+Therefore thus says the Lord God: I will also stretch out My hand against Edom and will cut off and root out man and beast from it, and I will make it desolate; from Teman even to Dedan they shall fall by the sword. 
 
 
 
@@ -322,7 +322,7 @@ And I will lay My vengeance upon Edom by the hand of My people Israel, and they 
 
 
 
-Thus says the Lord God: Because the Philistines have dealt revengefully and have taken vengeance contemptuously, with malice _and_ spite in their hearts, to destroy in perpetual enmity, 
+Thus says the Lord God: Because the Philistines have dealt revengefully and have taken vengeance contemptuously, with malice and spite in their hearts, to destroy in perpetual enmity, 
 
 
 
@@ -364,4 +364,4 @@ Therefore thus says the Lord God: Behold, I will stretch out My hand against the
 
 
 
-And I will execute great vengeance upon them with wrathful rebukes _and_ chastisements, and they shall know (understand and realize) that I am the Lord, when I lay My vengeance upon them.
+And I will execute great vengeance upon them with wrathful rebukes and chastisements, and they shall know (understand and realize) that I am the Lord, when I lay My vengeance upon them.

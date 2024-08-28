@@ -49,7 +49,7 @@ On the first day of the seventh month [on New Year's Day of the civil year], you
 
 
 
-And you shall offer a burnt offering for a sweet _and_ pleasing odor to the Lord: one young bull, one ram, and seven male lambs a year old without blemish. 
+And you shall offer a burnt offering for a sweet and pleasing odor to the Lord: one young bull, one ram, and seven male lambs a year old without blemish. 
 
 
 
@@ -133,7 +133,7 @@ And one male goat for a sin offering to make atonement for you.
 
 
 
-These are in addition to the burnt offering of the new moon and its cereal offering, and the daily burnt offering and its cereal offering, and their drink offerings, according to the ordinance for them, for a pleasant _and_ soothing fragrance, an offering made by fire to the Lord. 
+These are in addition to the burnt offering of the new moon and its cereal offering, and the daily burnt offering and its cereal offering, and their drink offerings, according to the ordinance for them, for a pleasant and soothing fragrance, an offering made by fire to the Lord. 
 
 
 
@@ -154,7 +154,7 @@ These are in addition to the burnt offering of the new moon and its cereal offer
 
 
 
-And you shall have on the tenth day of this seventh month a holy [summoned] assembly; [it is the great Day of Atonement, a day of humiliation] and you shall humble _and_ abase yourselves; you shall not do any work in it. 
+And you shall have on the tenth day of this seventh month a holy [summoned] assembly; [it is the great Day of Atonement, a day of humiliation] and you shall humble and abase yourselves; you shall not do any work in it. 
 
 
 
@@ -175,7 +175,7 @@ And you shall have on the tenth day of this seventh month a holy [summoned] asse
 
 
 
-But you shall offer a burnt offering to the Lord for a sweet _and_ soothing fragrance: one young bull, one ram, and seven male lambs a year old. See that they are without blemish. 
+But you shall offer a burnt offering to the Lord for a sweet and soothing fragrance: one young bull, one ram, and seven male lambs a year old. See that they are without blemish. 
 
 
 
@@ -280,7 +280,7 @@ And on the fifteenth day of the seventh month you shall have a holy [summoned] a
 
 
 
-And you shall offer a burnt offering, an offering made by fire, of a sweet _and_ pleasing fragrance to the Lord: thirteen young bulls, two rams, and fourteen male lambs a year old; they shall be without blemish. 
+And you shall offer a burnt offering, an offering made by fire, of a sweet and pleasing fragrance to the Lord: thirteen young bulls, two rams, and fourteen male lambs a year old; they shall be without blemish. 
 
 
 
@@ -364,7 +364,7 @@ Also one male goat for a sin offering, in addition to the continual burnt offeri
 
 
 
-And on the second day you shall offer twelve young bulls, two rams, fourteen male lambs a year old without spot _or_ blemish, 
+And on the second day you shall offer twelve young bulls, two rams, fourteen male lambs a year old without spot or blemish, 
 
 
 
@@ -553,7 +553,7 @@ And one male goat for a sin offering, besides the continual burnt offering, its 
 
 
 
-And on the fifth day nine bulls, two rams, and fourteen male lambs a year old without spot _or_ blemish, 
+And on the fifth day nine bulls, two rams, and fourteen male lambs a year old without spot or blemish, 
 
 
 
@@ -763,7 +763,7 @@ On the eighth day you shall have a solemn assembly; you shall do no servile work
 
 
 
-You shall offer a burnt offering, an offering made by fire, of a sweet _and_ pleasing fragrance to the Lord: one bull, one ram, seven male lambs a year old without blemish, 
+You shall offer a burnt offering, an offering made by fire, of a sweet and pleasing fragrance to the Lord: one bull, one ram, seven male lambs a year old without blemish, 
 
 
 

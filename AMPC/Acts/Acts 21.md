@@ -28,7 +28,7 @@ next: ['Acts 22']
 
 
 
-And when we had torn ourselves away from them _and_ withdrawn, we set sail and made a straight run to Cos, and on the following [day came] to Rhodes and from there to Patara. 
+And when we had torn ourselves away from them and withdrawn, we set sail and made a straight run to Cos, and on the following [day came] to Rhodes and from there to Patara. 
 
 
 
@@ -280,7 +280,7 @@ When we heard this, both we and the residents of that place pleaded with him not
 
 
 
-Then Paul replied, What do you mean by weeping and breaking my heart like this? For I hold myself in readiness not only to be arrested _and_ bound _and_ imprisoned at Jerusalem, but also [even] to die for the name of the Lord Jesus. 
+Then Paul replied, What do you mean by weeping and breaking my heart like this? For I hold myself in readiness not only to be arrested and bound and imprisoned at Jerusalem, but also [even] to die for the name of the Lord Jesus. 
 
 
 
@@ -364,7 +364,7 @@ And some of the disciples from Caesarea came with us, conducting us to the house
 
 
 
-When we arrived in Jerusalem, the brethren received _and_ welcomed us gladly. 
+When we arrived in Jerusalem, the brethren received and welcomed us gladly. 
 
 
 
@@ -427,7 +427,7 @@ After saluting them, Paul gave a detailed account of the things God had done amo
 
 
 
-And upon hearing it, they adored _and_ exalted _and_ praised _and_ thanked God. And they said to [Paul], You see, brother, how many thousands of believers there are among the Jews, and all of them are enthusiastic upholders of the [Mosaic] Law. 
+And upon hearing it, they adored and exalted and praised and thanked God. And they said to [Paul], You see, brother, how many thousands of believers there are among the Jews, and all of them are enthusiastic upholders of the [Mosaic] Law. 
 
 
 
@@ -448,7 +448,7 @@ And upon hearing it, they adored _and_ exalted _and_ praised _and_ thanked God. 
 
 
 
-Now they have been informed about you that you continually teach all the Jews who live among the Gentiles to turn back from _and_ forsake Moses, advising them not to circumcise their children or pay any attention to the observance of the [Mosaic] customs. 
+Now they have been informed about you that you continually teach all the Jews who live among the Gentiles to turn back from and forsake Moses, advising them not to circumcise their children or pay any attention to the observance of the [Mosaic] customs. 
 
 
 
@@ -532,7 +532,7 @@ Take these men and purify yourself along with them and pay their expenses [for t
 
 
 
-But with regard to the Gentiles who have believed (adhered to, trusted in, and relied on Christ), we have sent them a letter with our decision that they should keep themselves free from anything that has been sacrificed to idols and from [tasting] blood and [eating the meat of animals] which have been strangled and from all impurity _and_ sexual immorality. 
+But with regard to the Gentiles who have believed (adhered to, trusted in, and relied on Christ), we have sent them a letter with our decision that they should keep themselves free from anything that has been sacrificed to idols and from [tasting] blood and [eating the meat of animals] which have been strangled and from all impurity and sexual immorality. 
 
 
 
@@ -595,7 +595,7 @@ When the seven days were drawing to a close, some of the Jews from [the province
 
 
 
-Shouting, Men of Israel, help! [Help!] This is the man who is teaching everybody everywhere against the people and the Law and this place! Moreover, he has also [actually] brought Greeks into the temple; he has desecrated _and_ polluted this holy place! 
+Shouting, Men of Israel, help! [Help!] This is the man who is teaching everybody everywhere against the people and the Law and this place! Moreover, he has also [actually] brought Greeks into the temple; he has desecrated and polluted this holy place! 
 
 
 
@@ -637,7 +637,7 @@ For they had previously seen Trophimus the Ephesian in the city with Paul and th
 
 
 
-Then the whole city was aroused _and_ thrown into confusion, and the people rushed together; they laid hands on Paul and dragged him outside the temple, and immediately the gates were closed. 
+Then the whole city was aroused and thrown into confusion, and the people rushed together; they laid hands on Paul and dragged him outside the temple, and immediately the gates were closed. 
 
 
 
@@ -826,7 +826,7 @@ Are you not then [as I supposed] the Egyptian who not long ago stirred up a rebe
 
 
 
-Paul answered, I am a Jew, from Tarsus in Cilicia, a citizen of no insignificant _or_ undistinguished city. I beg you, allow me to address the people. 
+Paul answered, I am a Jew, from Tarsus in Cilicia, a citizen of no insignificant or undistinguished city. I beg you, allow me to address the people. 
 
 
 

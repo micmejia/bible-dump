@@ -91,7 +91,7 @@ And He said to the man who had the withered hand, Get up [and stand here] in the
 
 
 
-And He said to them, Is it lawful _and_ right on the Sabbath to do good or to do evil, to save life or to take it? But they kept silence. 
+And He said to them, Is it lawful and right on the Sabbath to do good or to do evil, to save life or to take it? But they kept silence. 
 
 
 
@@ -112,7 +112,7 @@ And He said to them, Is it lawful _and_ right on the Sabbath to do good or to do
 
 
 
-And He glanced around at them with vexation _and_ anger, grieved at the hardening of their hearts, and said to the man, Hold out your hand. He held it out, and his hand was [completely] restored. 
+And He glanced around at them with vexation and anger, grieved at the hardening of their hearts, and said to the man, Hold out your hand. He held it out, and his hand was [completely] restored. 
 
 
 
@@ -196,7 +196,7 @@ And from Jerusalem and Idumea and from beyond the Jordan and from about Tyre and
 
 
 
-And He told His disciples to have a little boat in [constant] readiness for Him because of the crowd, lest they press hard upon Him _and_ crush Him. 
+And He told His disciples to have a little boat in [constant] readiness for Him because of the crowd, lest they press hard upon Him and crush Him. 
 
 
 
@@ -217,7 +217,7 @@ And He told His disciples to have a little boat in [constant] readiness for Him 
 
 
 
-For He had healed so many that all who had distressing bodily diseases kept falling upon Him _and_ pressing upon Him in order that they might touch Him. 
+For He had healed so many that all who had distressing bodily diseases kept falling upon Him and pressing upon Him in order that they might touch Him. 
 
 
 
@@ -259,7 +259,7 @@ And the spirits, the unclean ones, as often as they might see Him, fell down bef
 
 
 
-And He charged them strictly _and_ severely under penalty again _and_ again that they should not make Him known. 
+And He charged them strictly and severely under penalty again and again that they should not make Him known. 
 
 
 
@@ -280,7 +280,7 @@ And He charged them strictly _and_ severely under penalty again _and_ again that
 
 
 
-And He went up on the hillside and called to Him [for Himself] those whom He wanted _and_ chose, and they came to Him. 
+And He went up on the hillside and called to Him [for Himself] those whom He wanted and chose, and they came to Him. 
 
 
 
@@ -322,7 +322,7 @@ And He appointed twelve to continue to be with Him, and that He might send them 
 
 
 
-And to have authority _and_ power to _heal the sick and to_ drive out demons: 
+And to have authority and power to heal the sick and to drive out demons: 
 
 
 
@@ -511,7 +511,7 @@ And He summoned them to Him and said to them in parables (illustrations or compa
 
 
 
-And if a kingdom is divided _and_ rebelling against itself, that kingdom cannot stand. 
+And if a kingdom is divided and rebelling against itself, that kingdom cannot stand. 
 
 
 
@@ -574,7 +574,7 @@ And if Satan has raised an insurrection against himself and is divided, he canno
 
 
 
-But no one can go into a strong man's house and ransack his household goods right and left _and_ seize them as plunder unless he first binds the strong man; then indeed he may [thoroughly] plunder his house. 
+But no one can go into a strong man's house and ransack his household goods right and left and seize them as plunder unless he first binds the strong man; then indeed he may [thoroughly] plunder his house. 
 
 
 
@@ -595,7 +595,7 @@ But no one can go into a strong man's house and ransack his household goods righ
 
 
 
-Truly _and_ solemnly I say to you, all sins will be forgiven the sons of men, and whatever abusive _and_ blasphemous things they utter; 
+Truly and solemnly I say to you, all sins will be forgiven the sons of men, and whatever abusive and blasphemous things they utter; 
 
 
 
@@ -616,7 +616,7 @@ Truly _and_ solemnly I say to you, all sins will be forgiven the sons of men, an
 
 
 
-But whoever speaks abusively against _or_ maliciously misrepresents the Holy Spirit can never get forgiveness, but is guilty of _and_ is in the grasp of an everlasting trespass. 
+But whoever speaks abusively against or maliciously misrepresents the Holy Spirit can never get forgiveness, but is guilty of and is in the grasp of an everlasting trespass. 
 
 
 
@@ -679,7 +679,7 @@ Then His mother and His brothers came and, standing outside, they sent word to H
 
 
 
-And a crowd was sitting around Him, and they said to Him, Your mother and Your brothers _and Your sisters_ are outside asking for You. 
+And a crowd was sitting around Him, and they said to Him, Your mother and Your brothers and Your sisters are outside asking for You. 
 
 
 

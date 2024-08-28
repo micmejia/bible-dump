@@ -18,19 +18,19 @@ In like manner, you married women, be submissive to your own husbands [subordina
 ###### 2 
 
 
-When they observe the pure _and_ modest way in which you conduct yourselves, together with your reverence [for your husband; you are to feel for him all that reverence includes: to respect, defer to, revere him--to honor, esteem, appreciate, prize, and, in the human sense, to adore him, that is, to admire, praise, be devoted to, deeply love, and enjoy your husband]. 
+When they observe the pure and modest way in which you conduct yourselves, together with your reverence [for your husband; you are to feel for him all that reverence includes: to respect, defer to, revere him--to honor, esteem, appreciate, prize, and, in the human sense, to adore him, that is, to admire, praise, be devoted to, deeply love, and enjoy your husband]. 
 
 
 ###### 3 
 
 
-Let not yours be the [merely] external adorning with [elaborate] interweaving _and_ knotting of the hair, the wearing of jewelry, or changes of clothes; 
+Let not yours be the [merely] external adorning with [elaborate] interweaving and knotting of the hair, the wearing of jewelry, or changes of clothes; 
 
 
 ###### 4 
 
 
-But let it be the inward adorning _and_ beauty of the hidden person of the heart, with the incorruptible _and_ unfading charm of a gentle and peaceful spirit, which [is not anxious or wrought up, but] is very precious in the sight of God. 
+But let it be the inward adorning and beauty of the hidden person of the heart, with the incorruptible and unfading charm of a gentle and peaceful spirit, which [is not anxious or wrought up, but] is very precious in the sight of God. 
 
 
 ###### 5 
@@ -48,19 +48,19 @@ It was thus that Sarah obeyed Abraham [following his guidance and acknowledging 
 ###### 7 
 
 
-In the same way you married men should live considerately with [your wives], with an intelligent recognition [of the marriage relation], honoring the woman as [physically] the weaker, but [realizing that you] are joint heirs of the grace (God's unmerited favor) of life, in order that your prayers may not be hindered _and_ cut off. [Otherwise you cannot pray effectively.] 
+In the same way you married men should live considerately with [your wives], with an intelligent recognition [of the marriage relation], honoring the woman as [physically] the weaker, but [realizing that you] are joint heirs of the grace (God's unmerited favor) of life, in order that your prayers may not be hindered and cut off. [Otherwise you cannot pray effectively.] 
 
 
 ###### 8 
 
 
-Finally, all [of you] should be of one _and_ the same mind (united in spirit), sympathizing [with one another], loving [each other] as brethren [of one household], compassionate _and_ courteous (tenderhearted and humble). 
+Finally, all [of you] should be of one and the same mind (united in spirit), sympathizing [with one another], loving [each other] as brethren [of one household], compassionate and courteous (tenderhearted and humble). 
 
 
 ###### 9 
 
 
-Never return evil for evil or insult for insult (scolding, tongue-lashing, berating), but on the contrary blessing [praying for their welfare, happiness, and protection, and truly pitying and loving them]. For _know that_ to this you have been called, that you may yourselves inherit a blessing [from God--that you may obtain a blessing as heirs, bringing welfare and happiness and protection]. 
+Never return evil for evil or insult for insult (scolding, tongue-lashing, berating), but on the contrary blessing [praying for their welfare, happiness, and protection, and truly pitying and loving them]. For know that to this you have been called, that you may yourselves inherit a blessing [from God--that you may obtain a blessing as heirs, bringing welfare and happiness and protection]. 
 
 
 ###### 10 
@@ -72,7 +72,7 @@ For let him who wants to enjoy life and see good days [good--whether apparent or
 ###### 11 
 
 
-Let him turn away from wickedness _and_ shun it, and let him do right. Let him search for peace (harmony; undisturbedness from fears, agitating passions, and moral conflicts) and seek it eagerly. [Do not merely desire peaceful relations with God, with your fellowmen, and with yourself, but pursue, go after them!] 
+Let him turn away from wickedness and shun it, and let him do right. Let him search for peace (harmony; undisturbedness from fears, agitating passions, and moral conflicts) and seek it eagerly. [Do not merely desire peaceful relations with God, with your fellowmen, and with yourself, but pursue, go after them!] 
 
 
 ###### 12 
@@ -90,7 +90,7 @@ Now who is there to hurt you if you are zealous followers of that which is good?
 ###### 14 
 
 
-But even in case you should suffer for the sake of righteousness, [you are] blessed (happy, to be envied). Do not dread _or_ be afraid of their threats, nor be disturbed [by their opposition]. 
+But even in case you should suffer for the sake of righteousness, [you are] blessed (happy, to be envied). Do not dread or be afraid of their threats, nor be disturbed [by their opposition]. 
 
 
 ###### 15 
@@ -102,7 +102,7 @@ But in your hearts set Christ apart as holy [and acknowledge Him] as Lord. Alway
 ###### 16 
 
 
-[And see to it that] your conscience is entirely clear (unimpaired), so that, when you are falsely accused as evildoers, those who threaten you abusively _and_ revile your right behavior in Christ may come to be ashamed [of slandering your good lives]. 
+[And see to it that] your conscience is entirely clear (unimpaired), so that, when you are falsely accused as evildoers, those who threaten you abusively and revile your right behavior in Christ may come to be ashamed [of slandering your good lives]. 
 
 
 ###### 17 

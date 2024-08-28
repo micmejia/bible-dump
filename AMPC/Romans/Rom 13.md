@@ -49,7 +49,7 @@ Let every person be loyally subject to the governing (civil) authorities. For th
 
 
 
-Therefore he who resists _and_ sets himself up against the authorities resists what God has appointed _and_ arranged [in divine order]. And those who resist will bring down judgment upon themselves [receiving the penalty due them]. 
+Therefore he who resists and sets himself up against the authorities resists what God has appointed and arranged [in divine order]. And those who resist will bring down judgment upon themselves [receiving the penalty due them]. 
 
 
 
@@ -70,7 +70,7 @@ Therefore he who resists _and_ sets himself up against the authorities resists w
 
 
 
-For civil authorities are not a terror to [people of] good conduct, but to [those of] bad behavior. Would you have no dread of him who is in authority? Then do what is right and you will receive his approval _and_ commendation. 
+For civil authorities are not a terror to [people of] good conduct, but to [those of] bad behavior. Would you have no dread of him who is in authority? Then do what is right and you will receive his approval and commendation. 
 
 
 
@@ -91,7 +91,7 @@ For civil authorities are not a terror to [people of] good conduct, but to [thos
 
 
 
-For he is God's servant for your good. But if you do wrong, [you should dread him and] be afraid, for he does not bear _and_ wear the sword for nothing. He is God's servant to execute His wrath (punishment, vengeance) on the wrongdoer. 
+For he is God's servant for your good. But if you do wrong, [you should dread him and] be afraid, for he does not bear and wear the sword for nothing. He is God's servant to execute His wrath (punishment, vengeance) on the wrongdoer. 
 
 
 
@@ -112,7 +112,7 @@ For he is God's servant for your good. But if you do wrong, [you should dread hi
 
 
 
-Therefore one must be subject, not only to avoid God's wrath _and_ escape punishment, but also as a matter of principle _and_ for the sake of conscience. 
+Therefore one must be subject, not only to avoid God's wrath and escape punishment, but also as a matter of principle and for the sake of conscience. 
 
 
 
@@ -175,7 +175,7 @@ Render to all men their dues. [Pay] taxes to whom taxes are due, revenue to whom
 
 
 
-Keep out of debt _and_ owe no man anything, except to love one another; for he who loves his neighbor [who practices loving others] has fulfilled the Law [relating to one's fellowmen, meeting all its requirements]. 
+Keep out of debt and owe no man anything, except to love one another; for he who loves his neighbor [who practices loving others] has fulfilled the Law [relating to one's fellowmen, meeting all its requirements]. 
 
 
 
@@ -217,7 +217,7 @@ The commandments, You shall not commit adultery, You shall not kill, You shall n
 
 
 
-Love does no wrong to one's neighbor [it never hurts anybody]. Therefore love meets all the requirements _and_ is the fulfilling of the Law. 
+Love does no wrong to one's neighbor [it never hurts anybody]. Therefore love meets all the requirements and is the fulfilling of the Law. 
 
 
 
@@ -259,7 +259,7 @@ Besides this you know what [a critical] hour this is, how it is high time now fo
 
 
 
-The night is far gone and the day is almost here. Let us then drop (fling away) the works _and_ deeds of darkness and put on the [full] armor of light. 
+The night is far gone and the day is almost here. Let us then drop (fling away) the works and deeds of darkness and put on the [full] armor of light. 
 
 
 
@@ -280,7 +280,7 @@ The night is far gone and the day is almost here. Let us then drop (fling away) 
 
 
 
-Let us live _and_ conduct ourselves honorably _and_ becomingly as in the [open light of] day, not in reveling (carousing) and drunkenness, not in immorality and debauchery (sensuality and licentiousness), not in quarreling and jealousy. 
+Let us live and conduct ourselves honorably and becomingly as in the [open light of] day, not in reveling (carousing) and drunkenness, not in immorality and debauchery (sensuality and licentiousness), not in quarreling and jealousy. 
 
 
 

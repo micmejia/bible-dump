@@ -112,7 +112,7 @@ And he fell to the ground. Then he heard a voice saying to him, Saul, Saul, why 
 
 
 
-And Saul said, Who are You, Lord? And He said, I am Jesus, Whom you are persecuting. _It is dangerous and it will turn out badly for you to keep kicking against the goad [to offer vain and perilous resistance]._ 
+And Saul said, Who are You, Lord? And He said, I am Jesus, Whom you are persecuting. It is dangerous and it will turn out badly for you to keep kicking against the goad [to offer vain and perilous resistance]. 
 
 
 
@@ -133,7 +133,7 @@ And Saul said, Who are You, Lord? And He said, I am Jesus, Whom you are persecut
 
 
 
-_Trembling and astonished he asked, Lord, what do You desire me to do? The Lord said to him_, But arise and go into the city, and you will be told what you must do. 
+Trembling and astonished he asked, Lord, what do You desire me to do? The Lord said to him, But arise and go into the city, and you will be told what you must do. 
 
 
 
@@ -259,7 +259,7 @@ And the Lord said to him, Get up and go to the street called Straight and ask at
 
 
 
-And he has seen _in a vision_ a man named Ananias enter and lay his hands on him so that he might regain his sight. 
+And he has seen in a vision a man named Ananias enter and lay his hands on him so that he might regain his sight. 
 
 
 
@@ -280,7 +280,7 @@ And he has seen _in a vision_ a man named Ananias enter and lay his hands on him
 
 
 
-But Ananias answered, Lord, I have heard many people tell about this man, especially how much evil _and_ what great suffering he has brought on Your saints at Jerusalem; 
+But Ananias answered, Lord, I have heard many people tell about this man, especially how much evil and what great suffering he has brought on Your saints at Jerusalem; 
 
 
 
@@ -343,7 +343,7 @@ But the Lord said to him, Go, for this man is a chosen instrument of Mine to bea
 
 
 
-For I will make clear to him how much he will be afflicted _and_ must endure _and_ suffer for My name's sake. 
+For I will make clear to him how much he will be afflicted and must endure and suffer for My name's sake. 
 
 
 
@@ -448,7 +448,7 @@ And immediately in the synagogues he proclaimed Jesus, saying, He is the Son of 
 
 
 
-And all who heard him were amazed and said, Is not this the very man who harassed _and_ overthrew _and_ destroyed in Jerusalem those who called upon this Name? And he has come here for the express purpose of arresting them _and_ bringing them in chains before the chief priests. 
+And all who heard him were amazed and said, Is not this the very man who harassed and overthrew and destroyed in Jerusalem those who called upon this Name? And he has come here for the express purpose of arresting them and bringing them in chains before the chief priests. 
 
 
 
@@ -469,7 +469,7 @@ And all who heard him were amazed and said, Is not this the very man who harasse
 
 
 
-But Saul increased all the more in strength, and continued to confound _and_ put to confusion the Jews who lived in Damascus by comparing _and_ examining evidence _and_ proving that Jesus is the Christ (the Messiah). 
+But Saul increased all the more in strength, and continued to confound and put to confusion the Jews who lived in Damascus by comparing and examining evidence and proving that Jesus is the Christ (the Messiah). 
 
 
 
@@ -532,7 +532,7 @@ But [the knowledge of] their plot was made known to Saul. They were guarding the
 
 
 
-But his disciples took him at night and let him down through the [city's] wall, lowering him in a basket _or_ hamper. 
+But his disciples took him at night and let him down through the [city's] wall, lowering him in a basket or hamper. 
 
 
 
@@ -574,7 +574,7 @@ And when he had arrived in Jerusalem, he tried to associate himself with the dis
 
 
 
-However, Barnabas took him and brought him to the apostles, and he explained to them how along the way he had seen the Lord, Who spoke to him, and how at Damascus he had preached freely _and_ confidently _and_ courageously in the name of Jesus. 
+However, Barnabas took him and brought him to the apostles, and he explained to them how along the way he had seen the Lord, Who spoke to him, and how at Damascus he had preached freely and confidently and courageously in the name of Jesus. 
 
 
 
@@ -616,7 +616,7 @@ So he went in and out [as one] among them at Jerusalem,
 
 
 
-Preaching freely _and_ confidently _and_ boldly in the name of the Lord. And he spoke and discussed with _and_ disputed against the Hellenists (the Grecian Jews), but they were seeking to slay him. 
+Preaching freely and confidently and boldly in the name of the Lord. And he spoke and discussed with and disputed against the Hellenists (the Grecian Jews), but they were seeking to slay him. 
 
 
 
@@ -658,7 +658,7 @@ And when the brethren found it out, they brought him down to Caesarea and sent h
 
 
 
-So the church throughout the whole of Judea and Galilee and Samaria had peace and was edified [growing in wisdom, virtue, and piety] and walking in the respect _and_ reverential fear of the Lord and in the consolation _and_ exhortation of the Holy Spirit, continued to increase _and_ was multiplied. 
+So the church throughout the whole of Judea and Galilee and Samaria had peace and was edified [growing in wisdom, virtue, and piety] and walking in the respect and reverential fear of the Lord and in the consolation and exhortation of the Holy Spirit, continued to increase and was multiplied. 
 
 
 
@@ -847,7 +847,7 @@ So Peter [immediately] rose and accompanied them. And when he had arrived, they 
 
 
 
-But Peter put them all out [of the room] and knelt down and prayed; then turning to the body he said, Tabitha, get up! And she opened her eyes; and when she saw Peter, she raised herself _and_ sat upright. 
+But Peter put them all out [of the room] and knelt down and prayed; then turning to the body he said, Tabitha, get up! And she opened her eyes; and when she saw Peter, she raised herself and sat upright. 
 
 
 

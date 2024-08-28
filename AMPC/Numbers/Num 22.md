@@ -70,7 +70,7 @@ And Balak [the king of Moab] son of Zippor saw all that Israel had done to the A
 
 
 
-And Moab was terrified at the people _and_ full of dread, because they were many. Moab was distressed _and_ overcome with fear because of the Israelites. 
+And Moab was terrified at the people and full of dread, because they were many. Moab was distressed and overcome with fear because of the Israelites. 
 
 
 
@@ -112,7 +112,7 @@ And Moab said to the elders of Midian, Now will this multitude lick up all that 
 
 
 
-Sent messengers to Balaam [a foreteller of events] son of Beor at Pethor, which is by the [Euphrates] River, even to the land of the children of his people, to say to him, There is a people come out from Egypt; behold, they cover the face of the earth and they have settled down _and_ dwell opposite me. 
+Sent messengers to Balaam [a foreteller of events] son of Beor at Pethor, which is by the [Euphrates] River, even to the land of the children of his people, to say to him, There is a people come out from Egypt; behold, they cover the face of the earth and they have settled down and dwell opposite me. 
 
 
 
@@ -616,7 +616,7 @@ And the Lord opened the mouth of the donkey, and she said to Balaam, What have I
 
 
 
-And Balaam said to the donkey, Because you have ridiculed _and_ provoked me! I wish there were a sword in my hand, for now I would kill you! 
+And Balaam said to the donkey, Because you have ridiculed and provoked me! I wish there were a sword in my hand, for now I would kill you! 
 
 
 
@@ -679,7 +679,7 @@ Then the Lord opened Balaam's eyes, and he saw the Angel of the Lord standing in
 
 
 
-And the Angel of the Lord said to him, Why have you struck your donkey these three times? See, I came out to stand against _and_ resist you, for your behavior is willfully obstinate _and_ contrary before Me. 
+And the Angel of the Lord said to him, Why have you struck your donkey these three times? See, I came out to stand against and resist you, for your behavior is willfully obstinate and contrary before Me. 
 
 
 

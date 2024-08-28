@@ -27,7 +27,7 @@ up: ['Habakkuk']
 
 
 
-A prayer of Habakkuk the prophet, set to wild, enthusiastic, _and_ triumphal music. 
+A prayer of Habakkuk the prophet, set to wild, enthusiastic, and triumphal music. 
 
 
 
@@ -48,7 +48,7 @@ A prayer of Habakkuk the prophet, set to wild, enthusiastic, _and_ triumphal mus
 
 
 
-O Lord, I have heard the report of You and was afraid. O Lord, revive Your work in the midst of the years, in the midst of the years make [Yourself] known! In wrath [earnestly] remember love, pity, _and_ mercy. 
+O Lord, I have heard the report of You and was afraid. O Lord, revive Your work in the midst of the years, in the midst of the years make [Yourself] known! In wrath [earnestly] remember love, pity, and mercy. 
 
 
 
@@ -132,7 +132,7 @@ Before Him went the pestilence [as in Egypt], and burning plague followed His fe
 
 
 
-He stood and measured the earth; He looked and shook the nations, and the eternal mountains were scattered and the perpetual hills bowed low. His ways are everlasting _and_ His goings are of old. 
+He stood and measured the earth; He looked and shook the nations, and the eternal mountains were scattered and the perpetual hills bowed low. His ways are everlasting and His goings are of old. 
 
 
 
@@ -174,7 +174,7 @@ I [Habakkuk, in vision] saw the tents of Cushan [probably Ethiopia] in afflictio
 
 
 
-Were You displeased with the rivers, O Lord? Or was Your anger against the rivers [You divided]? Was Your wrath against the [Red] Sea, that You rode [before] upon Your horses and Your chariots of victory _and_ deliverance? 
+Were You displeased with the rivers, O Lord? Or was Your anger against the rivers [You divided]? Was Your wrath against the [Red] Sea, that You rode [before] upon Your horses and Your chariots of victory and deliverance? 
 
 
 
@@ -195,7 +195,7 @@ Were You displeased with the rivers, O Lord? Or was Your anger against the river
 
 
 
-Your bow was made quite bare; sworn to the tribes [of Israel] by Your sure word were the rods of chastisement, scourges, _and_ calamities. Selah [pause, and calmly think of that]! With rivers You cleaved the earth [bringing forth waters in dry places]. 
+Your bow was made quite bare; sworn to the tribes [of Israel] by Your sure word were the rods of chastisement, scourges, and calamities. Selah [pause, and calmly think of that]! With rivers You cleaved the earth [bringing forth waters in dry places]. 
 
 
 
@@ -216,7 +216,7 @@ Your bow was made quite bare; sworn to the tribes [of Israel] by Your sure word 
 
 
 
-The mountains saw You; they trembled _and_ writhed [as if in pain]. The overflowing of the water passed by [as at the deluge]; the deep uttered its voice and lifted its hands on high. 
+The mountains saw You; they trembled and writhed [as if in pain]. The overflowing of the water passed by [as at the deluge]; the deep uttered its voice and lifted its hands on high. 
 
 
 
@@ -258,7 +258,7 @@ The sun and moon stood back [as before Joshua] in their habitation at the light 
 
 
 
-You marched through the land in indignation; You trampled _and_ threshed the nations in anger. 
+You marched through the land in indignation; You trampled and threshed the nations in anger. 
 
 
 
@@ -279,7 +279,7 @@ You marched through the land in indignation; You trampled _and_ threshed the nat
 
 
 
-You went forth _and_ have come for the salvation of Your people, for the deliverance _and_ victory of Your anointed [people Israel]; You smote the head of the house of the wicked, laying bare the foundation even to the neck. Selah [pause, and calmly think of that]! 
+You went forth and have come for the salvation of Your people, for the deliverance and victory of Your anointed [people Israel]; You smote the head of the house of the wicked, laying bare the foundation even to the neck. Selah [pause, and calmly think of that]! 
 
 
 
@@ -321,7 +321,7 @@ You pierced with his own arrows the head of [the enemy's] hordes; they came out 
 
 
 
-You have trodden the sea with Your horses, [beside] the heap of great _and_ surging waters. 
+You have trodden the sea with Your horses, [beside] the heap of great and surging waters. 
 
 
 
@@ -342,7 +342,7 @@ You have trodden the sea with Your horses, [beside] the heap of great _and_ surg
 
 
 
-I heard and my [whole inner self] trembled; my lips quivered at the sound. Rottenness enters into my bones and under me [down to my feet]; I tremble. I will wait quietly for the day of trouble and distress when there shall come up against [my] people him who is about to invade _and_ oppress them. 
+I heard and my [whole inner self] trembled; my lips quivered at the sound. Rottenness enters into my bones and under me [down to my feet]; I tremble. I will wait quietly for the day of trouble and distress when there shall come up against [my] people him who is about to invade and oppress them. 
 
 
 
@@ -405,4 +405,4 @@ Yet I will rejoice in the Lord; I will exult in the [victorious] God of my salva
 
 
 
-The Lord God is my Strength, my personal bravery, _and_ my invincible army; He makes my feet like hinds' feet and will make me to walk [not to stand still in terror, but to walk] _and_ make [spiritual] progress upon my high places [of trouble, suffering, or responsibility]!
+The Lord God is my Strength, my personal bravery, and my invincible army; He makes my feet like hinds' feet and will make me to walk [not to stand still in terror, but to walk] and make [spiritual] progress upon my high places [of trouble, suffering, or responsibility]!

@@ -13,16 +13,16 @@ next: ['Josh 8']
 But the children of Israel committed a trespass regarding the accursed things, for Achan the son of Carmi, the son of Zabdi, the son of Zerah, of the tribe of Judah, took of the accursed things; so the anger of the Lord burned against the children of Israel. 
 
 ###### 2 
-Now Joshua sent men from Jericho to Ai, which _is_ beside Beth Aven, on the east side of Bethel, and spoke to them, saying, "Go up and spy out the country." So the men went up and spied out Ai. 
+Now Joshua sent men from Jericho to Ai, which is beside Beth Aven, on the east side of Bethel, and spoke to them, saying, "Go up and spy out the country." So the men went up and spied out Ai. 
 
 ###### 3 
-And they returned to Joshua and said to him, "Do not let all the people go up, but let about two or three thousand men go up and attack Ai. Do not weary all the people there, for _the people of Ai are_ few." 
+And they returned to Joshua and said to him, "Do not let all the people go up, but let about two or three thousand men go up and attack Ai. Do not weary all the people there, for the people of Ai are few." 
 
 ###### 4 
 So about three thousand men went up there from the people, but they fled before the men of Ai. 
 
 ###### 5 
-And the men of Ai struck down about thirty-six men, for they chased them _from_ before the gate as far as Shebarim, and struck them down on the descent; therefore the hearts of the people melted and became like water. 
+And the men of Ai struck down about thirty-six men, for they chased them from before the gate as far as Shebarim, and struck them down on the descent; therefore the hearts of the people melted and became like water. 
 
 ###### 6 
 Then Joshua tore his clothes, and fell to the earth on his face before the ark of the Lord until evening, he and the elders of Israel; and they put dust on their heads. 
@@ -34,7 +34,7 @@ And Joshua said, "Alas, Lord God, why have You brought this people over the Jord
 O Lord, what shall I say when Israel turns its back before its enemies? 
 
 ###### 9 
-For the Canaanites and all the inhabitants of the land will hear _it,_ and surround us, and cut off our name from the earth. Then what will You do for Your great name?" 
+For the Canaanites and all the inhabitants of the land will hear it, and surround us, and cut off our name from the earth. Then what will You do for Your great name?" 
 
 ## The Sin of Achan 
 
@@ -42,19 +42,19 @@ For the Canaanites and all the inhabitants of the land will hear _it,_ and surro
 So the Lord said to Joshua: "Get up! Why do you lie thus on your face? 
 
 ###### 11 
-Israel has sinned, and they have also transgressed My covenant which I commanded them. For they have even taken some of the accursed things, and have both stolen and deceived; and they have also put _it_ among their own stuff. 
+Israel has sinned, and they have also transgressed My covenant which I commanded them. For they have even taken some of the accursed things, and have both stolen and deceived; and they have also put it among their own stuff. 
 
 ###### 12 
-Therefore the children of Israel could not stand before their enemies, _but_ turned _their_ backs before their enemies, because they have become doomed to destruction. Neither will I be with you anymore, unless you destroy the accursed from among you. 
+Therefore the children of Israel could not stand before their enemies, but turned their backs before their enemies, because they have become doomed to destruction. Neither will I be with you anymore, unless you destroy the accursed from among you. 
 
 ###### 13 
-Get up, sanctify the people, and say, 'Sanctify yourselves for tomorrow, because thus says the Lord God of Israel: "_There is_ an accursed thing in your midst, O Israel; you cannot stand before your enemies until you take away the accursed thing from among you." 
+Get up, sanctify the people, and say, 'Sanctify yourselves for tomorrow, because thus says the Lord God of Israel: "There is an accursed thing in your midst, O Israel; you cannot stand before your enemies until you take away the accursed thing from among you." 
 
 ###### 14 
-In the morning therefore you shall be brought according to your tribes. And it shall be _that_ the tribe which the Lord takes shall come according to families; and the family which the Lord takes shall come by households; and the household which the Lord takes shall come man by man. 
+In the morning therefore you shall be brought according to your tribes. And it shall be that the tribe which the Lord takes shall come according to families; and the family which the Lord takes shall come by households; and the household which the Lord takes shall come man by man. 
 
 ###### 15 
-Then it shall be _that_ he who is taken with the accursed thing shall be burned with fire, he and all that he has, because he has transgressed the covenant of the Lord, and because he has done a disgraceful thing in Israel.' " 
+Then it shall be that he who is taken with the accursed thing shall be burned with fire, he and all that he has, because he has transgressed the covenant of the Lord, and because he has done a disgraceful thing in Israel.' " 
 
 ###### 16 
 So Joshua rose early in the morning and brought Israel by their tribes, and the tribe of Judah was taken. 
@@ -66,7 +66,7 @@ He brought the clan of Judah, and he took the family of the Zarhites; and he bro
 Then he brought his household man by man, and Achan the son of Carmi, the son of Zabdi, the son of Zerah, of the tribe of Judah, was taken. 
 
 ###### 19 
-Now Joshua said to Achan, "My son, I beg you, give glory to the Lord God of Israel, and make confession to Him, and tell me now what you have done; do not hide _it_ from me." 
+Now Joshua said to Achan, "My son, I beg you, give glory to the Lord God of Israel, and make confession to Him, and tell me now what you have done; do not hide it from me." 
 
 ###### 20 
 And Achan answered Joshua and said, "Indeed I have sinned against the Lord God of Israel, and this is what I have done: 

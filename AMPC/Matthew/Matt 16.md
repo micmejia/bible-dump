@@ -49,7 +49,7 @@ Now the Pharisees and Sadducees came up to Jesus, and they asked Him to show the
 
 
 
-He replied to them, _When it is evening you say, It will be fair weather, for the sky is red,_ 
+He replied to them, When it is evening you say, It will be fair weather, for the sky is red, 
 
 
 
@@ -70,7 +70,7 @@ He replied to them, _When it is evening you say, It will be fair weather, for th
 
 
 
-_And in the morning, It will be stormy today, for the sky is red and has a gloomy and threatening look. You know how to interpret the appearance of the sky, but you cannot interpret the signs of the times._ 
+And in the morning, It will be stormy today, for the sky is red and has a gloomy and threatening look. You know how to interpret the appearance of the sky, but you cannot interpret the signs of the times. 
 
 
 
@@ -91,7 +91,7 @@ _And in the morning, It will be stormy today, for the sky is red and has a gloom
 
 
 
-A wicked and morally unfaithful generation craves a sign, but no sign shall be given to it except the sign of _the prophet_ Jonah. Then He left them and went away. 
+A wicked and morally unfaithful generation craves a sign, but no sign shall be given to it except the sign of the prophet Jonah. Then He left them and went away. 
 
 
 
@@ -133,7 +133,7 @@ When the disciples reached the other side of the sea, they found that they had f
 
 
 
-Jesus said to them, Be careful _and_ on your guard against the leaven (ferment) of the Pharisees and Sadducees. 
+Jesus said to them, Be careful and on your guard against the leaven (ferment) of the Pharisees and Sadducees. 
 
 
 
@@ -154,7 +154,7 @@ Jesus said to them, Be careful _and_ on your guard against the leaven (ferment) 
 
 
 
-And they reasoned among themselves about it, saying, _It is_ because we did not bring any bread. 
+And they reasoned among themselves about it, saying, It is because we did not bring any bread. 
 
 
 
@@ -385,7 +385,7 @@ Then Jesus answered him, Blessed (happy, fortunate, and to be envied) are you, S
 
 
 
-And I tell you, you are Peter [Greek, _Petros_--a large piece of rock], and on this rock [Greek, _petra_--a huge rock like Gibraltar] I will build My church, and the gates of Hades (the powers of the infernal region) shall not overpower it [or be strong to its detriment or hold out against it]. 
+And I tell you, you are Peter [Greek, Petros--a large piece of rock], and on this rock [Greek, petra--a huge rock like Gibraltar] I will build My church, and the gates of Hades (the powers of the infernal region) shall not overpower it [or be strong to its detriment or hold out against it]. 
 
 
 
@@ -427,7 +427,7 @@ I will give you the keys of the kingdom of heaven; and whatever you bind (declar
 
 
 
-Then He sternly _and_ strictly charged _and_ warned the disciples to tell no one that He was _Jesus_ the Christ. 
+Then He sternly and strictly charged and warned the disciples to tell no one that He was Jesus the Christ. 
 
 
 
@@ -490,7 +490,7 @@ Then Peter took Him aside to speak to Him privately and began to reprove and cha
 
 
 
-But Jesus turned away from Peter and said to him, Get behind Me, Satan! You are in My way [an offense and a hindrance and a snare to Me]; for you are minding what partakes not of the nature _and_ quality of God, but of men. 
+But Jesus turned away from Peter and said to him, Get behind Me, Satan! You are in My way [an offense and a hindrance and a snare to Me]; for you are minding what partakes not of the nature and quality of God, but of men. 
 
 
 
@@ -574,7 +574,7 @@ For what will it profit a man if he gains the whole world and forfeits his life 
 
 
 
-For the Son of Man is going to come in the glory (majesty, splendor) of His Father with His angels, and then He will render account _and_ reward every man in accordance with what he has done. 
+For the Son of Man is going to come in the glory (majesty, splendor) of His Father with His angels, and then He will render account and reward every man in accordance with what he has done. 
 
 
 

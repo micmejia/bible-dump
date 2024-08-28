@@ -133,7 +133,7 @@ He heard the sound of the trumpet and did not take warning; his blood shall be u
 
 
 
-But if the watchman sees the sword coming and does not blow the trumpet and the people are not warned, and the sword comes and takes any one of them, he is taken away in _and_ for his perversity _and_ iniquity, but his blood will I require at the watchman's hand. 
+But if the watchman sees the sword coming and does not blow the trumpet and the people are not warned, and the sword comes and takes any one of them, he is taken away in and for his perversity and iniquity, but his blood will I require at the watchman's hand. 
 
 
 
@@ -175,7 +175,7 @@ So you, son of man, I have made you a watchman for the house of Israel; therefor
 
 
 
-When I say to the wicked, O wicked man, you shall surely die, and you do not speak to warn the wicked from his way, that wicked man shall die in his perversity _and_ iniquity, but his blood will I require at your hand. 
+When I say to the wicked, O wicked man, you shall surely die, and you do not speak to warn the wicked from his way, that wicked man shall die in his perversity and iniquity, but his blood will I require at your hand. 
 
 
 
@@ -259,7 +259,7 @@ Say to them, As I live, says the Lord God, I have no pleasure in the death of th
 
 
 
-And you, son of man, say to your people, The uprightness _and_ justice of the [uncompromisingly] righteous shall not deliver him in the day of his transgression; and as for the wicked lawlessness of the wicked lawless, he shall not fall because of it in the day that he turns from his wickedness, neither shall the rigidly upright _and_ just be able to live because of his past righteousness in the day that he sins _and_ misses the mark [in keeping in harmony and right standing with God]. 
+And you, son of man, say to your people, The uprightness and justice of the [uncompromisingly] righteous shall not deliver him in the day of his transgression; and as for the wicked lawlessness of the wicked lawless, he shall not fall because of it in the day that he turns from his wickedness, neither shall the rigidly upright and just be able to live because of his past righteousness in the day that he sins and misses the mark [in keeping in harmony and right standing with God]. 
 
 
 
@@ -280,7 +280,7 @@ And you, son of man, say to your people, The uprightness _and_ justice of the [u
 
 
 
-When I shall say to the [uncompromisingly] righteous that he shall surely live, and he trusts to his own righteousness [to save him] and commits iniquity (heinous sin), all his righteous deeds shall not be [seriously] remembered; but for his perversity _and_ iniquity that he has committed he shall die. 
+When I shall say to the [uncompromisingly] righteous that he shall surely live, and he trusts to his own righteousness [to save him] and commits iniquity (heinous sin), all his righteous deeds shall not be [seriously] remembered; but for his perversity and iniquity that he has committed he shall die. 
 
 
 
@@ -364,7 +364,7 @@ None of his sins that he has committed shall be [seriously] remembered against h
 
 
 
-Yet your people say, The way of the Lord is not perfect _or_ even just; but as for them, it is their own way that is not perfect _or_ even just. 
+Yet your people say, The way of the Lord is not perfect or even just; but as for them, it is their own way that is not perfect or even just. 
 
 
 
@@ -385,7 +385,7 @@ Yet your people say, The way of the Lord is not perfect _or_ even just; but as f
 
 
 
-When the righteous turns back from his [uncompromising] righteousness and commits perverseness _and_ iniquity, he shall even die in _and_ because of it. 
+When the righteous turns back from his [uncompromising] righteousness and commits perverseness and iniquity, he shall even die in and because of it. 
 
 
 
@@ -427,7 +427,7 @@ But if the wicked turns back from his wickedness and does what is lawful and rig
 
 
 
-Yet you say, The way of the Lord is not perfect _or_ [even] just. O you house of Israel, I will judge you, every one according to his own ways! 
+Yet you say, The way of the Lord is not perfect or [even] just. O you house of Israel, I will judge you, every one according to his own ways! 
 
 
 
@@ -616,7 +616,7 @@ And I will make the land [of Israel] a desolation and a waste, and her proud mig
 
 
 
-Then shall they know, understand, _and_ realize that I am the Lord, when I have made the land a desolation and a waste because of all their abominations which they have committed. 
+Then shall they know, understand, and realize that I am the Lord, when I have made the land a desolation and a waste because of all their abominations which they have committed. 
 
 
 
@@ -658,7 +658,7 @@ As for you, son of man, your people who talk of you by the walls and in the door
 
 
 
-And they come to you as people come, and they sit before you as My people, and they hear the words you say, but they will not do them; for with their mouths they show much love, but their hearts go after _and_ are set on their [idolatrous greed for] gain. 
+And they come to you as people come, and they sit before you as My people, and they hear the words you say, but they will not do them; for with their mouths they show much love, but their hearts go after and are set on their [idolatrous greed for] gain. 
 
 
 
@@ -700,4 +700,4 @@ Behold, you are to them as a very lovely [love] song of one who has a pleasant v
 
 
 
-When this comes to pass--for behold, it will come!--then shall they know, understand, _and_ realize that a prophet has been among them.
+When this comes to pass--for behold, it will come!--then shall they know, understand, and realize that a prophet has been among them.

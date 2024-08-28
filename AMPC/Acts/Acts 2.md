@@ -70,7 +70,7 @@ When suddenly there came a sound from heaven like the rushing of a violent tempe
 
 
 
-And there appeared to them tongues resembling fire, which were separated _and_ distributed and which settled on each one of them. 
+And there appeared to them tongues resembling fire, which were separated and distributed and which settled on each one of them. 
 
 
 
@@ -91,7 +91,7 @@ And there appeared to them tongues resembling fire, which were separated _and_ d
 
 
 
-And they were all filled (diffused throughout their souls) with the Holy Spirit and began to speak in other (different, foreign) languages (tongues), as the Spirit kept giving them clear _and_ loud expression [in each tongue in appropriate words]. 
+And they were all filled (diffused throughout their souls) with the Holy Spirit and began to speak in other (different, foreign) languages (tongues), as the Spirit kept giving them clear and loud expression [in each tongue in appropriate words]. 
 
 
 
@@ -112,7 +112,7 @@ And they were all filled (diffused throughout their souls) with the Holy Spirit 
 
 
 
-Now there were then residing in Jerusalem Jews, devout _and_ God-fearing men from every country under heaven. 
+Now there were then residing in Jerusalem Jews, devout and God-fearing men from every country under heaven. 
 
 
 
@@ -133,7 +133,7 @@ Now there were then residing in Jerusalem Jews, devout _and_ God-fearing men fro
 
 
 
-And when this sound was heard, the multitude came together and they were astonished _and_ bewildered, because each one heard them [the apostles] speaking in his own [particular] dialect. 
+And when this sound was heard, the multitude came together and they were astonished and bewildered, because each one heard them [the apostles] speaking in his own [particular] dialect. 
 
 
 
@@ -259,7 +259,7 @@ Cretans and Arabians too--we all hear them speaking in our own native tongues [a
 
 
 
-And all were beside themselves with amazement and were puzzled _and_ bewildered, saying one to another, What can this mean? 
+And all were beside themselves with amazement and were puzzled and bewildered, saying one to another, What can this mean? 
 
 
 
@@ -280,7 +280,7 @@ And all were beside themselves with amazement and were puzzled _and_ bewildered,
 
 
 
-But others made a joke of it _and_ derisively said, They are simply drunk _and_ full of sweet [intoxicating] wine. 
+But others made a joke of it and derisively said, They are simply drunk and full of sweet [intoxicating] wine. 
 
 
 
@@ -301,7 +301,7 @@ But others made a joke of it _and_ derisively said, They are simply drunk _and_ 
 
 
 
-But Peter, standing with the eleven, raised his voice and addressed them: You Jews and all you residents of Jerusalem, let this be [explained] to you so that you will know _and_ understand; listen closely to what I have to say. 
+But Peter, standing with the eleven, raised his voice and addressed them: You Jews and all you residents of Jerusalem, let this be [explained] to you so that you will know and understand; listen closely to what I have to say. 
 
 
 
@@ -427,7 +427,7 @@ And I will show wonders in the sky above and signs on the earth beneath, blood a
 
 
 
-The sun shall be turned into darkness and the moon into blood before the obvious day of the Lord comes--that great and notable _and_ conspicuous and renowned [day]. 
+The sun shall be turned into darkness and the moon into blood before the obvious day of the Lord comes--that great and notable and conspicuous and renowned [day]. 
 
 
 
@@ -469,7 +469,7 @@ And it shall be that whoever shall call upon the name of the Lord [invoking, ado
 
 
 
-You men of Israel, listen to what I have to say: Jesus of Nazareth, a Man accredited _and_ pointed out _and_ shown forth _and_ commended _and_ attested to you by God by the mighty works and [the power of performing] wonders and signs which God worked through Him [right] in your midst, as you yourselves know-- 
+You men of Israel, listen to what I have to say: Jesus of Nazareth, a Man accredited and pointed out and shown forth and commended and attested to you by God by the mighty works and [the power of performing] wonders and signs which God worked through Him [right] in your midst, as you yourselves know-- 
 
 
 
@@ -490,7 +490,7 @@ You men of Israel, listen to what I have to say: Jesus of Nazareth, a Man accred
 
 
 
-This Jesus, when delivered up according to the definite _and_ fixed purpose _and_ settled plan and foreknowledge of God, you crucified _and_ put out of the way [killing Him] by the hands of lawless _and_ wicked men. 
+This Jesus, when delivered up according to the definite and fixed purpose and settled plan and foreknowledge of God, you crucified and put out of the way [killing Him] by the hands of lawless and wicked men. 
 
 
 
@@ -511,7 +511,7 @@ This Jesus, when delivered up according to the definite _and_ fixed purpose _and
 
 
 
-[But] God raised Him up, liberating Him from the pangs of death, seeing that it was not possible for Him to continue to be controlled _or_ retained by it. 
+[But] God raised Him up, liberating Him from the pangs of death, seeing that it was not possible for Him to continue to be controlled or retained by it. 
 
 
 
@@ -532,7 +532,7 @@ This Jesus, when delivered up according to the definite _and_ fixed purpose _and
 
 
 
-For David says in regard to Him, I saw the Lord constantly before me, for He is at my right hand that I may not be shaken _or_ overthrown _or_ cast down [from my secure and happy state]. 
+For David says in regard to Him, I saw the Lord constantly before me, for He is at my right hand that I may not be shaken or overthrown or cast down [from my secure and happy state]. 
 
 
 
@@ -574,7 +574,7 @@ Therefore my heart rejoiced and my tongue exulted exceedingly; moreover, my fles
 
 
 
-For You will not abandon my soul, leaving it helpless in Hades (the state of departed spirits), nor let Your Holy One know decay _or_ see destruction [of the body after death]. 
+For You will not abandon my soul, leaving it helpless in Hades (the state of departed spirits), nor let Your Holy One know decay or see destruction [of the body after death]. 
 
 
 
@@ -595,7 +595,7 @@ For You will not abandon my soul, leaving it helpless in Hades (the state of dep
 
 
 
-You have made known to me the ways of life; You will enrapture me [diffusing my soul with joy] with _and_ in Your presence. 
+You have made known to me the ways of life; You will enrapture me [diffusing my soul with joy] with and in Your presence. 
 
 
 
@@ -616,7 +616,7 @@ You have made known to me the ways of life; You will enrapture me [diffusing my 
 
 
 
-Brethren, it is permitted me to tell you confidently _and_ with freedom concerning the patriarch David that he both died and was buried, and his tomb is with us to this day. 
+Brethren, it is permitted me to tell you confidently and with freedom concerning the patriarch David that he both died and was buried, and his tomb is with us to this day. 
 
 
 
@@ -658,7 +658,7 @@ Being however a prophet, and knowing that God had sealed to him with an oath tha
 
 
 
-He, foreseeing this, spoke [by foreknowledge] of the resurrection of the Christ (the Messiah) that He was not deserted [in death] _and_ left in Hades (the state of departed spirits), nor did His body know decay _or_ see destruction. 
+He, foreseeing this, spoke [by foreknowledge] of the resurrection of the Christ (the Messiah) that He was not deserted [in death] and left in Hades (the state of departed spirits), nor did His body know decay or see destruction. 
 
 
 
@@ -700,7 +700,7 @@ This Jesus God raised up, and of that all we [His disciples] are witnesses.
 
 
 
-Being therefore lifted high by _and_ to the right hand of God, and having received from the Father the promised [blessing which is the] Holy Spirit, He has made this outpouring which you yourselves both see and hear. 
+Being therefore lifted high by and to the right hand of God, and having received from the Father the promised [blessing which is the] Holy Spirit, He has made this outpouring which you yourselves both see and hear. 
 
 
 
@@ -721,7 +721,7 @@ Being therefore lifted high by _and_ to the right hand of God, and having receiv
 
 
 
-For David did not ascend into the heavens; yet he himself says, The Lord said to my Lord, Sit at My right hand _and_ share My throne 
+For David did not ascend into the heavens; yet he himself says, The Lord said to my Lord, Sit at My right hand and share My throne 
 
 
 
@@ -763,7 +763,7 @@ Until I make Your enemies a footstool for Your feet.
 
 
 
-Therefore let the whole house of Israel recognize beyond all doubt _and_ acknowledge assuredly that God has made Him both Lord and Christ (the Messiah)--this Jesus Whom you crucified. 
+Therefore let the whole house of Israel recognize beyond all doubt and acknowledge assuredly that God has made Him both Lord and Christ (the Messiah)--this Jesus Whom you crucified. 
 
 
 
@@ -805,7 +805,7 @@ Now when they heard this they were stung (cut) to the heart, and they said to Pe
 
 
 
-And Peter answered them, Repent (change your views and purpose to accept the will of God in your inner selves instead of rejecting it) and be baptized, every one of you, in the name of Jesus Christ for the forgiveness of _and_ release from your sins; and you shall receive the gift of the Holy Spirit. 
+And Peter answered them, Repent (change your views and purpose to accept the will of God in your inner selves instead of rejecting it) and be baptized, every one of you, in the name of Jesus Christ for the forgiveness of and release from your sins; and you shall receive the gift of the Holy Spirit. 
 
 
 
@@ -826,7 +826,7 @@ And Peter answered them, Repent (change your views and purpose to accept the wil
 
 
 
-For the promise [of the Holy Spirit] is to _and_ for you and your children, and to _and_ for all that are far away, [even] to _and_ for as many as the Lord our God invites _and_ bids to come to Himself. 
+For the promise [of the Holy Spirit] is to and for you and your children, and to and for all that are far away, [even] to and for as many as the Lord our God invites and bids to come to Himself. 
 
 
 
@@ -847,7 +847,7 @@ For the promise [of the Holy Spirit] is to _and_ for you and your children, and 
 
 
 
-And [Peter] solemnly _and_ earnestly witnessed (testified) and admonished (exhorted) with much more continuous speaking _and_ warned (reproved, advised, encouraged) them, saying, Be saved from this crooked (perverse, wicked, unjust) generation. 
+And [Peter] solemnly and earnestly witnessed (testified) and admonished (exhorted) with much more continuous speaking and warned (reproved, advised, encouraged) them, saying, Be saved from this crooked (perverse, wicked, unjust) generation. 
 
 
 
@@ -868,7 +868,7 @@ And [Peter] solemnly _and_ earnestly witnessed (testified) and admonished (exhor
 
 
 
-Therefore those who accepted _and_ welcomed his message were baptized, and there were added that day about 3,000 souls. 
+Therefore those who accepted and welcomed his message were baptized, and there were added that day about 3,000 souls. 
 
 
 
@@ -973,7 +973,7 @@ And they sold their possessions (both their landed property and their movable go
 
 
 
-And day after day they regularly assembled in the temple with united purpose, and in their homes they broke bread [including the Lord's Supper]. They partook of their food with gladness and simplicity _and_ generous hearts, 
+And day after day they regularly assembled in the temple with united purpose, and in their homes they broke bread [including the Lord's Supper]. They partook of their food with gladness and simplicity and generous hearts, 
 
 
 
@@ -994,4 +994,4 @@ And day after day they regularly assembled in the temple with united purpose, an
 
 
 
-Constantly praising God and being in favor _and_ goodwill with all the people; and the Lord kept adding [to their number] daily those who were being saved [from spiritual death].
+Constantly praising God and being in favor and goodwill with all the people; and the Lord kept adding [to their number] daily those who were being saved [from spiritual death].

@@ -91,7 +91,7 @@ But they took him and beat him and sent him away without anything.
 
 
 
-Again he sent to them another bond servant, and they _stoned him and_ wounded him in the head and treated him shamefully [sending him away with insults]. 
+Again he sent to them another bond servant, and they stoned him and wounded him in the head and treated him shamefully [sending him away with insults]. 
 
 
 
@@ -238,7 +238,7 @@ Have you not even read this [passage of] Scripture: The very Stone which [after 
 
 
 
-This is from the Lord _and_ is His doing, and it is marvelous in our eyes? 
+This is from the Lord and is His doing, and it is marvelous in our eyes? 
 
 
 
@@ -259,7 +259,7 @@ This is from the Lord _and_ is His doing, and it is marvelous in our eyes?
 
 
 
-And they were trying to get hold of Him, but they were afraid of the people, for they knew that He spoke this parable with reference to _and_ against them. So they left Him and departed. 
+And they were trying to get hold of Him, but they were afraid of the people, for they knew that He spoke this parable with reference to and against them. So they left Him and departed. 
 
 
 
@@ -301,7 +301,7 @@ But they sent some of the Pharisees and of the Herodians to Him for the purpose 
 
 
 
-And they came up and said to Him, Teacher, we know that You are sincere _and_ what You profess to be, that You cannot lie, _and_ that You have no personal bias for anyone; for You are not influenced by partiality _and_ have no regard for anyone's external condition _or_ position, but in [and on the basis of] truth You teach the way of God. Is it lawful (permissible and right) to give tribute (poll taxes) to Caesar or not? 
+And they came up and said to Him, Teacher, we know that You are sincere and what You profess to be, that You cannot lie, and that You have no personal bias for anyone; for You are not influenced by partiality and have no regard for anyone's external condition or position, but in [and on the basis of] truth You teach the way of God. Is it lawful (permissible and right) to give tribute (poll taxes) to Caesar or not? 
 
 
 
@@ -364,7 +364,7 @@ And they brought [Him one]. Then He asked them, Whose image (picture) is this? A
 
 
 
-Jesus said to them, Pay to Caesar the things that are Caesar's and to God the things that are God's. And they stood marveling _and_ greatly amazed at Him. 
+Jesus said to them, Pay to Caesar the things that are Caesar's and to God the things that are God's. And they stood marveling and greatly amazed at Him. 
 
 
 
@@ -511,7 +511,7 @@ Now in the resurrection, whose wife will she be? For the seven were married to h
 
 
 
-Jesus said to them, Is not this where you wander out of the way _and_ go wrong, because you know neither the Scriptures nor the power of God? 
+Jesus said to them, Is not this where you wander out of the way and go wrong, because you know neither the Scriptures nor the power of God? 
 
 
 
@@ -595,7 +595,7 @@ He is not the God of [the] dead, but of [the] living! You are very wrong.
 
 
 
-Then one of the scribes came up and listened to them disputing with one another, and, noticing that Jesus answered them fitly _and_ admirably, he asked Him, Which commandment is first _and_ most important of all [in its nature]? 
+Then one of the scribes came up and listened to them disputing with one another, and, noticing that Jesus answered them fitly and admirably, he asked Him, Which commandment is first and most important of all [in its nature]? 
 
 
 
@@ -616,7 +616,7 @@ Then one of the scribes came up and listened to them disputing with one another,
 
 
 
-Jesus answered, The first _and_ principal _one of all commands_ is: Hear, O Israel, The Lord our God is one Lord; 
+Jesus answered, The first and principal one of all commands is: Hear, O Israel, The Lord our God is one Lord; 
 
 
 
@@ -637,7 +637,7 @@ Jesus answered, The first _and_ principal _one of all commands_ is: Hear, O Isra
 
 
 
-And you shall love the Lord your God out of _and_ with your whole heart and out of _and_ with all your soul (your life) and out of _and_ with all your mind (with your faculty of thought and your moral understanding) and out of _and_ with all your strength. _This is the first and principal commandment_. 
+And you shall love the Lord your God out of and with your whole heart and out of and with all your soul (your life) and out of and with all your mind (with your faculty of thought and your moral understanding) and out of and with all your strength. This is the first and principal commandment. 
 
 
 
@@ -658,7 +658,7 @@ And you shall love the Lord your God out of _and_ with your whole heart and out 
 
 
 
-The second _is like it and_ is this, You shall love your neighbor as yourself. There is no other commandment greater than these. 
+The second is like it and is this, You shall love your neighbor as yourself. There is no other commandment greater than these. 
 
 
 
@@ -679,7 +679,7 @@ The second _is like it and_ is this, You shall love your neighbor as yourself. T
 
 
 
-And the scribe said to Him, Excellently _and_ fitly _and_ admirably answered, Teacher! You have said truly that He is One, and there is no other but Him; 
+And the scribe said to Him, Excellently and fitly and admirably answered, Teacher! You have said truly that He is One, and there is no other but Him; 
 
 
 
@@ -700,7 +700,7 @@ And the scribe said to Him, Excellently _and_ fitly _and_ admirably answered, Te
 
 
 
-And to love Him out of _and_ with all the heart and with all the understanding [with the faculty of quick apprehension and intelligence and keenness of discernment] and with all the strength, and to love one's neighbor as oneself, is much more than all the whole burnt offerings and sacrifices. 
+And to love Him out of and with all the heart and with all the understanding [with the faculty of quick apprehension and intelligence and keenness of discernment] and with all the strength, and to love one's neighbor as oneself, is much more than all the whole burnt offerings and sacrifices. 
 
 
 
@@ -721,7 +721,7 @@ And to love Him out of _and_ with all the heart and with all the understanding [
 
 
 
-And when Jesus saw that he answered intelligently (discreetly and having his wits about him), He said to him, You are not far from the kingdom of God. And after that no one ventured _or_ dared to ask Him any further question. 
+And when Jesus saw that he answered intelligently (discreetly and having his wits about him), He said to him, You are not far from the kingdom of God. And after that no one ventured or dared to ask Him any further question. 
 
 
 
@@ -910,7 +910,7 @@ And a widow who was poverty-stricken came and put in two copper mites [the small
 
 
 
-And He called His disciples [to Him] and said to them, Truly _and_ surely I tell you, this widow, [she who is] poverty-stricken, has put in more than all those contributing to the treasury. 
+And He called His disciples [to Him] and said to them, Truly and surely I tell you, this widow, [she who is] poverty-stricken, has put in more than all those contributing to the treasury. 
 
 
 

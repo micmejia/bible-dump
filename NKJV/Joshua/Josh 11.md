@@ -10,16 +10,16 @@ next: ['Josh 12']
 
 
 ###### 1 
-And it came to pass, when Jabin king of Hazor heard _these things,_ that he sent to Jobab king of Madon, to the king of Shimron, to the king of Achshaph, 
+And it came to pass, when Jabin king of Hazor heard these things, that he sent to Jobab king of Madon, to the king of Shimron, to the king of Achshaph, 
 
 ###### 2 
-and to the kings who _were_ from the north, in the mountains, in the plain south of Chinneroth, in the lowland, and in the heights of Dor on the west, 
+and to the kings who were from the north, in the mountains, in the plain south of Chinneroth, in the lowland, and in the heights of Dor on the west, 
 
 ###### 3 
 to the Canaanites in the east and in the west, the Amorite, the Hittite, the Perizzite, the Jebusite in the mountains, and the Hivite below Hermon in the land of Mizpah. 
 
 ###### 4 
-So they went out, they and all their armies with them, _as_ many people _as_ the sand that _is_ on the seashore in multitude, with very many horses and chariots. 
+So they went out, they and all their armies with them, as many people as the sand that is on the seashore in multitude, with very many horses and chariots. 
 
 ###### 5 
 And when all these kings had met together, they came and camped together at the waters of Merom to fight against Israel. 
@@ -40,13 +40,13 @@ So Joshua did to them as the Lord had told him: he hamstrung their horses and bu
 Joshua turned back at that time and took Hazor, and struck its king with the sword; for Hazor was formerly the head of all those kingdoms. 
 
 ###### 11 
-And they struck all the people who _were_ in it with the edge of the sword, utterly destroying _them._ There was none left breathing. Then he burned Hazor with fire. 
+And they struck all the people who were in it with the edge of the sword, utterly destroying them. There was none left breathing. Then he burned Hazor with fire. 
 
 ###### 12 
 So all the cities of those kings, and all their kings, Joshua took and struck with the edge of the sword. He utterly destroyed them, as Moses the servant of the Lord had commanded. 
 
 ###### 13 
-But _as for_ the cities that stood on their mounds, Israel burned none of them, except Hazor only, _which_ Joshua burned. 
+But as for the cities that stood on their mounds, Israel burned none of them, except Hazor only, which Joshua burned. 
 
 ###### 14 
 And all the spoil of these cities and the livestock, the children of Israel took as booty for themselves; but they struck every man with the edge of the sword until they had destroyed them, and they left none breathing. 
@@ -66,10 +66,10 @@ from Mount Halak and the ascent to Seir, even as far as Baal Gad in the Valley o
 Joshua made war a long time with all those kings. 
 
 ###### 19 
-There was not a city that made peace with the children of Israel, except the Hivites, the inhabitants of Gibeon. All _the others_ they took in battle. 
+There was not a city that made peace with the children of Israel, except the Hivites, the inhabitants of Gibeon. All the others they took in battle. 
 
 ###### 20 
-For it was of the Lord to harden their hearts, that they should come against Israel in battle, that He might utterly destroy them, _and_ that they might receive no mercy, but that He might destroy them, as the Lord had commanded Moses. 
+For it was of the Lord to harden their hearts, that they should come against Israel in battle, that He might utterly destroy them, and that they might receive no mercy, but that He might destroy them, as the Lord had commanded Moses. 
 
 ###### 21 
 And at that time Joshua came and cut off the Anakim from the mountains: from Hebron, from Debir, from Anab, from all the mountains of Judah, and from all the mountains of Israel; Joshua utterly destroyed them with their cities. 

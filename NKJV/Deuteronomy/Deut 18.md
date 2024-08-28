@@ -16,7 +16,7 @@ next: ['Deut 19']
 Therefore they shall have no inheritance among their brethren; the Lord is their inheritance, as He said to them. 
 
 ###### 3 
-"And this shall be the priest's due from the people, from those who offer a sacrifice, whether _it is_ bull or sheep: they shall give to the priest the shoulder, the cheeks, and the stomach. 
+"And this shall be the priest's due from the people, from those who offer a sacrifice, whether it is bull or sheep: they shall give to the priest the shoulder, the cheeks, and the stomach. 
 
 ###### 4 
 The firstfruits of your grain and your new wine and your oil, and the first of the fleece of your sheep, you shall give him. 
@@ -28,7 +28,7 @@ For the Lord your God has chosen him out of all your tribes to stand to minister
 "So if a Levite comes from any of your gates, from where he dwells among all Israel, and comes with all the desire of his mind to the place which the Lord chooses, 
 
 ###### 7 
-then he may serve in the name of the Lord his God as all his brethren the Levites _do,_ who stand there before the Lord. 
+then he may serve in the name of the Lord his God as all his brethren the Levites do, who stand there before the Lord. 
 
 ###### 8 
 They shall have equal portions to eat, besides what comes from the sale of his inheritance.
@@ -39,13 +39,13 @@ They shall have equal portions to eat, besides what comes from the sale of his i
 "When you come into the land which the Lord your God is giving you, you shall not learn to follow the abominations of those nations. 
 
 ###### 10 
-There shall not be found among you _anyone_ who makes his son or his daughter pass through the fire, _or one_ who practices witchcraft, _or_ a soothsayer, or one who interprets omens, or a sorcerer, 
+There shall not be found among you anyone who makes his son or his daughter pass through the fire, or one who practices witchcraft, or a soothsayer, or one who interprets omens, or a sorcerer, 
 
 ###### 11 
 or one who conjures spells, or a medium, or a spiritist, or one who calls up the dead. 
 
 ###### 12 
-For all who do these things _are_ an abomination to the Lord, and because of these abominations the Lord your God drives them out from before you. 
+For all who do these things are an abomination to the Lord, and because of these abominations the Lord your God drives them out from before you. 
 
 ###### 13 
 You shall be blameless before the Lord your God. 
@@ -68,7 +68,7 @@ according to all you desired of the Lord your God in Horeb in the day of the ass
 I will raise up for them a Prophet like you from among their brethren, and will put My words in His mouth, and He shall speak to them all that I command Him. 
 
 ###### 19 
-And it shall be _that_ whoever will not hear My words, which He speaks in My name, I will require _it_ of him. 
+And it shall be that whoever will not hear My words, which He speaks in My name, I will require it of him. 
 
 ###### 20 
 But the prophet who presumes to speak a word in My name, which I have not commanded him to speak, or who speaks in the name of other gods, that prophet shall die.' 
@@ -77,4 +77,4 @@ But the prophet who presumes to speak a word in My name, which I have not comman
 And if you say in your heart, 'How shall we know the word which the Lord has not spoken?'-- 
 
 ###### 22 
-when a prophet speaks in the name of the Lord, if the thing does not happen or come to pass, that _is_ the thing which the Lord has not spoken; the prophet has spoken it presumptuously; you shall not be afraid of him.
+when a prophet speaks in the name of the Lord, if the thing does not happen or come to pass, that is the thing which the Lord has not spoken; the prophet has spoken it presumptuously; you shall not be afraid of him.

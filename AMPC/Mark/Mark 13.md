@@ -28,7 +28,7 @@ next: ['Mark 14']
 
 
 
-And as [Jesus] was coming out of the temple [area], one of His disciples said to Him, Look, Teacher! Notice the sort _and_ quality of these stones and buildings! 
+And as [Jesus] was coming out of the temple [area], one of His disciples said to Him, Look, Teacher! Notice the sort and quality of these stones and buildings! 
 
 
 
@@ -49,7 +49,7 @@ And as [Jesus] was coming out of the temple [area], one of His disciples said to
 
 
 
-And Jesus replied to him, You see these great buildings? There will not be left here one stone upon another that will not be loosened _and_ torn down. 
+And Jesus replied to him, You see these great buildings? There will not be left here one stone upon another that will not be loosened and torn down. 
 
 
 
@@ -112,7 +112,7 @@ Tell us when is this to take place and what will be the sign when these things, 
 
 
 
-And Jesus began to tell them, Be careful _and_ watchful that no one misleads you [about it]. 
+And Jesus began to tell them, Be careful and watchful that no one misleads you [about it]. 
 
 
 
@@ -175,7 +175,7 @@ And when you hear of wars and rumors of wars, do not get alarmed (troubled and f
 
 
 
-For nation will rise against nation, and kingdom against kingdom. There will be earthquakes in various places; there will be famines _and calamities_. This is but the beginning of the intolerable anguish _and_ suffering [only the first of the birth pangs]. 
+For nation will rise against nation, and kingdom against kingdom. There will be earthquakes in various places; there will be famines and calamities. This is but the beginning of the intolerable anguish and suffering [only the first of the birth pangs]. 
 
 
 
@@ -238,7 +238,7 @@ And the good news (the Gospel) must first be preached to all nations.
 
 
 
-Now when they take you [to court] and put you under arrest, do not be anxious beforehand about what you are to say _nor_ [_even_] _meditate about it_; but say whatever is given you in that hour _and_ at the moment, for it is not you who will be speaking, but the Holy Spirit. 
+Now when they take you [to court] and put you under arrest, do not be anxious beforehand about what you are to say nor [even] meditate about it; but say whatever is given you in that hour and at the moment, for it is not you who will be speaking, but the Holy Spirit. 
 
 
 
@@ -280,7 +280,7 @@ And brother will hand over brother to death, and the father his child; and child
 
 
 
-And you will be hated _and_ detested by everybody for My name's sake, but he who patiently perseveres _and_ endures to the end will be saved (made a partaker of the salvation by Christ, and delivered from spiritual death). 
+And you will be hated and detested by everybody for My name's sake, but he who patiently perseveres and endures to the end will be saved (made a partaker of the salvation by Christ, and delivered from spiritual death). 
 
 
 
@@ -301,7 +301,7 @@ And you will be hated _and_ detested by everybody for My name's sake, but he who
 
 
 
-But when you see the abomination of desolation _mentioned by Daniel the prophet_ standing where it ought not to be--[and] let the one who reads take notice _and_ consider _and_ understand _and_ heed [this]--then let those who are in Judea flee to the mountains. 
+But when you see the abomination of desolation mentioned by Daniel the prophet standing where it ought not to be--[and] let the one who reads take notice and consider and understand and heed [this]--then let those who are in Judea flee to the mountains. 
 
 
 
@@ -322,7 +322,7 @@ But when you see the abomination of desolation _mentioned by Daniel the prophet_
 
 
 
-Let him who is on the housetop not go down _into the house_ nor go inside to take anything out of his house; 
+Let him who is on the housetop not go down into the house nor go inside to take anything out of his house; 
 
 
 
@@ -469,7 +469,7 @@ And then if anyone says to you, See, here is the Christ (the Messiah)! or, Look,
 
 
 
-False Christs (Messiahs) and false prophets will arise and show signs and [work] miracles to deceive _and_ lead astray, if possible, even the elect (those God has chosen out for Himself). 
+False Christs (Messiahs) and false prophets will arise and show signs and [work] miracles to deceive and lead astray, if possible, even the elect (those God has chosen out for Himself). 
 
 
 
@@ -490,7 +490,7 @@ False Christs (Messiahs) and false prophets will arise and show signs and [work]
 
 
 
-But look to yourselves _and_ be on your guard; I have told you everything beforehand. 
+But look to yourselves and be on your guard; I have told you everything beforehand. 
 
 
 
@@ -595,7 +595,7 @@ And then He will send out the angels and will gather together His elect (those H
 
 
 
-Now learn a lesson from the fig tree: as soon as its branch becomes tender and it puts forth its leaves, you recognize _and_ know that summer is near. 
+Now learn a lesson from the fig tree: as soon as its branch becomes tender and it puts forth its leaves, you recognize and know that summer is near. 
 
 
 
@@ -616,7 +616,7 @@ Now learn a lesson from the fig tree: as soon as its branch becomes tender and i
 
 
 
-So also, when you see these things happening, you may recognize _and_ know that He is near, at [the very] door. 
+So also, when you see these things happening, you may recognize and know that He is near, at [the very] door. 
 
 
 
@@ -637,7 +637,7 @@ So also, when you see these things happening, you may recognize _and_ know that 
 
 
 
-Surely I say to you, this generation (the whole multitude of people living at that one time) positively will not perish _or_ pass away before all these things take place. 
+Surely I say to you, this generation (the whole multitude of people living at that one time) positively will not perish or pass away before all these things take place. 
 
 
 
@@ -658,7 +658,7 @@ Surely I say to you, this generation (the whole multitude of people living at th
 
 
 
-Heaven and earth will perish _and_ pass away, but My words will not perish _or_ pass away. 
+Heaven and earth will perish and pass away, but My words will not perish or pass away. 
 
 
 
@@ -700,7 +700,7 @@ But of that day or that hour not a [single] person knows, not even the angels in
 
 
 
-Be on your guard [constantly alert], and watch _and pray_; for you do not know when the time will come. 
+Be on your guard [constantly alert], and watch and pray; for you do not know when the time will come. 
 
 
 
@@ -721,7 +721,7 @@ Be on your guard [constantly alert], and watch _and pray_; for you do not know w
 
 
 
-It is like a man [already] going on a journey; when he leaves home, he puts his servants in charge, each with his particular task, and he gives orders to the doorkeeper to be constantly alert _and_ on the watch. 
+It is like a man [already] going on a journey; when he leaves home, he puts his servants in charge, each with his particular task, and he gives orders to the doorkeeper to be constantly alert and on the watch. 
 
 
 
@@ -763,7 +763,7 @@ Therefore watch (give strict attention, be cautious and alert), for you do not k
 
 
 
-[Watch, I say] lest He come suddenly _and_ unexpectedly and find you asleep. 
+[Watch, I say] lest He come suddenly and unexpectedly and find you asleep. 
 
 
 

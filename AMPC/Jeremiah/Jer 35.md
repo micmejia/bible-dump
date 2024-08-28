@@ -280,7 +280,7 @@ Then came the word of the Lord to Jeremiah:
 
 
 
-Thus says the Lord of hosts, the God of Israel: Go and say to the men of Judah and the inhabitants of Jerusalem, Will you not receive instruction and listen to My words _and_ obey them? says the Lord. 
+Thus says the Lord of hosts, the God of Israel: Go and say to the men of Judah and the inhabitants of Jerusalem, Will you not receive instruction and listen to My words and obey them? says the Lord. 
 
 
 
@@ -301,7 +301,7 @@ Thus says the Lord of hosts, the God of Israel: Go and say to the men of Judah a
 
 
 
-The command which Jonadab son of Rechab gave to his sons not to drink wine, has been carried out _and_ established [as a custom for more than two hundred years]. To this day they drink no wine, but they have obeyed their father's command. But I, even I, have persistently spoken to you, but you have not listened to _and_ obeyed Me. 
+The command which Jonadab son of Rechab gave to his sons not to drink wine, has been carried out and established [as a custom for more than two hundred years]. To this day they drink no wine, but they have obeyed their father's command. But I, even I, have persistently spoken to you, but you have not listened to and obeyed Me. 
 
 
 
@@ -322,7 +322,7 @@ The command which Jonadab son of Rechab gave to his sons not to drink wine, has 
 
 
 
-I have sent also to you all My servants the prophets earnestly _and_ persistently, saying, Return now every man from his evil way and amend your doings and go not after other gods to serve them; and then you shall dwell in the land which I have given to you and to your fathers. But you did not submit _and_ consent to Me or listen to _and_ obey Me. 
+I have sent also to you all My servants the prophets earnestly and persistently, saying, Return now every man from his evil way and amend your doings and go not after other gods to serve them; and then you shall dwell in the land which I have given to you and to your fathers. But you did not submit and consent to Me or listen to and obey Me. 
 
 
 
@@ -343,7 +343,7 @@ I have sent also to you all My servants the prophets earnestly _and_ persistentl
 
 
 
-Since the sons of Jonadab son of Rechab have fulfilled _and_ established the command of their father which he commanded them, but these people have not listened to and obeyed Me, 
+Since the sons of Jonadab son of Rechab have fulfilled and established the command of their father which he commanded them, but these people have not listened to and obeyed Me, 
 
 
 

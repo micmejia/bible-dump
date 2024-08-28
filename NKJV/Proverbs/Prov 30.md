@@ -10,79 +10,79 @@ next: ['Prov 31']
 
 
 ###### 1 
-The words of Agur the son of Jakeh, _his_ utterance. This man declared to Ithiel--to Ithiel and Ucal: 
+The words of Agur the son of Jakeh, his utterance. This man declared to Ithiel--to Ithiel and Ucal: 
 
 ###### 2 
-Surely I _am_ more stupid than _any_ man, And do not have the understanding of a man. 
+Surely I am more stupid than any man, And do not have the understanding of a man. 
 
 ###### 3 
 I neither learned wisdom Nor have knowledge of the Holy One. 
 
 ###### 4 
-Who has ascended into heaven, or descended? Who has gathered the wind in His fists? Who has bound the waters in a garment? Who has established all the ends of the earth? What _is_ His name, and what _is_ His Son's name, If you know? 
+Who has ascended into heaven, or descended? Who has gathered the wind in His fists? Who has bound the waters in a garment? Who has established all the ends of the earth? What is His name, and what is His Son's name, If you know? 
 
 ###### 5 
-Every word of God _is_ pure; He _is_ a shield to those who put their trust in Him. 
+Every word of God is pure; He is a shield to those who put their trust in Him. 
 
 ###### 6 
 Do not add to His words, Lest He rebuke you, and you be found a liar. 
 
 ###### 7 
-Two _things_ I request of You (Deprive me not before I die): 
+Two things I request of You (Deprive me not before I die): 
 
 ###### 8 
 Remove falsehood and lies far from me; Give me neither poverty nor riches-- Feed me with the food allotted to me; 
 
 ###### 9 
-Lest I be full and deny _You,_ And say, "Who _is_ the Lord?" Or lest I be poor and steal, And profane the name of my God. 
+Lest I be full and deny You, And say, "Who is the Lord?" Or lest I be poor and steal, And profane the name of my God. 
 
 ###### 10 
 Do not malign a servant to his master, Lest he curse you, and you be found guilty. 
 
 ###### 11 
-_There is_ a generation _that_ curses its father, And does not bless its mother. 
+There is a generation that curses its father, And does not bless its mother. 
 
 ###### 12 
-_There is_ a generation _that is_ pure in its own eyes, _Yet_ is not washed from its filthiness. 
+There is a generation that is pure in its own eyes, Yet is not washed from its filthiness. 
 
 ###### 13 
-_There is_ a generation--oh, how lofty are their eyes! And their eyelids are lifted up. 
+There is a generation--oh, how lofty are their eyes! And their eyelids are lifted up. 
 
 ###### 14 
-_There is_ a generation whose teeth _are like_ swords, And whose fangs _are like_ knives, To devour the poor from off the earth, And the needy from _among_ men. 
+There is a generation whose teeth are like swords, And whose fangs are like knives, To devour the poor from off the earth, And the needy from among men. 
 
 ###### 15 
-The leech has two daughters-- Give _and_ Give! There are three _things that_ are never satisfied, Four never say, "Enough!": 
+The leech has two daughters-- Give and Give! There are three things that are never satisfied, Four never say, "Enough!": 
 
 ###### 16 
-The grave, The barren womb, The earth _that_ is not satisfied with water-- And the fire never says, "Enough!" 
+The grave, The barren womb, The earth that is not satisfied with water-- And the fire never says, "Enough!" 
 
 ###### 17 
-The eye _that_ mocks _his_ father, And scorns obedience to _his_ mother, The ravens of the valley will pick it out, And the young eagles will eat it. 
+The eye that mocks his father, And scorns obedience to his mother, The ravens of the valley will pick it out, And the young eagles will eat it. 
 
 ###### 18 
-There are three _things which_ are too wonderful for me, Yes, four _which_ I do not understand: 
+There are three things which are too wonderful for me, Yes, four which I do not understand: 
 
 ###### 19 
 The way of an eagle in the air, The way of a serpent on a rock, The way of a ship in the midst of the sea, And the way of a man with a virgin. 
 
 ###### 20 
-This _is_ the way of an adulterous woman: She eats and wipes her mouth, And says, "I have done no wickedness." 
+This is the way of an adulterous woman: She eats and wipes her mouth, And says, "I have done no wickedness." 
 
 ###### 21 
-For three _things_ the earth is perturbed, Yes, for four it cannot bear up: 
+For three things the earth is perturbed, Yes, for four it cannot bear up: 
 
 ###### 22 
 For a servant when he reigns, A fool when he is filled with food, 
 
 ###### 23 
-A hateful _woman_ when she is married, And a maidservant who succeeds her mistress. 
+A hateful woman when she is married, And a maidservant who succeeds her mistress. 
 
 ###### 24 
-There are four _things which_ are little on the earth, But they _are_ exceedingly wise: 
+There are four things which are little on the earth, But they are exceedingly wise: 
 
 ###### 25 
-The ants _are_ a people not strong, Yet they prepare their food in the summer; 
+The ants are a people not strong, Yet they prepare their food in the summer; 
 
 ###### 26 
 The rock badgers are a feeble folk, Yet they make their homes in the crags; 
@@ -94,16 +94,16 @@ The locusts have no king, Yet they all advance in ranks;
 The spider skillfully grasps with its hands, And it is in kings' palaces. 
 
 ###### 29 
-There are three _things which_ are majestic in pace, Yes, four _which_ are stately in walk: 
+There are three things which are majestic in pace, Yes, four which are stately in walk: 
 
 ###### 30 
-A lion, _which is_ mighty among beasts And does not turn away from any; 
+A lion, which is mighty among beasts And does not turn away from any; 
 
 ###### 31 
-A greyhound, A male goat also, And a king _whose_ troops _are_ with him. 
+A greyhound, A male goat also, And a king whose troops are with him. 
 
 ###### 32 
-If you have been foolish in exalting yourself, Or if you have devised evil, _put your_ hand on _your_ mouth. 
+If you have been foolish in exalting yourself, Or if you have devised evil, put your hand on your mouth. 
 
 ###### 33 
-For _as_ the churning of milk produces butter, And wringing the nose produces blood, So the forcing of wrath produces strife.
+For as the churning of milk produces butter, And wringing the nose produces blood, So the forcing of wrath produces strife.

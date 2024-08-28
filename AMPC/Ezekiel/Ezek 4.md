@@ -217,7 +217,7 @@ Also take wheat, barley, beans, lentils, millet, and spelt, and put them into on
 
 
 
-And the food you eat shall be by weight, twenty shekels _or_ a full half pound a day, to be eaten at a fixed time each day. 
+And the food you eat shall be by weight, twenty shekels or a full half pound a day, to be eaten at a fixed time each day. 
 
 
 
@@ -238,7 +238,7 @@ And the food you eat shall be by weight, twenty shekels _or_ a full half pound a
 
 
 
-You shall drink water by measure also, about one quart _or_ the sixth part of a hin; you shall drink at a fixed time each day. 
+You shall drink water by measure also, about one quart or the sixth part of a hin; you shall drink at a fixed time each day. 
 
 
 

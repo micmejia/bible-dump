@@ -91,7 +91,7 @@ And nations shall come to your light, and kings to the brightness of your rising
 
 
 
-Lift up your eyes round about you and see! They all gather themselves together, they come to you. Your sons shall come from afar, and your daughters shall be carried _and_ nursed in the arms. 
+Lift up your eyes round about you and see! They all gather themselves together, they come to you. Your sons shall come from afar, and your daughters shall be carried and nursed in the arms. 
 
 
 
@@ -112,7 +112,7 @@ Lift up your eyes round about you and see! They all gather themselves together, 
 
 
 
-Then you shall see and be radiant, and your heart shall thrill _and_ tremble with joy [at the glorious deliverance] and be enlarged; because the abundant wealth of the [Dead] Sea shall be turned to you, unto you shall the nations come with their treasures. 
+Then you shall see and be radiant, and your heart shall thrill and tremble with joy [at the glorious deliverance] and be enlarged; because the abundant wealth of the [Dead] Sea shall be turned to you, unto you shall the nations come with their treasures. 
 
 
 
@@ -196,7 +196,7 @@ Who are these who fly like a cloud, and like doves to their windows?
 
 
 
-Surely the isles _and_ distant coastlands shall wait for _and_ expect Me; and the ships of Tarshish [shall come] first, to bring your sons from afar, their silver and gold with them, for the name of the Lord your God, for the Holy One of Israel, because He has beautified _and_ glorified you. 
+Surely the isles and distant coastlands shall wait for and expect Me; and the ships of Tarshish [shall come] first, to bring your sons from afar, their silver and gold with them, for the name of the Lord your God, for the Holy One of Israel, because He has beautified and glorified you. 
 
 
 
@@ -217,7 +217,7 @@ Surely the isles _and_ distant coastlands shall wait for _and_ expect Me; and th
 
 
 
-Foreigners shall build up your walls, and their kings shall minister to you; for in My wrath I smote you, but in My favor, pleasure, _and_ goodwill I have had mercy, love, _and_ pity for you. 
+Foreigners shall build up your walls, and their kings shall minister to you; for in My wrath I smote you, but in My favor, pleasure, and goodwill I have had mercy, love, and pity for you. 
 
 
 
@@ -343,7 +343,7 @@ Whereas you have been forsaken and hated, so that no man passed through you, I w
 
 
 
-You shall suck the milk of the [Gentile] nations and shall suck the breast of kings; and you shall recognize _and_ know that I, the Lord, am your Savior and your Redeemer, the Mighty One of Jacob. 
+You shall suck the milk of the [Gentile] nations and shall suck the breast of kings; and you shall recognize and know that I, the Lord, am your Savior and your Redeemer, the Mighty One of Jacob. 
 
 
 
@@ -406,7 +406,7 @@ Violence shall no more be heard in your land, nor devastation or destruction wit
 
 
 
-The sun shall no more be your light by day, nor for brightness shall the moon give light to you, but the Lord shall be to you an everlasting light, and your God your glory _and_ your beauty. 
+The sun shall no more be your light by day, nor for brightness shall the moon give light to you, but the Lord shall be to you an everlasting light, and your God your glory and your beauty. 
 
 
 

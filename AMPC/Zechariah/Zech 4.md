@@ -259,7 +259,7 @@ Then I said to him [the angel who talked with me], What are these two olive tree
 
 
 
-And a second time I said to him, What are these two olive branches which are beside the two golden tubes _or_ spouts by which the golden oil is emptied out? 
+And a second time I said to him, What are these two olive branches which are beside the two golden tubes or spouts by which the golden oil is emptied out? 
 
 
 

@@ -12,13 +12,13 @@ next: ['2 Pet 3']
 ###### 1 
 
 
-But also [in those days] there arose false prophets among the people, just as there will be false teachers among yourselves, who will subtly _and_ stealthily introduce heretical doctrines (destructive heresies), even denying _and_ disowning the Master Who bought them, bringing upon themselves swift destruction. 
+But also [in those days] there arose false prophets among the people, just as there will be false teachers among yourselves, who will subtly and stealthily introduce heretical doctrines (destructive heresies), even denying and disowning the Master Who bought them, bringing upon themselves swift destruction. 
 
 
 ###### 2 
 
 
-And many will follow their immoral ways _and_ lascivious doings; because of them the true Way will be maligned _and_ defamed. 
+And many will follow their immoral ways and lascivious doings; because of them the true Way will be maligned and defamed. 
 
 
 ###### 3 
@@ -30,7 +30,7 @@ And in their covetousness (lust, greed) they will exploit you with false (cunnin
 ###### 4 
 
 
-For God did not [even] spare angels that sinned, but cast them into hell, delivering them to be kept there in pits of gloom till the judgment _and_ their doom. 
+For God did not [even] spare angels that sinned, but cast them into hell, delivering them to be kept there in pits of gloom till the judgment and their doom. 
 
 
 ###### 5 
@@ -42,13 +42,13 @@ And He spared not the ancient world, but preserved Noah, a preacher of righteous
 ###### 6 
 
 
-And He condemned to ruin _and_ extinction the cities of Sodom and Gomorrah, reducing them to ashes [and thus] set them forth as an example to those who would be ungodly; 
+And He condemned to ruin and extinction the cities of Sodom and Gomorrah, reducing them to ashes [and thus] set them forth as an example to those who would be ungodly; 
 
 
 ###### 7 
 
 
-And He rescued righteous Lot, greatly worn out _and_ distressed by the wanton ways of the ungodly _and_ lawless-- 
+And He rescued righteous Lot, greatly worn out and distressed by the wanton ways of the ungodly and lawless-- 
 
 
 ###### 8 
@@ -60,13 +60,13 @@ For that just man, living [there] among them, tortured his righteous soul every 
 ###### 9 
 
 
-Now if [all these things are true, then be sure] the Lord knows how to rescue the godly out of temptations _and_ trials, and how to keep the ungodly under chastisement until the day of judgment _and_ doom, 
+Now if [all these things are true, then be sure] the Lord knows how to rescue the godly out of temptations and trials, and how to keep the ungodly under chastisement until the day of judgment and doom, 
 
 
 ###### 10 
 
 
-And particularly those who walk after the flesh and indulge in the lust of polluting passion and scorn _and_ despise authority. Presumptuous [and] daring [self-willed and self-loving creatures]! They scoff at _and_ revile dignitaries (glorious ones) without trembling, 
+And particularly those who walk after the flesh and indulge in the lust of polluting passion and scorn and despise authority. Presumptuous [and] daring [self-willed and self-loving creatures]! They scoff at and revile dignitaries (glorious ones) without trembling, 
 
 
 ###### 11 
@@ -84,13 +84,13 @@ But these [people]! Like unreasoning beasts, mere creatures of instinct, born [o
 ###### 13 
 
 
-Being destined to receive [punishment as] the reward of [their] unrighteousness [suffering wrong as the hire for their wrongdoing]. They count it a delight to revel in the daytime [living luxuriously and delicately]. They are blots and blemishes, reveling in their deceptions _and_ carousing together [even] as they feast with you. 
+Being destined to receive [punishment as] the reward of [their] unrighteousness [suffering wrong as the hire for their wrongdoing]. They count it a delight to revel in the daytime [living luxuriously and delicately]. They are blots and blemishes, reveling in their deceptions and carousing together [even] as they feast with you. 
 
 
 ###### 14 
 
 
-They have eyes full of harlotry, insatiable for sin. They beguile _and_ bait _and_ lure away unstable souls. Their hearts are trained in covetousness (lust, greed), [they are] children of a curse [exposed to cursing]! 
+They have eyes full of harlotry, insatiable for sin. They beguile and bait and lure away unstable souls. Their hearts are trained in covetousness (lust, greed), [they are] children of a curse [exposed to cursing]! 
 
 
 ###### 15 
@@ -108,19 +108,19 @@ But he was rebuked for his own transgression when a dumb beast of burden spoke w
 ###### 17 
 
 
-These are springs without water and mists driven along before a tempest, for whom is reserved _forever_ the gloom of darkness. 
+These are springs without water and mists driven along before a tempest, for whom is reserved forever the gloom of darkness. 
 
 
 ###### 18 
 
 
-For uttering loud boasts of folly, they beguile _and_ lure with lustful desires of the flesh those who are barely escaping from them who are wrongdoers. 
+For uttering loud boasts of folly, they beguile and lure with lustful desires of the flesh those who are barely escaping from them who are wrongdoers. 
 
 
 ###### 19 
 
 
-They promise them liberty, when they themselves are the slaves of depravity _and_ defilement--for by whatever anyone is made inferior _or_ worse _or_ is overcome, to that [person or thing] he is enslaved. 
+They promise them liberty, when they themselves are the slaves of depravity and defilement--for by whatever anyone is made inferior or worse or is overcome, to that [person or thing] he is enslaved. 
 
 
 ###### 20 

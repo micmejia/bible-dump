@@ -49,7 +49,7 @@ My son, if you will receive my words and treasure up my commandments within you,
 
 
 
-Making your ear attentive to skillful _and_ godly Wisdom _and_ inclining and directing your heart _and_ mind to understanding [applying all your powers to the quest for it]; 
+Making your ear attentive to skillful and godly Wisdom and inclining and directing your heart and mind to understanding [applying all your powers to the quest for it]; 
 
 
 
@@ -91,7 +91,7 @@ Yes, if you cry out for insight and raise your voice for understanding,
 
 
 
-If you seek [Wisdom] as for silver and search for skillful _and_ godly Wisdom as for hidden treasures, 
+If you seek [Wisdom] as for silver and search for skillful and godly Wisdom as for hidden treasures, 
 
 
 
@@ -112,7 +112,7 @@ If you seek [Wisdom] as for silver and search for skillful _and_ godly Wisdom as
 
 
 
-Then you will understand the reverent _and_ worshipful fear of the Lord and find the knowledge of [our omniscient] God. 
+Then you will understand the reverent and worshipful fear of the Lord and find the knowledge of [our omniscient] God. 
 
 
 
@@ -133,7 +133,7 @@ Then you will understand the reverent _and_ worshipful fear of the Lord and find
 
 
 
-For the Lord gives skillful _and_ godly Wisdom; from His mouth come knowledge and understanding. 
+For the Lord gives skillful and godly Wisdom; from His mouth come knowledge and understanding. 
 
 
 
@@ -154,7 +154,7 @@ For the Lord gives skillful _and_ godly Wisdom; from His mouth come knowledge an
 
 
 
-He hides away sound _and_ godly Wisdom _and_ stores it for the righteous (those who are upright and in right standing with Him); He is a shield to those who walk uprightly _and_ in integrity, 
+He hides away sound and godly Wisdom and stores it for the righteous (those who are upright and in right standing with Him); He is a shield to those who walk uprightly and in integrity, 
 
 
 
@@ -217,7 +217,7 @@ Then you will understand righteousness, justice, and fair dealing [in every area
 
 
 
-For skillful _and_ godly Wisdom shall enter into your heart, and knowledge shall be pleasant to you. 
+For skillful and godly Wisdom shall enter into your heart, and knowledge shall be pleasant to you. 
 
 
 
@@ -259,7 +259,7 @@ Discretion shall watch over you, understanding shall keep you,
 
 
 
-To deliver you from the way of evil _and_ the evil men, from men who speak perverse things _and_ are liars, 
+To deliver you from the way of evil and the evil men, from men who speak perverse things and are liars, 
 
 
 
@@ -322,7 +322,7 @@ Who rejoice to do evil and delight in the perverseness of evil,
 
 
 
-Who are crooked in their ways, wayward _and_ devious in their paths. 
+Who are crooked in their ways, wayward and devious in their paths. 
 
 
 
@@ -364,7 +364,7 @@ Who are crooked in their ways, wayward _and_ devious in their paths.
 
 
 
-Who forsakes the husband _and_ guide of her youth and forgets the covenant of her God. 
+Who forsakes the husband and guide of her youth and forgets the covenant of her God. 
 
 
 
@@ -406,7 +406,7 @@ For her house sinks down to death and her paths to the spirits [of the dead].
 
 
 
-None who go to her return again, neither do they attain _or_ regain the paths of life. 
+None who go to her return again, neither do they attain or regain the paths of life. 
 
 
 
@@ -448,7 +448,7 @@ So may you walk in the way of good men, and keep to the paths of the [consistent
 
 
 
-For the upright shall dwell in the land, and the men of integrity, blameless _and_ complete [in God's sight], shall remain in it; 
+For the upright shall dwell in the land, and the men of integrity, blameless and complete [in God's sight], shall remain in it; 
 
 
 

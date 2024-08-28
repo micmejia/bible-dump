@@ -70,7 +70,7 @@ And you shall make for Aaron your brother sacred garments [appointed official dr
 
 
 
-Tell all who are expert, whom I have endowed with skill _and_ good judgment, that they shall make Aaron's garments to sanctify him for My priesthood. 
+Tell all who are expert, whom I have endowed with skill and good judgment, that they shall make Aaron's garments to sanctify him for My priesthood. 
 
 
 
@@ -91,7 +91,7 @@ Tell all who are expert, whom I have endowed with skill _and_ good judgment, tha
 
 
 
-They shall make these garments: a breastplate, an ephod [a distinctive vestment to which the breastplate was to be attached], a robe, long _and_ sleeved tunic of checkerwork, a turban, and a sash _or_ band. They shall make sacred garments for Aaron your brother and his sons to minister to Me in the priest's office. 
+They shall make these garments: a breastplate, an ephod [a distinctive vestment to which the breastplate was to be attached], a robe, long and sleeved tunic of checkerwork, a turban, and a sash or band. They shall make sacred garments for Aaron your brother and his sons to minister to Me in the priest's office. 
 
 
 
@@ -112,7 +112,7 @@ They shall make these garments: a breastplate, an ephod [a distinctive vestment 
 
 
 
-They shall receive [from the people] _and_ use gold, and blue, purple, and scarlet [stuff], and fine linen. 
+They shall receive [from the people] and use gold, and blue, purple, and scarlet [stuff], and fine linen. 
 
 
 
@@ -133,7 +133,7 @@ They shall receive [from the people] _and_ use gold, and blue, purple, and scarl
 
 
 
-And they shall make the ephod of gold, of blue, purple, and scarlet [stuff], and fine twined linen, skillfully woven _and_ worked. 
+And they shall make the ephod of gold, of blue, purple, and scarlet [stuff], and fine twined linen, skillfully woven and worked. 
 
 
 
@@ -196,7 +196,7 @@ The skillfully woven girding band which is on the ephod shall be made of the sam
 
 
 
-And you shall take two onyx _or_ beryl stones and engrave on them the names of the twelve sons of Israel; 
+And you shall take two onyx or beryl stones and engrave on them the names of the twelve sons of Israel; 
 
 
 
@@ -238,7 +238,7 @@ Six of their names on one stone and the six names of the rest on the other stone
 
 
 
-With the work of a stone engraver, like the engravings of a signet, you shall engrave the two stones according to the names of the sons of Israel. You shall have them set in sockets _or_ rosettes of gold. 
+With the work of a stone engraver, like the engravings of a signet, you shall engrave the two stones according to the names of the sons of Israel. You shall have them set in sockets or rosettes of gold. 
 
 
 
@@ -280,7 +280,7 @@ And you shall put the two stones upon the [two] shoulder straps of the ephod [of
 
 
 
-And you shall make sockets _or_ rosettes of gold for settings, 
+And you shall make sockets or rosettes of gold for settings, 
 
 
 
@@ -343,7 +343,7 @@ You shall make a breastplate of judgment, in skilled work; like the workmanship 
 
 
 
-The breastplate shall be square _and_ doubled; a span [nine inches] shall be its length and a span shall be its breadth. 
+The breastplate shall be square and doubled; a span [nine inches] shall be its length and a span shall be its breadth. 
 
 
 
@@ -532,7 +532,7 @@ And you shall put the two twisted, cordlike chains of gold in the two rings whic
 
 
 
-The other two ends of the two twisted, cordlike chains you shall fasten in the two sockets _or_ rosettes in front, putting them on the shoulder straps of the ephod; 
+The other two ends of the two twisted, cordlike chains you shall fasten in the two sockets or rosettes in front, putting them on the shoulder straps of the ephod; 
 
 
 
@@ -574,7 +574,7 @@ And make two rings of gold and put them at the two ends of the breastplate on it
 
 
 
-Two gold rings you shall make and attach them to the lower part of the two shoulder pieces of the ephod in front, close by where they join, above the skillfully woven girdle _or_ band of the ephod. 
+Two gold rings you shall make and attach them to the lower part of the two shoulder pieces of the ephod in front, close by where they join, above the skillfully woven girdle or band of the ephod. 
 
 
 
@@ -679,7 +679,7 @@ Make the robe [to be worn beneath] the ephod all of blue.
 
 
 
-There shall be a hole in the center of it [to slip over the head], with a binding of woven work around the hole, like the opening in a coat of mail _or_ a garment, that it may not fray _or_ tear. 
+There shall be a hole in the center of it [to slip over the head], with a binding of woven work around the hole, like the opening in a coat of mail or a garment, that it may not fray or tear. 
 
 
 
@@ -805,7 +805,7 @@ You shall fasten it on the front of the turban with a blue cord.
 
 
 
-It shall be upon Aaron's forehead, that Aaron may take upon himself _and_ bear [any] iniquity [connected with] the holy things which the Israelites shall give _and_ dedicate; and it shall always be upon his forehead, that they may be accepted before the Lord [in the priest's person]. 
+It shall be upon Aaron's forehead, that Aaron may take upon himself and bear [any] iniquity [connected with] the holy things which the Israelites shall give and dedicate; and it shall always be upon his forehead, that they may be accepted before the Lord [in the priest's person]. 
 
 
 
@@ -826,7 +826,7 @@ It shall be upon Aaron's forehead, that Aaron may take upon himself _and_ bear [
 
 
 
-And you shall weave the long _and_ sleeved tunic of checkerwork of fine linen _or_ silk and make a turban of fine linen _or_ silk; and you shall make a girdle, the work of the embroiderer. 
+And you shall weave the long and sleeved tunic of checkerwork of fine linen or silk and make a turban of fine linen or silk; and you shall make a girdle, the work of the embroiderer. 
 
 
 
@@ -847,7 +847,7 @@ And you shall weave the long _and_ sleeved tunic of checkerwork of fine linen _o
 
 
 
-For Aaron's sons you shall make long _and_ sleeved tunics and belts _or_ sashes and caps, for glory _and_ honor and beauty. 
+For Aaron's sons you shall make long and sleeved tunics and belts or sashes and caps, for glory and honor and beauty. 
 
 
 

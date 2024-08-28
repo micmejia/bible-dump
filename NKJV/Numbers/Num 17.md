@@ -16,16 +16,16 @@ And the Lord spoke to Moses, saying:
 "Speak to the children of Israel, and get from them a rod from each father's house, all their leaders according to their fathers' houses--twelve rods. Write each man's name on his rod. 
 
 ###### 3 
-And you shall write Aaron's name on the rod of Levi. For there shall be one rod for the head of _each_ father's house. 
+And you shall write Aaron's name on the rod of Levi. For there shall be one rod for the head of each father's house. 
 
 ###### 4 
 Then you shall place them in the tabernacle of meeting before the Testimony, where I meet with you. 
 
 ###### 5 
-And it shall be _that_ the rod of the man whom I choose will blossom; thus I will rid Myself of the complaints of the children of Israel, which they make against you." 
+And it shall be that the rod of the man whom I choose will blossom; thus I will rid Myself of the complaints of the children of Israel, which they make against you." 
 
 ###### 6 
-So Moses spoke to the children of Israel, and each of their leaders gave him a rod apiece, for each leader according to their fathers' houses, twelve rods; and the rod of Aaron _was_ among their rods. 
+So Moses spoke to the children of Israel, and each of their leaders gave him a rod apiece, for each leader according to their fathers' houses, twelve rods; and the rod of Aaron was among their rods. 
 
 ###### 7 
 And Moses placed the rods before the Lord in the tabernacle of witness. 

@@ -28,7 +28,7 @@ next: ['Ezek 44']
 
 
 
-Afterward _the man_ [an angel] brought me to the gate, the gate that faces east. 
+Afterward the man [an angel] brought me to the gate, the gate that faces east. 
 
 
 
@@ -154,7 +154,7 @@ And I heard One speaking to me out of the temple, and a Man stood by me.
 
 
 
-And He [the Lord] said to me, Son of man, this is the place of My throne and the place of the soles of My feet, where I will dwell in the midst of the children of Israel forever; and My holy name the house of Israel shall no more profane, neither they nor their kings, by their [idolatrous] harlotry, nor by the dead bodies _and_ monuments of their kings, 
+And He [the Lord] said to me, Son of man, this is the place of My throne and the place of the soles of My feet, where I will dwell in the midst of the children of Israel forever; and My holy name the house of Israel shall no more profane, neither they nor their kings, by their [idolatrous] harlotry, nor by the dead bodies and monuments of their kings, 
 
 
 
@@ -196,7 +196,7 @@ Nor by setting their threshold by My thresholds and their doorposts by My doorpo
 
 
 
-Now let them put away their [idolatrous] harlotry and the dead bodies _and_ monuments of their kings far from Me, and I will dwell in their midst forever. 
+Now let them put away their [idolatrous] harlotry and the dead bodies and monuments of their kings far from Me, and I will dwell in their midst forever. 
 
 
 
@@ -259,7 +259,7 @@ And if they are ashamed of all that they have done, make known to them the form 
 
 
 
-This is the law of the house [of the Lord]: The whole area round about on the top of the mountain [Mount Moriah] shall be most holy, separated, _and_ set apart. Behold, this is the law of the house [of the Lord]. 
+This is the law of the house [of the Lord]: The whole area round about on the top of the mountain [Mount Moriah] shall be most holy, separated, and set apart. Behold, this is the law of the house [of the Lord]. 
 
 
 
@@ -280,7 +280,7 @@ This is the law of the house [of the Lord]: The whole area round about on the to
 
 
 
-And these are the measurements of the altar [of burnt offering] in cubits. The cubit is a royal cubit [the length of a forearm and a palm of the hand]; the bottom _or_ gutter shall be a cubit deep and a cubit wide, with a rim or lip round about it of a span's breadth. And this shall be the height of the altar: 
+And these are the measurements of the altar [of burnt offering] in cubits. The cubit is a royal cubit [the length of a forearm and a palm of the hand]; the bottom or gutter shall be a cubit deep and a cubit wide, with a rim or lip round about it of a span's breadth. And this shall be the height of the altar: 
 
 
 
@@ -301,7 +301,7 @@ And these are the measurements of the altar [of burnt offering] in cubits. The c
 
 
 
-From the bottom _or_ gutter on the ground to the lower ledge _or_ brim shall be two cubits, and the breadth one cubit; and from the lesser ledge to the greater ledge shall be four cubits, and the breadth one cubit. 
+From the bottom or gutter on the ground to the lower ledge or brim shall be two cubits, and the breadth one cubit; and from the lesser ledge to the greater ledge shall be four cubits, and the breadth one cubit. 
 
 
 
@@ -364,7 +364,7 @@ And the altar hearth shall be square--twelve cubits long, twelve broad, square i
 
 
 
-And the ledge shall be fourteen cubits long and fourteen cubits broad on its four sides, and the border about it shall be half a cubit; and its bottom _or_ gutter shall be a cubit deep and wide, and its ascent [not steps] shall face the east. 
+And the ledge shall be fourteen cubits long and fourteen cubits broad on its four sides, and the border about it shall be half a cubit; and its bottom or gutter shall be a cubit deep and wide, and its ascent [not steps] shall face the east. 
 
 
 
@@ -427,7 +427,7 @@ You shall give to the priests, the Levites who are of the offspring of Zadok, wh
 
 
 
-And you shall take of its blood and put it on the four horns of [the altar of burnt offering] and on the four corners of the ledge and on the rim _or_ border round about. Thus shall you cleanse _and_ make atonement for [the altar]. 
+And you shall take of its blood and put it on the four horns of [the altar of burnt offering] and on the four corners of the ledge and on the rim or border round about. Thus shall you cleanse and make atonement for [the altar]. 
 
 
 
@@ -553,7 +553,7 @@ Seven days you shall prepare every day a goat for a sin offering; also a young b
 
 
 
-For seven days shall they make atonement for the altar and purify it; so the priests shall consecrate, separate, _and_ set it apart to receive offerings. 
+For seven days shall they make atonement for the altar and purify it; so the priests shall consecrate, separate, and set it apart to receive offerings. 
 
 
 

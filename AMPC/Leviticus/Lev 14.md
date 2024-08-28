@@ -259,7 +259,7 @@ And the priest who cleanses him shall set the man who is to be cleansed and thes
 
 
 
-The priest shall take one of the male lambs and offer it for a guilt _or_ trespass offering, and the log of oil, and wave them for a wave offering before the Lord. 
+The priest shall take one of the male lambs and offer it for a guilt or trespass offering, and the log of oil, and wave them for a wave offering before the Lord. 
 
 
 
@@ -280,7 +280,7 @@ The priest shall take one of the male lambs and offer it for a guilt _or_ trespa
 
 
 
-He shall kill the lamb in the place where they kill the sin offering and the burnt offering, in the sacred place [the court of the tabernacle]; for as the sin offering is the priest's, so is the guilt _or_ trespass offering; it is most holy; 
+He shall kill the lamb in the place where they kill the sin offering and the burnt offering, in the sacred place [the court of the tabernacle]; for as the sin offering is the priest's, so is the guilt or trespass offering; it is most holy; 
 
 
 
@@ -301,7 +301,7 @@ He shall kill the lamb in the place where they kill the sin offering and the bur
 
 
 
-And the priest shall take some of the blood of the guilt _or_ trespass offering and put it on the tip of the right ear of him who is to be cleansed, and on the thumb of his right hand, and on the great toe of his right foot. 
+And the priest shall take some of the blood of the guilt or trespass offering and put it on the tip of the right ear of him who is to be cleansed, and on the thumb of his right hand, and on the great toe of his right foot. 
 
 
 
@@ -364,7 +364,7 @@ And the priest shall dip his right finger in the oil that is in his left hand an
 
 
 
-And of the rest of the oil that is in his hand shall the priest put some on the tip of the right ear of him who is to be cleansed, and on the thumb of his right hand, and on the great toe of his right foot, on the blood of the guilt _or_ trespass offering [which he has previously placed in each of these places]. 
+And of the rest of the oil that is in his hand shall the priest put some on the tip of the right ear of him who is to be cleansed, and on the thumb of his right hand, and on the great toe of his right foot, on the blood of the guilt or trespass offering [which he has previously placed in each of these places]. 
 
 
 
@@ -448,7 +448,7 @@ And the priest shall offer the burnt offering and the cereal offering on the alt
 
 
 
-If the cleansed leper is poor and cannot afford so much, he shall take one lamb for a guilt _or_ trespass offering to be waved to make atonement for him, and one tenth of an ephah of fine flour mixed with oil for a cereal offering, and a log of oil, 
+If the cleansed leper is poor and cannot afford so much, he shall take one lamb for a guilt or trespass offering to be waved to make atonement for him, and one tenth of an ephah of fine flour mixed with oil for a cereal offering, and a log of oil, 
 
 
 
@@ -511,7 +511,7 @@ He shall bring them on the eighth day for his cleansing to the priest at the doo
 
 
 
-And the priest shall take the lamb of the guilt _or_ trespass offering, and the log of oil, and shall wave them for a wave offering before the Lord. 
+And the priest shall take the lamb of the guilt or trespass offering, and the log of oil, and shall wave them for a wave offering before the Lord. 
 
 
 
@@ -532,7 +532,7 @@ And the priest shall take the lamb of the guilt _or_ trespass offering, and the 
 
 
 
-And he shall kill the lamb of the guilt _or_ trespass offering, and the priest shall take some of the blood of the offering and put it on the tip of the right ear of him who is to be cleansed, and on the thumb of his right hand, and on the great toe of his right foot. 
+And he shall kill the lamb of the guilt or trespass offering, and the priest shall take some of the blood of the offering and put it on the tip of the right ear of him who is to be cleansed, and on the thumb of his right hand, and on the great toe of his right foot. 
 
 
 
@@ -868,7 +868,7 @@ He shall command that they take out the diseased stones and cast them into an un
 
 
 
-He shall cause the house to be scraped within round about and the plaster _or_ mortar that is scraped off to be emptied out in an unclean place outside the city. 
+He shall cause the house to be scraped within round about and the plaster or mortar that is scraped off to be emptied out in an unclean place outside the city. 
 
 
 
@@ -931,7 +931,7 @@ If the disease returns, breaking out in the house after he has removed the stone
 
 
 
-Then the priest shall come and look, and if the disease is spreading in the house, it is a rotting _or_ corroding leprosy in the house; it is unclean. 
+Then the priest shall come and look, and if the disease is spreading in the house, it is a rotting or corroding leprosy in the house; it is unclean. 
 
 
 
@@ -952,7 +952,7 @@ Then the priest shall come and look, and if the disease is spreading in the hous
 
 
 
-He shall tear down the house--its stones and its timber and all the plaster _or_ mortar of the house--and shall carry them forth out of the city to an unclean place. 
+He shall tear down the house--its stones and its timber and all the plaster or mortar of the house--and shall carry them forth out of the city to an unclean place. 
 
 
 
@@ -1183,7 +1183,7 @@ For the leprosy of a garment or of a house,
 
 
 
-And for a swelling or an eruption _or_ a scab or a bright spot, 
+And for a swelling or an eruption or a scab or a bright spot, 
 
 
 

@@ -25,13 +25,13 @@ The noise of a multitude in the mountains, Like that of many people! A tumultuou
 They come from a far country, From the end of heaven-- The Lord and His weapons of indignation, To destroy the whole land. 
 
 ###### 6 
-Wail, for the day of the Lord _is_ at hand! It will come as destruction from the Almighty. 
+Wail, for the day of the Lord is at hand! It will come as destruction from the Almighty. 
 
 ###### 7 
 Therefore all hands will be limp, Every man's heart will melt, 
 
 ###### 8 
-And they will be afraid. Pangs and sorrows will take hold of _them;_ They will be in pain as a woman in childbirth; They will be amazed at one another; Their faces _will be like_ flames. 
+And they will be afraid. Pangs and sorrows will take hold of them; They will be in pain as a woman in childbirth; They will be amazed at one another; Their faces will be like flames. 
 
 ###### 9 
 Behold, the day of the Lord comes, Cruel, with both wrath and fierce anger, To lay the land desolate; And He will destroy its sinners from it. 
@@ -40,7 +40,7 @@ Behold, the day of the Lord comes, Cruel, with both wrath and fierce anger, To l
 For the stars of heaven and their constellations Will not give their light; The sun will be darkened in its going forth, And the moon will not cause its light to shine. 
 
 ###### 11 
-"I will punish the world for _its_ evil, And the wicked for their iniquity; I will halt the arrogance of the proud, And will lay low the haughtiness of the terrible. 
+"I will punish the world for its evil, And the wicked for their iniquity; I will halt the arrogance of the proud, And will lay low the haughtiness of the terrible. 
 
 ###### 12 
 I will make a mortal more rare than fine gold, A man more than the golden wedge of Ophir. 
@@ -58,10 +58,10 @@ Everyone who is found will be thrust through, And everyone who is captured will 
 Their children also will be dashed to pieces before their eyes; Their houses will be plundered And their wives ravished. 
 
 ###### 17 
-"Behold, I will stir up the Medes against them, Who will not regard silver; And _as for_ gold, they will not delight in it. 
+"Behold, I will stir up the Medes against them, Who will not regard silver; And as for gold, they will not delight in it. 
 
 ###### 18 
-Also _their_ bows will dash the young men to pieces, And they will have no pity on the fruit of the womb; Their eye will not spare children. 
+Also their bows will dash the young men to pieces, And they will have no pity on the fruit of the womb; Their eye will not spare children. 
 
 ###### 19 
 And Babylon, the glory of kingdoms, The beauty of the Chaldeans' pride, Will be as when God overthrew Sodom and Gomorrah. 
@@ -73,4 +73,4 @@ It will never be inhabited, Nor will it be settled from generation to generation
 But wild beasts of the desert will lie there, And their houses will be full of owls; Ostriches will dwell there, And wild goats will caper there. 
 
 ###### 22 
-The hyenas will howl in their citadels, And jackals in their pleasant palaces. Her time _is_ near to come, And her days will not be prolonged."
+The hyenas will howl in their citadels, And jackals in their pleasant palaces. Her time is near to come, And her days will not be prolonged."

@@ -28,7 +28,7 @@ next: ['Jer 5']
 
 
 
-If you will return, O Israel, says the Lord, if you will return to Me, and if you will put away your abominable false gods out of My sight and not stray _or_ waver, 
+If you will return, O Israel, says the Lord, if you will return to Me, and if you will put away your abominable false gods out of My sight and not stray or waver, 
 
 
 
@@ -49,7 +49,7 @@ If you will return, O Israel, says the Lord, if you will return to Me, and if yo
 
 
 
-And if you swear, As the Lord lives, in truth, in judgment _and_ justice, and in righteousness (uprightness in every area and relation), then the nations will bless themselves in Him and in Him will they glory. 
+And if you swear, As the Lord lives, in truth, in judgment and justice, and in righteousness (uprightness in every area and relation), then the nations will bless themselves in Him and in Him will they glory. 
 
 
 
@@ -196,7 +196,7 @@ For this, gird yourselves with sackcloth, lament and wail, for the fierce anger 
 
 
 
-And it shall be in that day, says the Lord, that the understanding _and_ courage of the king shall fail (be paralyzed), and also that of the princes; the priests shall be appalled and the prophets astounded _and_ dazed with horror. 
+And it shall be in that day, says the Lord, that the understanding and courage of the king shall fail (be paralyzed), and also that of the princes; the priests shall be appalled and the prophets astounded and dazed with horror. 
 
 
 
@@ -217,7 +217,7 @@ And it shall be in that day, says the Lord, that the understanding _and_ courage
 
 
 
-Then I [Jeremiah] said, Alas, Lord God! Surely You have greatly deceived _and_ misled this people and Jerusalem, [for the prophets represented You as] saying [to Your people], You shall have peace, whereas the sword has reached to [their very] life. 
+Then I [Jeremiah] said, Alas, Lord God! Surely You have greatly deceived and misled this people and Jerusalem, [for the prophets represented You as] saying [to Your people], You shall have peace, whereas the sword has reached to [their very] life. 
 
 
 
@@ -259,7 +259,7 @@ At that time it will be said to this people and to Jerusalem, A hot wind from th
 
 
 
-A wind too strong _and_ full for winnowing comes at My word. Now I will also speak in judgment against [My people]. 
+A wind too strong and full for winnowing comes at My word. Now I will also speak in judgment against [My people]. 
 
 
 
@@ -301,7 +301,7 @@ Behold, [the enemy] comes up like clouds, his chariots like the whirlwind; his h
 
 
 
-O Jerusalem, wash your heart from wickedness, that you may be saved! How long shall your iniquitous _and_ grossly offensive thoughts lodge within you? 
+O Jerusalem, wash your heart from wickedness, that you may be saved! How long shall your iniquitous and grossly offensive thoughts lodge within you? 
 
 
 
@@ -385,7 +385,7 @@ Like keepers of a field they are against her round about, because she has been r
 
 
 
-Your ways and your doings have brought these things upon you. This is your calamity _and_ doom; surely it is bitter, for surely it reaches your very heart! 
+Your ways and your doings have brought these things upon you. This is your calamity and doom; surely it is bitter, for surely it reaches your very heart! 
 
 
 
@@ -406,7 +406,7 @@ Your ways and your doings have brought these things upon you. This is your calam
 
 
 
-[It is not only the prophet but also the people who cry out in their thoughts] My anguish, my anguish! I writhe in pain! Oh, the walls of my heart! My heart is disquieted _and_ throbs aloud within me; I cannot be silent! For I have heard the sound of the trumpet, the alarm of war. 
+[It is not only the prophet but also the people who cry out in their thoughts] My anguish, my anguish! I writhe in pain! Oh, the walls of my heart! My heart is disquieted and throbs aloud within me; I cannot be silent! For I have heard the sound of the trumpet, the alarm of war. 
 
 
 
@@ -427,7 +427,7 @@ Your ways and your doings have brought these things upon you. This is your calam
 
 
 
-News of one violent disaster _and_ calamity comes close after another, for the whole land is laid waste; suddenly are my tents spoiled _and_ destroyed, and my [tent] curtains ruined in a moment. 
+News of one violent disaster and calamity comes close after another, for the whole land is laid waste; suddenly are my tents spoiled and destroyed, and my [tent] curtains ruined in a moment. 
 
 
 
@@ -469,7 +469,7 @@ News of one violent disaster _and_ calamity comes close after another, for the w
 
 
 
-[Their chastisement will continue until it has accomplished its purpose] for My people are stupid, says the Lord [replying to Jeremiah]; they do not know _and_ understand Me. They are thickheaded children, and they have no understanding. They are wise to do evil, but to do good they have no knowledge [and know not how]. 
+[Their chastisement will continue until it has accomplished its purpose] for My people are stupid, says the Lord [replying to Jeremiah]; they do not know and understand Me. They are thickheaded children, and they have no understanding. They are wise to do evil, but to do good they have no knowledge [and know not how]. 
 
 
 
@@ -574,7 +574,7 @@ I looked, and behold, the fruitful land was a desert, and all its cities were la
 
 
 
-For thus says the Lord: The whole land will be a desolation, yet I will not make a full _and_ complete end of it. 
+For thus says the Lord: The whole land will be a desolation, yet I will not make a full and complete end of it. 
 
 
 
@@ -637,7 +637,7 @@ Every city flees because of the noise of the horsemen and bowmen. They go into t
 
 
 
-And you [plundered one], when you are made desolate, what will you do? Though you clothe yourself with scarlet, though you deck yourself with ornaments of gold, though you paint your eyelids _and_ make them look farther apart, in vain you beautify yourself. Your lovers (allies) despise you; they seek your life. 
+And you [plundered one], when you are made desolate, what will you do? Though you clothe yourself with scarlet, though you deck yourself with ornaments of gold, though you paint your eyelids and make them look farther apart, in vain you beautify yourself. Your lovers (allies) despise you; they seek your life. 
 
 
 

@@ -238,7 +238,7 @@ But Jacob replied, No, I beg of you, if now I have found favor in your sight, re
 
 
 
-Accept, I beg of you, my blessing _and_ gift that I have brought to you; for God has dealt graciously with me and I have everything. And he kept urging him and he accepted it. 
+Accept, I beg of you, my blessing and gift that I have brought to you; for God has dealt graciously with me and I have everything. And he kept urging him and he accepted it. 
 
 
 
@@ -280,7 +280,7 @@ Then [Esau] said, Let us get started on our journey, and I will go before you.
 
 
 
-But Jacob replied, You know, my lord, that the children are tender _and_ delicate _and_ need gentle care, and the flocks and herds with young are of concern to me; for if the men should overdrive them for a single day, the whole of the flocks would die. 
+But Jacob replied, You know, my lord, that the children are tender and delicate and need gentle care, and the flocks and herds with young are of concern to me; for if the men should overdrive them for a single day, the whole of the flocks would die. 
 
 
 
@@ -364,7 +364,7 @@ So Esau turned back that day on his way to Seir.
 
 
 
-But Jacob journeyed to Succoth and built himself a house and made booths _or_ places of shelter for his livestock; so the name of the place is called Succoth [booths]. 
+But Jacob journeyed to Succoth and built himself a house and made booths or places of shelter for his livestock; so the name of the place is called Succoth [booths]. 
 
 
 
@@ -385,7 +385,7 @@ But Jacob journeyed to Succoth and built himself a house and made booths _or_ pl
 
 
 
-When Jacob came from Padan-aram, he arrived safely _and_ in peace at the town of Shechem, in the land of Canaan, and pitched his tents before the [enclosed] town. 
+When Jacob came from Padan-aram, he arrived safely and in peace at the town of Shechem, in the land of Canaan, and pitched his tents before the [enclosed] town. 
 
 
 

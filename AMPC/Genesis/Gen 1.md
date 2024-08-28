@@ -90,7 +90,7 @@ And God said, Let there be light; and there was light.
 
 
 
-And God saw that the light was good (suitable, pleasant) _and_ He approved it; and God separated the light from the darkness. 
+And God saw that the light was good (suitable, pleasant) and He approved it; and God separated the light from the darkness. 
 
 
 
@@ -216,7 +216,7 @@ And God said, Let the waters under the heavens be collected into one place [of s
 
 
 
-God called the dry land Earth, and the accumulated waters He called Seas. And God saw that this was good (fitting, admirable) _and_ He approved it. 
+God called the dry land Earth, and the accumulated waters He called Seas. And God saw that this was good (fitting, admirable) and He approved it. 
 
 
 
@@ -258,7 +258,7 @@ And God said, Let the earth put forth [tender] vegetation: plants yielding seed 
 
 
 
-The earth brought forth vegetation: plants yielding seed according to their own kinds and trees bearing fruit in which was their seed, each according to its kind. And God saw that it was good (suitable, admirable) _and_ He approved it. 
+The earth brought forth vegetation: plants yielding seed according to their own kinds and trees bearing fruit in which was their seed, each according to its kind. And God saw that it was good (suitable, admirable) and He approved it. 
 
 
 
@@ -300,7 +300,7 @@ And there was evening and there was morning, a third day.
 
 
 
-And God said, Let there be lights in the expanse of the heavens to separate the day from the night, and let them be signs _and_ tokens [of God's provident care], and [to mark] seasons, days, and years, 
+And God said, Let there be lights in the expanse of the heavens to separate the day from the night, and let them be signs and tokens [of God's provident care], and [to mark] seasons, days, and years, 
 
 
 
@@ -384,7 +384,7 @@ And God set them in the expanse of the heavens to give light upon the earth,
 
 
 
-To rule over the day and over the night, and to separate the light from the darkness. And God saw that it was good (fitting, pleasant) _and_ He approved it. 
+To rule over the day and over the night, and to separate the light from the darkness. And God saw that it was good (fitting, pleasant) and He approved it. 
 
 
 
@@ -426,7 +426,7 @@ And there was evening and there was morning, a fourth day.
 
 
 
-And God said, Let the waters bring forth abundantly _and_ swarm with living creatures, and let birds fly over the earth in the open expanse of the heavens. 
+And God said, Let the waters bring forth abundantly and swarm with living creatures, and let birds fly over the earth in the open expanse of the heavens. 
 
 
 
@@ -447,7 +447,7 @@ And God said, Let the waters bring forth abundantly _and_ swarm with living crea
 
 
 
-God created the great sea monsters and every living creature that moves, which the waters brought forth abundantly, according to their kinds, and every winged bird according to its kind. And God saw that it was good (suitable, admirable) _and_ He approved it. 
+God created the great sea monsters and every living creature that moves, which the waters brought forth abundantly, according to their kinds, and every winged bird according to its kind. And God saw that it was good (suitable, admirable) and He approved it. 
 
 
 
@@ -531,7 +531,7 @@ And God said, Let the earth bring forth living creatures according to their kind
 
 
 
-And God made the [wild] beasts of the earth according to their kinds, and domestic animals according to their kinds, and everything that creeps upon the earth according to its kind. And God saw that it was good (fitting, pleasant) _and_ He approved it. 
+And God made the [wild] beasts of the earth according to their kinds, and domestic animals according to their kinds, and everything that creeps upon the earth according to its kind. And God saw that it was good (fitting, pleasant) and He approved it. 
 
 
 
@@ -573,7 +573,7 @@ God said, Let Us [Father, Son, and Holy Spirit] make mankind in Our image, after
 
 
 
-So God created man in His own image, in the image _and_ likeness of God He created him; male and female He created them. 
+So God created man in His own image, in the image and likeness of God He created him; male and female He created them. 
 
 
 
@@ -657,4 +657,4 @@ And to all the animals on the earth and to every bird of the air and to everythi
 
 
 
-And God saw everything that He had made, and behold, it was very good (suitable, pleasant) _and_ He approved it completely. And there was evening and there was morning, a sixth day.
+And God saw everything that He had made, and behold, it was very good (suitable, pleasant) and He approved it completely. And there was evening and there was morning, a sixth day.

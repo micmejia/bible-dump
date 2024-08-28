@@ -10,13 +10,13 @@ next: ['Exod 3']
 
 
 ###### 1 
-And a man of the house of Levi went and took _as wife_ a daughter of Levi. 
+And a man of the house of Levi went and took as wife a daughter of Levi. 
 
 ###### 2 
-So the woman conceived and bore a son. And when she saw that he _was_ a beautiful _child,_ she hid him three months. 
+So the woman conceived and bore a son. And when she saw that he was a beautiful child, she hid him three months. 
 
 ###### 3 
-But when she could no longer hide him, she took an ark of bulrushes for him, daubed it with asphalt and pitch, put the child in it, and laid _it_ in the reeds by the river's bank. 
+But when she could no longer hide him, she took an ark of bulrushes for him, daubed it with asphalt and pitch, put the child in it, and laid it in the reeds by the river's bank. 
 
 ###### 4 
 And his sister stood afar off, to know what would be done to him. 
@@ -25,7 +25,7 @@ And his sister stood afar off, to know what would be done to him.
 Then the daughter of Pharaoh came down to bathe at the river. And her maidens walked along the riverside; and when she saw the ark among the reeds, she sent her maid to get it. 
 
 ###### 6 
-And when she opened _it,_ she saw the child, and behold, the baby wept. So she had compassion on him, and said, "This is one of the Hebrews' children." 
+And when she opened it, she saw the child, and behold, the baby wept. So she had compassion on him, and said, "This is one of the Hebrews' children." 
 
 ###### 7 
 Then his sister said to Pharaoh's daughter, "Shall I go and call a nurse for you from the Hebrew women, that she may nurse the child for you?" 
@@ -34,7 +34,7 @@ Then his sister said to Pharaoh's daughter, "Shall I go and call a nurse for you
 And Pharaoh's daughter said to her, "Go." So the maiden went and called the child's mother. 
 
 ###### 9 
-Then Pharaoh's daughter said to her, "Take this child away and nurse him for me, and I will give _you_ your wages." So the woman took the child and nursed him. 
+Then Pharaoh's daughter said to her, "Take this child away and nurse him for me, and I will give you your wages." So the woman took the child and nursed him. 
 
 ###### 10 
 And the child grew, and she brought him to Pharaoh's daughter, and he became her son. So she called his name Moses, saying, "Because I drew him out of the water." 
@@ -63,19 +63,19 @@ Now the priest of Midian had seven daughters. And they came and drew water, and 
 Then the shepherds came and drove them away; but Moses stood up and helped them, and watered their flock. 
 
 ###### 18 
-When they came to Reuel their father, he said, "How _is it that_ you have come so soon today?" 
+When they came to Reuel their father, he said, "How is it that you have come so soon today?" 
 
 ###### 19 
 And they said, "An Egyptian delivered us from the hand of the shepherds, and he also drew enough water for us and watered the flock." 
 
 ###### 20 
-So he said to his daughters, "And where _is_ he? Why _is_ it _that_ you have left the man? Call him, that he may eat bread." 
+So he said to his daughters, "And where is he? Why is it that you have left the man? Call him, that he may eat bread." 
 
 ###### 21 
 Then Moses was content to live with the man, and he gave Zipporah his daughter to Moses. 
 
 ###### 22 
-And she bore _him_ a son. He called his name Gershom, for he said, "I have been a stranger in a foreign land." 
+And she bore him a son. He called his name Gershom, for he said, "I have been a stranger in a foreign land." 
 
 ###### 23 
 Now it happened in the process of time that the king of Egypt died. Then the children of Israel groaned because of the bondage, and they cried out; and their cry came up to God because of the bondage. 
@@ -84,4 +84,4 @@ Now it happened in the process of time that the king of Egypt died. Then the chi
 So God heard their groaning, and God remembered His covenant with Abraham, with Isaac, and with Jacob. 
 
 ###### 25 
-And God looked upon the children of Israel, and God acknowledged _them._
+And God looked upon the children of Israel, and God acknowledged them.

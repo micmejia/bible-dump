@@ -19,7 +19,7 @@ For length of days and long life And peace they will add to you.
 Let not mercy and truth forsake you; Bind them around your neck, Write them on the tablet of your heart, 
 
 ###### 4 
-_And_ so find favor and high esteem In the sight of God and man. 
+And so find favor and high esteem In the sight of God and man. 
 
 ###### 5 
 Trust in the Lord with all your heart, And lean not on your own understanding; 
@@ -43,25 +43,25 @@ So your barns will be filled with plenty, And your vats will overflow with new w
 My son, do not despise the chastening of the Lord, Nor detest His correction; 
 
 ###### 12 
-For whom the Lord loves He corrects, Just as a father the son _in whom_ he delights. 
+For whom the Lord loves He corrects, Just as a father the son in whom he delights. 
 
 ###### 13 
-Happy _is_ the man _who_ finds wisdom, And the man _who_ gains understanding; 
+Happy is the man who finds wisdom, And the man who gains understanding; 
 
 ###### 14 
-For her proceeds _are_ better than the profits of silver, And her gain than fine gold. 
+For her proceeds are better than the profits of silver, And her gain than fine gold. 
 
 ###### 15 
-She _is_ more precious than rubies, And all the things you may desire cannot compare with her. 
+She is more precious than rubies, And all the things you may desire cannot compare with her. 
 
 ###### 16 
-Length of days _is_ in her right hand, In her left hand riches and honor. 
+Length of days is in her right hand, In her left hand riches and honor. 
 
 ###### 17 
-Her ways _are_ ways of pleasantness, And all her paths _are_ peace. 
+Her ways are ways of pleasantness, And all her paths are peace. 
 
 ###### 18 
-She _is_ a tree of life to those who take hold of her, And happy _are all_ who retain her. 
+She is a tree of life to those who take hold of her, And happy are all who retain her. 
 
 ###### 19 
 The Lord by wisdom founded the earth; By understanding He established the heavens; 
@@ -88,10 +88,10 @@ Do not be afraid of sudden terror, Nor of trouble from the wicked when it comes;
 For the Lord will be your confidence, And will keep your foot from being caught. 
 
 ###### 27 
-Do not withhold good from those to whom it is due, When it is in the power of your hand to do _so._ 
+Do not withhold good from those to whom it is due, When it is in the power of your hand to do so. 
 
 ###### 28 
-Do not say to your neighbor, "Go, and come back, And tomorrow I will give _it,_" When you have it with you. 
+Do not say to your neighbor, "Go, and come back, And tomorrow I will give it," When you have it with you. 
 
 ###### 29 
 Do not devise evil against your neighbor, For he dwells by you for safety's sake. 
@@ -103,10 +103,10 @@ Do not strive with a man without cause, If he has done you no harm.
 Do not envy the oppressor, And choose none of his ways; 
 
 ###### 32 
-For the perverse _person is_ an abomination to the Lord, But His secret counsel _is_ with the upright. 
+For the perverse person is an abomination to the Lord, But His secret counsel is with the upright. 
 
 ###### 33 
-The curse of the Lord _is_ on the house of the wicked, But He blesses the home of the just. 
+The curse of the Lord is on the house of the wicked, But He blesses the home of the just. 
 
 ###### 34 
 Surely He scorns the scornful, But gives grace to the humble. 

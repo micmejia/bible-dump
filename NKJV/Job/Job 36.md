@@ -13,25 +13,25 @@ next: ['Job 37']
 Elihu also proceeded and said: 
 
 ###### 2 
-"Bear with me a little, and I will show you That _there are_ yet words to speak on God's behalf. 
+"Bear with me a little, and I will show you That there are yet words to speak on God's behalf. 
 
 ###### 3 
 I will fetch my knowledge from afar; I will ascribe righteousness to my Maker. 
 
 ###### 4 
-For truly my words _are_ not false; One who is perfect in knowledge _is_ with you. 
+For truly my words are not false; One who is perfect in knowledge is with you. 
 
 ###### 5 
-"Behold, God _is_ mighty, but despises _no one;_ _He is_ mighty in strength of understanding. 
+"Behold, God is mighty, but despises no one; He is mighty in strength of understanding. 
 
 ###### 6 
 He does not preserve the life of the wicked, But gives justice to the oppressed. 
 
 ###### 7 
-He does not withdraw His eyes from the righteous; But _they are_ on the throne with kings, For He has seated them forever, And they are exalted. 
+He does not withdraw His eyes from the righteous; But they are on the throne with kings, For He has seated them forever, And they are exalted. 
 
 ###### 8 
-And if _they are_ bound in fetters, Held in the cords of affliction, 
+And if they are bound in fetters, Held in the cords of affliction, 
 
 ###### 9 
 Then He tells them their work and their transgressions-- That they have acted defiantly. 
@@ -40,7 +40,7 @@ Then He tells them their work and their transgressions-- That they have acted de
 He also opens their ear to instruction, And commands that they turn from iniquity. 
 
 ###### 11 
-If they obey and serve _Him,_ They shall spend their days in prosperity, And their years in pleasures. 
+If they obey and serve Him, They shall spend their days in prosperity, And their years in pleasures. 
 
 ###### 12 
 But if they do not obey, They shall perish by the sword, And they shall die without knowledge. 
@@ -49,19 +49,19 @@ But if they do not obey, They shall perish by the sword, And they shall die with
 "But the hypocrites in heart store up wrath; They do not cry for help when He binds them. 
 
 ###### 14 
-They die in youth, And their life _ends_ among the perverted persons. 
+They die in youth, And their life ends among the perverted persons. 
 
 ###### 15 
 He delivers the poor in their affliction, And opens their ears in oppression. 
 
 ###### 16 
-"Indeed He would have brought you out of dire distress, _Into_ a broad place where _there is_ no restraint; And what is set on your table _would be_ full of richness. 
+"Indeed He would have brought you out of dire distress, Into a broad place where there is no restraint; And what is set on your table would be full of richness. 
 
 ###### 17 
-But you are filled with the judgment due the wicked; Judgment and justice take hold _of you._ 
+But you are filled with the judgment due the wicked; Judgment and justice take hold of you. 
 
 ###### 18 
-Because _there is_ wrath, _beware_ lest He take you away with _one_ blow; For a large ransom would not help you avoid _it._ 
+Because there is wrath, beware lest He take you away with one blow; For a large ransom would not help you avoid it. 
 
 ###### 19 
 Will your riches, Or all the mighty forces, Keep you from distress? 
@@ -84,19 +84,19 @@ Who has assigned Him His way, Or who has said, 'You have done wrong'?
 "Remember to magnify His work, Of which men have sung. 
 
 ###### 25 
-Everyone has seen it; Man looks on _it_ from afar. 
+Everyone has seen it; Man looks on it from afar. 
 
 ###### 26 
-"Behold, God _is_ great, and we do not know _Him;_ Nor can the number of His years _be_ discovered. 
+"Behold, God is great, and we do not know Him; Nor can the number of His years be discovered. 
 
 ###### 27 
 For He draws up drops of water, Which distill as rain from the mist, 
 
 ###### 28 
-Which the clouds drop down _And_ pour abundantly on man. 
+Which the clouds drop down And pour abundantly on man. 
 
 ###### 29 
-Indeed, can _anyone_ understand the spreading of clouds, The thunder from His canopy? 
+Indeed, can anyone understand the spreading of clouds, The thunder from His canopy? 
 
 ###### 30 
 Look, He scatters His light upon it, And covers the depths of the sea. 
@@ -105,7 +105,7 @@ Look, He scatters His light upon it, And covers the depths of the sea.
 For by these He judges the peoples; He gives food in abundance. 
 
 ###### 32 
-He covers _His_ hands with lightning, And commands it to strike. 
+He covers His hands with lightning, And commands it to strike. 
 
 ###### 33 
-His thunder declares it, The cattle also, concerning the rising _storm._
+His thunder declares it, The cattle also, concerning the rising storm.

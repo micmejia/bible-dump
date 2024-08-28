@@ -49,7 +49,7 @@ Now there was a certain man among the Pharisees named Nicodemus, a ruler (a lead
 
 
 
-Who came to Jesus at night and said to Him, Rabbi, we know _and_ are certain that You have come from God [as] a Teacher; for no one can do these signs (these wonderworks, these miracles--and produce the proofs) that You do unless God is with him. 
+Who came to Jesus at night and said to Him, Rabbi, we know and are certain that You have come from God [as] a Teacher; for no one can do these signs (these wonderworks, these miracles--and produce the proofs) that You do unless God is with him. 
 
 
 
@@ -217,7 +217,7 @@ Nicodemus answered by asking, How can all this be possible?
 
 
 
-Jesus replied, Are you the teacher of Israel, and yet do not know _nor_ understand these things? [Are they strange to you?] 
+Jesus replied, Are you the teacher of Israel, and yet do not know nor understand these things? [Are they strange to you?] 
 
 
 
@@ -280,7 +280,7 @@ If I have told you of things that happen right here on the earth and yet none of
 
 
 
-And yet no one has ever gone up to heaven, but there is One Who has come down from heaven--the Son of Man [Himself], _Who is (dwells, has His home) in heaven._ 
+And yet no one has ever gone up to heaven, but there is One Who has come down from heaven--the Son of Man [Himself], Who is (dwells, has His home) in heaven. 
 
 
 
@@ -322,7 +322,7 @@ And just as Moses lifted up the serpent in the desert [on a pole], so must [so i
 
 
 
-In order that everyone who believes in Him [who cleaves to Him, trusts Him, and relies on Him] may _not perish, but_ have eternal life _and_ [actually] live forever! 
+In order that everyone who believes in Him [who cleaves to Him, trusts Him, and relies on Him] may not perish, but have eternal life and [actually] live forever! 
 
 
 
@@ -343,7 +343,7 @@ In order that everyone who believes in Him [who cleaves to Him, trusts Him, and 
 
 
 
-For God so greatly loved _and_ dearly prized the world that He [even] gave up His only begotten (unique) Son, so that whoever believes in (trusts in, clings to, relies on) Him shall not perish (come to destruction, be lost) but have eternal (everlasting) life. 
+For God so greatly loved and dearly prized the world that He [even] gave up His only begotten (unique) Son, so that whoever believes in (trusts in, clings to, relies on) Him shall not perish (come to destruction, be lost) but have eternal (everlasting) life. 
 
 
 
@@ -364,7 +364,7 @@ For God so greatly loved _and_ dearly prized the world that He [even] gave up Hi
 
 
 
-For God did not send the Son into the world in order to judge (to reject, to condemn, to pass sentence on) the world, but that the world might find salvation _and_ be made safe _and_ sound through Him. 
+For God did not send the Son into the world in order to judge (to reject, to condemn, to pass sentence on) the world, but that the world might find salvation and be made safe and sound through Him. 
 
 
 
@@ -385,7 +385,7 @@ For God did not send the Son into the world in order to judge (to reject, to con
 
 
 
-He who believes in Him [who clings to, trusts in, relies on Him] is not judged [he who trusts in Him never comes up for judgment; for him there is no rejection, no condemnation--he incurs no damnation]; but he who does not believe (cleave to, rely on, trust in Him) is judged already [he has already been convicted and has already received his sentence] because he has not believed in _and_ trusted in the name of the only begotten Son of God. [He is condemned for refusing to let his trust rest in Christ's name.] 
+He who believes in Him [who clings to, trusts in, relies on Him] is not judged [he who trusts in Him never comes up for judgment; for him there is no rejection, no condemnation--he incurs no damnation]; but he who does not believe (cleave to, rely on, trust in Him) is judged already [he has already been convicted and has already received his sentence] because he has not believed in and trusted in the name of the only begotten Son of God. [He is condemned for refusing to let his trust rest in Christ's name.] 
 
 
 
@@ -406,7 +406,7 @@ He who believes in Him [who clings to, trusts in, relies on Him] is not judged [
 
 
 
-The [basis of the] judgment (indictment, the test by which men are judged, the ground for the sentence) lies in this: the Light has come into the world, and people have loved the darkness rather than _and_ more than the Light, for their works (deeds) were evil. 
+The [basis of the] judgment (indictment, the test by which men are judged, the ground for the sentence) lies in this: the Light has come into the world, and people have loved the darkness rather than and more than the Light, for their works (deeds) were evil. 
 
 
 
@@ -427,7 +427,7 @@ The [basis of the] judgment (indictment, the test by which men are judged, the g
 
 
 
-For every wrongdoer hates (loathes, detests) the Light, and will not come out into the Light _but_ shrinks from it, lest his works (his deeds, his activities, his conduct) be exposed _and_ reproved. 
+For every wrongdoer hates (loathes, detests) the Light, and will not come out into the Light but shrinks from it, lest his works (his deeds, his activities, his conduct) be exposed and reproved. 
 
 
 
@@ -616,7 +616,7 @@ You yourselves are my witnesses [you personally bear me out] that I stated, I am
 
 
 
-He who has the bride is the bridegroom; but the groomsman who stands by and listens to him rejoices greatly _and_ heartily on account of the bridegroom's voice. This then is my pleasure _and_ joy, and it is now complete. 
+He who has the bride is the bridegroom; but the groomsman who stands by and listens to him rejoices greatly and heartily on account of the bridegroom's voice. This then is my pleasure and joy, and it is now complete. 
 
 
 
@@ -721,7 +721,7 @@ Whoever receives His testimony has set his seal of approval to this: God is true
 
 
 
-For since He Whom God has sent speaks the words of God [proclaims God's own message], God does not give Him His Spirit sparingly _or_ by measure, _but_ boundless is the gift God makes of His Spirit! 
+For since He Whom God has sent speaks the words of God [proclaims God's own message], God does not give Him His Spirit sparingly or by measure, but boundless is the gift God makes of His Spirit! 
 
 
 

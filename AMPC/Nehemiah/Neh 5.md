@@ -196,7 +196,7 @@ I said to them, We, according to our ability, have bought back our Jewish brethr
 
 
 
-Also I said, What you are doing is not good. Should you not walk in the fear of our God to prevent the taunts _and_ reproach of the nations, our enemies? 
+Also I said, What you are doing is not good. Should you not walk in the fear of our God to prevent the taunts and reproach of the nations, our enemies? 
 
 
 

@@ -49,7 +49,7 @@ When anyone offers a cereal offering to the Lord, it shall be of fine flour; and
 
 
 
-And he shall bring it to Aaron's sons the priests. Out of it he shall take a handful of the fine flour and oil, with all its frankincense, and the priest shall burn this on the altar as the memorial portion of it, an offering made by fire, of a sweet _and_ satisfying fragrance to the Lord. 
+And he shall bring it to Aaron's sons the priests. Out of it he shall take a handful of the fine flour and oil, with all its frankincense, and the priest shall burn this on the altar as the memorial portion of it, an offering made by fire, of a sweet and satisfying fragrance to the Lord. 
 
 
 
@@ -196,7 +196,7 @@ And you shall bring the cereal offering that is made of these things to the Lord
 
 
 
-The priest shall take from the cereal offering its memorial portion and burn it on the altar, an offering made by fire, a sweet _and_ satisfying fragrance to the Lord. 
+The priest shall take from the cereal offering its memorial portion and burn it on the altar, an offering made by fire, a sweet and satisfying fragrance to the Lord. 
 
 
 
@@ -301,7 +301,7 @@ Every cereal offering you shall season with salt [symbol of preservation]; neith
 
 
 
-If you offer a cereal offering of your firstfruits to the Lord, you shall offer for it of your firstfruits grain in the ear parched with fire, bruised _and_ crushed grain out of the fresh _and_ fruitful ear. 
+If you offer a cereal offering of your firstfruits to the Lord, you shall offer for it of your firstfruits grain in the ear parched with fire, bruised and crushed grain out of the fresh and fruitful ear. 
 
 
 
@@ -343,4 +343,4 @@ And you shall put oil on it and lay frankincense on it; it is a cereal offering.
 
 
 
-The priest shall burn as its memorial portion part of the bruised _and_ crushed grain of it and part of the oil of it, with all its frankincense; it is an offering made by fire to the Lord.
+The priest shall burn as its memorial portion part of the bruised and crushed grain of it and part of the oil of it, with all its frankincense; it is an offering made by fire to the Lord.

@@ -49,7 +49,7 @@ Then Job answered:
 
 
 
-How long will you vex _and_ torment me and break me in pieces with words? 
+How long will you vex and torment me and break me in pieces with words? 
 
 
 
@@ -112,7 +112,7 @@ And if it were true that I have erred, my error would remain with me [I would be
 
 
 
-If indeed you magnify yourselves against me and plead against me my reproach _and_ humiliation, 
+If indeed you magnify yourselves against me and plead against me my reproach and humiliation, 
 
 
 
@@ -133,7 +133,7 @@ If indeed you magnify yourselves against me and plead against me my reproach _an
 
 
 
-Know that God has overthrown _and_ put me in the wrong and has closed His net about me. 
+Know that God has overthrown and put me in the wrong and has closed His net about me. 
 
 
 
@@ -259,7 +259,7 @@ He has also kindled His wrath against me, and He counts me as one of His adversa
 
 
 
-His troops come together and cast up their way _and_ siege works against me and encamp round about my tent. 
+His troops come together and cast up their way and siege works against me and encamp round about my tent. 
 
 
 
@@ -406,7 +406,7 @@ Even young children despise me; when I get up, they speak against me.
 
 
 
-All the men of my council _and_ my familiar friends abhor me; those whom I loved are turned against me. 
+All the men of my council and my familiar friends abhor me; those whom I loved are turned against me. 
 
 
 
@@ -427,7 +427,7 @@ All the men of my council _and_ my familiar friends abhor me; those whom I loved
 
 
 
-My bone clings to my skin and to my flesh, and I have escaped with the skin _or_ gums of my teeth. 
+My bone clings to my skin and to my flesh, and I have escaped with the skin or gums of my teeth. 
 
 
 
@@ -469,7 +469,7 @@ Have pity on me! Have pity on me, O you my friends, for the hand of God has touc
 
 
 
-Why do you, as if you were God, pursue _and_ persecute me? [Acting like wild beasts] why are you not satisfied with my flesh? 
+Why do you, as if you were God, pursue and persecute me? [Acting like wild beasts] why are you not satisfied with my flesh? 
 
 
 
@@ -532,7 +532,7 @@ That with an iron pen and [molten] lead they were graven in the rock forever!
 
 
 
-For I know that my Redeemer _and_ Vindicator lives, and at last He [the Last One] will stand upon the earth. 
+For I know that my Redeemer and Vindicator lives, and at last He [the Last One] will stand upon the earth. 
 
 
 
@@ -553,7 +553,7 @@ For I know that my Redeemer _and_ Vindicator lives, and at last He [the Last One
 
 
 
-And after my skin, even this body, has been destroyed, then from my flesh _or_ without it I shall see God, 
+And after my skin, even this body, has been destroyed, then from my flesh or without it I shall see God, 
 
 
 
@@ -574,7 +574,7 @@ And after my skin, even this body, has been destroyed, then from my flesh _or_ w
 
 
 
-Whom I, even I, shall see for myself _and_ on my side! And my eyes shall behold Him, and not as a stranger! My heart pines away _and_ is consumed within me. 
+Whom I, even I, shall see for myself and on my side! And my eyes shall behold Him, and not as a stranger! My heart pines away and is consumed within me. 
 
 
 
@@ -616,4 +616,4 @@ If you say, How we will pursue him! [and continue to persecute me with the claim
 
 
 
-Then beware _and_ be afraid of the sword [of divine vengeance], for wrathful are the punishments of that sword, that you may know there is a judgment.
+Then beware and be afraid of the sword [of divine vengeance], for wrathful are the punishments of that sword, that you may know there is a judgment.

@@ -112,7 +112,7 @@ Then Jeremiah called Baruch son of Neriah, and Baruch wrote upon the scroll of t
 
 
 
-And Jeremiah commanded Baruch, saying, I am [in hiding, virtually] restrained _and_ shut up; I cannot go into the house of the Lord. 
+And Jeremiah commanded Baruch, saying, I am [in hiding, virtually] restrained and shut up; I cannot go into the house of the Lord. 
 
 
 

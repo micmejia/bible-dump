@@ -49,7 +49,7 @@ Then the Lord said to Moses, Yet will I bring one plague more on Pharaoh and on 
 
 
 
-Speak now in the hearing of the people, and let every man solicit _and_ ask of his neighbor, and every woman of her neighbor, jewels of silver and jewels of gold. 
+Speak now in the hearing of the people, and let every man solicit and ask of his neighbor, and every woman of her neighbor, jewels of silver and jewels of gold. 
 
 
 
@@ -196,7 +196,7 @@ And all these your servants shall come down to me and bow down to me, saying, Ge
 
 
 
-Then the Lord said to Moses, Pharaoh will not listen to you, that My wonders _and_ miracles may be multiplied in the land of Egypt. 
+Then the Lord said to Moses, Pharaoh will not listen to you, that My wonders and miracles may be multiplied in the land of Egypt. 
 
 
 
@@ -217,4 +217,4 @@ Then the Lord said to Moses, Pharaoh will not listen to you, that My wonders _an
 
 
 
-Moses and Aaron did all these wonders _and_ miracles before Pharaoh; and the Lord hardened Pharaoh's stubborn heart, and he did not let the Israelites go out of his land.
+Moses and Aaron did all these wonders and miracles before Pharaoh; and the Lord hardened Pharaoh's stubborn heart, and he did not let the Israelites go out of his land.

@@ -49,7 +49,7 @@ At the end of twenty years, in which Solomon had built the house of the Lord and
 
 
 
-The cities which Huram had given to [him] Solomon rebuilt _and_ fortified, and caused the Israelites to dwell there. 
+The cities which Huram had given to [him] Solomon rebuilt and fortified, and caused the Israelites to dwell there. 
 
 
 
@@ -259,7 +259,7 @@ Solomon brought the daughter of Pharaoh out of the City of David into the house 
 
 
 
-Then Solomon offered burnt offerings to the Lord on the Lord's altar which he had built before the [temple] porch _or_ vestibule, 
+Then Solomon offered burnt offerings to the Lord on the Lord's altar which he had built before the [temple] porch or vestibule, 
 
 
 

@@ -91,7 +91,7 @@ Then let us arise and go up to Bethel, and I will make there an altar to God Who
 
 
 
-So they [both young men and women] gave to Jacob all the strange gods they had and their earrings which were [worn as charms against evil] in their ears; and Jacob buried _and_ hid them under the oak near Shechem. 
+So they [both young men and women] gave to Jacob all the strange gods they had and their earrings which were [worn as charms against evil] in their ears; and Jacob buried and hid them under the oak near Shechem. 
 
 
 
@@ -616,4 +616,4 @@ Now the days of Isaac were 180 years.
 
 
 
-And Isaac's spirit departed; he died and was gathered to his people, being an old man, satisfied _and_ satiated with days; his sons Esau and Jacob buried him.
+And Isaac's spirit departed; he died and was gathered to his people, being an old man, satisfied and satiated with days; his sons Esau and Jacob buried him.

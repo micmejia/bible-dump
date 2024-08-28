@@ -49,7 +49,7 @@ Then Zophar the Naamathite replied,
 
 
 
-Should not the multitude of words be answered? And should a man full of talk [and making such great professions] be pronounced free from guilt _or_ blame? 
+Should not the multitude of words be answered? And should a man full of talk [and making such great professions] be pronounced free from guilt or blame? 
 
 
 
@@ -70,7 +70,7 @@ Should not the multitude of words be answered? And should a man full of talk [an
 
 
 
-Should your boastings _and_ babble make men keep silent? And when you mock _and_ scoff, shall no man make you ashamed? 
+Should your boastings and babble make men keep silent? And when you mock and scoff, shall no man make you ashamed? 
 
 
 
@@ -133,7 +133,7 @@ But oh, that God would speak, and open His lips against you,
 
 
 
-And that He would show you the secrets of wisdom! For He is manifold in understanding! Know therefore that God exacts of you less than your guilt _and_ iniquity [deserve]. 
+And that He would show you the secrets of wisdom! For He is manifold in understanding! Know therefore that God exacts of you less than your guilt and iniquity [deserve]. 
 
 
 
@@ -238,7 +238,7 @@ If [God] sweeps in and arrests and calls into judgment, who can hinder Him? [If 
 
 
 
-For He recognizes _and_ knows hollow, wicked, _and_ useless men (men of falsehood); when He sees iniquity, will He not consider it? 
+For He recognizes and knows hollow, wicked, and useless men (men of falsehood); when He sees iniquity, will He not consider it? 
 
 
 
@@ -301,7 +301,7 @@ If you set your heart aright and stretch out your hands to [God],
 
 
 
-If you put sin out of your hand _and_ far away from you and let not evil dwell in your tents; 
+If you put sin out of your hand and far away from you and let not evil dwell in your tents; 
 
 
 
@@ -322,7 +322,7 @@ If you put sin out of your hand _and_ far away from you and let not evil dwell i
 
 
 
-Then can you lift up your face to Him without stain [of sin, and unashamed]; yes, you shall be steadfast _and_ secure; you shall not fear. 
+Then can you lift up your face to Him without stain [of sin, and unashamed]; yes, you shall be steadfast and secure; you shall not fear. 
 
 
 
@@ -364,7 +364,7 @@ For you shall forget your misery; you shall remember it as waters that pass away
 
 
 
-And [your] life shall be clearer than the noonday _and_ rise above it; though there be darkness, it shall be as the morning. 
+And [your] life shall be clearer than the noonday and rise above it; though there be darkness, it shall be as the morning. 
 
 
 
@@ -385,7 +385,7 @@ And [your] life shall be clearer than the noonday _and_ rise above it; though th
 
 
 
-And you shall be secure _and_ feel confident because there is hope; yes, you shall search about you, and you shall take your rest in safety. 
+And you shall be secure and feel confident because there is hope; yes, you shall search about you, and you shall take your rest in safety. 
 
 
 

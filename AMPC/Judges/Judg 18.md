@@ -154,7 +154,7 @@ And the priest said to them, Go in peace. The way in which you go is before (und
 
 
 
-Then the five men departed and came to Laish and saw the people who were there, how they dwelt securely after the manner of the Sidonians, quiet and feeling safe; and there was no magistrate in the land, who might put them to shame in anything _or_ injure them; and they were far from the Sidonians and had no dealings with anyone. 
+Then the five men departed and came to Laish and saw the people who were there, how they dwelt securely after the manner of the Sidonians, quiet and feeling safe; and there was no magistrate in the land, who might put them to shame in anything or injure them; and they were far from the Sidonians and had no dealings with anyone. 
 
 
 

@@ -19,7 +19,7 @@ And it was told the king of Jericho, saying, "Behold, men have come here tonight
 So the king of Jericho sent to Rahab, saying, "Bring out the men who have come to you, who have entered your house, for they have come to search out all the country." 
 
 ###### 4 
-Then the woman took the two men and hid them. So she said, "Yes, the men came to me, but I did not know where they _were_ from. 
+Then the woman took the two men and hid them. So she said, "Yes, the men came to me, but I did not know where they were from. 
 
 ###### 5 
 And it happened as the gate was being shut, when it was dark, that the men went out. Where the men went I do not know; pursue them quickly, for you may overtake them." 
@@ -37,10 +37,10 @@ Now before they lay down, she came up to them on the roof,
 and said to the men: "I know that the Lord has given you the land, that the terror of you has fallen on us, and that all the inhabitants of the land are fainthearted because of you. 
 
 ###### 10 
-For we have heard how the Lord dried up the water of the Red Sea for you when you came out of Egypt, and what you did to the two kings of the Amorites who _were_ on the other side of the Jordan, Sihon and Og, whom you utterly destroyed. 
+For we have heard how the Lord dried up the water of the Red Sea for you when you came out of Egypt, and what you did to the two kings of the Amorites who were on the other side of the Jordan, Sihon and Og, whom you utterly destroyed. 
 
 ###### 11 
-And as soon as we heard _these things,_ our hearts melted; neither did there remain any more courage in anyone because of you, for the Lord your God, He _is_ God in heaven above and on earth beneath. 
+And as soon as we heard these things, our hearts melted; neither did there remain any more courage in anyone because of you, for the Lord your God, He is God in heaven above and on earth beneath. 
 
 ###### 12 
 Now therefore, I beg you, swear to me by the Lord, since I have shown you kindness, that you also will show kindness to my father's house, and give me a true token, 
@@ -52,28 +52,28 @@ and spare my father, my mother, my brothers, my sisters, and all that they have,
 So the men answered her, "Our lives for yours, if none of you tell this business of ours. And it shall be, when the Lord has given us the land, that we will deal kindly and truly with you." 
 
 ###### 15 
-Then she let them down by a rope through the window, for her house _was_ on the city wall; she dwelt on the wall. 
+Then she let them down by a rope through the window, for her house was on the city wall; she dwelt on the wall. 
 
 ###### 16 
 And she said to them, "Get to the mountain, lest the pursuers meet you. Hide there three days, until the pursuers have returned. Afterward you may go your way." 
 
 ###### 17 
-So the men said to her: "We _will be_ blameless of this oath of yours which you have made us swear, 
+So the men said to her: "We will be blameless of this oath of yours which you have made us swear, 
 
 ###### 18 
-unless, _when_ we come into the land, you bind this line of scarlet cord in the window through which you let us down, and unless you bring your father, your mother, your brothers, and all your father's household to your own home. 
+unless, when we come into the land, you bind this line of scarlet cord in the window through which you let us down, and unless you bring your father, your mother, your brothers, and all your father's household to your own home. 
 
 ###### 19 
-So it shall be _that_ whoever goes outside the doors of your house into the street, his blood _shall be_ on his own head, and we _will be_ guiltless. And whoever is with you in the house, his blood _shall be_ on our head if a hand is laid on him. 
+So it shall be that whoever goes outside the doors of your house into the street, his blood shall be on his own head, and we will be guiltless. And whoever is with you in the house, his blood shall be on our head if a hand is laid on him. 
 
 ###### 20 
 And if you tell this business of ours, then we will be free from your oath which you made us swear." 
 
 ###### 21 
-Then she said, "According to your words, so _be_ it." And she sent them away, and they departed. And she bound the scarlet cord in the window. 
+Then she said, "According to your words, so be it." And she sent them away, and they departed. And she bound the scarlet cord in the window. 
 
 ###### 22 
-They departed and went to the mountain, and stayed there three days until the pursuers returned. The pursuers sought _them_ all along the way, but did not find _them._ 
+They departed and went to the mountain, and stayed there three days until the pursuers returned. The pursuers sought them all along the way, but did not find them. 
 
 ###### 23 
 So the two men returned, descended from the mountain, and crossed over; and they came to Joshua the son of Nun, and told him all that had befallen them. 

@@ -91,7 +91,7 @@ So observe and practice all they tell you; but do not do what they do, for they 
 
 
 
-They tie up heavy loads, _hard to bear_, and place them on men's shoulders, but they themselves will not lift a finger to help bear them. 
+They tie up heavy loads, hard to bear, and place them on men's shoulders, but they themselves will not lift a finger to help bear them. 
 
 
 
@@ -133,7 +133,7 @@ They do all their works to be seen of men; for they make wide their phylacteries
 
 
 
-And they take pleasure in _and_ [thus] love the place of honor at feasts and the best seats in the synagogues, 
+And they take pleasure in and [thus] love the place of honor at feasts and the best seats in the synagogues, 
 
 
 
@@ -301,7 +301,7 @@ But woe to you, scribes and Pharisees, pretenders (hypocrites)! For you shut the
 
 
 
-_Woe to you, scribes and Pharisees, pretenders (hypocrites)! For you swallow up widows' houses and for a pretense to cover it up make long prayers; therefore you will receive the greater condemnation and the heavier sentence._ 
+Woe to you, scribes and Pharisees, pretenders (hypocrites)! For you swallow up widows' houses and for a pretense to cover it up make long prayers; therefore you will receive the greater condemnation and the heavier sentence. 
 
 
 
@@ -490,7 +490,7 @@ And whoever swears by heaven swears by the throne of God and by Him Who sits upo
 
 
 
-Woe to you, scribes and Pharisees, pretenders (hypocrites)! For you give a tenth of your mint and dill and cummin, and have neglected _and_ omitted the weightier (more important) matters of the Law--right _and_ justice and mercy and fidelity. These you ought [particularly] to have done, without neglecting the others. 
+Woe to you, scribes and Pharisees, pretenders (hypocrites)! For you give a tenth of your mint and dill and cummin, and have neglected and omitted the weightier (more important) matters of the Law--right and justice and mercy and fidelity. These you ought [particularly] to have done, without neglecting the others. 
 
 
 
@@ -595,7 +595,7 @@ Woe to you, scribes and Pharisees, pretenders (hypocrites)! For you are like tom
 
 
 
-Just so, you also outwardly seem to people to be just _and_ upright but inside you are full of pretense and lawlessness _and_ iniquity. 
+Just so, you also outwardly seem to people to be just and upright but inside you are full of pretense and lawlessness and iniquity. 
 
 
 
@@ -721,7 +721,7 @@ You serpents! You spawn of vipers! How can you escape the penalty to be suffered
 
 
 
-Because of this, take notice: I am sending you prophets and wise men (interpreters and teachers) and scribes (men learned in the Mosaic Law and the Prophets); some of them you will kill, even crucify, and some you will flog in your synagogues and pursue _and_ persecute from town to town, 
+Because of this, take notice: I am sending you prophets and wise men (interpreters and teachers) and scribes (men learned in the Mosaic Law and the Prophets); some of them you will kill, even crucify, and some you will flog in your synagogues and pursue and persecute from town to town, 
 
 
 

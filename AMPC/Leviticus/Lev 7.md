@@ -28,7 +28,7 @@ next: ['Lev 8']
 
 
 
-This is the law of the guilt _or_ trespass offering; it is most holy _or_ sacred: 
+This is the law of the guilt or trespass offering; it is most holy or sacred: 
 
 
 
@@ -49,7 +49,7 @@ This is the law of the guilt _or_ trespass offering; it is most holy _or_ sacred
 
 
 
-In the place where they kill the burnt offering shall they kill the guilt _or_ trespass offering; the blood of it shall the priest dash against the altar round about. 
+In the place where they kill the burnt offering shall they kill the guilt or trespass offering; the blood of it shall the priest dash against the altar round about. 
 
 
 
@@ -91,7 +91,7 @@ And he shall offer all its fat, the fat tail and the fat that covers the entrail
 
 
 
-And the two kidneys and the fat that is on them at the loins, and the lobe _or_ appendage of the liver, which he shall take away with the kidneys. 
+And the two kidneys and the fat that is on them at the loins, and the lobe or appendage of the liver, which he shall take away with the kidneys. 
 
 
 
@@ -112,7 +112,7 @@ And the two kidneys and the fat that is on them at the loins, and the lobe _or_ 
 
 
 
-And the priest shall burn them on the altar for an offering made by fire to the Lord; it is a guilt _or_ trespass offering. 
+And the priest shall burn them on the altar for an offering made by fire to the Lord; it is a guilt or trespass offering. 
 
 
 
@@ -154,7 +154,7 @@ Every male among the priests may eat of it; it shall be eaten in a sacred place;
 
 
 
-As is the sin offering, so is the guilt _or_ trespass offering; there is one law for them: the priest who makes atonement with it shall have it. 
+As is the sin offering, so is the guilt or trespass offering; there is one law for them: the priest who makes atonement with it shall have it. 
 
 
 
@@ -385,7 +385,7 @@ But the remainder of the flesh of the sacrifice on the third day shall be [wholl
 
 
 
-If any of the flesh of the sacrifice of his peace offerings be eaten at all on the third day, then the one who brought it shall not be credited with it; it shall not be accepted. It shall be an abomination _and_ an abhorred thing; the one who eats of it shall bear his iniquity _and_ answer for it. 
+If any of the flesh of the sacrifice of his peace offerings be eaten at all on the third day, then the one who brought it shall not be credited with it; it shall not be accepted. It shall be an abomination and an abhorred thing; the one who eats of it shall bear his iniquity and answer for it. 
 
 
 
@@ -784,7 +784,7 @@ The Lord commanded this to be given them of the Israelites on the day when they 
 
 
 
-This is the law of the burnt offering, the cereal offering, the sin offering, the guilt _or_ trespass offering, the consecration offering, and the sacrifice of peace offerings, 
+This is the law of the burnt offering, the cereal offering, the sin offering, the guilt or trespass offering, the consecration offering, and the sacrifice of peace offerings, 
 
 
 

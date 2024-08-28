@@ -301,7 +301,7 @@ Oh, that You would hide me in Sheol (the unseen state), that You would conceal m
 
 
 
-If a man dies, shall he live again? All the days of my warfare _and_ service I will wait, till my change _and_ release shall come. 
+If a man dies, shall he live again? All the days of my warfare and service I will wait, till my change and release shall come. 
 
 
 

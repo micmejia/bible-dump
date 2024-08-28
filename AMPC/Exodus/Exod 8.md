@@ -70,7 +70,7 @@ And if you refuse to let them go, behold, I will smite your entire land with fro
 
 
 
-And the river shall swarm with frogs which shall go up and come into your house, into your bedchamber and on your bed, and into the houses of your servants and upon your people, and into your ovens, your kneading bowls, _and_ your dough. 
+And the river shall swarm with frogs which shall go up and come into your house, into your bedchamber and on your bed, and into the houses of your servants and upon your people, and into your ovens, your kneading bowls, and your dough. 
 
 
 
@@ -112,7 +112,7 @@ And the frogs shall come up on you and on your people and all your servants.
 
 
 
-And the Lord said to Moses, Say to Aaron, Stretch out your hand with your rod over the rivers, the streams _and_ canals, and over the pools, and cause frogs to come up on the land of Egypt. 
+And the Lord said to Moses, Say to Aaron, Stretch out your hand with your rod over the rivers, the streams and canals, and over the pools, and cause frogs to come up on the land of Egypt. 
 
 
 
@@ -154,7 +154,7 @@ So Aaron stretched out his hand over the waters of Egypt, and the frogs came up 
 
 
 
-But the magicians did the same thing with their enchantments _and_ secret arts, and brought up [more] frogs upon the land of Egypt. 
+But the magicians did the same thing with their enchantments and secret arts, and brought up [more] frogs upon the land of Egypt. 
 
 
 
@@ -280,7 +280,7 @@ So Moses and Aaron went out from Pharaoh, and Moses cried to the Lord [as he had
 
 
 
-And the Lord did according to the word of Moses, and the frogs died out of the houses, out of the courtyards _and_ villages, and out of the fields. 
+And the Lord did according to the word of Moses, and the frogs died out of the houses, out of the courtyards and villages, and out of the fields. 
 
 
 
@@ -301,7 +301,7 @@ And the Lord did according to the word of Moses, and the frogs died out of the h
 
 
 
-[The people] gathered them together in heaps, and the land was loathsome _and_ stank. 
+[The people] gathered them together in heaps, and the land was loathsome and stank. 
 
 
 
@@ -322,7 +322,7 @@ And the Lord did according to the word of Moses, and the frogs died out of the h
 
 
 
-But when Pharaoh saw that there was temporary relief, he made his heart stubborn _and_ hard and would not listen _or_ heed them, just as the Lord had said. 
+But when Pharaoh saw that there was temporary relief, he made his heart stubborn and hard and would not listen or heed them, just as the Lord had said. 
 
 
 
@@ -343,7 +343,7 @@ But when Pharaoh saw that there was temporary relief, he made his heart stubborn
 
 
 
-Then the Lord said to Moses, Say to Aaron, Stretch out your rod and strike the dust of the ground, that it may become biting gnats _or_ mosquitoes throughout all the land of Egypt. 
+Then the Lord said to Moses, Say to Aaron, Stretch out your rod and strike the dust of the ground, that it may become biting gnats or mosquitoes throughout all the land of Egypt. 
 
 
 
@@ -364,7 +364,7 @@ Then the Lord said to Moses, Say to Aaron, Stretch out your rod and strike the d
 
 
 
-And they did so; Aaron stretched out his hand with his rod and struck the dust of the earth, and there came biting gnats _or_ mosquitoes on man and beast; all the dust of the land became biting gnats _or_ mosquitoes throughout all the land of Egypt. 
+And they did so; Aaron stretched out his hand with his rod and struck the dust of the earth, and there came biting gnats or mosquitoes on man and beast; all the dust of the land became biting gnats or mosquitoes throughout all the land of Egypt. 
 
 
 
@@ -385,7 +385,7 @@ And they did so; Aaron stretched out his hand with his rod and struck the dust o
 
 
 
-The magicians tried by their enchantments _and_ secret arts to bring forth gnats _or_ mosquitoes, but they could not; and there were gnats _or_ mosquitoes on man and beast. 
+The magicians tried by their enchantments and secret arts to bring forth gnats or mosquitoes, but they could not; and there were gnats or mosquitoes on man and beast. 
 
 
 
@@ -406,7 +406,7 @@ The magicians tried by their enchantments _and_ secret arts to bring forth gnats
 
 
 
-Then the magicians said to Pharaoh, This is the finger of God! But Pharaoh's heart was hardened _and_ strong and he would not listen to them, just as the Lord had said. 
+Then the magicians said to Pharaoh, This is the finger of God! But Pharaoh's heart was hardened and strong and he would not listen to them, just as the Lord had said. 
 
 
 
@@ -469,7 +469,7 @@ Else, if you will not let My people go, behold, I will send swarms [of bloodsuck
 
 
 
-But on that day I will sever _and_ set apart the land of Goshen in which My people dwell, that no swarms [of gadflies] shall be there, so that you may know that I am the Lord in the midst of the earth. 
+But on that day I will sever and set apart the land of Goshen in which My people dwell, that no swarms [of gadflies] shall be there, so that you may know that I am the Lord in the midst of the earth. 
 
 
 
@@ -490,7 +490,7 @@ But on that day I will sever _and_ set apart the land of Goshen in which My peop
 
 
 
-And I will put a division _and_ a sign of deliverance between My people and your people. By tomorrow shall this sign be in evidence. 
+And I will put a division and a sign of deliverance between My people and your people. By tomorrow shall this sign be in evidence. 
 
 
 
@@ -511,7 +511,7 @@ And I will put a division _and_ a sign of deliverance between My people and your
 
 
 
-And the Lord did so; and there came heavy _and_ oppressive swarms [of bloodsucking gadflies] into the house of Pharaoh and his servants' houses; and in all of Egypt the land was corrupted _and_ ruined by reason of the great invasion [of gadflies]. 
+And the Lord did so; and there came heavy and oppressive swarms [of bloodsucking gadflies] into the house of Pharaoh and his servants' houses; and in all of Egypt the land was corrupted and ruined by reason of the great invasion [of gadflies]. 
 
 
 
@@ -553,7 +553,7 @@ And Pharaoh called for Moses and Aaron, and said, Go, sacrifice to your God [her
 
 
 
-And Moses said, It is not suitable _or_ right to do that; for the animals the Egyptians hold sacred and will not permit to be slain are those which we are accustomed to sacrifice to the Lord our God; if we did this before the eyes of the Egyptians, would they not stone us? 
+And Moses said, It is not suitable or right to do that; for the animals the Egyptians hold sacred and will not permit to be slain are those which we are accustomed to sacrifice to the Lord our God; if we did this before the eyes of the Egyptians, would they not stone us? 
 
 
 
@@ -679,4 +679,4 @@ And the Lord did as Moses had spoken: He removed the swarms [of attacking gadfli
 
 
 
-But Pharaoh hardened his heart _and_ made it stubborn this time also, nor would he let the people go.
+But Pharaoh hardened his heart and made it stubborn this time also, nor would he let the people go.

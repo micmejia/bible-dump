@@ -196,7 +196,7 @@ I resolve that I will climb the palm tree; I will grasp its branches. Let your b
 
 
 
-And your kisses like the best wine--[then the Shulammite interrupted] that goes down smoothly _and_ sweetly for my beloved [shepherd, kisses] gliding over his lips while he sleeps! 
+And your kisses like the best wine--[then the Shulammite interrupted] that goes down smoothly and sweetly for my beloved [shepherd, kisses] gliding over his lips while he sleeps! 
 
 
 

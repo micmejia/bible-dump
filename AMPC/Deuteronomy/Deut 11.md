@@ -49,7 +49,7 @@ Therefore you shall love the Lord your God and keep His charge, His statutes, Hi
 
 
 
-And know this day--for I am not speaking to your children who have not [personally] known and seen it--the instruction _and_ discipline of the Lord your God: His greatness, His mighty hand, and His outstretched arm; 
+And know this day--for I am not speaking to your children who have not [personally] known and seen it--the instruction and discipline of the Lord your God: His greatness, His mighty hand, and His outstretched arm; 
 
 
 
@@ -637,7 +637,7 @@ And when the Lord your God has brought you into the land which you go to possess
 
 
 
-Are they not beyond the Jordan, west of the road, where the sun goes down, in the land of the Canaanites living in the Arabah opposite Gilgal, beside the oaks _or_ terebinths of Moreh? 
+Are they not beyond the Jordan, west of the road, where the sun goes down, in the land of the Canaanites living in the Arabah opposite Gilgal, beside the oaks or terebinths of Moreh? 
 
 
 

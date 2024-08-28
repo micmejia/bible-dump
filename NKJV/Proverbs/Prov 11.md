@@ -10,10 +10,10 @@ next: ['Prov 12']
 
 
 ###### 1 
-Dishonest scales _are_ an abomination to the Lord, But a just weight _is_ His delight. 
+Dishonest scales are an abomination to the Lord, But a just weight is His delight. 
 
 ###### 2 
-When pride comes, then comes shame; But with the humble _is_ wisdom. 
+When pride comes, then comes shame; But with the humble is wisdom. 
 
 ###### 3 
 The integrity of the upright will guide them, But the perversity of the unfaithful will destroy them. 
@@ -25,19 +25,19 @@ Riches do not profit in the day of wrath, But righteousness delivers from death.
 The righteousness of the blameless will direct his way aright, But the wicked will fall by his own wickedness. 
 
 ###### 6 
-The righteousness of the upright will deliver them, But the unfaithful will be caught by _their_ lust. 
+The righteousness of the upright will deliver them, But the unfaithful will be caught by their lust. 
 
 ###### 7 
-When a wicked man dies, _his_ expectation will perish, And the hope of the unjust perishes. 
+When a wicked man dies, his expectation will perish, And the hope of the unjust perishes. 
 
 ###### 8 
 The righteous is delivered from trouble, And it comes to the wicked instead. 
 
 ###### 9 
-The hypocrite with _his_ mouth destroys his neighbor, But through knowledge the righteous will be delivered. 
+The hypocrite with his mouth destroys his neighbor, But through knowledge the righteous will be delivered. 
 
 ###### 10 
-When it goes well with the righteous, the city rejoices; And when the wicked perish, _there is_ jubilation. 
+When it goes well with the righteous, the city rejoices; And when the wicked perish, there is jubilation. 
 
 ###### 11 
 By the blessing of the upright the city is exalted, But it is overthrown by the mouth of the wicked. 
@@ -49,55 +49,55 @@ He who is devoid of wisdom despises his neighbor, But a man of understanding hol
 A talebearer reveals secrets, But he who is of a faithful spirit conceals a matter. 
 
 ###### 14 
-Where _there is_ no counsel, the people fall; But in the multitude of counselors _there is_ safety. 
+Where there is no counsel, the people fall; But in the multitude of counselors there is safety. 
 
 ###### 15 
 He who is surety for a stranger will suffer, But one who hates being surety is secure. 
 
 ###### 16 
-A gracious woman retains honor, But ruthless _men_ retain riches. 
+A gracious woman retains honor, But ruthless men retain riches. 
 
 ###### 17 
-The merciful man does good for his own soul, But _he who is_ cruel troubles his own flesh. 
+The merciful man does good for his own soul, But he who is cruel troubles his own flesh. 
 
 ###### 18 
-The wicked _man_ does deceptive work, But he who sows righteousness _will have_ a sure reward. 
+The wicked man does deceptive work, But he who sows righteousness will have a sure reward. 
 
 ###### 19 
-As righteousness _leads_ to life, So he who pursues evil _pursues it_ to his own death. 
+As righteousness leads to life, So he who pursues evil pursues it to his own death. 
 
 ###### 20 
-Those who are of a perverse heart _are_ an abomination to the Lord, But _the_ blameless in their ways _are_ His delight. 
+Those who are of a perverse heart are an abomination to the Lord, But the blameless in their ways are His delight. 
 
 ###### 21 
-_Though they join_ forces, the wicked will not go unpunished; But the posterity of the righteous will be delivered. 
+Though they join forces, the wicked will not go unpunished; But the posterity of the righteous will be delivered. 
 
 ###### 22 
-_As_ a ring of gold in a swine's snout, _So is_ a lovely woman who lacks discretion. 
+As a ring of gold in a swine's snout, So is a lovely woman who lacks discretion. 
 
 ###### 23 
-The desire of the righteous _is_ only good, _But_ the expectation of the wicked _is_ wrath. 
+The desire of the righteous is only good, But the expectation of the wicked is wrath. 
 
 ###### 24 
-There is _one_ who scatters, yet increases more; And there is _one_ who withholds more than is right, But it _leads_ to poverty. 
+There is one who scatters, yet increases more; And there is one who withholds more than is right, But it leads to poverty. 
 
 ###### 25 
 The generous soul will be made rich, And he who waters will also be watered himself. 
 
 ###### 26 
-The people will curse him who withholds grain, But blessing _will be_ on the head of him who sells _it._ 
+The people will curse him who withholds grain, But blessing will be on the head of him who sells it. 
 
 ###### 27 
-He who earnestly seeks good finds favor, But trouble will come to him who seeks _evil._ 
+He who earnestly seeks good finds favor, But trouble will come to him who seeks evil. 
 
 ###### 28 
 He who trusts in his riches will fall, But the righteous will flourish like foliage. 
 
 ###### 29 
-He who troubles his own house will inherit the wind, And the fool _will be_ servant to the wise of heart. 
+He who troubles his own house will inherit the wind, And the fool will be servant to the wise of heart. 
 
 ###### 30 
-The fruit of the righteous _is a_ tree of life, And he who wins souls _is_ wise. 
+The fruit of the righteous is a tree of life, And he who wins souls is wise. 
 
 ###### 31 
 If the righteous will be recompensed on the earth, How much more the ungodly and the sinner.

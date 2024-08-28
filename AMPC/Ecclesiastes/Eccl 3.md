@@ -28,7 +28,7 @@ next: ['Eccl 4']
 
 
 
-To everything there is a season, and a time for every matter _or_ purpose under heaven: 
+To everything there is a season, and a time for every matter or purpose under heaven: 
 
 
 
@@ -217,7 +217,7 @@ What profit remains for the worker from his toil?
 
 
 
-I have seen the painful labor _and_ exertion _and_ miserable business which God has given to the sons of men with which to exercise _and_ busy themselves. 
+I have seen the painful labor and exertion and miserable business which God has given to the sons of men with which to exercise and busy themselves. 
 
 
 
@@ -238,7 +238,7 @@ I have seen the painful labor _and_ exertion _and_ miserable business which God 
 
 
 
-He has made everything beautiful in its time. He also has planted eternity in men's hearts _and_ minds [a divinely implanted sense of a purpose working through the ages which nothing under the sun but God alone can satisfy], yet so that men cannot find out what God has done from the beginning to the end. 
+He has made everything beautiful in its time. He also has planted eternity in men's hearts and minds [a divinely implanted sense of a purpose working through the ages which nothing under the sun but God alone can satisfy], yet so that men cannot find out what God has done from the beginning to the end. 
 
 
 
@@ -259,7 +259,7 @@ He has made everything beautiful in its time. He also has planted eternity in me
 
 
 
-I know that there is nothing better for them than to be glad and to get _and_ do good as long as they live; 
+I know that there is nothing better for them than to be glad and to get and do good as long as they live; 
 
 
 
@@ -364,7 +364,7 @@ Moreover, I saw under the sun that in the place of justice there was wickedness,
 
 
 
-I said in my heart, God will judge the righteous and the wicked, for there is a time [appointed] for every matter _and_ purpose and for every work. 
+I said in my heart, God will judge the righteous and the wicked, for there is a time [appointed] for every matter and purpose and for every work. 
 
 
 
@@ -406,7 +406,7 @@ I said in my heart regarding the subject of the sons of men, God is trying (sepa
 
 
 
-For that which befalls the sons of men befalls beasts; even [in the end] one thing befalls them both. As the one dies, so dies the other. Yes, they all have one breath _and_ spirit, so that a man has no preeminence over a beast; for all is vanity (emptiness, falsity, and futility)! 
+For that which befalls the sons of men befalls beasts; even [in the end] one thing befalls them both. As the one dies, so dies the other. Yes, they all have one breath and spirit, so that a man has no preeminence over a beast; for all is vanity (emptiness, falsity, and futility)! 
 
 
 

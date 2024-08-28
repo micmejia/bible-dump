@@ -49,7 +49,7 @@ Thus the Lord God showed to me, and behold, a basket of [ripe and therefore soon
 
 
 
-And He said, Amos, what do you see? And I said, A basket of summer fruit. Then said the Lord to me, The end has come upon My people Israel; I will not pass by _and_ spare them any more. 
+And He said, Amos, what do you see? And I said, A basket of summer fruit. Then said the Lord to me, The end has come upon My people Israel; I will not pass by and spare them any more. 
 
 
 
@@ -91,7 +91,7 @@ And the songs of the temple shall become wailings in that day, says the Lord God
 
 
 
-Hear this, O you who would swallow up _and_ trample down the needy, even to make the poor of the land to fail _and_ come to an end, 
+Hear this, O you who would swallow up and trample down the needy, even to make the poor of the land to fail and come to an end, 
 
 
 
@@ -154,7 +154,7 @@ That we may buy [into slavery] the poor for silver and the needy for a pair of s
 
 
 
-The Lord has sworn by [Himself Who is] the Glory _and_ Pride of Jacob, Surely I will never forget any of their [rebellious] deeds. 
+The Lord has sworn by [Himself Who is] the Glory and Pride of Jacob, Surely I will never forget any of their [rebellious] deeds. 
 
 
 
@@ -301,4 +301,4 @@ In that day shall the fair virgins and young men faint for thirst.
 
 
 
-Those who swear by Ashimah _or_ the sin of Samaria and say, By the life of your god [the golden calf], O Dan! and [swear], By the life of the way of [idolatrous] Beersheba, they shall fall and rise no more.
+Those who swear by Ashimah or the sin of Samaria and say, By the life of your god [the golden calf], O Dan! and [swear], By the life of the way of [idolatrous] Beersheba, they shall fall and rise no more.

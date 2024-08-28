@@ -322,7 +322,7 @@ There He found in the temple [enclosure] those who were selling oxen and sheep a
 
 
 
-And having made a lash (a whip) of cords, He drove them all out of the temple [enclosure]--both the sheep and the oxen--spilling _and_ scattering the brokers' money and upsetting _and_ tossing around their trays (their stands). 
+And having made a lash (a whip) of cords, He drove them all out of the temple [enclosure]--both the sheep and the oxen--spilling and scattering the brokers' money and upsetting and tossing around their trays (their stands). 
 
 
 
@@ -469,7 +469,7 @@ But He had spoken of the temple which was His body.
 
 
 
-When therefore He had risen from the dead, His disciples remembered that He said this. And so they believed _and_ trusted _and_ relied on the Scripture and the word (message) Jesus had spoken. 
+When therefore He had risen from the dead, His disciples remembered that He said this. And so they believed and trusted and relied on the Scripture and the word (message) Jesus had spoken. 
 
 
 

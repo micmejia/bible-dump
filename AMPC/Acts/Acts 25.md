@@ -49,7 +49,7 @@ Now when Festus had entered into his own province, after three days he went up f
 
 
 
-And [there] the chief priests and the principal men of the Jews laid charges before him against Paul, and they kept begging _and_ urging him, 
+And [there] the chief priests and the principal men of the Jews laid charges before him against Paul, and they kept begging and urging him, 
 
 
 
@@ -112,7 +112,7 @@ Festus answered that Paul was in custody in Caesarea and that he himself planned
 
 
 
-So, said he, let those who are in a position of authority _and_ are influential among you go down with me, and if there is anything amiss _or_ criminal about the man, let them so charge him. 
+So, said he, let those who are in a position of authority and are influential among you go down with me, and if there is anything amiss or criminal about the man, let them so charge him. 
 
 
 
@@ -238,7 +238,7 @@ But Paul replied, I am standing before Caesar's judgment seat, where I ought to 
 
 
 
-If then I am a wrongdoer _and_ a criminal and have committed anything for which I deserve to die, I do not beg off _and_ seek to escape death; but if there is no ground for their accusations against me, no one can give me up _and_ make a present of me [give me up freely] to them. I appeal to Caesar. 
+If then I am a wrongdoer and a criminal and have committed anything for which I deserve to die, I do not beg off and seek to escape death; but if there is no ground for their accusations against me, no one can give me up and make a present of me [give me up freely] to them. I appeal to Caesar. 
 
 
 
@@ -322,7 +322,7 @@ And while they remained there for many days, Festus acquainted the king with Pau
 
 
 
-And when I was at Jerusalem, the chief priests and the elders of the Jews informed me about him, petitioning for a judicial hearing _and_ condemnation of him. 
+And when I was at Jerusalem, the chief priests and the elders of the Jews informed me about him, petitioning for a judicial hearing and condemnation of him. 
 
 
 
@@ -406,7 +406,7 @@ So when they came here together, I did not delay, but on the morrow took my plac
 
 
 
-Instead they had some points of controversy with him about their own religion _or_ superstition and concerning one Jesus, Who had died but Whom Paul kept asserting [over and over] to be alive. 
+Instead they had some points of controversy with him about their own religion or superstition and concerning one Jesus, Who had died but Whom Paul kept asserting [over and over] to be alive. 
 
 
 
@@ -448,7 +448,7 @@ And I, being puzzled to know how to make inquiries into such questions, asked wh
 
 
 
-But when Paul had appealed to have his case retained for examination _and_ decision by the emperor, I ordered that he be detained until I could send him to Caesar. 
+But when Paul had appealed to have his case retained for examination and decision by the emperor, I ordered that he be detained until I could send him to Caesar. 
 
 
 
@@ -511,7 +511,7 @@ So the next day Agrippa and Bernice approached with great display, and they went
 
 
 
-Then Festus said, King Agrippa and all the men present with us, you see this man about whom the whole Jewish people came to me _and_ complained, both at Jerusalem and here, insisting _and_ shouting that he ought not to live any longer. 
+Then Festus said, King Agrippa and all the men present with us, you see this man about whom the whole Jewish people came to me and complained, both at Jerusalem and here, insisting and shouting that he ought not to live any longer. 
 
 
 
@@ -553,7 +553,7 @@ But I found nothing that he had done deserving of death. Still, as he himself ap
 
 
 
-[However] I have nothing in particular _and_ definite to write to my lord concerning him. So I have brought him before all of you, and especially before you, King Agrippa, so that after [further] examination has been made, I may have something to put in writing. 
+[However] I have nothing in particular and definite to write to my lord concerning him. So I have brought him before all of you, and especially before you, King Agrippa, so that after [further] examination has been made, I may have something to put in writing. 
 
 
 
@@ -574,4 +574,4 @@ But I found nothing that he had done deserving of death. Still, as he himself ap
 
 
 
-For it seems to me senseless _and_ absurd to send a prisoner and not state the accusations against him.
+For it seems to me senseless and absurd to send a prisoner and not state the accusations against him.

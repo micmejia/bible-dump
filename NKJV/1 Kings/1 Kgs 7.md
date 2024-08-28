@@ -13,37 +13,37 @@ next: ['1 Kgs 8']
 But Solomon took thirteen years to build his own house; so he finished all his house. 
 
 ###### 2 
-He also built the House of the Forest of Lebanon; its length _was_ one hundred cubits, its width fifty cubits, and its height thirty cubits, with four rows of cedar pillars, and cedar beams on the pillars. 
+He also built the House of the Forest of Lebanon; its length was one hundred cubits, its width fifty cubits, and its height thirty cubits, with four rows of cedar pillars, and cedar beams on the pillars. 
 
 ###### 3 
-And _it was_ paneled with cedar above the beams that _were_ on forty-five pillars, fifteen _to_ a row. 
+And it was paneled with cedar above the beams that were on forty-five pillars, fifteen to a row. 
 
 ###### 4 
-_There were_ windows _with beveled frames in_ three rows, and window _was_ opposite window _in_ three tiers. 
+There were windows with beveled frames in three rows, and window was opposite window in three tiers. 
 
 ###### 5 
-And all the doorways and doorposts _had_ rectangular frames; and window _was_ opposite window _in_ three tiers. 
+And all the doorways and doorposts had rectangular frames; and window was opposite window in three tiers. 
 
 ###### 6 
-He also made the Hall of Pillars: its length _was_ fifty cubits, and its width thirty cubits; and in front of them _was_ a portico with pillars, and a canopy _was_ in front of them. 
+He also made the Hall of Pillars: its length was fifty cubits, and its width thirty cubits; and in front of them was a portico with pillars, and a canopy was in front of them. 
 
 ###### 7 
-Then he made a hall for the throne, the Hall of Judgment, where he might judge; and _it was_ paneled with cedar from floor to ceiling. 
+Then he made a hall for the throne, the Hall of Judgment, where he might judge; and it was paneled with cedar from floor to ceiling. 
 
 ###### 8 
-And the house where he dwelt _had_ another court inside the hall, of like workmanship. Solomon also made a house like this hall for Pharaoh's daughter, whom he had taken _as wife._ 
+And the house where he dwelt had another court inside the hall, of like workmanship. Solomon also made a house like this hall for Pharaoh's daughter, whom he had taken as wife. 
 
 ###### 9 
-All these _were of_ costly stones cut to size, trimmed with saws, inside and out, from the foundation to the eaves, and also on the outside to the great court. 
+All these were of costly stones cut to size, trimmed with saws, inside and out, from the foundation to the eaves, and also on the outside to the great court. 
 
 ###### 10 
-The foundation _was of_ costly stones, large stones, some ten cubits and some eight cubits. 
+The foundation was of costly stones, large stones, some ten cubits and some eight cubits. 
 
 ###### 11 
-And above _were_ costly stones, hewn to size, and cedar wood. 
+And above were costly stones, hewn to size, and cedar wood. 
 
 ###### 12 
-The great court _was_ enclosed with three rows of hewn stones and a row of cedar beams. So were the inner court of the house of the Lord and the vestibule of the temple.
+The great court was enclosed with three rows of hewn stones and a row of cedar beams. So were the inner court of the house of the Lord and the vestibule of the temple.
 
 ## Hiram the Craftsman 
 
@@ -51,7 +51,7 @@ The great court _was_ enclosed with three rows of hewn stones and a row of cedar
 Now King Solomon sent and brought Huram from Tyre. 
 
 ###### 14 
-He _was_ the son of a widow from the tribe of Naphtali, and his father _was_ a man of Tyre, a bronze worker; he was filled with wisdom and understanding and skill in working with all kinds of bronze work. So he came to King Solomon and did all his work.
+He was the son of a widow from the tribe of Naphtali, and his father was a man of Tyre, a bronze worker; he was filled with wisdom and understanding and skill in working with all kinds of bronze work. So he came to King Solomon and did all his work.
 
 ## The Bronze Pillars for the Temple 
 
@@ -59,19 +59,19 @@ He _was_ the son of a widow from the tribe of Naphtali, and his father _was_ a m
 And he cast two pillars of bronze, each one eighteen cubits high, and a line of twelve cubits measured the circumference of each. 
 
 ###### 16 
-Then he made two capitals _of_ cast bronze, to set on the tops of the pillars. The height of one capital _was_ five cubits, and the height of the other capital _was_ five cubits. 
+Then he made two capitals of cast bronze, to set on the tops of the pillars. The height of one capital was five cubits, and the height of the other capital was five cubits. 
 
 ###### 17 
-_He made_ a lattice network, with wreaths of chainwork, for the capitals which _were_ on top of the pillars: seven chains for one capital and seven for the other capital. 
+He made a lattice network, with wreaths of chainwork, for the capitals which were on top of the pillars: seven chains for one capital and seven for the other capital. 
 
 ###### 18 
-So he made the pillars, and two rows of pomegranates above the network all around to cover the capitals that _were_ on top; and thus he did for the other capital. 
+So he made the pillars, and two rows of pomegranates above the network all around to cover the capitals that were on top; and thus he did for the other capital. 
 
 ###### 19 
-The capitals which _were_ on top of the pillars in the hall _were_ in the shape of lilies, four cubits. 
+The capitals which were on top of the pillars in the hall were in the shape of lilies, four cubits. 
 
 ###### 20 
-The capitals on the two pillars also _had pomegranates_ above, by the convex surface which _was_ next to the network; and there _were_ two hundred such pomegranates in rows on each of the capitals all around. 
+The capitals on the two pillars also had pomegranates above, by the convex surface which was next to the network; and there were two hundred such pomegranates in rows on each of the capitals all around. 
 
 ###### 21 
 Then he set up the pillars by the vestibule of the temple; he set up the pillar on the right and called its name Jachin, and he set up the pillar on the left and called its name Boaz. 
@@ -82,54 +82,54 @@ The tops of the pillars were in the shape of lilies. So the work of the pillars 
 ## The Sea and the Oxen 
 
 ###### 23 
-And he made the Sea of cast bronze, ten cubits from one brim to the other; _it was_ completely round. Its height _was_ five cubits, and a line of thirty cubits measured its circumference. 
+And he made the Sea of cast bronze, ten cubits from one brim to the other; it was completely round. Its height was five cubits, and a line of thirty cubits measured its circumference. 
 
 ###### 24 
-Below its brim _were_ ornamental buds encircling it all around, ten to a cubit, all the way around the Sea. The ornamental buds _were_ cast in two rows when it was cast. 
+Below its brim were ornamental buds encircling it all around, ten to a cubit, all the way around the Sea. The ornamental buds were cast in two rows when it was cast. 
 
 ###### 25 
-It stood on twelve oxen: three looking toward the north, three looking toward the west, three looking toward the south, and three looking toward the east; the Sea _was set_ upon them, and all their back parts _pointed_ inward. 
+It stood on twelve oxen: three looking toward the north, three looking toward the west, three looking toward the south, and three looking toward the east; the Sea was set upon them, and all their back parts pointed inward. 
 
 ###### 26 
-It _was_ a handbreadth thick; and its brim was shaped like the brim of a cup, _like_ a lily blossom. It contained two thousand baths.
+It was a handbreadth thick; and its brim was shaped like the brim of a cup, like a lily blossom. It contained two thousand baths.
 
 ## The Carts and the Lavers 
 
 ###### 27 
-He also made ten carts of bronze; four cubits _was_ the length of each cart, four cubits its width, and three cubits its height. 
+He also made ten carts of bronze; four cubits was the length of each cart, four cubits its width, and three cubits its height. 
 
 ###### 28 
-And this _was_ the design of the carts: They had panels, and the panels _were_ between frames; 
+And this was the design of the carts: They had panels, and the panels were between frames; 
 
 ###### 29 
-on the panels that _were_ between the frames _were_ lions, oxen, and cherubim. And on the frames _was_ a pedestal on top. Below the lions and oxen _were_ wreaths of plaited work. 
+on the panels that were between the frames were lions, oxen, and cherubim. And on the frames was a pedestal on top. Below the lions and oxen were wreaths of plaited work. 
 
 ###### 30 
-Every cart had four bronze wheels and axles of bronze, and its four feet had supports. Under the laver _were_ supports of cast _bronze_ beside each wreath. 
+Every cart had four bronze wheels and axles of bronze, and its four feet had supports. Under the laver were supports of cast bronze beside each wreath. 
 
 ###### 31 
-Its opening inside the crown at the top _was_ one cubit in diameter; and the opening _was_ round, shaped _like_ a pedestal, one and a half cubits in outside diameter; and also on the opening _were_ engravings, but the panels were square, not round. 
+Its opening inside the crown at the top was one cubit in diameter; and the opening was round, shaped like a pedestal, one and a half cubits in outside diameter; and also on the opening were engravings, but the panels were square, not round. 
 
 ###### 32 
-Under the panels _were_ the four wheels, and the axles of the wheels _were joined_ to the cart. The height of a wheel _was_ one and a half cubits. 
+Under the panels were the four wheels, and the axles of the wheels were joined to the cart. The height of a wheel was one and a half cubits. 
 
 ###### 33 
-The workmanship of the wheels _was_ like the workmanship of a chariot wheel; their axle pins, their rims, their spokes, and their hubs _were_ all of cast _bronze._ 
+The workmanship of the wheels was like the workmanship of a chariot wheel; their axle pins, their rims, their spokes, and their hubs were all of cast bronze. 
 
 ###### 34 
-And _there were_ four supports at the four corners of each cart; its supports _were_ part of the cart itself. 
+And there were four supports at the four corners of each cart; its supports were part of the cart itself. 
 
 ###### 35 
-On the top of the cart, at the height of half a cubit, _it was_ perfectly round. And on the top of the cart, its flanges and its panels _were_ of the same casting. 
+On the top of the cart, at the height of half a cubit, it was perfectly round. And on the top of the cart, its flanges and its panels were of the same casting. 
 
 ###### 36 
 On the plates of its flanges and on its panels he engraved cherubim, lions, and palm trees, wherever there was a clear space on each, with wreaths all around. 
 
 ###### 37 
-Thus he made the ten carts. All of them were of the same mold, one measure, _and_ one shape. 
+Thus he made the ten carts. All of them were of the same mold, one measure, and one shape. 
 
 ###### 38 
-Then he made ten lavers of bronze; each laver contained forty baths, _and_ each laver _was_ four cubits. On each of the ten carts _was_ a laver. 
+Then he made ten lavers of bronze; each laver contained forty baths, and each laver was four cubits. On each of the ten carts was a laver. 
 
 ###### 39 
 And he put five carts on the right side of the house, and five on the left side of the house. He set the Sea on the right side of the house, toward the southeast.
@@ -137,13 +137,13 @@ And he put five carts on the right side of the house, and five on the left side 
 ## Furnishings of the Temple 
 
 ###### 40 
-Huram made the lavers and the shovels and the bowls. So Huram finished doing all the work that he was to do for King Solomon _for_ the house of the Lord: 
+Huram made the lavers and the shovels and the bowls. So Huram finished doing all the work that he was to do for King Solomon for the house of the Lord: 
 
 ###### 41 
-the two pillars, the _two_ bowl-shaped capitals that _were_ on top of the two pillars; the two networks covering the two bowl-shaped capitals which _were_ on top of the pillars; 
+the two pillars, the two bowl-shaped capitals that were on top of the two pillars; the two networks covering the two bowl-shaped capitals which were on top of the pillars; 
 
 ###### 42 
-four hundred pomegranates for the two networks (two rows of pomegranates for each network, to cover the two bowl-shaped capitals that _were_ on top of the pillars); 
+four hundred pomegranates for the two networks (two rows of pomegranates for each network, to cover the two bowl-shaped capitals that were on top of the pillars); 
 
 ###### 43 
 the ten carts, and ten lavers on the carts; 
@@ -152,22 +152,22 @@ the ten carts, and ten lavers on the carts;
 one Sea, and twelve oxen under the Sea; 
 
 ###### 45 
-the pots, the shovels, and the bowls. All these articles which Huram made for King Solomon _for_ the house of the Lord _were of_ burnished bronze. 
+the pots, the shovels, and the bowls. All these articles which Huram made for King Solomon for the house of the Lord were of burnished bronze. 
 
 ###### 46 
 In the plain of Jordan the king had them cast in clay molds, between Succoth and Zaretan. 
 
 ###### 47 
-And Solomon did not weigh all the articles, because _there were_ so many; the weight of the bronze was not determined. 
+And Solomon did not weigh all the articles, because there were so many; the weight of the bronze was not determined. 
 
 ###### 48 
-Thus Solomon had all the furnishings made for the house of the Lord: the altar of gold, and the table of gold on which _was_ the showbread; 
+Thus Solomon had all the furnishings made for the house of the Lord: the altar of gold, and the table of gold on which was the showbread; 
 
 ###### 49 
-the lampstands of pure gold, five on the right _side_ and five on the left in front of the inner sanctuary, with the flowers and the lamps and the wick-trimmers of gold; 
+the lampstands of pure gold, five on the right side and five on the left in front of the inner sanctuary, with the flowers and the lamps and the wick-trimmers of gold; 
 
 ###### 50 
-the basins, the trimmers, the bowls, the ladles, and the censers of pure gold; and the hinges of gold, _both_ for the doors of the inner room (the Most Holy _Place_) _and_ for the doors of the main hall of the temple. 
+the basins, the trimmers, the bowls, the ladles, and the censers of pure gold; and the hinges of gold, both for the doors of the inner room (the Most Holy Place) and for the doors of the main hall of the temple. 
 
 ###### 51 
 So all the work that King Solomon had done for the house of the Lord was finished; and Solomon brought in the things which his father David had dedicated: the silver and the gold and the furnishings. He put them in the treasuries of the house of the Lord.

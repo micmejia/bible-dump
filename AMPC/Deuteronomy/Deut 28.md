@@ -469,7 +469,7 @@ The Lord will make the pestilence cling to you until He has consumed you from th
 
 
 
-The Lord will smite you with consumption, with fever and inflammation, fiery heat, sword _and_ drought, blasting and mildew; they shall pursue you until you perish. 
+The Lord will smite you with consumption, with fever and inflammation, fiery heat, sword and drought, blasting and mildew; they shall pursue you until you perish. 
 
 
 
@@ -532,7 +532,7 @@ The Lord shall make the rain of your land powdered soil and dust; from the heave
 
 
 
-The Lord shall cause you to be struck down before your enemies; you shall go out one way against them and flee seven ways before them, and you shall be tossed to and fro _and_ be a terror among all the kingdoms of the earth. [Fulfilled in II Chron. 29:8.] 
+The Lord shall cause you to be struck down before your enemies; you shall go out one way against them and flee seven ways before them, and you shall be tossed to and fro and be a terror among all the kingdoms of the earth. [Fulfilled in II Chron. 29:8.] 
 
 
 
@@ -1141,7 +1141,7 @@ And you shall eat the fruit of your own body, the flesh of your sons and daughte
 
 
 
-The man who is most tender among you and extremely particular _and_ well-bred, his eye shall be cruel _and_ grudging of food toward his brother and toward the wife of his bosom and toward those of his children still remaining, 
+The man who is most tender among you and extremely particular and well-bred, his eye shall be cruel and grudging of food toward his brother and toward the wife of his bosom and toward those of his children still remaining, 
 
 
 
@@ -1372,7 +1372,7 @@ And the Lord shall scatter you among all peoples from one end of the earth to th
 
 
 
-And among these nations you shall find no ease and there shall be no rest for the sole of your foot; but the Lord will give you there a trembling heart, failing of eyes [from disappointment of hope], fainting of mind, _and_ languishing of spirit. 
+And among these nations you shall find no ease and there shall be no rest for the sole of your foot; but the Lord will give you there a trembling heart, failing of eyes [from disappointment of hope], fainting of mind, and languishing of spirit. 
 
 
 
@@ -1414,7 +1414,7 @@ Your life shall hang in doubt before you; day and night you shall be worried, an
 
 
 
-In the morning you shall say, Would that it were evening! and at evening you shall say, Would that it were morning!--because of the anxiety _and_ dread of your [minds and] hearts and the sights which you shall see with your [own] eyes. 
+In the morning you shall say, Would that it were evening! and at evening you shall say, Would that it were morning!--because of the anxiety and dread of your [minds and] hearts and the sights which you shall see with your [own] eyes. 
 
 
 

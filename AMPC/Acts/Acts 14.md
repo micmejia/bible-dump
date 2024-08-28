@@ -70,7 +70,7 @@ But the unbelieving Jews [who rejected their message] aroused the Gentiles and e
 
 
 
-So [Paul and Barnabas] stayed on there for a long time, speaking freely _and_ fearlessly _and_ boldly in the Lord, Who continued to bear testimony to the Word of His grace, granting signs and wonders to be performed by their hands. 
+So [Paul and Barnabas] stayed on there for a long time, speaking freely and fearlessly and boldly in the Lord, Who continued to bear testimony to the Word of His grace, granting signs and wonders to be performed by their hands. 
 
 
 
@@ -112,7 +112,7 @@ But the residents of the town were divided, some siding with the Jews and some w
 
 
 
-When there was an attempt both on the part of the Gentiles and the Jews together with their rulers, to insult _and_ abuse _and_ molest [Paul and Barnabas] and to stone them, 
+When there was an attempt both on the part of the Gentiles and the Jews together with their rulers, to insult and abuse and molest [Paul and Barnabas] and to stone them, 
 
 
 
@@ -322,7 +322,7 @@ But when the apostles Barnabas and Paul heard of it, they tore their clothing an
 
 
 
-Men, why are you doing this? We also are [only] human beings, of nature like your own, and we bring you the good news (Gospel) that you should turn away from these foolish _and_ vain things to the living God, Who made the heaven and the earth and the sea and everything that they contain. 
+Men, why are you doing this? We also are [only] human beings, of nature like your own, and we bring you the good news (Gospel) that you should turn away from these foolish and vain things to the living God, Who made the heaven and the earth and the sea and everything that they contain. 
 
 
 
@@ -364,7 +364,7 @@ In generations past He permitted all the nations to walk in their own ways;
 
 
 
-Yet He did not neglect to leave some witness of Himself, for He did you good _and_ [showed you] kindness and gave you rains from heaven and fruitful seasons, satisfying your hearts with nourishment and happiness. 
+Yet He did not neglect to leave some witness of Himself, for He did you good and [showed you] kindness and gave you rains from heaven and fruitful seasons, satisfying your hearts with nourishment and happiness. 
 
 
 
@@ -406,7 +406,7 @@ Even in [the light of] these words they with difficulty prevented the people fro
 
 
 
-But some Jews arrived there from Antioch and Iconium; and having persuaded the people _and_ won them over, they stoned Paul and [afterward] dragged him out of the town, thinking that he was dead. 
+But some Jews arrived there from Antioch and Iconium; and having persuaded the people and won them over, they stoned Paul and [afterward] dragged him out of the town, thinking that he was dead. 
 
 
 
@@ -469,7 +469,7 @@ When they had preached the good news (Gospel) to that town and made disciples of
 
 
 
-Establishing _and_ strengthening the souls _and_ the hearts of the disciples, urging _and_ warning _and_ encouraging them to stand firm in the faith, and [telling them] that it is through many hardships _and_ tribulations we must enter the kingdom of God. 
+Establishing and strengthening the souls and the hearts of the disciples, urging and warning and encouraging them to stand firm in the faith, and [telling them] that it is through many hardships and tribulations we must enter the kingdom of God. 
 
 
 
@@ -490,7 +490,7 @@ Establishing _and_ strengthening the souls _and_ the hearts of the disciples, ur
 
 
 
-And when they had appointed _and_ ordained elders for them in each church with prayer and fasting, they committed them to the Lord in Whom they had come to believe [being full of joyful trust that He is the Christ, the Messiah]. 
+And when they had appointed and ordained elders for them in each church with prayer and fasting, they committed them to the Lord in Whom they had come to believe [being full of joyful trust that He is the Christ, the Messiah]. 
 
 
 

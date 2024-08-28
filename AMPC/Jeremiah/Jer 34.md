@@ -301,7 +301,7 @@ Thus says the Lord, the God of Israel: I made a covenant with your fathers in th
 
 
 
-At the end of seven years you shall let every man his brother who is a Hebrew go free who has sold himself _or_ has been sold to you and has served you six years; but your fathers did not listen to _and_ obey Me or incline their ear [submitting and consenting to Me]. 
+At the end of seven years you shall let every man his brother who is a Hebrew go free who has sold himself or has been sold to you and has served you six years; but your fathers did not listen to and obey Me or incline their ear [submitting and consenting to Me]. 
 
 
 
@@ -322,7 +322,7 @@ At the end of seven years you shall let every man his brother who is a Hebrew go
 
 
 
-And you recently turned around _and_ repented, doing what was right in My sight by proclaiming liberty each one to his neighbor [who was his bond servant]; and you made a covenant _or_ pledge before Me in the house which is called by My Name. 
+And you recently turned around and repented, doing what was right in My sight by proclaiming liberty each one to his neighbor [who was his bond servant]; and you made a covenant or pledge before Me in the house which is called by My Name. 
 
 
 
@@ -364,7 +364,7 @@ But then you turned around and defiled My name; each of you caused to return to 
 
 
 
-Therefore thus says the Lord: You have not listened to Me _and_ obeyed Me in proclaiming liberty each one to his brother and neighbor. Behold, I proclaim to you liberty--to the sword, to pestilence, and to famine, says the Lord; and I will make you to be tossed to and fro _and_ to be a horror among all the kingdoms of the earth! 
+Therefore thus says the Lord: You have not listened to Me and obeyed Me in proclaiming liberty each one to his brother and neighbor. Behold, I proclaim to you liberty--to the sword, to pestilence, and to famine, says the Lord; and I will make you to be tossed to and fro and to be a horror among all the kingdoms of the earth! 
 
 
 
@@ -385,7 +385,7 @@ Therefore thus says the Lord: You have not listened to Me _and_ obeyed Me in pro
 
 
 
-And the men who have transgressed My covenant, who have not kept the terms of the covenant _or_ solemn pledge which they had made before Me, I will make them [like] the [sacrificial] calf which they cut in two and then passed between its separated parts [solemnizing their pledge to Me]--I will make those men the calf! 
+And the men who have transgressed My covenant, who have not kept the terms of the covenant or solemn pledge which they had made before Me, I will make them [like] the [sacrificial] calf which they cut in two and then passed between its separated parts [solemnizing their pledge to Me]--I will make those men the calf! 
 
 
 

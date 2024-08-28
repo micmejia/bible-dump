@@ -28,7 +28,7 @@ next: ['Rom 13']
 
 
 
-I appeal to you therefore, brethren, _and_ beg of you in view of [all] the mercies of God, to make a decisive dedication of your bodies [presenting all your members and faculties] as a living sacrifice, holy (devoted, consecrated) and well pleasing to God, which is your reasonable (rational, intelligent) service _and_ spiritual worship. 
+I appeal to you therefore, brethren, and beg of you in view of [all] the mercies of God, to make a decisive dedication of your bodies [presenting all your members and faculties] as a living sacrifice, holy (devoted, consecrated) and well pleasing to God, which is your reasonable (rational, intelligent) service and spiritual worship. 
 
 
 
@@ -49,7 +49,7 @@ I appeal to you therefore, brethren, _and_ beg of you in view of [all] the merci
 
 
 
-Do not be conformed to this world (this age), [fashioned after and adapted to its external, superficial customs], but be transformed (changed) by the [entire] renewal of your mind [by its new ideals and its new attitude], so that you may prove [for yourselves] what is the good and acceptable and perfect will of God, _even_ the thing which is good and acceptable and perfect [in His sight for you]. 
+Do not be conformed to this world (this age), [fashioned after and adapted to its external, superficial customs], but be transformed (changed) by the [entire] renewal of your mind [by its new ideals and its new attitude], so that you may prove [for yourselves] what is the good and acceptable and perfect will of God, even the thing which is good and acceptable and perfect [in His sight for you]. 
 
 
 
@@ -70,7 +70,7 @@ Do not be conformed to this world (this age), [fashioned after and adapted to it
 
 
 
-For by the grace (unmerited favor of God) given to me I warn everyone among you not to estimate _and_ think of himself more highly than he ought [not to have an exaggerated opinion of his own importance], but to rate his ability with sober judgment, each according to the degree of faith apportioned by God to him. 
+For by the grace (unmerited favor of God) given to me I warn everyone among you not to estimate and think of himself more highly than he ought [not to have an exaggerated opinion of his own importance], but to rate his ability with sober judgment, each according to the degree of faith apportioned by God to him. 
 
 
 
@@ -91,7 +91,7 @@ For by the grace (unmerited favor of God) given to me I warn everyone among you 
 
 
 
-For as in one physical body we have many parts (organs, members) and all of these parts do not have the same function _or_ use, 
+For as in one physical body we have many parts (organs, members) and all of these parts do not have the same function or use, 
 
 
 
@@ -175,7 +175,7 @@ Having gifts (faculties, talents, qualities) that differ according to the grace 
 
 
 
-He who exhorts (encourages), to his exhortation; he who contributes, let him do it in simplicity _and_ liberality; he who gives aid _and_ superintends, with zeal _and_ singleness of mind; he who does acts of mercy, with genuine cheerfulness _and_ joyful eagerness. 
+He who exhorts (encourages), to his exhortation; he who contributes, let him do it in simplicity and liberality; he who gives aid and superintends, with zeal and singleness of mind; he who does acts of mercy, with genuine cheerfulness and joyful eagerness. 
 
 
 
@@ -217,7 +217,7 @@ He who exhorts (encourages), to his exhortation; he who contributes, let him do 
 
 
 
-Love one another with brotherly affection [as members of one family], giving precedence _and_ showing honor to one another. 
+Love one another with brotherly affection [as members of one family], giving precedence and showing honor to one another. 
 
 
 
@@ -238,7 +238,7 @@ Love one another with brotherly affection [as members of one family], giving pre
 
 
 
-Never lag in zeal _and_ in earnest endeavor; be aglow _and_ burning with the Spirit, serving the Lord. 
+Never lag in zeal and in earnest endeavor; be aglow and burning with the Spirit, serving the Lord. 
 
 
 
@@ -259,7 +259,7 @@ Never lag in zeal _and_ in earnest endeavor; be aglow _and_ burning with the Spi
 
 
 
-Rejoice _and_ exult in hope; be steadfast and patient in suffering _and_ tribulation; be constant in prayer. 
+Rejoice and exult in hope; be steadfast and patient in suffering and tribulation; be constant in prayer. 
 
 
 
@@ -343,7 +343,7 @@ Rejoice with those who rejoice [sharing others' joy], and weep with those who we
 
 
 
-Live in harmony with one another; do not be haughty (snobbish, high-minded, exclusive), but readily adjust yourself to [people, things] _and_ give yourselves to humble tasks. Never overestimate yourself _or_ be wise in your own conceits. 
+Live in harmony with one another; do not be haughty (snobbish, high-minded, exclusive), but readily adjust yourself to [people, things] and give yourselves to humble tasks. Never overestimate yourself or be wise in your own conceits. 
 
 
 
@@ -364,7 +364,7 @@ Live in harmony with one another; do not be haughty (snobbish, high-minded, excl
 
 
 
-Repay no one evil for evil, but take thought for what is honest _and_ proper _and_ noble [aiming to be above reproach] in the sight of everyone. 
+Repay no one evil for evil, but take thought for what is honest and proper and noble [aiming to be above reproach] in the sight of everyone. 
 
 
 

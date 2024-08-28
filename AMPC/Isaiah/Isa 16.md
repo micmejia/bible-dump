@@ -28,7 +28,7 @@ next: ['Isa 17']
 
 
 
-You [Moabites, now fugitives in Edom, which is ruled by the king of Judah] send lambs to the ruler of the land, from Sela _or_ Petra through the desert _and_ wilderness to the mountain of the Daughter of Zion [Jerusalem]. 
+You [Moabites, now fugitives in Edom, which is ruled by the king of Judah] send lambs to the ruler of the land, from Sela or Petra through the desert and wilderness to the mountain of the Daughter of Zion [Jerusalem]. 
 
 
 
@@ -49,7 +49,7 @@ You [Moabites, now fugitives in Edom, which is ruled by the king of Judah] send 
 
 
 
-For like wandering birds, like a brood cast out _and_ a scattered nest, so shall the daughters of Moab be at the fords of the [river] Arnon. 
+For like wandering birds, like a brood cast out and a scattered nest, so shall the daughters of Moab be at the fords of the [river] Arnon. 
 
 
 
@@ -91,7 +91,7 @@ For like wandering birds, like a brood cast out _and_ a scattered nest, so shall
 
 
 
-Let our outcasts of Moab dwell among you; be a sheltered hiding place to them from the destroyer. When the extortion _and_ the extortioner have been brought to nought, and destruction has ceased, and the oppressors _and_ they who trample men are consumed _and_ have vanished out of the land, 
+Let our outcasts of Moab dwell among you; be a sheltered hiding place to them from the destroyer. When the extortion and the extortioner have been brought to nought, and destruction has ceased, and the oppressors and they who trample men are consumed and have vanished out of the land, 
 
 
 
@@ -112,7 +112,7 @@ Let our outcasts of Moab dwell among you; be a sheltered hiding place to them fr
 
 
 
-Then in mercy _and_ loving-kindness shall a throne be established, and  One shall sit upon it in truth _and_ faithfulness in the tent of David, judging and seeking justice and being swift to do righteousness. 
+Then in mercy and loving-kindness shall a throne be established, and  One shall sit upon it in truth and faithfulness in the tent of David, judging and seeking justice and being swift to do righteousness. 
 
 
 
@@ -154,7 +154,7 @@ We have heard of the pride of Moab, that he is very proud--even of his arrogance
 
 
 
-Moab therefore shall wail for Moab; everyone shall wail. For the ruins, flagons of wine, _and_ the raisin cakes of Kir-hareseth you shall sigh and mourn, utterly stricken _and_ discouraged. 
+Moab therefore shall wail for Moab; everyone shall wail. For the ruins, flagons of wine, and the raisin cakes of Kir-hareseth you shall sigh and mourn, utterly stricken and discouraged. 
 
 
 
@@ -175,7 +175,7 @@ Moab therefore shall wail for Moab; everyone shall wail. For the ruins, flagons 
 
 
 
-For the fields of Heshbon languish _and_ wither, and the vines of Sibmah; the lords of the nations have broken down [Moab's] choice vine branches, which reached even to Jazer, wandering into the wilderness; its shoots stretched out abroad, they passed over [the shores of] the [Dead] Sea. 
+For the fields of Heshbon languish and wither, and the vines of Sibmah; the lords of the nations have broken down [Moab's] choice vine branches, which reached even to Jazer, wandering into the wilderness; its shoots stretched out abroad, they passed over [the shores of] the [Dead] Sea. 
 
 
 
@@ -301,4 +301,4 @@ This is the word that the Lord has spoken concerning Moab since that time [when 
 
 
 
-But now the Lord has spoken, saying, Within three years, as the years of a hireling [who will not serve longer than the allotted time], the glory of Moab shall be brought into contempt, in spite of all his mighty multitudes of people; and the remnant that survives will be very small, feeble, _and_ of no account.
+But now the Lord has spoken, saying, Within three years, as the years of a hireling [who will not serve longer than the allotted time], the glory of Moab shall be brought into contempt, in spite of all his mighty multitudes of people; and the remnant that survives will be very small, feeble, and of no account.

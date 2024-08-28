@@ -154,7 +154,7 @@ After the days of Shamgar son of Anath, after the days of Jael [meaning here Ehu
 
 
 
-The villages were unoccupied _and_ rulers ceased in Israel until you arose--you, Deborah, arose--a mother in Israel. 
+The villages were unoccupied and rulers ceased in Israel until you arose--you, Deborah, arose--a mother in Israel. 
 
 
 
@@ -301,7 +301,7 @@ Then down marched the remnant of the nobles, the people of the Lord marched down
 
 
 
-Out of Ephraim they came down whose root is in Amalek, after you, Benjamin, with your kinsmen. Out of Machir came down commanders _and_ lawgivers, and out of Zebulun those who handle the pen _or_ stylus of the writer. 
+Out of Ephraim they came down whose root is in Amalek, after you, Benjamin, with your kinsmen. Out of Machir came down commanders and lawgivers, and out of Zebulun those who handle the pen or stylus of the writer. 
 
 
 
@@ -658,4 +658,4 @@ Have they not found and been dividing the spoil? A maiden or two for every man, 
 
 
 
-So let all Your enemies perish, O Lord! But let those who love Him be like the sun when it rises in its might. And the land had peace _and_ rest for forty years.
+So let all Your enemies perish, O Lord! But let those who love Him be like the sun when it rises in its might. And the land had peace and rest for forty years.

@@ -112,7 +112,7 @@ For thus says the Lord: Behold, I will make you a terror to yourself and to all 
 
 
 
-Moreover, I will deliver all the riches of this city--all the results of its labors, all its precious things, and all the treasures of the kings of Judah--into the hand of their enemies, who will make them a prey _and_ plunder them and seize them and carry them to Babylon. 
+Moreover, I will deliver all the riches of this city--all the results of its labors, all its precious things, and all the treasures of the kings of Judah--into the hand of their enemies, who will make them a prey and plunder them and seize them and carry them to Babylon. 
 
 
 
@@ -154,7 +154,7 @@ And you, Pashhur, and all who dwell in your house shall go into captivity; you s
 
 
 
-[But Jeremiah said] O Lord, You have persuaded _and_ deceived me, and I was persuaded _and_ deceived; You are stronger than I am and You have prevailed. I am a laughingstock all the day; everyone mocks me. 
+[But Jeremiah said] O Lord, You have persuaded and deceived me, and I was persuaded and deceived; You are stronger than I am and You have prevailed. I am a laughingstock all the day; everyone mocks me. 
 
 
 
@@ -175,7 +175,7 @@ And you, Pashhur, and all who dwell in your house shall go into captivity; you s
 
 
 
-For whenever I speak, I must cry out _and_ complain; I shout, Violence and destruction! For the word of the Lord has become to me a reproach and a derision _and_ has brought me insult all day long. 
+For whenever I speak, I must cry out and complain; I shout, Violence and destruction! For the word of the Lord has become to me a reproach and a derision and has brought me insult all day long. 
 
 
 
@@ -196,7 +196,7 @@ For whenever I speak, I must cry out _and_ complain; I shout, Violence and destr
 
 
 
-If I say, I will not make mention of [the Lord] or speak any more in His name, in my mind _and_ heart it is as if there were a burning fire shut up in my bones. And I am weary of enduring _and_ holding it in; I cannot [contain it any longer]. 
+If I say, I will not make mention of [the Lord] or speak any more in His name, in my mind and heart it is as if there were a burning fire shut up in my bones. And I am weary of enduring and holding it in; I cannot [contain it any longer]. 
 
 
 
@@ -217,7 +217,7 @@ If I say, I will not make mention of [the Lord] or speak any more in His name, i
 
 
 
-For I have heard many whispering _and_ defaming, [There is] terror on every side! Denounce him! Let us denounce him! Say all my familiar friends, they who watch for my fall, Perhaps he will be persuaded _and_ deceived; then we will prevail against him, and we will get our revenge on him. 
+For I have heard many whispering and defaming, [There is] terror on every side! Denounce him! Let us denounce him! Say all my familiar friends, they who watch for my fall, Perhaps he will be persuaded and deceived; then we will prevail against him, and we will get our revenge on him. 
 
 
 
@@ -238,7 +238,7 @@ For I have heard many whispering _and_ defaming, [There is] terror on every side
 
 
 
-But the Lord is with me as a mighty _and_ terrible One; therefore my persecutors will stumble, and they will not overcome [me]. They will be utterly put to shame, for they will not deal wisely _or_ prosper [in their schemes]; their eternal dishonor will never be forgotten. 
+But the Lord is with me as a mighty and terrible One; therefore my persecutors will stumble, and they will not overcome [me]. They will be utterly put to shame, for they will not deal wisely or prosper [in their schemes]; their eternal dishonor will never be forgotten. 
 
 
 
@@ -259,7 +259,7 @@ But the Lord is with me as a mighty _and_ terrible One; therefore my persecutors
 
 
 
-But, O Lord of hosts, You Who try the righteous, Who see the heart and the mind, let me see Your vengeance on them, for to You have I revealed _and_ committed my cause. 
+But, O Lord of hosts, You Who try the righteous, Who see the heart and the mind, let me see Your vengeance on them, for to You have I revealed and committed my cause. 
 
 
 
@@ -280,7 +280,7 @@ But, O Lord of hosts, You Who try the righteous, Who see the heart and the mind,
 
 
 
-Sing to the Lord! Praise the Lord! For He has delivered the life of the poor _and_ needy from the hands of evildoers. 
+Sing to the Lord! Praise the Lord! For He has delivered the life of the poor and needy from the hands of evildoers. 
 
 
 

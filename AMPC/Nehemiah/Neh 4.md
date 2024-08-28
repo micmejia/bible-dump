@@ -112,7 +112,7 @@ Now Tobiah the Ammonite was near him, and he said, What they build--if a fox cli
 
 
 
-Cover not their iniquity and let not their sin be blotted out before You, for they have vexed [with alarm] the builders _and_ provoked You. 
+Cover not their iniquity and let not their sin be blotted out before You, for they have vexed [with alarm] the builders and provoked You. 
 
 
 
@@ -133,7 +133,7 @@ Cover not their iniquity and let not their sin be blotted out before You, for th
 
 
 
-So we built the wall, and all [of it] was joined together to half its height, for the people had a heart _and_ mind to work. 
+So we built the wall, and all [of it] was joined together to half its height, for the people had a heart and mind to work. 
 
 
 
@@ -175,7 +175,7 @@ But when Sanballat, Tobiah, the Arabians, Ammonites, and Ashdodites heard that t
 
 
 
-And they all plotted together to come and fight against Jerusalem, to injure _and_ cause confusion _and_ failure in it. 
+And they all plotted together to come and fight against Jerusalem, to injure and cause confusion and failure in it. 
 
 
 
@@ -301,7 +301,7 @@ So I set [armed men] behind the wall in places where it was least protected; I e
 
 
 
-I looked [them over] and rose up and said to the nobles and officials and the other people, Do not be afraid of the enemy; [earnestly] remember the Lord _and_ imprint Him [on your minds], great and terrible, and [take from Him courage to] fight for your brethren, your sons, your daughters, your wives, and your homes. 
+I looked [them over] and rose up and said to the nobles and officials and the other people, Do not be afraid of the enemy; [earnestly] remember the Lord and imprint Him [on your minds], great and terrible, and [take from Him courage to] fight for your brethren, your sons, your daughters, your wives, and your homes. 
 
 
 

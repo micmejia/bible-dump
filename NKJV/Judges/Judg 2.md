@@ -16,7 +16,7 @@ Then the Angel of the Lord came up from Gilgal to Bochim, and said: "I led you u
 And you shall make no covenant with the inhabitants of this land; you shall tear down their altars.' But you have not obeyed My voice. Why have you done this? 
 
 ###### 3 
-Therefore I also said, 'I will not drive them out before you; but they shall be _thorns_ in your side, and their gods shall be a snare to you.' " 
+Therefore I also said, 'I will not drive them out before you; but they shall be thorns in your side, and their gods shall be a snare to you.' " 
 
 ###### 4 
 So it was, when the Angel of the Lord spoke these words to all the children of Israel, that the people lifted up their voices and wept. 
@@ -33,7 +33,7 @@ And when Joshua had dismissed the people, the children of Israel went each to hi
 So the people served the Lord all the days of Joshua, and all the days of the elders who outlived Joshua, who had seen all the great works of the Lord which He had done for Israel. 
 
 ###### 8 
-Now Joshua the son of Nun, the servant of the Lord, died _when he was_ one hundred and ten years old. 
+Now Joshua the son of Nun, the servant of the Lord, died when he was one hundred and ten years old. 
 
 ###### 9 
 And they buried him within the border of his inheritance at Timnath Heres, in the mountains of Ephraim, on the north side of Mount Gaash. 
@@ -47,7 +47,7 @@ When all that generation had been gathered to their fathers, another generation 
 Then the children of Israel did evil in the sight of the Lord, and served the Baals; 
 
 ###### 12 
-and they forsook the Lord God of their fathers, who had brought them out of the land of Egypt; and they followed other gods from _among_ the gods of the people who _were_ all around them, and they bowed down to them; and they provoked the Lord to anger. 
+and they forsook the Lord God of their fathers, who had brought them out of the land of Egypt; and they followed other gods from among the gods of the people who were all around them, and they bowed down to them; and they provoked the Lord to anger. 
 
 ###### 13 
 They forsook the Lord and served Baal and the Ashtoreths. 
@@ -77,7 +77,7 @@ Then the anger of the Lord was hot against Israel; and He said, "Because this na
 I also will no longer drive out before them any of the nations which Joshua left when he died, 
 
 ###### 22 
-so that through them I may test Israel, whether they will keep the ways of the Lord, to walk in them as their fathers kept _them,_ or not." 
+so that through them I may test Israel, whether they will keep the ways of the Lord, to walk in them as their fathers kept them, or not." 
 
 ###### 23 
 Therefore the Lord left those nations, without driving them out immediately; nor did He deliver them into the hand of Joshua.

@@ -322,7 +322,7 @@ And Elisha said, As the Lord of hosts lives, before Whom I stand, surely, were i
 
 
 
-But now bring me a minstrel. And while the minstrel played, the hand _and_ power of the Lord came upon [Elisha]. 
+But now bring me a minstrel. And while the minstrel played, the hand and power of the Lord came upon [Elisha]. 
 
 
 
@@ -574,4 +574,4 @@ And when the king of Moab saw that the battle was against him, he took with him 
 
 
 
-Then he [Moab's king] took his eldest son, who was to reign in his stead, and offered him for a burnt offering on the wall [in full view of the horrified enemy kings]. And there was great indignation, wrath, _and_ bitterness against Israel; and they [his allies Judah and Edom] withdrew from [Joram] and returned to their own land.
+Then he [Moab's king] took his eldest son, who was to reign in his stead, and offered him for a burnt offering on the wall [in full view of the horrified enemy kings]. And there was great indignation, wrath, and bitterness against Israel; and they [his allies Judah and Edom] withdrew from [Joram] and returned to their own land.

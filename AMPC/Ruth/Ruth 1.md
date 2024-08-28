@@ -195,7 +195,7 @@ But Naomi said to her two daughters-in-law, Go, return each of you to her mother
 
 
 
-The Lord grant that you may find a home _and_ rest, each in the house of her husband! Then she kissed them and they wept aloud. 
+The Lord grant that you may find a home and rest, each in the house of her husband! Then she kissed them and they wept aloud. 
 
 
 

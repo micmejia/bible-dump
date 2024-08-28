@@ -49,7 +49,7 @@ And the word of the Lord came to me, saying,
 
 
 
-Son of man, put forth a riddle and speak a parable _or_ allegory to the house of Israel; 
+Son of man, put forth a riddle and speak a parable or allegory to the house of Israel; 
 
 
 
@@ -112,7 +112,7 @@ He broke off the topmost of its young twigs [the youthful King Jehoiachin] and c
 
 
 
-He took also of the seedlings of the land [Zedekiah, one of the native royal family] and planted it in fertile soil _and_ a fruitful field; he placed it beside abundant waters and set it as a willow tree [to succeed Zedekiah's nephew Jehoiachin in Judah as vassal king]. 
+He took also of the seedlings of the land [Zedekiah, one of the native royal family] and planted it in fertile soil and a fruitful field; he placed it beside abundant waters and set it as a willow tree [to succeed Zedekiah's nephew Jehoiachin in Judah as vassal king]. 
 
 
 
@@ -133,7 +133,7 @@ He took also of the seedlings of the land [Zedekiah, one of the native royal fam
 
 
 
-And it grew and became a spreading vine of low [not Davidic] stature, whose branches turned [in submission] toward him, and its roots remained under _and_ subject to him [the king of Babylon]; so it became a vine and brought forth branches and shot forth leafy twigs. 
+And it grew and became a spreading vine of low [not Davidic] stature, whose branches turned [in submission] toward him, and its roots remained under and subject to him [the king of Babylon]; so it became a vine and brought forth branches and shot forth leafy twigs. 
 
 
 
@@ -217,7 +217,7 @@ Thus says the Lord God: Ask, Will it thrive? Will he [the insulted Nebuchadnezza
 
 
 
-Yes, behold, though transplanted, will it prosper? Will it not utterly wither when the east wind touches it? It will wither in the furrows _and_ beds where it sprouted _and_ grew. 
+Yes, behold, though transplanted, will it prosper? Will it not utterly wither when the east wind touches it? It will wither in the furrows and beds where it sprouted and grew. 
 
 
 
@@ -259,7 +259,7 @@ Moreover, the word of the Lord came to me, saying,
 
 
 
-Say now to the rebellious house, Do you not know _and_ realize what these things mean? Tell them, Behold, the king of Babylon came to Jerusalem and took its king [Jehoiachin] and its princes and brought them with him to Babylon. 
+Say now to the rebellious house, Do you not know and realize what these things mean? Tell them, Behold, the king of Babylon came to Jerusalem and took its king [Jehoiachin] and its princes and brought them with him to Babylon. 
 
 
 
@@ -280,7 +280,7 @@ Say now to the rebellious house, Do you not know _and_ realize what these things
 
 
 
-And he took one of the royal family [the king's uncle, Zedekiah] and made a covenant with him, putting him under oath. He also took the mighty _and_ chief men of the land, 
+And he took one of the royal family [the king's uncle, Zedekiah] and made a covenant with him, putting him under oath. He also took the mighty and chief men of the land, 
 
 
 
@@ -301,7 +301,7 @@ And he took one of the royal family [the king's uncle, Zedekiah] and made a cove
 
 
 
-That the kingdom might become low _and_ base and be unable to lift itself up, but that by keeping his [Nebuchadnezzar's] covenant it might stand. 
+That the kingdom might become low and base and be unable to lift itself up, but that by keeping his [Nebuchadnezzar's] covenant it might stand. 
 
 
 
@@ -427,7 +427,7 @@ Therefore thus says the Lord God: As I live, surely My oath [made for Me by Nebu
 
 
 
-And I will spread My net over him, and he shall be taken in My snare; and I will bring him to Babylon and will enter into judgment _and_ punishment with him there for his trespass _and_ treason that he has committed against Me. 
+And I will spread My net over him, and he shall be taken in My snare; and I will bring him to Babylon and will enter into judgment and punishment with him there for his trespass and treason that he has committed against Me. 
 
 
 
@@ -490,7 +490,7 @@ Thus says the Lord God: I Myself will take a twig from the lofty top of the ceda
 
 
 
-On the mountain height of Israel will I plant it, that it may bring forth boughs and bear fruit and be a noble cedar, and under it shall dwell all birds of every feather; in the shade of its branches they shall nestle _and_ find rest. 
+On the mountain height of Israel will I plant it, that it may bring forth boughs and bear fruit and be a noble cedar, and under it shall dwell all birds of every feather; in the shade of its branches they shall nestle and find rest. 
 
 
 

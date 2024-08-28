@@ -112,7 +112,7 @@ Does not [God] see my ways and count all my steps?
 
 
 
-If I have walked with falsehood _or_ vanity, or if my foot has hastened to deceit-- 
+If I have walked with falsehood or vanity, or if my foot has hastened to deceit-- 
 
 
 
@@ -133,7 +133,7 @@ If I have walked with falsehood _or_ vanity, or if my foot has hastened to decei
 
 
 
-Oh, let me be weighed in a just balance _and_ let Him weigh me, that God may know my integrity! 
+Oh, let me be weighed in a just balance and let Him weigh me, that God may know my integrity! 
 
 
 
@@ -175,7 +175,7 @@ If my step has turned out of [God's] way, and my heart has gone the way my eyes 
 
 
 
-Then let me sow and let another eat; yes, let the produce of my field _or_ my offspring be rooted out. 
+Then let me sow and let another eat; yes, let the produce of my field or my offspring be rooted out. 
 
 
 
@@ -196,7 +196,7 @@ Then let me sow and let another eat; yes, let the produce of my field _or_ my of
 
 
 
-If my heart has been deceived _and_ I made a fool by a woman, or if I have [covetously] laid wait at my neighbor's door [until his departure], 
+If my heart has been deceived and I made a fool by a woman, or if I have [covetously] laid wait at my neighbor's door [until his departure], 
 
 
 
@@ -238,7 +238,7 @@ Then let my wife grind [meal, like a bondslave] for another, and let others bow 
 
 
 
-For [adultery] is a heinous _and_ chief crime, an iniquity [to demand action by] the judges _and_ punishment. 
+For [adultery] is a heinous and chief crime, an iniquity [to demand action by] the judges and punishment. 
 
 
 
@@ -280,7 +280,7 @@ For [uncontrolled passion] is a fire which consumes to Abaddon (to destruction, 
 
 
 
-If I have despised _and_ rejected the cause of my manservant or my maidservant when they contended _or_ brought a complaint against me, 
+If I have despised and rejected the cause of my manservant or my maidservant when they contended or brought a complaint against me, 
 
 
 
@@ -343,7 +343,7 @@ Did not He Who made me in the womb make [my servant]? And did not One fashion us
 
 
 
-If I have withheld from the poor _and_ needy what they desired, or have caused the eyes of the widow to look in vain [for relief], 
+If I have withheld from the poor and needy what they desired, or have caused the eyes of the widow to look in vain [for relief], 
 
 
 
@@ -490,7 +490,7 @@ Then let my shoulder fall away from my shoulder blade, and my arm be broken from
 
 
 
-For calamity from God was a terror to me, and because of His majesty I could not endure [to face Him] _and_ could do nothing. 
+For calamity from God was a terror to me, and because of His majesty I could not endure [to face Him] and could do nothing. 
 
 
 
@@ -511,7 +511,7 @@ For calamity from God was a terror to me, and because of His majesty I could not
 
 
 
-If I have made gold my trust _and_ hope or have said to fine gold, You are my confidence, 
+If I have made gold my trust and hope or have said to fine gold, You are my confidence, 
 
 
 
@@ -595,7 +595,7 @@ And my heart has been secretly enticed by them or my mouth has kissed my hand [i
 
 
 
-This also would have been [a heinous and principal] iniquity to demand the judges' action _and_ punishment, for I would have denied _and_ been false to the God Who is above. 
+This also would have been [a heinous and principal] iniquity to demand the judges' action and punishment, for I would have denied and been false to the God Who is above. 
 
 
 
@@ -700,7 +700,7 @@ The temporary resident has not lodged in the street, but I have opened my door t
 
 
 
-If like Adam _or_ like [other] men I have concealed my transgressions, by hiding my iniquity in my bosom 
+If like Adam or like [other] men I have concealed my transgressions, by hiding my iniquity in my bosom 
 
 
 

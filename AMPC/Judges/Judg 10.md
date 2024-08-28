@@ -175,7 +175,7 @@ And the anger of the Lord was kindled against Israel, and He sold them into the 
 
 
 
-And they oppressed and crushed _and_ broke the Israelites that year. For eighteen years they oppressed all the Israelites beyond the Jordan in the land of the Amorites, which is in Gilead. 
+And they oppressed and crushed and broke the Israelites that year. For eighteen years they oppressed all the Israelites beyond the Jordan in the land of the Amorites, which is in Gilead. 
 
 
 
@@ -259,7 +259,7 @@ And the Lord said to the Israelites, Did I not deliver you from the Egyptians, t
 
 
 
-Also when the Sidonians, the Amalekites, and the Maonites oppressed _and_ crushed you, you cried to Me, and I delivered you out of their hands. 
+Also when the Sidonians, the Amalekites, and the Maonites oppressed and crushed you, you cried to Me, and I delivered you out of their hands. 
 
 
 

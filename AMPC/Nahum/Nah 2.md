@@ -28,7 +28,7 @@ next: ['Nah 3']
 
 
 
-He who dashes in pieces [that is, the king of Medo-Babylon] is come up before your face [Nineveh]. Keep the fortress _and_ ramparts manned, watch the road, gird your loins, collect _and_ fortify all your strength _and_ power mightily. 
+He who dashes in pieces [that is, the king of Medo-Babylon] is come up before your face [Nineveh]. Keep the fortress and ramparts manned, watch the road, gird your loins, collect and fortify all your strength and power mightily. 
 
 
 
@@ -49,7 +49,7 @@ He who dashes in pieces [that is, the king of Medo-Babylon] is come up before yo
 
 
 
-For the Lord restores the excellency of Jacob as the excellency of [ancient] Israel, for plunderers have plundered them _and_ emptied them out and [outrageously] destroyed their vine branches. 
+For the Lord restores the excellency of Jacob as the excellency of [ancient] Israel, for plunderers have plundered them and emptied them out and [outrageously] destroyed their vine branches. 
 
 
 
@@ -112,7 +112,7 @@ The chariots rage in confusion in the streets; they run to and fro [in wild terr
 
 
 
-[The Assyrian leader] remembers _and_ summons his bravest men; they stumble in their march. They hasten to the city's wall, and their movable defense shelter is prepared _and_ set up. 
+[The Assyrian leader] remembers and summons his bravest men; they stumble in their march. They hasten to the city's wall, and their movable defense shelter is prepared and set up. 
 
 
 
@@ -133,7 +133,7 @@ The chariots rage in confusion in the streets; they run to and fro [in wild terr
 
 
 
-The gates _or_ dams of the rivers [surrounding and guarding Nineveh] are opened and the [imperial] palace [of sun-dried brick] is dissolved [by the torrents] _and_ is in dismay. 
+The gates or dams of the rivers [surrounding and guarding Nineveh] are opened and the [imperial] palace [of sun-dried brick] is dissolved [by the torrents] and is in dismay. 
 
 
 
@@ -154,7 +154,7 @@ The gates _or_ dams of the rivers [surrounding and guarding Nineveh] are opened 
 
 
 
-It is decreed. She [Nineveh] is stripped and removed, and her maids are lamenting _and_ moaning like doves [softly for fear], beating upon their breasts [and hearts]. 
+It is decreed. She [Nineveh] is stripped and removed, and her maids are lamenting and moaning like doves [softly for fear], beating upon their breasts [and hearts]. 
 
 
 
@@ -175,7 +175,7 @@ It is decreed. She [Nineveh] is stripped and removed, and her maids are lamentin
 
 
 
-And Nineveh, like a standing pool are her waters and [her inhabitants] are fleeing away! Stand! Stand [firm! a few cry], but no one looks back _or_ causes them to return. 
+And Nineveh, like a standing pool are her waters and [her inhabitants] are fleeing away! Stand! Stand [firm! a few cry], but no one looks back or causes them to return. 
 
 
 
@@ -196,7 +196,7 @@ And Nineveh, like a standing pool are her waters and [her inhabitants] are fleei
 
 
 
-Take the spoil of silver; take the spoil of gold! For there is no end of the treasure, the glory _and_ wealth of all the precious furnishings. 
+Take the spoil of silver; take the spoil of gold! For there is no end of the treasure, the glory and wealth of all the precious furnishings. 
 
 
 
@@ -259,7 +259,7 @@ Where is the den of the lions which was the feeding place of the young lions, wh
 
 
 
-The lion tore in pieces enough for his whelps and strangled [prey] for his lionesses; he filled his caves with prey and his dens with what he had seized _and_ carried off. 
+The lion tore in pieces enough for his whelps and strangled [prey] for his lionesses; he filled his caves with prey and his dens with what he had seized and carried off. 
 
 
 
@@ -280,4 +280,4 @@ The lion tore in pieces enough for his whelps and strangled [prey] for his lione
 
 
 
-Behold, I am against you [Nineveh], says the Lord of hosts, and I will burn _your_ chariots in the smoke, and the sword shall devour your young lions. And I will cut off your prey from the earth, and the voice of your messengers shall no more be heard.
+Behold, I am against you [Nineveh], says the Lord of hosts, and I will burn your chariots in the smoke, and the sword shall devour your young lions. And I will cut off your prey from the earth, and the voice of your messengers shall no more be heard.

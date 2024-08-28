@@ -27,7 +27,7 @@ next: ['Nah 2']
 
 
 
-The burden _or_ oracle (the thing to be lifted up) concerning Nineveh [the capital of Assyria]. The book of the vision of Nahum of Elkosh. 
+The burden or oracle (the thing to be lifted up) concerning Nineveh [the capital of Assyria]. The book of the vision of Nahum of Elkosh. 
 
 
 
@@ -90,7 +90,7 @@ The Lord is slow to anger and great in power and will by no means clear the guil
 
 
 
-He rebukes _and_ threatens the sea and makes it dry, and dries up all the rivers. Bashan [on the east] and Mount Carmel [on the west] wither, and [in the north] the blossom of Lebanon fades. 
+He rebukes and threatens the sea and makes it dry, and dries up all the rivers. Bashan [on the east] and Mount Carmel [on the west] wither, and [in the north] the blossom of Lebanon fades. 
 
 
 
@@ -111,7 +111,7 @@ He rebukes _and_ threatens the sea and makes it dry, and dries up all the rivers
 
 
 
-The mountains tremble _and_ quake before Him and the hills melt away, and the earth is upheaved at His presence--yes, the world and all that dwell in it. 
+The mountains tremble and quake before Him and the hills melt away, and the earth is upheaved at His presence--yes, the world and all that dwell in it. 
 
 
 
@@ -132,7 +132,7 @@ The mountains tremble _and_ quake before Him and the hills melt away, and the ea
 
 
 
-Who can stand before His indignation? And who can stand up _and_ endure the fierceness of His anger? His wrath is poured out like fire, and the rocks are broken asunder by Him. 
+Who can stand before His indignation? And who can stand up and endure the fierceness of His anger? His wrath is poured out like fire, and the rocks are broken asunder by Him. 
 
 
 
@@ -153,7 +153,7 @@ Who can stand before His indignation? And who can stand up _and_ endure the fier
 
 
 
-The Lord is good, a Strength _and_ Stronghold in the day of trouble; He knows (recognizes, has knowledge of, and understands) those who take refuge _and_ trust in Him. 
+The Lord is good, a Strength and Stronghold in the day of trouble; He knows (recognizes, has knowledge of, and understands) those who take refuge and trust in Him. 
 
 
 
@@ -195,7 +195,7 @@ But with an overrunning flood He will make a full end of [Nineveh's very] site a
 
 
 
-What do you devise _and_ [how mad is your attempt to] plot against the Lord? He will make a full end [of Nineveh]; affliction [which My people shall suffer from Assyria] shall not rise up the second time. 
+What do you devise and [how mad is your attempt to] plot against the Lord? He will make a full end [of Nineveh]; affliction [which My people shall suffer from Assyria] shall not rise up the second time. 
 
 
 
@@ -300,7 +300,7 @@ For now will I break his yoke from off you and will burst your bonds asunder.
 
 
 
-And the Lord has given a commandment concerning you [evil Assyrian counselor], that no more of your name shall be born _nor_ shall your name be perpetuated. Out of the house of your gods I will cut off the graven and molten images; I will make [their temple] your tomb, for you are vile _and_ despised. 
+And the Lord has given a commandment concerning you [evil Assyrian counselor], that no more of your name shall be born nor shall your name be perpetuated. Out of the house of your gods I will cut off the graven and molten images; I will make [their temple] your tomb, for you are vile and despised. 
 
 
 
@@ -321,4 +321,4 @@ And the Lord has given a commandment concerning you [evil Assyrian counselor], t
 
 
 
-Behold! upon the mountains the feet of him who brings good tidings [telling of the Assyrian's death], who publishes peace! Celebrate your feasts, O Judah; perform your vows. For the wicked counselor [the king of Assyria] shall no more come against you _or_ pass through your land; he is utterly cut off. [Then the prophet Nahum sarcastically addresses his message to Nineveh:]
+Behold! upon the mountains the feet of him who brings good tidings [telling of the Assyrian's death], who publishes peace! Celebrate your feasts, O Judah; perform your vows. For the wicked counselor [the king of Assyria] shall no more come against you or pass through your land; he is utterly cut off. [Then the prophet Nahum sarcastically addresses his message to Nineveh:]

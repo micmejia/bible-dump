@@ -112,7 +112,7 @@ And Moses said to all the congregation of the Israelites, This is what the Lord 
 
 
 
-Take from among you an offering to the Lord. Whoever is of a willing _and_ generous heart, let him bring the Lord's offering: gold, silver, and bronze; 
+Take from among you an offering to the Lord. Whoever is of a willing and generous heart, let him bring the Lord's offering: gold, silver, and bronze; 
 
 
 
@@ -154,7 +154,7 @@ Blue, purple, and scarlet [stuff], fine linen; goats' hair;
 
 
 
-And rams' skins tanned red, and skins of dolphins _or_ porpoises; and acacia wood; 
+And rams' skins tanned red, and skins of dolphins or porpoises; and acacia wood; 
 
 
 
@@ -217,7 +217,7 @@ And onyx stones and other stones to be set for the ephod and the breastplate.
 
 
 
-And let every able _and_ wisehearted man among you come and make all that the Lord has commanded: 
+And let every able and wisehearted man among you come and make all that the Lord has commanded: 
 
 
 
@@ -238,7 +238,7 @@ And let every able _and_ wisehearted man among you come and make all that the Lo
 
 
 
-The tabernacle, its tent and its covering, its hooks, its boards, its bars, its pillars, and its sockets _or_ bases; 
+The tabernacle, its tent and its covering, its hooks, its boards, its bars, its pillars, and its sockets or bases; 
 
 
 
@@ -322,7 +322,7 @@ The lampstand also for the light, and its utensils and its lamps, and the oil fo
 
 
 
-And the incense altar and its poles, the anointing oil and the fragrant incense, the hanging _or_ screen for the door at the entrance of the tabernacle; 
+And the incense altar and its poles, the anointing oil and the fragrant incense, the hanging or screen for the door at the entrance of the tabernacle; 
 
 
 
@@ -364,7 +364,7 @@ The altar of burnt offering, with its bronze grating, its poles and all its uten
 
 
 
-The court's hangings, its pillars and their sockets _or_ bases, and the hanging _or_ screen for the gate of the court; 
+The court's hangings, its pillars and their sockets or bases, and the hanging or screen for the gate of the court; 
 
 
 
@@ -469,7 +469,7 @@ And they came, each one whose heart stirred him up and whose spirit made him wil
 
 
 
-They came, both men and women, all who were willinghearted, and brought brooches, earrings _or_ nose rings, signet rings, and armlets _or_ necklaces, all jewels of gold, everyone bringing an offering of gold to the Lord. 
+They came, both men and women, all who were willinghearted, and brought brooches, earrings or nose rings, signet rings, and armlets or necklaces, all jewels of gold, everyone bringing an offering of gold to the Lord. 
 
 
 
@@ -490,7 +490,7 @@ They came, both men and women, all who were willinghearted, and brought brooches
 
 
 
-And everyone with whom was found blue or purple or scarlet [stuff], or fine linen, or goats' hair, or rams' skins made red [in tanning], or dolphin _or_ porpoise skins brought them. 
+And everyone with whom was found blue or purple or scarlet [stuff], or fine linen, or goats' hair, or rams' skins made red [in tanning], or dolphin or porpoise skins brought them. 
 
 
 
@@ -532,7 +532,7 @@ Everyone who could make an offering of silver or bronze brought it as the Lord's
 
 
 
-All the women who had ability _and_ were wisehearted spun with their hands and brought what they had spun of blue and purple and scarlet [stuff] and fine linen; 
+All the women who had ability and were wisehearted spun with their hands and brought what they had spun of blue and purple and scarlet [stuff] and fine linen; 
 
 
 
@@ -553,7 +553,7 @@ All the women who had ability _and_ were wisehearted spun with their hands and b
 
 
 
-And all the women who had ability _and_ whose hearts stirred them up in wisdom spun the goats' hair. 
+And all the women who had ability and whose hearts stirred them up in wisdom spun the goats' hair. 
 
 
 
@@ -616,7 +616,7 @@ And spice, and oil for the light and for the anointing oil and for the fragrant 
 
 
 
-The Israelites brought a freewill offering to the Lord, all men and women whose hearts made them willing _and_ moved them to bring anything for any of the work which the Lord had commanded by Moses to be done. 
+The Israelites brought a freewill offering to the Lord, all men and women whose hearts made them willing and moved them to bring anything for any of the work which the Lord had commanded by Moses to be done. 
 
 
 
@@ -658,7 +658,7 @@ And Moses said to the Israelites, See, the Lord called by name Bezalel son of Ur
 
 
 
-And He has filled him with the Spirit of God, with ability _and_ wisdom, with intelligence _and_ understanding, and with knowledge and all craftsmanship, 
+And He has filled him with the Spirit of God, with ability and wisdom, with intelligence and understanding, and with knowledge and all craftsmanship, 
 
 
 
@@ -742,4 +742,4 @@ And God has put in Bezalel's heart that he may teach, both he and Aholiab son of
 
 
 
-He has filled them with wisdom of heart _and_ ability to do all manner of craftsmanship, of the engraver, of the skillful workman, of the embroiderer in blue, purple, and scarlet [stuff] and in fine linen, and of the weaver, even of those who do or design any skilled work.
+He has filled them with wisdom of heart and ability to do all manner of craftsmanship, of the engraver, of the skillful workman, of the embroiderer in blue, purple, and scarlet [stuff] and in fine linen, and of the weaver, even of those who do or design any skilled work.

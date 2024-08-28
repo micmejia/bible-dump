@@ -49,7 +49,7 @@ And in the fourth year of the reign of King Darius, the word of the Lord came to
 
 
 
-Now the people of Bethel had sent Sharezer and Regem-melech and their men to pray _and_ entreat the favor of the Lord 
+Now the people of Bethel had sent Sharezer and Regem-melech and their men to pray and entreat the favor of the Lord 
 
 
 
@@ -196,7 +196,7 @@ And the word of the Lord came to Zechariah, saying,
 
 
 
-Thus has the Lord of hosts spoken: Execute true judgment and show mercy _and_ kindness and tender compassion, every man to his brother; 
+Thus has the Lord of hosts spoken: Execute true judgment and show mercy and kindness and tender compassion, every man to his brother; 
 
 
 
@@ -217,7 +217,7 @@ Thus has the Lord of hosts spoken: Execute true judgment and show mercy _and_ ki
 
 
 
-And oppress not the widow or the fatherless, the temporary resident or the poor, and let none of you devise _or_ imagine _or_ think evil against his brother in your heart. 
+And oppress not the widow or the fatherless, the temporary resident or the poor, and let none of you devise or imagine or think evil against his brother in your heart. 
 
 
 
@@ -238,7 +238,7 @@ And oppress not the widow or the fatherless, the temporary resident or the poor,
 
 
 
-But they refused to listen and turned a rebellious _and_ stubborn shoulder and made heavy _and_ dull their ears that they might not hear. 
+But they refused to listen and turned a rebellious and stubborn shoulder and made heavy and dull their ears that they might not hear. 
 
 
 
@@ -259,7 +259,7 @@ But they refused to listen and turned a rebellious _and_ stubborn shoulder and m
 
 
 
-Yes, they made their hearts as an adamant stone _or_ diamond point, lest they should hear the law and the words which the Lord of hosts had sent by His Spirit through the former prophets. Therefore there came great wrath from the Lord of hosts. 
+Yes, they made their hearts as an adamant stone or diamond point, lest they should hear the law and the words which the Lord of hosts had sent by His Spirit through the former prophets. Therefore there came great wrath from the Lord of hosts. 
 
 
 
@@ -301,4 +301,4 @@ So it came to pass that as He cried and they would not hear [He said], So they s
 
 
 
-But I will scatter them with a whirlwind among all the nations whom they know not _and_ who know not them. Thus the land was desolate after they had gone, so that no man passed through or returned, for they [the Jews by their sins] had [caused to be] laid waste _and_ forsaken the pleasant land (the land of desire).
+But I will scatter them with a whirlwind among all the nations whom they know not and who know not them. Thus the land was desolate after they had gone, so that no man passed through or returned, for they [the Jews by their sins] had [caused to be] laid waste and forsaken the pleasant land (the land of desire).

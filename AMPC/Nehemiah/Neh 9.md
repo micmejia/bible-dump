@@ -175,7 +175,7 @@ You are the Lord, the God Who chose Abram and brought him out of Ur of the Chald
 
 
 
-You found his heart faithful before You, and You made the covenant with him to give his descendants the land of the Canaanite, Hittite, Amorite, Perizzite, Jebusite, and Girgashite. And You have fulfilled Your promise, for You are just _and_ righteous. 
+You found his heart faithful before You, and You made the covenant with him to give his descendants the land of the Canaanite, Hittite, Amorite, Perizzite, Jebusite, and Girgashite. And You have fulfilled Your promise, for You are just and righteous. 
 
 
 
@@ -364,7 +364,7 @@ But they and our fathers acted presumptuously and stiffened their necks, and did
 
 
 
-They refused to obey, nor were they mindful of Your wonders _and_ miracles which You did among them; but they stiffened their necks and in their rebellion appointed a captain, that they might return to their bondage [in Egypt]. But You are a God ready to pardon, gracious and merciful, slow to anger, and of great steadfast love; and You did not forsake them. 
+They refused to obey, nor were they mindful of Your wonders and miracles which You did among them; but they stiffened their necks and in their rebellion appointed a captain, that they might return to their bondage [in Egypt]. But You are a God ready to pardon, gracious and merciful, slow to anger, and of great steadfast love; and You did not forsake them. 
 
 
 
@@ -385,7 +385,7 @@ They refused to obey, nor were they mindful of Your wonders _and_ miracles which
 
 
 
-Even when they had made for themselves a molten calf and said, This is your god, who brought you out of Egypt, and had committed great _and_ contemptible blasphemies, 
+Even when they had made for themselves a molten calf and said, This is your god, who brought you out of Egypt, and had committed great and contemptible blasphemies, 
 
 
 
@@ -553,7 +553,7 @@ And they captured fortified cities and a rich land and took possession of houses
 
 
 
-Yet they were disobedient and rebelled against You and cast Your law behind their back and killed Your prophets who accused _and_ warned them to turn to You again; and they committed great _and_ contemptible blasphemies. 
+Yet they were disobedient and rebelled against You and cast Your law behind their back and killed Your prophets who accused and warned them to turn to You again; and they committed great and contemptible blasphemies. 
 
 
 
@@ -616,7 +616,7 @@ But after they had rest, they did evil again before You; therefore You left them
 
 
 
-And reproved _and_ warned them, that You might bring them again to Your law. Yet they acted presumptuously and did not heed Your commandments, but sinned against Your ordinances, which by keeping, a man shall live. And they turned a stubborn shoulder, stiffened their neck, and would not listen. 
+And reproved and warned them, that You might bring them again to Your law. Yet they acted presumptuously and did not heed Your commandments, but sinned against Your ordinances, which by keeping, a man shall live. And they turned a stubborn shoulder, stiffened their neck, and would not listen. 
 
 
 
@@ -637,7 +637,7 @@ And reproved _and_ warned them, that You might bring them again to Your law. Yet
 
 
 
-Yet You bore with them many years more and reproved _and_ warned them by Your Spirit through Your prophets; still they would not listen. Therefore You gave them into the power of the peoples of the lands. 
+Yet You bore with them many years more and reproved and warned them by Your Spirit through Your prophets; still they would not listen. Therefore You gave them into the power of the peoples of the lands. 
 
 
 
@@ -679,7 +679,7 @@ Yet in Your great mercies You did not utterly consume them or forsake them, for 
 
 
 
-Now therefore, our God, the great, mighty, and terrible God, Who keeps covenant and mercy _and_ loving-kindness, let not all the trouble _and_ hardship seem little to You--the hardship that has come upon us, our kings, our princes, our priests, our prophets, our fathers, and on all Your people, since the time of the kings of Assyria to this day. 
+Now therefore, our God, the great, mighty, and terrible God, Who keeps covenant and mercy and loving-kindness, let not all the trouble and hardship seem little to You--the hardship that has come upon us, our kings, our princes, our priests, our prophets, our fathers, and on all Your people, since the time of the kings of Assyria to this day. 
 
 
 
@@ -721,7 +721,7 @@ However, You are just in all that has come upon us; for You have dealt faithfull
 
 
 
-Our kings, our princes, our priests, and our fathers have not kept Your law or hearkened to Your commandments and Your warnings _and_ reproofs which You gave them. 
+Our kings, our princes, our priests, and our fathers have not kept Your law or hearkened to Your commandments and Your warnings and reproofs which You gave them. 
 
 
 
@@ -805,4 +805,4 @@ And its rich yield goes to the kings whom You have set over us because of our si
 
 
 
-Because of all this, we make a firm _and_ sure written covenant, and our princes, Levites, and priests set their seal to it.
+Because of all this, we make a firm and sure written covenant, and our princes, Levites, and priests set their seal to it.

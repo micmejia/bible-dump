@@ -154,7 +154,7 @@ The prophet Jeremiah said, Amen! May the Lord do so; may the Lord perform your w
 
 
 
-Nevertheless, listen now to _and_ hear this word which I speak in your hearing and in the hearing of all the people: 
+Nevertheless, listen now to and hear this word which I speak in your hearing and in the hearing of all the people: 
 
 
 
@@ -343,7 +343,7 @@ Then said the prophet Jeremiah to Hananiah the prophet, Listen now, Hananiah, Th
 
 
 
-Therefore thus says the Lord: Behold, I will cast you from the face of the earth. This year you will die, because you have uttered _and_ taught rebellion against the Lord. 
+Therefore thus says the Lord: Behold, I will cast you from the face of the earth. This year you will die, because you have uttered and taught rebellion against the Lord. 
 
 
 

@@ -28,7 +28,7 @@ next: ['Isa 6']
 
 
 
-Let me [as God's representative] sing of _and_ for my greatly Beloved [God, the Son] a tender song of my Beloved concerning His vineyard [His chosen people]. My greatly Beloved had a vineyard on a very fruitful hill. 
+Let me [as God's representative] sing of and for my greatly Beloved [God, the Son] a tender song of my Beloved concerning His vineyard [His chosen people]. My greatly Beloved had a vineyard on a very fruitful hill. 
 
 
 
@@ -49,7 +49,7 @@ Let me [as God's representative] sing of _and_ for my greatly Beloved [God, the 
 
 
 
-And He dug _and_ trenched the ground and gathered out the stones from it and planted it with the choicest vine and built a tower in the midst of it and hewed out a winepress in it. And He looked for it to bring forth grapes, and it brought forth wild grapes. 
+And He dug and trenched the ground and gathered out the stones from it and planted it with the choicest vine and built a tower in the midst of it and hewed out a winepress in it. And He looked for it to bring forth grapes, and it brought forth wild grapes. 
 
 
 
@@ -112,7 +112,7 @@ What more could have been done for My vineyard that I have not done in it? When 
 
 
 
-And now I will tell you what I will do to My vineyard: I will take away its hedge, and it shall be eaten _and_ burned up; and I will break down its wall, and it shall be trodden down [by enemies]. 
+And now I will tell you what I will do to My vineyard: I will take away its hedge, and it shall be eaten and burned up; and I will break down its wall, and it shall be trodden down [by enemies]. 
 
 
 
@@ -154,7 +154,7 @@ And I will lay it waste; it shall not be pruned or cultivated, but there shall c
 
 
 
-For the vineyard of the Lord of hosts is the house of Israel, and the men of Judah His pleasant planting [the plant of His delight]. And He looked for justice, but behold, [He saw] oppression _and_ bloodshed; [He looked] for righteousness (for uprightness and right standing with God), but behold, [He heard] a cry [of oppression and distress]! 
+For the vineyard of the Lord of hosts is the house of Israel, and the men of Judah His pleasant planting [the plant of His delight]. And He looked for justice, but behold, [He saw] oppression and bloodshed; [He looked] for righteousness (for uprightness and right standing with God), but behold, [He heard] a cry [of oppression and distress]! 
 
 
 
@@ -280,7 +280,7 @@ They have lyre and harp, tambourine and flute and wine at their feasts, but they
 
 
 
-Therefore My people go into captivity [to their enemies] without knowing it _and_ because they have no knowledge [of God]. And their honorable men [their glory] are famished, and their common people are parched with thirst. 
+Therefore My people go into captivity [to their enemies] without knowing it and because they have no knowledge [of God]. And their honorable men [their glory] are famished, and their common people are parched with thirst. 
 
 
 
@@ -301,7 +301,7 @@ Therefore My people go into captivity [to their enemies] without knowing it _and
 
 
 
-Therefore Sheol (the unseen state, the realm of the dead) has enlarged its appetite and opened its mouth without measure; and [Jerusalem's] nobility _and_ her multitude and her pomp _and_ tumult and [the drunken reveler] who exults in her descend into it. 
+Therefore Sheol (the unseen state, the realm of the dead) has enlarged its appetite and opened its mouth without measure; and [Jerusalem's] nobility and her multitude and her pomp and tumult and [the drunken reveler] who exults in her descend into it. 
 
 
 
@@ -343,7 +343,7 @@ And the common man is bowed down, and the great man is brought low, and the eyes
 
 
 
-But the Lord of hosts is exalted in justice, and God, the Holy One, shows Himself holy in righteousness _and_ through righteous judgments. 
+But the Lord of hosts is exalted in justice, and God, the Holy One, shows Himself holy in righteousness and through righteous judgments. 
 
 
 
@@ -364,7 +364,7 @@ But the Lord of hosts is exalted in justice, and God, the Holy One, shows Himsel
 
 
 
-Then shall the lambs feed [among the ruins] as in their own pasture, and [among] the desolate places of the [exiled] rich shall sojourners _and_ aliens eat. 
+Then shall the lambs feed [among the ruins] as in their own pasture, and [among] the desolate places of the [exiled] rich shall sojourners and aliens eat. 
 
 
 
@@ -385,7 +385,7 @@ Then shall the lambs feed [among the ruins] as in their own pasture, and [among]
 
 
 
-Woe to those who draw [calamity] with cords of iniquity _and_ falsehood, who bring punishment to themselves with a cart rope of wickedness, 
+Woe to those who draw [calamity] with cords of iniquity and falsehood, who bring punishment to themselves with a cart rope of wickedness, 
 
 
 
@@ -406,7 +406,7 @@ Woe to those who draw [calamity] with cords of iniquity _and_ falsehood, who bri
 
 
 
-Who say, Let [the Holy One] make haste _and_ speed His [prophesied] vengeance, that we may see it; and let the purpose of the Holy One of Israel draw near and come, that we may know it! 
+Who say, Let [the Holy One] make haste and speed His [prophesied] vengeance, that we may see it; and let the purpose of the Holy One of Israel draw near and come, that we may know it! 
 
 
 
@@ -448,7 +448,7 @@ Woe to those who call evil good and good evil, who put darkness for light and li
 
 
 
-Woe to those who are wise in their own eyes and prudent _and_ shrewd in their own sight! 
+Woe to those who are wise in their own eyes and prudent and shrewd in their own sight! 
 
 
 
@@ -490,7 +490,7 @@ Woe to those who are mighty heroes at drinking wine and men of strength in mixin
 
 
 
-Who justify _and_ acquit the guilty for a bribe, but take away the rights of the innocent _and_ righteous from them! 
+Who justify and acquit the guilty for a bribe, but take away the rights of the innocent and righteous from them! 
 
 
 
@@ -511,7 +511,7 @@ Who justify _and_ acquit the guilty for a bribe, but take away the rights of the
 
 
 
-Therefore, as the tongue of fire devours the stubble, and as the dry grass sinks down in the flame, so their root shall be like rottenness and their blossom shall go up like fine dust--because they have rejected _and_ cast away the law _and_ the teaching of the Lord of hosts and have not believed _but_ have treated scornfully _and_ have despised the word of the Holy One of Israel. 
+Therefore, as the tongue of fire devours the stubble, and as the dry grass sinks down in the flame, so their root shall be like rottenness and their blossom shall go up like fine dust--because they have rejected and cast away the law and the teaching of the Lord of hosts and have not believed but have treated scornfully and have despised the word of the Holy One of Israel. 
 
 
 
@@ -532,7 +532,7 @@ Therefore, as the tongue of fire devours the stubble, and as the dry grass sinks
 
 
 
-Therefore is the anger of the Lord kindled against His people, and He has stretched forth His hand against them and has smitten them. And the mountains trembled, and their dead bodies were like dung _and_ sweepings in the midst of the streets. For all this, His anger is not turned away, but His hand is still stretched out [in judgment]. 
+Therefore is the anger of the Lord kindled against His people, and He has stretched forth His hand against them and has smitten them. And the mountains trembled, and their dead bodies were like dung and sweepings in the midst of the streets. For all this, His anger is not turned away, but His hand is still stretched out [in judgment]. 
 
 
 

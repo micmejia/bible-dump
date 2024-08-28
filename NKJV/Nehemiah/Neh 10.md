@@ -10,7 +10,7 @@ next: ['Neh 11']
 
 
 ###### 1 
-Now those who placed _their_ seal on _the document were:_ Nehemiah the governor, the son of Hacaliah, and Zedekiah, 
+Now those who placed their seal on the document were: Nehemiah the governor, the son of Hacaliah, and Zedekiah, 
 
 ###### 2 
 Seraiah, Azariah, Jeremiah, 
@@ -31,10 +31,10 @@ Daniel, Ginnethon, Baruch,
 Meshullam, Abijah, Mijamin, 
 
 ###### 8 
-Maaziah, Bilgai, _and_ Shemaiah. These _were_ the priests. 
+Maaziah, Bilgai, and Shemaiah. These were the priests. 
 
 ###### 9 
-The Levites: Jeshua the son of Azaniah, Binnui of the sons of Henadad, _and_ Kadmiel. 
+The Levites: Jeshua the son of Azaniah, Binnui of the sons of Henadad, and Kadmiel. 
 
 ###### 10 
 Their brethren: Shebaniah, Hodijah, Kelita, Pelaiah, Hanan, 
@@ -46,7 +46,7 @@ Micha, Rehob, Hashabiah,
 Zaccur, Sherebiah, Shebaniah, 
 
 ###### 13 
-Hodijah, Bani, _and_ Beninu. 
+Hodijah, Bani, and Beninu. 
 
 ###### 14 
 The leaders of the people: Parosh, Pahath-Moab, Elam, Zattu, Bani, 
@@ -88,7 +88,7 @@ Rehum, Hashabnah, Maaseiah,
 Ahijah, Hanan, Anan, 
 
 ###### 27 
-Malluch, Harim, _and_ Baanah.
+Malluch, Harim, and Baanah.
 
 ## The Covenant That Was Sealed 
 
@@ -102,7 +102,7 @@ these joined with their brethren, their nobles, and entered into a curse and an 
 We would not give our daughters as wives to the peoples of the land, nor take their daughters for our sons; 
 
 ###### 31 
-_if_ the peoples of the land brought wares or any grain to sell on the Sabbath day, we would not buy it from them on the Sabbath, or on a holy day; and we would forego the seventh year's _produce_ and the exacting of every debt. 
+if the peoples of the land brought wares or any grain to sell on the Sabbath day, we would not buy it from them on the Sabbath, or on a holy day; and we would forego the seventh year's produce and the exacting of every debt. 
 
 ###### 32 
 Also we made ordinances for ourselves, to exact from ourselves yearly one-third of a shekel for the service of the house of our God: 
@@ -111,19 +111,19 @@ Also we made ordinances for ourselves, to exact from ourselves yearly one-third 
 for the showbread, for the regular grain offering, for the regular burnt offering of the Sabbaths, the New Moons, and the set feasts; for the holy things, for the sin offerings to make atonement for Israel, and all the work of the house of our God. 
 
 ###### 34 
-We cast lots among the priests, the Levites, and the people, for bringing the wood offering into the house of our God, according to our fathers' houses, at the appointed times year by year, to burn on the altar of the Lord our God as _it is_ written in the Law. 
+We cast lots among the priests, the Levites, and the people, for bringing the wood offering into the house of our God, according to our fathers' houses, at the appointed times year by year, to burn on the altar of the Lord our God as it is written in the Law. 
 
 ###### 35 
-And _we made ordinances_ to bring the firstfruits of our ground and the firstfruits of all fruit of all trees, year by year, to the house of the Lord; 
+And we made ordinances to bring the firstfruits of our ground and the firstfruits of all fruit of all trees, year by year, to the house of the Lord; 
 
 ###### 36 
-to bring the firstborn of our sons and our cattle, as _it is_ written in the Law, and the firstborn of our herds and our flocks, to the house of our God, to the priests who minister in the house of our God; 
+to bring the firstborn of our sons and our cattle, as it is written in the Law, and the firstborn of our herds and our flocks, to the house of our God, to the priests who minister in the house of our God; 
 
 ###### 37 
-to bring the firstfruits of our dough, our offerings, the fruit from all kinds of trees, _the_ new wine and oil, to the priests, to the storerooms of the house of our God; and to bring the tithes of our land to the Levites, for the Levites should receive the tithes in all our farming communities. 
+to bring the firstfruits of our dough, our offerings, the fruit from all kinds of trees, the new wine and oil, to the priests, to the storerooms of the house of our God; and to bring the tithes of our land to the Levites, for the Levites should receive the tithes in all our farming communities. 
 
 ###### 38 
 And the priest, the descendant of Aaron, shall be with the Levites when the Levites receive tithes; and the Levites shall bring up a tenth of the tithes to the house of our God, to the rooms of the storehouse. 
 
 ###### 39 
-For the children of Israel and the children of Levi shall bring the offering of the grain, of the new wine and the oil, to the storerooms where the articles of the sanctuary _are, where_ the priests who minister and the gatekeepers and the singers _are;_ and we will not neglect the house of our God.
+For the children of Israel and the children of Levi shall bring the offering of the grain, of the new wine and the oil, to the storerooms where the articles of the sanctuary are, where the priests who minister and the gatekeepers and the singers are; and we will not neglect the house of our God.

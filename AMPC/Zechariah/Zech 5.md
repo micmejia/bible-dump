@@ -28,7 +28,7 @@ next: ['Zech 6']
 
 
 
-Again I lifted up my eyes and behold, I saw a scroll flying _or_ floating in the air! 
+Again I lifted up my eyes and behold, I saw a scroll flying or floating in the air! 
 
 
 
@@ -49,7 +49,7 @@ Again I lifted up my eyes and behold, I saw a scroll flying _or_ floating in the
 
 
 
-And the angel said to me, What do you see? And I answered, I see a flying scroll; its length is twenty cubits _or_ thirty feet and its breadth is ten cubits _or_ fifteen feet. 
+And the angel said to me, What do you see? And I answered, I see a flying scroll; its length is twenty cubits or thirty feet and its breadth is ten cubits or fifteen feet. 
 
 
 
@@ -133,7 +133,7 @@ Then the angel who talked with me came forward and said to me, Lift up now your 
 
 
 
-And I said, What is it? [What does it symbolize?] And he said, This that goes forth is an ephah[-sized vessel for separate grains all collected together]. This, he continued, is the symbol of the sinners mentioned above _and_ is the resemblance of their iniquity throughout the whole land. 
+And I said, What is it? [What does it symbolize?] And he said, This that goes forth is an ephah[-sized vessel for separate grains all collected together]. This, he continued, is the symbol of the sinners mentioned above and is the resemblance of their iniquity throughout the whole land. 
 
 
 

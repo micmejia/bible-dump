@@ -70,7 +70,7 @@ It is the glory of God to conceal a thing, but the glory of kings is to search o
 
 
 
-As the heavens for height and the earth for depth, so the hearts _and_ minds of kings are unsearchable. 
+As the heavens for height and the earth for depth, so the hearts and minds of kings are unsearchable. 
 
 
 
@@ -196,7 +196,7 @@ Rush not forth soon to quarrel [before magistrates or elsewhere], lest you know 
 
 
 
-Argue your cause with your neighbor himself; discover not _and_ disclose not another's secret, 
+Argue your cause with your neighbor himself; discover not and disclose not another's secret, 
 
 
 
@@ -217,7 +217,7 @@ Argue your cause with your neighbor himself; discover not _and_ disclose not ano
 
 
 
-Lest he who hears you revile you _and_ bring shame upon you and your ill repute have no end. 
+Lest he who hears you revile you and bring shame upon you and your ill repute have no end. 
 
 
 
@@ -238,7 +238,7 @@ Lest he who hears you revile you _and_ bring shame upon you and your ill repute 
 
 
 
-A word fitly spoken _and_ in due season is like apples of gold in settings of silver. 
+A word fitly spoken and in due season is like apples of gold in settings of silver. 
 
 
 
@@ -259,7 +259,7 @@ A word fitly spoken _and_ in due season is like apples of gold in settings of si
 
 
 
-Like an earring _or_ nose ring of gold or an ornament of fine gold is a wise reprover to an ear that listens _and_ obeys. 
+Like an earring or nose ring of gold or an ornament of fine gold is a wise reprover to an ear that listens and obeys. 
 
 
 
@@ -322,7 +322,7 @@ Whoever falsely boasts of gifts [he does not give] is like clouds and wind witho
 
 
 
-By long forbearance _and_ calmness of spirit a judge _or_ ruler is persuaded, and soft speech breaks down the most bonelike resistance. 
+By long forbearance and calmness of spirit a judge or ruler is persuaded, and soft speech breaks down the most bonelike resistance. 
 
 
 
@@ -427,7 +427,7 @@ Confidence in an unfaithful man in time of trouble is like a broken tooth or a f
 
 
 
-He who sings songs to a heavy heart is like him who lays off a garment in cold weather _and_ like vinegar upon soda. 
+He who sings songs to a heavy heart is like him who lays off a garment in cold weather and like vinegar upon soda. 
 
 
 
@@ -511,7 +511,7 @@ The north wind brings forth rain; so does a backbiting tongue bring forth an ang
 
 
 
-It is better to dwell in the corner of the housetop than to share a house with a disagreeing, quarrelsome, _and_ scolding woman. 
+It is better to dwell in the corner of the housetop than to share a house with a disagreeing, quarrelsome, and scolding woman. 
 
 
 
@@ -553,7 +553,7 @@ Like cold water to a thirsty soul, so is good news from a far [home] country.
 
 
 
-Like a muddied fountain and a polluted spring is a righteous man who yields, falls down, _and_ compromises his integrity before the wicked. 
+Like a muddied fountain and a polluted spring is a righteous man who yields, falls down, and compromises his integrity before the wicked. 
 
 
 
@@ -574,7 +574,7 @@ Like a muddied fountain and a polluted spring is a righteous man who yields, fal
 
 
 
-It is not good to eat much honey; so for men to seek glory, their own glory, causes suffering _and_ is not glory. 
+It is not good to eat much honey; so for men to seek glory, their own glory, causes suffering and is not glory. 
 
 
 

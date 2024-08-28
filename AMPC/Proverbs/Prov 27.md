@@ -70,7 +70,7 @@ Let another man praise you, and not your own mouth; a stranger, and not your own
 
 
 
-Stone is heavy and sand weighty, but a fool's [unreasoning] wrath is heavier _and_ more intolerable than both of them. 
+Stone is heavy and sand weighty, but a fool's [unreasoning] wrath is heavier and more intolerable than both of them. 
 
 
 
@@ -133,7 +133,7 @@ Open rebuke is better than love that is hidden.
 
 
 
-Faithful are the wounds of a friend, but the kisses of an enemy are lavish _and_ deceitful. 
+Faithful are the wounds of a friend, but the kisses of an enemy are lavish and deceitful. 
 
 
 
@@ -154,7 +154,7 @@ Faithful are the wounds of a friend, but the kisses of an enemy are lavish _and_
 
 
 
-He who is satiated [with sensual pleasures] loathes _and_ treads underfoot a honeycomb, but to the hungry soul every bitter thing is sweet. 
+He who is satiated [with sensual pleasures] loathes and treads underfoot a honeycomb, but to the hungry soul every bitter thing is sweet. 
 
 
 
@@ -301,7 +301,7 @@ A prudent man sees the evil and hides himself, but the simple pass on and are pu
 
 
 
-The flatterer who loudly praises _and_ glorifies his neighbor, rising early in the morning, it shall be counted as cursing him [for he will be suspected of sinister purposes]. 
+The flatterer who loudly praises and glorifies his neighbor, rising early in the morning, it shall be counted as cursing him [for he will be suspected of sinister purposes]. 
 
 
 
@@ -385,7 +385,7 @@ Iron sharpens iron; so a man sharpens the countenance of his friend [to show rag
 
 
 
-Whoever tends the fig tree shall eat its fruit; so he who patiently _and_ faithfully guards _and_ heeds his master shall be honored. 
+Whoever tends the fig tree shall eat its fruit; so he who patiently and faithfully guards and heeds his master shall be honored. 
 
 
 
@@ -406,7 +406,7 @@ Whoever tends the fig tree shall eat its fruit; so he who patiently _and_ faithf
 
 
 
-As in water face answers to _and_ reflects face, so the heart of man to man. 
+As in water face answers to and reflects face, so the heart of man to man. 
 
 
 

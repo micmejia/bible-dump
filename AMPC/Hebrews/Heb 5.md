@@ -18,7 +18,7 @@ For every high priest chosen from among men is appointed to act on behalf of men
 ###### 2 
 
 
-He is able to exercise gentleness _and_ forbearance toward the ignorant and erring, since he himself also is liable to moral weakness _and_ physical infirmity. 
+He is able to exercise gentleness and forbearance toward the ignorant and erring, since he himself also is liable to moral weakness and physical infirmity. 
 
 
 ###### 3 
@@ -30,13 +30,13 @@ And because of this he is obliged to offer sacrifice for his own sins, as well a
 ###### 4 
 
 
-Besides, one does not appropriate for himself the honor [of being high priest], but he is called by God _and_ receives it of Him, just as Aaron did. 
+Besides, one does not appropriate for himself the honor [of being high priest], but he is called by God and receives it of Him, just as Aaron did. 
 
 
 ###### 5 
 
 
-So too Christ (the Messiah) did not exalt Himself to be made a high priest, but was appointed _and_ exalted by Him Who said to Him, You are My Son; today I have begotten You; 
+So too Christ (the Messiah) did not exalt Himself to be made a high priest, but was appointed and exalted by Him Who said to Him, You are My Son; today I have begotten You; 
 
 
 ###### 6 
@@ -60,19 +60,19 @@ Although He was a Son, He learned [active, special] obedience through what He su
 ###### 9 
 
 
-And, [His completed experience] making Him perfectly [equipped], He became the Author _and_ Source of eternal salvation to all those who give heed _and_ obey Him, 
+And, [His completed experience] making Him perfectly [equipped], He became the Author and Source of eternal salvation to all those who give heed and obey Him, 
 
 
 ###### 10 
 
 
-Being designated _and_ recognized _and_ saluted by God as High Priest after the order (with the rank) of Melchizedek. 
+Being designated and recognized and saluted by God as High Priest after the order (with the rank) of Melchizedek. 
 
 
 ###### 11 
 
 
-Concerning this we have much to say which is hard to explain, since you have become dull in your [spiritual] hearing _and_ sluggish [even slothful in achieving spiritual insight]. 
+Concerning this we have much to say which is hard to explain, since you have become dull in your [spiritual] hearing and sluggish [even slothful in achieving spiritual insight]. 
 
 
 ###### 12 
@@ -84,10 +84,10 @@ For even though by this time you ought to be teaching others, you actually need 
 ###### 13 
 
 
-For everyone who continues to feed on milk is obviously inexperienced _and_ unskilled in the doctrine of righteousness (of conformity to the divine will in purpose, thought, and action), for he is a mere infant [not able to talk yet]! 
+For everyone who continues to feed on milk is obviously inexperienced and unskilled in the doctrine of righteousness (of conformity to the divine will in purpose, thought, and action), for he is a mere infant [not able to talk yet]! 
 
 
 ###### 14 
 
 
-But solid food is for full-grown men, for those whose senses _and_ mental faculties are trained by practice to discriminate _and_ distinguish between what is morally good _and_ noble and what is evil _and_ contrary either to divine or human law.
+But solid food is for full-grown men, for those whose senses and mental faculties are trained by practice to discriminate and distinguish between what is morally good and noble and what is evil and contrary either to divine or human law.

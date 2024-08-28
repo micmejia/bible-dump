@@ -12,7 +12,7 @@ next: ['Eph 6']
 ###### 1 
 
 
-Therefore be imitators of God [copy Him _and_ follow His example], as well-beloved children [imitate their father]. 
+Therefore be imitators of God [copy Him and follow His example], as well-beloved children [imitate their father]. 
 
 
 ###### 2 
@@ -24,13 +24,13 @@ And walk in love, [esteeming and delighting in one another] as Christ loved us a
 ###### 3 
 
 
-But immorality (sexual vice) and all impurity [of lustful, rich, wasteful living] or greediness must not even be named among you, as is fitting _and_ proper among saints (God's consecrated people). 
+But immorality (sexual vice) and all impurity [of lustful, rich, wasteful living] or greediness must not even be named among you, as is fitting and proper among saints (God's consecrated people). 
 
 
 ###### 4 
 
 
-Let there be no filthiness (obscenity, indecency) nor foolish _and_ sinful (silly and corrupt) talk, nor coarse jesting, which are not fitting _or_ becoming; but instead voice your thankfulness [to God]. 
+Let there be no filthiness (obscenity, indecency) nor foolish and sinful (silly and corrupt) talk, nor coarse jesting, which are not fitting or becoming; but instead voice your thankfulness [to God]. 
 
 
 ###### 5 
@@ -42,13 +42,13 @@ For be sure of this: that no person practicing sexual vice or impurity in though
 ###### 6 
 
 
-Let no one delude _and_ deceive you with empty excuses _and_ groundless arguments [for these sins], for through these things the wrath of God comes upon the sons of rebellion _and_ disobedience. 
+Let no one delude and deceive you with empty excuses and groundless arguments [for these sins], for through these things the wrath of God comes upon the sons of rebellion and disobedience. 
 
 
 ###### 7 
 
 
-So do not associate _or_ be sharers with them. 
+So do not associate or be sharers with them. 
 
 
 ###### 8 
@@ -60,7 +60,7 @@ For once you were darkness, but now you are light in the Lord; walk as children 
 ###### 9 
 
 
-For the fruit (the effect, the product) of the Light _or_ _the Spirit_ [consists] in every form of kindly goodness, uprightness of heart, and trueness of life. 
+For the fruit (the effect, the product) of the Light or the Spirit [consists] in every form of kindly goodness, uprightness of heart, and trueness of life. 
 
 
 ###### 10 
@@ -72,31 +72,31 @@ And try to learn [in your experience] what is pleasing to the Lord [let your liv
 ###### 11 
 
 
-Take no part in _and_ have no fellowship with the fruitless deeds _and_ enterprises of darkness, but instead [let your lives be so in contrast as to] expose _and_ reprove _and_ convict them. 
+Take no part in and have no fellowship with the fruitless deeds and enterprises of darkness, but instead [let your lives be so in contrast as to] expose and reprove and convict them. 
 
 
 ###### 12 
 
 
-For it is a shame even to speak of _or_ mention the things that [such people] practice in secret. 
+For it is a shame even to speak of or mention the things that [such people] practice in secret. 
 
 
 ###### 13 
 
 
-But when anything is exposed _and_ reproved by the light, it is made visible _and_ clear; and where everything is visible _and_ clear there is light. 
+But when anything is exposed and reproved by the light, it is made visible and clear; and where everything is visible and clear there is light. 
 
 
 ###### 14 
 
 
-Therefore He says, Awake, O sleeper, and arise from the dead, and Christ shall shine (make day dawn) upon you _and_ give you light. 
+Therefore He says, Awake, O sleeper, and arise from the dead, and Christ shall shine (make day dawn) upon you and give you light. 
 
 
 ###### 15 
 
 
-Look carefully then how you walk! Live purposefully _and_ worthily _and_ accurately, not as the unwise _and_ witless, but as wise (sensible, intelligent people), 
+Look carefully then how you walk! Live purposefully and worthily and accurately, not as the unwise and witless, but as wise (sensible, intelligent people), 
 
 
 ###### 16 
@@ -108,13 +108,13 @@ Making the very most of the time [buying up each opportunity], because the days 
 ###### 17 
 
 
-Therefore do not be vague _and_ thoughtless _and_ foolish, but understanding _and_ firmly grasping what the will of the Lord is. 
+Therefore do not be vague and thoughtless and foolish, but understanding and firmly grasping what the will of the Lord is. 
 
 
 ###### 18 
 
 
-And do not get drunk with wine, for that is debauchery; but ever be filled _and_ stimulated with the [Holy] Spirit. 
+And do not get drunk with wine, for that is debauchery; but ever be filled and stimulated with the [Holy] Spirit. 
 
 
 ###### 19 
@@ -180,7 +180,7 @@ Even so husbands should love their wives as [being in a sense] their own bodies.
 ###### 29 
 
 
-For no man ever hated his own flesh, but nourishes _and_ carefully protects and cherishes it, as Christ does the church, 
+For no man ever hated his own flesh, but nourishes and carefully protects and cherishes it, as Christ does the church, 
 
 
 ###### 30 
@@ -204,4 +204,4 @@ This mystery is very great, but I speak concerning [the relation of] Christ and 
 ###### 33 
 
 
-However, let each man of you [without exception] love his wife as [being in a sense] his very own self; and let the wife see that she respects _and_ reverences her husband [that she notices him, regards him, honors him, prefers him, venerates, and esteems him; and that she defers to him, praises him, and loves and admires him exceedingly].
+However, let each man of you [without exception] love his wife as [being in a sense] his very own self; and let the wife see that she respects and reverences her husband [that she notices him, regards him, honors him, prefers him, venerates, and esteems him; and that she defers to him, praises him, and loves and admires him exceedingly].

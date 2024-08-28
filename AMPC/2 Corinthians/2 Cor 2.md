@@ -12,19 +12,19 @@ next: ['2 Cor 3']
 ###### 1 
 
 
-But I definitely made up my mind not to grieve you with another painful _and_ distressing visit. 
+But I definitely made up my mind not to grieve you with another painful and distressing visit. 
 
 
 ###### 2 
 
 
-For if I cause you pain [with merited rebuke], who is there to provide me enjoyment but the [very] one whom I have grieved _and_ made sad? 
+For if I cause you pain [with merited rebuke], who is there to provide me enjoyment but the [very] one whom I have grieved and made sad? 
 
 
 ###### 3 
 
 
-And I wrote the same to you so that when I came, I might not be myself pained by those who are the [very] ones who ought to make me glad, for I trusted in you all _and_ felt confident that my joy would be shared by all of you. 
+And I wrote the same to you so that when I came, I might not be myself pained by those who are the [very] ones who ought to make me glad, for I trusted in you all and felt confident that my joy would be shared by all of you. 
 
 
 ###### 4 
@@ -36,7 +36,7 @@ For I wrote you out of great sorrow and deep distress [with mental torture and a
 ###### 5 
 
 
-But if someone [the one among you who committed incest] has caused [all this] grief _and_ pain, he has caused it not to me, but in some measure, not to put it too severely, [he has distressed] all of you. 
+But if someone [the one among you who committed incest] has caused [all this] grief and pain, he has caused it not to me, but in some measure, not to put it too severely, [he has distressed] all of you. 
 
 
 ###### 6 
@@ -48,19 +48,19 @@ For such a one this censure by the majority [which he has received is] sufficien
 ###### 7 
 
 
-So [instead of further rebuke, now] you should rather turn _and_ [graciously] forgive and comfort _and_ encourage [him], to keep him from being overwhelmed by excessive sorrow _and_ despair. 
+So [instead of further rebuke, now] you should rather turn and [graciously] forgive and comfort and encourage [him], to keep him from being overwhelmed by excessive sorrow and despair. 
 
 
 ###### 8 
 
 
-I therefore beg you to reinstate him in your affections _and_ assure him of your love for him; 
+I therefore beg you to reinstate him in your affections and assure him of your love for him; 
 
 
 ###### 9 
 
 
-For this was my purpose in writing you, to test your attitude _and_ see if you would stand the test, whether you are obedient _and_ altogether agreeable [to following my orders] in everything. 
+For this was my purpose in writing you, to test your attitude and see if you would stand the test, whether you are obedient and altogether agreeable [to following my orders] in everything. 
 
 
 ###### 10 
@@ -72,7 +72,7 @@ If you forgive anyone anything, I too forgive that one; and what I have forgiven
 ###### 11 
 
 
-To keep Satan from getting the advantage over us; for we are not ignorant of his wiles _and_ intentions. 
+To keep Satan from getting the advantage over us; for we are not ignorant of his wiles and intentions. 
 
 
 ###### 12 
@@ -84,19 +84,19 @@ Now when I arrived at Troas [to preach] the good news (the Gospel) of Christ, a 
 ###### 13 
 
 
-Yet my spirit could not rest (relax, get relief) because I did not find my brother Titus there. So I took leave from them _and_ departed for Macedonia. 
+Yet my spirit could not rest (relax, get relief) because I did not find my brother Titus there. So I took leave from them and departed for Macedonia. 
 
 
 ###### 14 
 
 
-But thanks be to God, Who in Christ always leads us in triumph [as trophies of Christ's victory] and through us spreads _and_ makes evident the fragrance of the knowledge of God everywhere, 
+But thanks be to God, Who in Christ always leads us in triumph [as trophies of Christ's victory] and through us spreads and makes evident the fragrance of the knowledge of God everywhere, 
 
 
 ###### 15 
 
 
-For we are the sweet fragrance of Christ [which exhales] unto God, [discernible alike] among those who are being saved _and_ among those who are perishing: 
+For we are the sweet fragrance of Christ [which exhales] unto God, [discernible alike] among those who are being saved and among those who are perishing: 
 
 
 ###### 16 
@@ -108,4 +108,4 @@ To the latter it is an aroma [wafted] from death to death [a fatal odor, the sme
 ###### 17 
 
 
-For we are not, like so many, [like hucksters making a trade of] peddling God's Word [shortchanging and adulterating the divine message]; but like [men] of sincerity _and_ the purest motive, as [commissioned and sent] by God, we speak [His message] in Christ (the Messiah), in the [very] sight _and_ presence of God.
+For we are not, like so many, [like hucksters making a trade of] peddling God's Word [shortchanging and adulterating the divine message]; but like [men] of sincerity and the purest motive, as [commissioned and sent] by God, we speak [His message] in Christ (the Messiah), in the [very] sight and presence of God.

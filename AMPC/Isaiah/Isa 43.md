@@ -49,7 +49,7 @@ But now [in spite of past judgments for Israel's sins], thus says the Lord, He W
 
 
 
-When you pass through the waters, I will be with you, and through the rivers, they will not overwhelm you. When you walk through the fire, you will not be burned _or_ scorched, nor will the flame kindle upon you. 
+When you pass through the waters, I will be with you, and through the rivers, they will not overwhelm you. When you walk through the fire, you will not be burned or scorched, nor will the flame kindle upon you. 
 
 
 
@@ -217,7 +217,7 @@ Let all the nations be gathered together and let the peoples be assembled. Who a
 
 
 
-You are My witnesses, says the Lord, and My servant whom I have chosen, that you may know Me, believe Me _and_ remain steadfast to Me, and understand that I am He. Before Me there was no God formed, neither shall there be after Me. 
+You are My witnesses, says the Lord, and My servant whom I have chosen, that you may know Me, believe Me and remain steadfast to Me, and understand that I am He. Before Me there was no God formed, neither shall there be after Me. 
 
 
 
@@ -280,7 +280,7 @@ I have declared [the future] and have saved [the nation in times of danger], and
 
 
 
-Yes, from the time of the first existence of day _and_ from this day forth I am He; and there is no one who can deliver out of My hand. I will work, and who can hinder _or_ reverse it? 
+Yes, from the time of the first existence of day and from this day forth I am He; and there is no one who can deliver out of My hand. I will work, and who can hinder or reverse it? 
 
 
 
@@ -406,7 +406,7 @@ Do not [earnestly] remember the former things; neither consider the things of ol
 
 
 
-Behold, I am doing a new thing! Now it springs forth; do you not perceive _and_ know it _and_ will you not give heed to it? I will even make a way in the wilderness and rivers in the desert. 
+Behold, I am doing a new thing! Now it springs forth; do you not perceive and know it and will you not give heed to it? I will even make a way in the wilderness and rivers in the desert. 
 
 
 
@@ -427,7 +427,7 @@ Behold, I am doing a new thing! Now it springs forth; do you not perceive _and_ 
 
 
 
-The beasts of the field honor Me, the jackals and the ostriches, because I give waters in the wilderness _and_ rivers in the desert, to give drink to My people, My chosen, 
+The beasts of the field honor Me, the jackals and the ostriches, because I give waters in the wilderness and rivers in the desert, to give drink to My people, My chosen, 
 
 
 
@@ -490,7 +490,7 @@ Yet you have not called upon Me [much less toiled for Me], O Jacob; but you have
 
 
 
-You have not brought Me your sheep _and_ goats for burnt offerings, or honored Me with your sacrifices. I have not required you to serve with an offering _or_ treated you as a slave by demanding tribute or wearied you with offering incense. 
+You have not brought Me your sheep and goats for burnt offerings, or honored Me with your sacrifices. I have not required you to serve with an offering or treated you as a slave by demanding tribute or wearied you with offering incense. 
 
 
 
@@ -532,7 +532,7 @@ You have not bought Me sweet cane with money, or satiated Me with the fat of you
 
 
 
-I, even I, am He Who blots out _and_ cancels your transgressions, for My own sake, and I will not remember your sins. 
+I, even I, am He Who blots out and cancels your transgressions, for My own sake, and I will not remember your sins. 
 
 
 
@@ -553,7 +553,7 @@ I, even I, am He Who blots out _and_ cancels your transgressions, for My own sak
 
 
 
-Put Me in remembrance [remind Me of your merits]; let us plead _and_ argue together. Set forth your case, that you may be justified (proved right). 
+Put Me in remembrance [remind Me of your merits]; let us plead and argue together. Set forth your case, that you may be justified (proved right). 
 
 
 
@@ -595,4 +595,4 @@ Your first father [Jacob, in particular] sinned, and your teachers [the priests 
 
 
 
-And so I will profane the chief ones of the sanctuary and will deliver Jacob to the curse (the ban, a solemn anathema or excommunication) and [will subject] Israel to reproaches _and_ reviling.
+And so I will profane the chief ones of the sanctuary and will deliver Jacob to the curse (the ban, a solemn anathema or excommunication) and [will subject] Israel to reproaches and reviling.

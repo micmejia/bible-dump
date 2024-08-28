@@ -49,7 +49,7 @@ My spirit is broken, my days are spent (snuffed out); the grave is ready for me.
 
 
 
-Surely there are mockers _and_ mockery around me, and my eye dwells on their obstinacy, insults, _and_ resistance. 
+Surely there are mockers and mockery around me, and my eye dwells on their obstinacy, insults, and resistance. 
 
 
 
@@ -112,7 +112,7 @@ But their hearts [Lord] You have closed to understanding; therefore You will not
 
 
 
-He who denounces his friends [in order to make them] a prey _and_ get a share, the eyes of his children shall fail [to find food]. 
+He who denounces his friends [in order to make them] a prey and get a share, the eyes of his children shall fail [to find food]. 
 
 
 
@@ -175,7 +175,7 @@ My eye has grown dim because of grief, and all my members are [wasted away] like
 
 
 
-Upright men shall be astonished _and_ appalled at this, and the innocent shall stir himself up against the godless _and_ polluted. 
+Upright men shall be astonished and appalled at this, and the innocent shall stir himself up against the godless and polluted. 
 
 
 
@@ -238,7 +238,7 @@ But as for you, come on again, all of you, though I find not a wise man among yo
 
 
 
-My days are past, my purposes _and_ plans are frustrated; even the thoughts (desires and possessions) of my heart [are broken off]. 
+My days are past, my purposes and plans are frustrated; even the thoughts (desires and possessions) of my heart [are broken off]. 
 
 
 
@@ -301,7 +301,7 @@ But if I look to Sheol (the unseen state) as my abode, if I spread my couch in t
 
 
 
-If I say to the grave _and_ corruption, You are my father, and to the worm [that feeds on decay], You are my mother and my sister [because I will soon be closest to you], 
+If I say to the grave and corruption, You are my father, and to the worm [that feeds on decay], You are my mother and my sister [because I will soon be closest to you], 
 
 
 

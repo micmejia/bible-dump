@@ -112,7 +112,7 @@ Now the city was wide and large, but the people in it were few, and their houses
 
 
 
-And my God put it into my mind _and_ heart to assemble the nobles, the officers, and the people, that they might be counted by genealogy. And I found a register of the genealogy of those who came [from Babylon] at the first, and found written in it: 
+And my God put it into my mind and heart to assemble the nobles, the officers, and the people, that they might be counted by genealogy. And I found a register of the genealogy of those who came [from Babylon] at the first, and found written in it: 
 
 
 
@@ -1477,7 +1477,7 @@ Their camels, 435; their donkeys, 6,720.
 
 
 
-And some of the heads of fathers' houses gave to the work. The Tirshatha _or_ governor gave to the treasury 1,000 darics of gold, 50 basins, 530 priests' garments. 
+And some of the heads of fathers' houses gave to the work. The Tirshatha or governor gave to the treasury 1,000 darics of gold, 50 basins, 530 priests' garments. 
 
 
 

@@ -21,7 +21,7 @@ Every place that the sole of your foot will tread upon I have given you, as I sa
 From the wilderness and this Lebanon as far as the great river, the River Euphrates, all the land of the Hittites, and to the Great Sea toward the going down of the sun, shall be your territory. 
 
 ###### 5 
-No man shall _be able to_ stand before you all the days of your life; as I was with Moses, _so_ I will be with you. I will not leave you nor forsake you. 
+No man shall be able to stand before you all the days of your life; as I was with Moses, so I will be with you. I will not leave you nor forsake you. 
 
 ###### 6 
 Be strong and of good courage, for to this people you shall divide as an inheritance the land which I swore to their fathers to give them. 
@@ -33,7 +33,7 @@ Only be strong and very courageous, that you may observe to do according to all 
 This Book of the Law shall not depart from your mouth, but you shall meditate in it day and night, that you may observe to do according to all that is written in it. For then you will make your way prosperous, and then you will have good success. 
 
 ###### 9 
-Have I not commanded you? Be strong and of good courage; do not be afraid, nor be dismayed, for the Lord your God _is_ with you wherever you go." 
+Have I not commanded you? Be strong and of good courage; do not be afraid, nor be dismayed, for the Lord your God is with you wherever you go." 
 
 ## The Order to Cross the Jordan 
 
@@ -53,7 +53,7 @@ And to the Reubenites, the Gadites, and half the tribe of Manasseh Joshua spoke,
 Your wives, your little ones, and your livestock shall remain in the land which Moses gave you on this side of the Jordan. But you shall pass before your brethren armed, all your mighty men of valor, and help them, 
 
 ###### 15 
-until the Lord has given your brethren rest, as He _gave_ you, and they also have taken possession of the land which the Lord your God is giving them. Then you shall return to the land of your possession and enjoy it, which Moses the Lord's servant gave you on this side of the Jordan toward the sunrise." 
+until the Lord has given your brethren rest, as He gave you, and they also have taken possession of the land which the Lord your God is giving them. Then you shall return to the land of your possession and enjoy it, which Moses the Lord's servant gave you on this side of the Jordan toward the sunrise." 
 
 ###### 16 
 So they answered Joshua, saying, "All that you command us we will do, and wherever you send us we will go. 

@@ -28,7 +28,7 @@ next: ['Hos 6']
 
 
 
-Hear this, O you priests! And listen, O house of Israel! And give ear, O house of the king! For the judgment pronounced pertains to you _and_ is meant for you, because you have been a snare at Mizpah and a net spread upon Tabor [military strongholds on either side of the Jordan River]. 
+Hear this, O you priests! And listen, O house of Israel! And give ear, O house of the king! For the judgment pronounced pertains to you and is meant for you, because you have been a snare at Mizpah and a net spread upon Tabor [military strongholds on either side of the Jordan River]. 
 
 
 
@@ -49,7 +49,7 @@ Hear this, O you priests! And listen, O house of Israel! And give ear, O house o
 
 
 
-The revolters are deeply sunk in corruption _and_ slaughter, but I [the Lord God] am a rebuke _and_ a chastisement for them all. 
+The revolters are deeply sunk in corruption and slaughter, but I [the Lord God] am a rebuke and a chastisement for them all. 
 
 
 
@@ -70,7 +70,7 @@ The revolters are deeply sunk in corruption _and_ slaughter, but I [the Lord God
 
 
 
-I know Ephraim, and Israel is not hid from Me; for now, O Ephraim, you have played the harlot _and_ have worshiped idols; Israel is defiled. 
+I know Ephraim, and Israel is not hid from Me; for now, O Ephraim, you have played the harlot and have worshiped idols; Israel is defiled. 
 
 
 
@@ -112,7 +112,7 @@ Their doings will not permit them to return to their God, for the spirit of harl
 
 
 
-But the pride _and_ self-reliance of Israel testifies before his [own] face. Therefore shall [all] Israel, and [especially] Ephraim [the northern ten tribes], totter _and_ fall in their iniquity _and_ guilt, and Judah shall stumble _and_ fall with them. 
+But the pride and self-reliance of Israel testifies before his [own] face. Therefore shall [all] Israel, and [especially] Ephraim [the northern ten tribes], totter and fall in their iniquity and guilt, and Judah shall stumble and fall with them. 
 
 
 
@@ -154,7 +154,7 @@ They shall go with their flocks and with their herds to seek the Lord [inquiring
 
 
 
-They have dealt faithlessly _and_ treacherously with the Lord [their espoused Husband], for they have borne alien children. Now shall a [single] New Moon (one month) devour them with their fields. 
+They have dealt faithlessly and treacherously with the Lord [their espoused Husband], for they have borne alien children. Now shall a [single] New Moon (one month) devour them with their fields. 
 
 
 
@@ -175,7 +175,7 @@ They have dealt faithlessly _and_ treacherously with the Lord [their espoused Hu
 
 
 
-Blow the horn in Gibeah and the trumpet in Ramah [both lofty hills on Benjamin's northern border]. Sound the alarm at Beth-aven: [the enemy is] behind you _and_ after you, O Benjamin [be on your guard]! 
+Blow the horn in Gibeah and the trumpet in Ramah [both lofty hills on Benjamin's northern border]. Sound the alarm at Beth-aven: [the enemy is] behind you and after you, O Benjamin [be on your guard]! 
 
 
 
@@ -196,7 +196,7 @@ Blow the horn in Gibeah and the trumpet in Ramah [both lofty hills on Benjamin's
 
 
 
-Ephraim shall become a desolation in the day of rebuke _and_ punishment. Among the tribes of Israel I declare what shall surely be. 
+Ephraim shall become a desolation in the day of rebuke and punishment. Among the tribes of Israel I declare what shall surely be. 
 
 
 
@@ -238,7 +238,7 @@ The princes of Judah are like those who remove the landmark [the barrier between
 
 
 
-Ephraim is oppressed; he is broken _and_ crushed by [divine] judgment, because he was content to walk after idols (images) _and_ man's [evil] command (_vanities and filth_). 
+Ephraim is oppressed; he is broken and crushed by [divine] judgment, because he was content to walk after idols (images) and man's [evil] command (vanities and filth). 
 
 
 
@@ -322,4 +322,4 @@ For I will be to Ephraim like a lion, and like a young lion to the house of Juda
 
 
 
-I will return to My place [on high] until they acknowledge their offense _and_ feel their guilt and seek My face; in their affliction _and_ distress they will seek, inquire for, _and_ require Me earnestly, saying,
+I will return to My place [on high] until they acknowledge their offense and feel their guilt and seek My face; in their affliction and distress they will seek, inquire for, and require Me earnestly, saying,

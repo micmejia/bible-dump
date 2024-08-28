@@ -90,7 +90,7 @@ In the day when the keepers of the house [the hands and the arms] tremble, and t
 
 
 
-When the doors [the lips] are shut in the streets and the sound of the grinding [of the teeth] is low, and one rises up at the voice of a bird _and_ the crowing of a cock, and all the daughters of music [the voice and the ear] are brought low; 
+When the doors [the lips] are shut in the streets and the sound of the grinding [of the teeth] is low, and one rises up at the voice of a bird and the crowing of a cock, and all the daughters of music [the voice and the ear] are brought low; 
 
 
 
@@ -111,7 +111,7 @@ When the doors [the lips] are shut in the streets and the sound of the grinding 
 
 
 
-Also when [the old] are afraid of danger from that which is high, and fears are in the way, and the almond tree [their white hair] blooms, and the grasshopper [a little thing] is a burden, and desire _and_ appetite fail, because man goes to his everlasting home and the mourners go about the streets _or_ marketplaces. 
+Also when [the old] are afraid of danger from that which is high, and fears are in the way, and the almond tree [their white hair] blooms, and the grasshopper [a little thing] is a burden, and desire and appetite fail, because man goes to his everlasting home and the mourners go about the streets or marketplaces. 
 
 
 
@@ -174,7 +174,7 @@ Then shall the dust [out of which God made man's body] return to the earth as it
 
 
 
-Vapor of vapors _and_ futility of futilities, says the Preacher. All is futility (emptiness, falsity, vainglory, and transitoriness)! 
+Vapor of vapors and futility of futilities, says the Preacher. All is futility (emptiness, falsity, vainglory, and transitoriness)! 
 
 
 
@@ -216,7 +216,7 @@ And furthermore, because the Preacher was wise, he [Solomon] still taught the pe
 
 
 
-The Preacher sought acceptable words, even to write down rightly words of truth _or_ correct sentiment. 
+The Preacher sought acceptable words, even to write down rightly words of truth or correct sentiment. 
 
 
 
@@ -279,7 +279,7 @@ But about going further [than the words given by one Shepherd], my son, be warne
 
 
 
-All has been heard; the end of the matter is: Fear God [revere and worship Him, knowing that He is] and keep His commandments, for this is the whole of man [the full, original purpose of his creation, the object of God's providence, the root of character, the foundation of all happiness, the adjustment to all inharmonious circumstances and conditions under the sun] _and_ the whole [duty] for every man. 
+All has been heard; the end of the matter is: Fear God [revere and worship Him, knowing that He is] and keep His commandments, for this is the whole of man [the full, original purpose of his creation, the object of God's providence, the root of character, the foundation of all happiness, the adjustment to all inharmonious circumstances and conditions under the sun] and the whole [duty] for every man. 
 
 
 

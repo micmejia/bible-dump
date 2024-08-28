@@ -28,7 +28,7 @@ next: ['Eccl 6']
 
 
 
-Keep your foot [give your mind to what you are doing] when you go [as Jacob to sacred Bethel] to the house of God. For to draw near to hear _and_ obey is better than to give the sacrifice of fools [carelessly, irreverently] too ignorant to know that they are doing evil. 
+Keep your foot [give your mind to what you are doing] when you go [as Jacob to sacred Bethel] to the house of God. For to draw near to hear and obey is better than to give the sacrifice of fools [carelessly, irreverently] too ignorant to know that they are doing evil. 
 
 
 
@@ -70,7 +70,7 @@ Be not rash with your mouth, and let not your heart be hasty to utter a word bef
 
 
 
-For a dream comes with much business _and_ painful effort, and a fool's voice with many words. 
+For a dream comes with much business and painful effort, and a fool's voice with many words. 
 
 
 
@@ -91,7 +91,7 @@ For a dream comes with much business _and_ painful effort, and a fool's voice wi
 
 
 
-When you vow a vow _or_ make a pledge to God, do not put off paying it; for God has no pleasure in fools (those who witlessly mock Him). Pay what you vow. 
+When you vow a vow or make a pledge to God, do not put off paying it; for God has no pleasure in fools (those who witlessly mock Him). Pay what you vow. 
 
 
 
@@ -133,7 +133,7 @@ It is better that you should not vow than that you should vow and not pay.
 
 
 
-Do not allow your mouth to cause your body to sin, and do not say before the messenger [the priest] that it was an error _or_ mistake. Why should God be [made] angry at your voice and destroy the work of your hands? 
+Do not allow your mouth to cause your body to sin, and do not say before the messenger [the priest] that it was an error or mistake. Why should God be [made] angry at your voice and destroy the work of your hands? 
 
 
 
@@ -154,7 +154,7 @@ Do not allow your mouth to cause your body to sin, and do not say before the mes
 
 
 
-For in a multitude of dreams there is futility _and_ worthlessness, and ruin in a flood of words. But [reverently] fear God [revere and worship Him, knowing that He is]. 
+For in a multitude of dreams there is futility and worthlessness, and ruin in a flood of words. But [reverently] fear God [revere and worship Him, knowing that He is]. 
 
 
 
@@ -175,7 +175,7 @@ For in a multitude of dreams there is futility _and_ worthlessness, and ruin in 
 
 
 
-If you see the oppression of the poor and the violent taking away of justice and righteousness in the state _or_ province, do not marvel at the matter. [Be sure that there are those who will attend to it] for a higher [official] than the high is observing, and higher ones are over them. 
+If you see the oppression of the poor and the violent taking away of justice and righteousness in the state or province, do not marvel at the matter. [Be sure that there are those who will attend to it] for a higher [official] than the high is observing, and higher ones are over them. 
 
 
 
@@ -196,7 +196,7 @@ If you see the oppression of the poor and the violent taking away of justice and
 
 
 
-Moreover, the profit of the earth is for all; the king himself is served by the field _and_ in all, a king is an advantage to a land with cultivated fields. 
+Moreover, the profit of the earth is for all; the king himself is served by the field and in all, a king is an advantage to a land with cultivated fields. 
 
 
 
@@ -280,7 +280,7 @@ The sleep of a laboring man is sweet, whether he eats little or much, but the fu
 
 
 
-There is a serious _and_ severe evil which I have seen under the sun: riches were kept by their owner to his hurt. 
+There is a serious and severe evil which I have seen under the sun: riches were kept by their owner to his hurt. 
 
 
 
@@ -343,7 +343,7 @@ As [the man] came forth from his mother's womb, so he will go again, naked as he
 
 
 
-And this also is a serious _and_ severe evil--that in all points as he came, so shall he go; and what gain has he who labors for the wind? 
+And this also is a serious and severe evil--that in all points as he came, so shall he go; and what gain has he who labors for the wind? 
 
 
 
@@ -427,4 +427,4 @@ Also, every man to whom God has given riches and possessions, and the power to e
 
 
 
-For he shall not much remember [seriously] the days of his life, because God [Himself] answers _and_ corresponds to the joy of his heart [the tranquillity of God is mirrored in him].
+For he shall not much remember [seriously] the days of his life, because God [Himself] answers and corresponds to the joy of his heart [the tranquillity of God is mirrored in him].

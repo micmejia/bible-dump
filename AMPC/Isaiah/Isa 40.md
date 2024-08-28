@@ -49,7 +49,7 @@ Comfort, comfort My people, says your God.
 
 
 
-Speak tenderly to the heart of Jerusalem, and cry to her that her time of service _and_ her warfare are ended, that [her punishment is accepted and] her iniquity is pardoned, that she has received [punishment] from the Lord's hand double for all her sins. 
+Speak tenderly to the heart of Jerusalem, and cry to her that her time of service and her warfare are ended, that [her punishment is accepted and] her iniquity is pardoned, that she has received [punishment] from the Lord's hand double for all her sins. 
 
 
 
@@ -70,7 +70,7 @@ Speak tenderly to the heart of Jerusalem, and cry to her that her time of servic
 
 
 
-A voice of one who cries: Prepare in the wilderness the way of the Lord [clear away the obstacles]; make straight _and_ smooth in the desert a highway for our God! 
+A voice of one who cries: Prepare in the wilderness the way of the Lord [clear away the obstacles]; make straight and smooth in the desert a highway for our God! 
 
 
 
@@ -91,7 +91,7 @@ A voice of one who cries: Prepare in the wilderness the way of the Lord [clear a
 
 
 
-Every valley shall be lifted _and_ filled up, and every mountain and hill shall be made low; and the crooked _and_ uneven shall be made straight _and_ level, and the rough places a plain. 
+Every valley shall be lifted and filled up, and every mountain and hill shall be made low; and the crooked and uneven shall be made straight and level, and the rough places a plain. 
 
 
 
@@ -427,7 +427,7 @@ The graven image! A workman casts it, and a goldsmith overlays it with gold and 
 
 
 
-He who is so impoverished that he has no offering _or_ oblation _or_ rich gift to give [to his god is constrained to make a wooden offering, an idol; so he] chooses a tree that will not rot; he seeks out a skillful craftsman to carve _and_ set up an image that will not totter _or_ deteriorate. 
+He who is so impoverished that he has no offering or oblation or rich gift to give [to his god is constrained to make a wooden offering, an idol; so he] chooses a tree that will not rot; he seeks out a skillful craftsman to carve and set up an image that will not totter or deteriorate. 
 
 
 
@@ -490,7 +490,7 @@ It is God Who sits above the circle (the horizon) of the earth, and its inhabita
 
 
 
-Who brings dignitaries to nothing, Who makes the judges _and_ rulers of the earth as chaos (emptiness, falsity, and futility). 
+Who brings dignitaries to nothing, Who makes the judges and rulers of the earth as chaos (emptiness, falsity, and futility). 
 
 
 
@@ -511,7 +511,7 @@ Who brings dignitaries to nothing, Who makes the judges _and_ rulers of the eart
 
 
 
-Yes, these men are scarcely planted, scarcely are they sown, scarcely does their stock take root in the earth, when [the Lord] blows upon them and they wither, and the whirlwind _or_ tempest takes them away like stubble. 
+Yes, these men are scarcely planted, scarcely are they sown, scarcely does their stock take root in the earth, when [the Lord] blows upon them and they wither, and the whirlwind or tempest takes them away like stubble. 
 
 
 
@@ -553,7 +553,7 @@ To whom then will you liken Me, that I should be equal to him? says the Holy One
 
 
 
-Lift up your eyes on high and see! Who has created these? He Who brings out their host by number and calls them all by name; through the greatness of His might and because He is strong in power, not one is missing _or_ lacks anything. 
+Lift up your eyes on high and see! Who has created these? He Who brings out their host by number and calls them all by name; through the greatness of His might and because He is strong in power, not one is missing or lacks anything. 
 
 
 
@@ -574,7 +574,7 @@ Lift up your eyes on high and see! Who has created these? He Who brings out thei
 
 
 
-Why, O Jacob, do you say, and declare, O Israel, My way _and_ my lot are hidden from the Lord, and my right is passed over without regard from my God? 
+Why, O Jacob, do you say, and declare, O Israel, My way and my lot are hidden from the Lord, and my right is passed over without regard from my God? 
 
 
 
@@ -616,7 +616,7 @@ Have you not known? Have you not heard? The everlasting God, the Lord, the Creat
 
 
 
-He gives power to the faint _and_ weary, and to him who has no might He increases strength [causing it to multiply and making it to abound]. 
+He gives power to the faint and weary, and to him who has no might He increases strength [causing it to multiply and making it to abound]. 
 
 
 
@@ -637,7 +637,7 @@ He gives power to the faint _and_ weary, and to him who has no might He increase
 
 
 
-Even youths shall faint and be weary, and [selected] young men shall feebly stumble _and_ fall exhausted; 
+Even youths shall faint and be weary, and [selected] young men shall feebly stumble and fall exhausted; 
 
 
 
@@ -658,4 +658,4 @@ Even youths shall faint and be weary, and [selected] young men shall feebly stum
 
 
 
-But those who wait for the Lord [who expect, look for, and hope in Him] shall change _and_ renew their strength _and_ power; they shall lift their wings _and_ mount up [close to God] as eagles [mount up to the sun]; they shall run and not be weary, they shall walk and not faint _or_ become tired.
+But those who wait for the Lord [who expect, look for, and hope in Him] shall change and renew their strength and power; they shall lift their wings and mount up [close to God] as eagles [mount up to the sun]; they shall run and not be weary, they shall walk and not faint or become tired.

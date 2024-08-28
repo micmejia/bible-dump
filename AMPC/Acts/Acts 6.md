@@ -28,7 +28,7 @@ next: ['Acts 7']
 
 
 
-Now about this time, when the number of the disciples was greatly increasing, complaint was made by the Hellenists (the Greek-speaking Jews) against the [native] Hebrews because their widows were being overlooked _and_ neglected in the daily ministration (distribution of relief). 
+Now about this time, when the number of the disciples was greatly increasing, complaint was made by the Hellenists (the Greek-speaking Jews) against the [native] Hebrews because their widows were being overlooked and neglected in the daily ministration (distribution of relief). 
 
 
 
@@ -49,7 +49,7 @@ Now about this time, when the number of the disciples was greatly increasing, co
 
 
 
-So the Twelve [apostles] convened the multitude of the disciples and said, It is not seemly _or_ desirable _or_ right that we should have to give up _or_ neglect [preaching] the Word of God in order to attend to serving at tables _and_ superintending the distribution of food. 
+So the Twelve [apostles] convened the multitude of the disciples and said, It is not seemly or desirable or right that we should have to give up or neglect [preaching] the Word of God in order to attend to serving at tables and superintending the distribution of food. 
 
 
 
@@ -70,7 +70,7 @@ So the Twelve [apostles] convened the multitude of the disciples and said, It is
 
 
 
-Therefore select out from among yourselves, brethren, seven men of good _and_ attested character _and_ repute, full of the [Holy] Spirit and wisdom, whom we may assign to look after this business _and_ duty. 
+Therefore select out from among yourselves, brethren, seven men of good and attested character and repute, full of the [Holy] Spirit and wisdom, whom we may assign to look after this business and duty. 
 
 
 
@@ -112,7 +112,7 @@ But we will continue to devote ourselves steadfastly to prayer and the ministry 
 
 
 
-And the suggestion pleased the whole assembly, and they selected Stephen, a man full of faith (a strong and welcome belief that Jesus is the Messiah) and full of _and_ controlled by the Holy Spirit, and Philip, and Prochorus, and Nicanor, and Timon, and Parmenas, and Nicolaus, a proselyte (convert) from Antioch. 
+And the suggestion pleased the whole assembly, and they selected Stephen, a man full of faith (a strong and welcome belief that Jesus is the Messiah) and full of and controlled by the Holy Spirit, and Philip, and Prochorus, and Nicanor, and Timon, and Parmenas, and Nicolaus, a proselyte (convert) from Antioch. 
 
 
 
@@ -196,7 +196,7 @@ Now Stephen, full of grace (divine blessing and favor) and power (strength and a
 
 
 
-However, some of those who belonged to the synagogue of the Freedmen (freed Jewish slaves), as it was called, and [of the synagogues] of the Cyrenians and of the Alexandrians and of those from Cilicia and [the province of] Asia, arose [and undertook] to debate _and_ dispute with Stephen. 
+However, some of those who belonged to the synagogue of the Freedmen (freed Jewish slaves), as it was called, and [of the synagogues] of the Cyrenians and of the Alexandrians and of those from Cilicia and [the province of] Asia, arose [and undertook] to debate and dispute with Stephen. 
 
 
 
@@ -217,7 +217,7 @@ However, some of those who belonged to the synagogue of the Freedmen (freed Jewi
 
 
 
-But they were not able to resist the intelligence _and_ the wisdom and [the inspiration of] the Spirit with which _and_ by Whom he spoke. 
+But they were not able to resist the intelligence and the wisdom and [the inspiration of] the Spirit with which and by Whom he spoke. 
 
 
 
@@ -238,7 +238,7 @@ But they were not able to resist the intelligence _and_ the wisdom and [the insp
 
 
 
-So they [secretly] instigated _and_ instructed men to say, We have heard this man speak, using slanderous _and_ abusive _and_ blasphemous language against Moses and God. 
+So they [secretly] instigated and instructed men to say, We have heard this man speak, using slanderous and abusive and blasphemous language against Moses and God. 
 
 
 
@@ -301,7 +301,7 @@ And they brought forward false witnesses who asserted, This man never stops maki
 
 
 
-For we have heard him say that this Jesus the Nazarene will tear down _and_ destroy this place, and will alter the institutions _and_ usages which Moses transmitted to us. 
+For we have heard him say that this Jesus the Nazarene will tear down and destroy this place, and will alter the institutions and usages which Moses transmitted to us. 
 
 
 

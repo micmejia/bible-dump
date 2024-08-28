@@ -28,7 +28,7 @@ next: ['Mal 4']
 
 
 
-Behold, I send My messenger, and he shall prepare the way before Me. And the Lord [the Messiah], Whom you seek, will suddenly come to His temple; the Messenger _or_ Angel of the covenant, Whom you desire, behold, He shall come, says the Lord of hosts. 
+Behold, I send My messenger, and he shall prepare the way before Me. And the Lord [the Messiah], Whom you seek, will suddenly come to His temple; the Messenger or Angel of the covenant, Whom you desire, behold, He shall come, says the Lord of hosts. 
 
 
 
@@ -175,7 +175,7 @@ Even from the days of your fathers you have turned aside from My ordinances and 
 
 
 
-Will a man rob _or_ defraud God? Yet you rob _and_ defraud Me. But you say, In what way do we rob _or_ defraud You? [You have withheld your] tithes and offerings. 
+Will a man rob or defraud God? Yet you rob and defraud Me. But you say, In what way do we rob or defraud You? [You have withheld your] tithes and offerings. 
 
 
 
@@ -259,7 +259,7 @@ And I will rebuke the devourer [insects and plagues] for your sakes and he shall
 
 
 
-And all nations shall call you happy _and_ blessed, for you shall be a land of delight, says the Lord of hosts. 
+And all nations shall call you happy and blessed, for you shall be a land of delight, says the Lord of hosts. 
 
 
 
@@ -280,7 +280,7 @@ And all nations shall call you happy _and_ blessed, for you shall be a land of d
 
 
 
-Your words have been strong _and_ hard against Me, says the Lord. Yet you say, What have we spoken against You? 
+Your words have been strong and hard against Me, says the Lord. Yet you say, What have we spoken against You? 
 
 
 
@@ -301,7 +301,7 @@ Your words have been strong _and_ hard against Me, says the Lord. Yet you say, W
 
 
 
-You have said, It is useless to serve God, and what profit is it if we keep His ordinances and walk gloomily _and_ as if in mourning apparel before the Lord of hosts? 
+You have said, It is useless to serve God, and what profit is it if we keep His ordinances and walk gloomily and as if in mourning apparel before the Lord of hosts? 
 
 
 
@@ -322,7 +322,7 @@ You have said, It is useless to serve God, and what profit is it if we keep His 
 
 
 
-And now we consider the proud _and_ arrogant to be happy _and_ favored; evildoers are exalted _and_ prosper; yes, and when they test God, they escape [unpunished]. 
+And now we consider the proud and arrogant to be happy and favored; evildoers are exalted and prosper; yes, and when they test God, they escape [unpunished]. 
 
 
 
@@ -343,7 +343,7 @@ And now we consider the proud _and_ arrogant to be happy _and_ favored; evildoer
 
 
 
-Then those who feared the Lord talked often one to another; and the Lord listened and heard it, and a book of remembrance was written before Him of those who reverenced _and_ worshipfully feared the Lord and who thought on His name. 
+Then those who feared the Lord talked often one to another; and the Lord listened and heard it, and a book of remembrance was written before Him of those who reverenced and worshipfully feared the Lord and who thought on His name. 
 
 
 
@@ -364,7 +364,7 @@ Then those who feared the Lord talked often one to another; and the Lord listene
 
 
 
-And they shall be Mine, says the Lord of hosts, in that day when I publicly recognize _and_ openly declare them to be My jewels (My special possession, My peculiar treasure). And I will spare them, as a man spares his own son who serves him. 
+And they shall be Mine, says the Lord of hosts, in that day when I publicly recognize and openly declare them to be My jewels (My special possession, My peculiar treasure). And I will spare them, as a man spares his own son who serves him. 
 
 
 

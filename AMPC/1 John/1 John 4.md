@@ -18,37 +18,37 @@ Beloved, do not put faith in every spirit, but prove (test) the spirits to disco
 ###### 2 
 
 
-By this you may know (perceive and recognize) the Spirit of God: every spirit which acknowledges _and_ confesses [the fact] that Jesus Christ (the Messiah) [actually] has become man _and_ has come in the flesh is of God [has God for its source]; 
+By this you may know (perceive and recognize) the Spirit of God: every spirit which acknowledges and confesses [the fact] that Jesus Christ (the Messiah) [actually] has become man and has come in the flesh is of God [has God for its source]; 
 
 
 ###### 3 
 
 
-And every spirit which does not acknowledge _and_ confess _that_ Jesus _Christ has come in the flesh_ [but would annul, destroy, sever, disunite Him] is not of God [does not proceed from Him]. This [nonconfession] is the [spirit] of the antichrist, [of] which you heard that it was coming, and now it is already in the world. 
+And every spirit which does not acknowledge and confess that Jesus Christ has come in the flesh [but would annul, destroy, sever, disunite Him] is not of God [does not proceed from Him]. This [nonconfession] is the [spirit] of the antichrist, [of] which you heard that it was coming, and now it is already in the world. 
 
 
 ###### 4 
 
 
-Little children, you are of God [you belong to Him] and have [already] defeated _and_ overcome them [the agents of the antichrist], because He Who lives in you is greater (mightier) than he who is in the world. 
+Little children, you are of God [you belong to Him] and have [already] defeated and overcome them [the agents of the antichrist], because He Who lives in you is greater (mightier) than he who is in the world. 
 
 
 ###### 5 
 
 
-They proceed from the world _and_ are of the world; therefore it is out of the world [its whole economy morally considered] that they speak, and the world listens (pays attention) to them. 
+They proceed from the world and are of the world; therefore it is out of the world [its whole economy morally considered] that they speak, and the world listens (pays attention) to them. 
 
 
 ###### 6 
 
 
-We are [children] of God. Whoever is learning to know God [progressively to perceive, recognize, and understand God by observation and experience, and to get an ever-clearer knowledge of Him] listens to us; and he who is not of God does not listen _or_ pay attention to us. By this we know (recognize) the Spirit of Truth and the spirit of error. 
+We are [children] of God. Whoever is learning to know God [progressively to perceive, recognize, and understand God by observation and experience, and to get an ever-clearer knowledge of Him] listens to us; and he who is not of God does not listen or pay attention to us. By this we know (recognize) the Spirit of Truth and the spirit of error. 
 
 
 ###### 7 
 
 
-Beloved, let us love one another, for love is (springs) from God; and he who loves [his fellowmen] is begotten (born) of God and is coming [progressively] to know _and_ understand God [to perceive and recognize and get a better and clearer knowledge of Him]. 
+Beloved, let us love one another, for love is (springs) from God; and he who loves [his fellowmen] is begotten (born) of God and is coming [progressively] to know and understand God [to perceive and recognize and get a better and clearer knowledge of Him]. 
 
 
 ###### 8 
@@ -60,7 +60,7 @@ He who does not love has not become acquainted with God [does not and never did 
 ###### 9 
 
 
-In this the love of God was made manifest (displayed) where we are concerned: in that God sent His Son, the only begotten _or_ unique [Son], into the world so that we might live through Him. 
+In this the love of God was made manifest (displayed) where we are concerned: in that God sent His Son, the only begotten or unique [Son], into the world so that we might live through Him. 
 
 
 ###### 10 
@@ -102,25 +102,25 @@ Anyone who confesses (acknowledges, owns) that Jesus is the Son of God, God abid
 ###### 16 
 
 
-And we know (understand, recognize, are conscious of, by observation and by experience) and believe (adhere to and put faith in and rely on) the love God cherishes for us. God is love, and he who dwells _and_ continues in love dwells _and_ continues in God, and God dwells _and_ continues in him. 
+And we know (understand, recognize, are conscious of, by observation and by experience) and believe (adhere to and put faith in and rely on) the love God cherishes for us. God is love, and he who dwells and continues in love dwells and continues in God, and God dwells and continues in him. 
 
 
 ###### 17 
 
 
-In this [union and communion with Him] love is brought to completion _and_ attains perfection with us, that we may have confidence for the day of judgment [with assurance and boldness to face Him], because as He is, so are we in this world. 
+In this [union and communion with Him] love is brought to completion and attains perfection with us, that we may have confidence for the day of judgment [with assurance and boldness to face Him], because as He is, so are we in this world. 
 
 
 ###### 18 
 
 
-There is no fear in love [dread does not exist], but full-grown (complete, perfect) love turns fear out of doors _and_ expels every trace of terror! For fear brings with it the thought of punishment, and [so] he who is afraid has not reached the full maturity of love [is not yet grown into love's complete perfection]. 
+There is no fear in love [dread does not exist], but full-grown (complete, perfect) love turns fear out of doors and expels every trace of terror! For fear brings with it the thought of punishment, and [so] he who is afraid has not reached the full maturity of love [is not yet grown into love's complete perfection]. 
 
 
 ###### 19 
 
 
-We love _Him_, because He first loved us. 
+We love Him, because He first loved us. 
 
 
 ###### 20 

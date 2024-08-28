@@ -27,7 +27,7 @@ next: ['Hab 2']
 
 
 
-The burden _or_ oracle (the thing to be lifted up) which Habakkuk the prophet saw. 
+The burden or oracle (the thing to be lifted up) which Habakkuk the prophet saw. 
 
 
 
@@ -69,7 +69,7 @@ O Lord, how long shall I cry for help and You will not hear? Or cry out to You o
 
 
 
-Why do You show me iniquity _and_ wrong, and Yourself look upon _or_ cause me to see perverseness _and_ trouble? For destruction and violence are before me; and there is strife, and contention arises. 
+Why do You show me iniquity and wrong, and Yourself look upon or cause me to see perverseness and trouble? For destruction and violence are before me; and there is strife, and contention arises. 
 
 
 
@@ -90,7 +90,7 @@ Why do You show me iniquity _and_ wrong, and Yourself look upon _or_ cause me to
 
 
 
-Therefore the law is slackened and justice _and_ a righteous sentence never go forth, for the [hostility of the] wicked surrounds the [uncompromisingly] righteous; therefore justice goes forth perverted. 
+Therefore the law is slackened and justice and a righteous sentence never go forth, for the [hostility of the] wicked surrounds the [uncompromisingly] righteous; therefore justice goes forth perverted. 
 
 
 
@@ -174,7 +174,7 @@ For behold, I am rousing up the Chaldeans, that bitter and impetuous nation who 
 
 
 
-Their horses also are swifter than leopards and are fiercer than the evening wolves, and their horsemen spread themselves _and_ press on proudly; yes, their horsemen come from afar; they fly like an eagle that hastens to devour. 
+Their horses also are swifter than leopards and are fiercer than the evening wolves, and their horsemen spread themselves and press on proudly; yes, their horsemen come from afar; they fly like an eagle that hastens to devour. 
 
 
 
@@ -258,7 +258,7 @@ Then they sweep by like a wind and pass on, and they load themselves with guilt,
 
 
 
-Are not You from everlasting, O Lord my God, my Holy One? We shall not die. O Lord, You have appointed [the Chaldean] to execute [Your] judgment, and You, O Rock, have established him for chastisement _and_ correction. 
+Are not You from everlasting, O Lord my God, my Holy One? We shall not die. O Lord, You have appointed [the Chaldean] to execute [Your] judgment, and You, O Rock, have established him for chastisement and correction. 
 
 
 
@@ -300,7 +300,7 @@ You are of purer eyes than to behold evil and can not look [inactively] upon inj
 
 
 
-Why do You make men like the fish of the sea, like reptiles _and_ creeping things that have no ruler [and are defenseless against their foes]? 
+Why do You make men like the fish of the sea, like reptiles and creeping things that have no ruler [and are defenseless against their foes]? 
 
 
 
@@ -342,7 +342,7 @@ Why do You make men like the fish of the sea, like reptiles _and_ creeping thing
 
 
 
-Therefore he sacrifices [offerings] to his net and burns incense to his dragnet, because from them he lives luxuriously and his food is plentiful _and_ rich. 
+Therefore he sacrifices [offerings] to his net and burns incense to his dragnet, because from them he lives luxuriously and his food is plentiful and rich. 
 
 
 

@@ -13,10 +13,10 @@ next: ['Ruth 4']
 Then Naomi her mother-in-law said to her, "My daughter, shall I not seek security for you, that it may be well with you? 
 
 ###### 2 
-Now Boaz, whose young women you were with, _is he_ not our relative? In fact, he is winnowing barley tonight at the threshing floor. 
+Now Boaz, whose young women you were with, is he not our relative? In fact, he is winnowing barley tonight at the threshing floor. 
 
 ###### 3 
-Therefore wash yourself and anoint yourself, put on your _best_ garment and go down to the threshing floor; _but_ do not make yourself known to the man until he has finished eating and drinking. 
+Therefore wash yourself and anoint yourself, put on your best garment and go down to the threshing floor; but do not make yourself known to the man until he has finished eating and drinking. 
 
 ###### 4 
 Then it shall be, when he lies down, that you shall notice the place where he lies; and you shall go in, uncover his feet, and lie down; and he will tell you what you should do." 
@@ -34,31 +34,31 @@ And after Boaz had eaten and drunk, and his heart was cheerful, he went to lie d
 Now it happened at midnight that the man was startled, and turned himself; and there, a woman was lying at his feet. 
 
 ###### 9 
-And he said, "Who _are_ you?" So she answered, "I _am_ Ruth, your maidservant. Take your maidservant under your wing, for you are a close relative." 
+And he said, "Who are you?" So she answered, "I am Ruth, your maidservant. Take your maidservant under your wing, for you are a close relative." 
 
 ###### 10 
-Then he said, "Blessed _are_ you of the Lord, my daughter! For you have shown more kindness at the end than at the beginning, in that you did not go after young men, whether poor or rich. 
+Then he said, "Blessed are you of the Lord, my daughter! For you have shown more kindness at the end than at the beginning, in that you did not go after young men, whether poor or rich. 
 
 ###### 11 
-And now, my daughter, do not fear. I will do for you all that you request, for all the people of my town know that you _are_ a virtuous woman. 
+And now, my daughter, do not fear. I will do for you all that you request, for all the people of my town know that you are a virtuous woman. 
 
 ###### 12 
-Now it is true that I _am_ a close relative; however, there is a relative closer than I. 
+Now it is true that I am a close relative; however, there is a relative closer than I. 
 
 ###### 13 
-Stay this night, and in the morning it shall be _that_ if he will perform the duty of a close relative for you--good; let him do it. But if he does not want to perform the duty for you, then I will perform the duty for you, _as_ the Lord lives! Lie down until morning." 
+Stay this night, and in the morning it shall be that if he will perform the duty of a close relative for you--good; let him do it. But if he does not want to perform the duty for you, then I will perform the duty for you, as the Lord lives! Lie down until morning." 
 
 ###### 14 
 So she lay at his feet until morning, and she arose before one could recognize another. Then he said, "Do not let it be known that the woman came to the threshing floor." 
 
 ###### 15 
-Also he said, "Bring the shawl that _is_ on you and hold it." And when she held it, he measured six _ephahs_ of barley, and laid _it_ on her. Then she went into the city. 
+Also he said, "Bring the shawl that is on you and hold it." And when she held it, he measured six ephahs of barley, and laid it on her. Then she went into the city. 
 
 ###### 16 
-When she came to her mother-in-law, she said, "_Is_ that you, my daughter?" Then she told her all that the man had done for her. 
+When she came to her mother-in-law, she said, "Is that you, my daughter?" Then she told her all that the man had done for her. 
 
 ###### 17 
-And she said, "These six _ephahs_ of barley he gave me; for he said to me, 'Do not go empty-handed to your mother-in-law.' " 
+And she said, "These six ephahs of barley he gave me; for he said to me, 'Do not go empty-handed to your mother-in-law.' " 
 
 ###### 18 
 Then she said, "Sit still, my daughter, until you know how the matter will turn out; for the man will not rest until he has concluded the matter this day."

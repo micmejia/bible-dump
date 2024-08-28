@@ -40,7 +40,7 @@ next: ['Heb 5']
 
 
 
-<i class="trans-change">Ngunit kahit na ganoon ang nangyari sa kanila,_ nanatili pa rin ang pangako ng Dios na makakamtan natin ang kapahingahang mula sa kanya. Kaya mag-ingat tayo at baka mayroon sa atin na hindi magkakamit ng pangakong ito. 
+Ngunit kahit na ganoon ang nangyari sa kanila,_ nanatili pa rin ang pangako ng Dios na makakamtan natin ang kapahingahang mula sa kanya. Kaya mag-ingat tayo at baka mayroon sa atin na hindi magkakamit ng pangakong ito. 
 
 
 
@@ -106,7 +106,7 @@ Sapagkat nakarinig din tayo ng Magandang Balita katulad nila, pero naging walang
 
 
 
-Tayong mga sumasampalataya ang magkakamit ng kapahingahang mula sa Dios. <i class="trans-change">Ngunit hindi ito makakamit ng hindi sumasampalataya,_ dahil sinabi ng Dios, "Sa galit ko, isinumpa kong hindi nila makakamtan ang kapahingahang galing sa akin." <i class="trans-change">Hindi ibig sabihin na wala pa ang kapahingahan._ Ang totoo, nariyan na ito mula pa nang likhain ang mundo. 
+Tayong mga sumasampalataya ang magkakamit ng kapahingahang mula sa Dios. Ngunit hindi ito makakamit ng hindi sumasampalataya,_ dahil sinabi ng Dios, "Sa galit ko, isinumpa kong hindi nila makakamtan ang kapahingahang galing sa akin." Hindi ibig sabihin na wala pa ang kapahingahan._ Ang totoo, nariyan na ito mula pa nang likhain ang mundo. 
 
 
 
@@ -304,7 +304,7 @@ Dahil kung tunay na nadala ni Josue sa kapahingahan ang mga tao noong una, hindi
 
 
 
-Kaya may kapahingahan pang nakalaan sa mga taong sakop ng Dios. <i class="trans-change">At ang kapahingahang itoʼy katulad ng pagpapahinga ng Dios sa ikapitong araw._ 
+Kaya may kapahingahan pang nakalaan sa mga taong sakop ng Dios. At ang kapahingahang itoʼy katulad ng pagpapahinga ng Dios sa ikapitong araw._ 
 
 
 
@@ -471,7 +471,7 @@ Walang makapagtatago sa Dios. Nakikita niya at lantad sa paningin niya ang lahat
 
 
 
-Kaya panghawakan nating mabuti ang pinaniniwalaan natin dahil mayroon tayong dakilang punong pari na pumasok sa kalangitan, <i class="trans-change">na walang iba kundi_ si Jesus na Anak ng Dios. 
+Kaya panghawakan nating mabuti ang pinaniniwalaan natin dahil mayroon tayong dakilang punong pari na pumasok sa kalangitan, na walang iba kundi_ si Jesus na Anak ng Dios. 
 
 
 

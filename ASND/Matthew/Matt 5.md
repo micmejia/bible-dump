@@ -205,7 +205,7 @@ Mapalad ang mga mapagpakumbaba, dahil mamanahin nila ang mundo.
 
 
 
-Mapalad ang mga taong ang hangad ay matupad ang kalooban ng Dios, dahil tutulungan sila <i class="trans-change">ng Dios_ na matupad iyon. 
+Mapalad ang mga taong ang hangad ay matupad ang kalooban ng Dios, dahil tutulungan sila ng Dios_ na matupad iyon. 
 
 
 
@@ -238,7 +238,7 @@ Mapalad ang mga taong ang hangad ay matupad ang kalooban ng Dios, dahil tutulung
 
 
 
-Mapalad ang mga maawain, dahil kaaawaan din sila <i class="trans-change">ng Dios_, 
+Mapalad ang mga maawain, dahil kaaawaan din sila ng Dios_, 
 
 
 
@@ -436,7 +436,7 @@ Ganoon din ang ginawa nila sa mga propeta noong una. Kaya magalak kayo dahil mal
 
 
 
-"Kayong <i class="trans-change">mga tagasunod ko ang_ nagsisilbing asin sa mundo. Ngunit kung mag-iba ang lasa ng asin, wala nang magagawa para ibalik ang lasa nito. Wala na itong pakinabang kaya itinatapon na lang at tinatapak-tapakan ng mga tao. 
+"Kayong mga tagasunod ko ang_ nagsisilbing asin sa mundo. Ngunit kung mag-iba ang lasa ng asin, wala nang magagawa para ibalik ang lasa nito. Wala na itong pakinabang kaya itinatapon na lang at tinatapak-tapakan ng mga tao. 
 
 
 
@@ -568,7 +568,7 @@ Ganoon din ang dapat ninyong gawin. Pagliwanagin ninyo ang inyong ilaw sa mga ta
 
 
 
-"Huwag ninyong isipin na naparito ako upang ipawalang-saysay ang Kautusan <i class="trans-change">ni Moises_ at ang <i class="trans-change">isinulat ng_ mga propeta. Naparito ako upang tuparin ang mga ito. 
+"Huwag ninyong isipin na naparito ako upang ipawalang-saysay ang Kautusan ni Moises_ at ang isinulat ng_ mga propeta. Naparito ako upang tuparin ang mga ito. 
 
 
 
@@ -700,7 +700,7 @@ Kaya tandaan ninyo: kung hindi ninyo mahihigitan ang pagsunod ng mga tagapagturo
 
 
 
-<i class="trans-change">Sinabi pa ni Jesus,_ "Narinig ninyo na sinabi noong una sa ating mga ninuno, 'Huwag kayong papatay, dahil ang sinumang pumatay ay parurusahan.' 
+Sinabi pa ni Jesus,_ "Narinig ninyo na sinabi noong una sa ating mga ninuno, 'Huwag kayong papatay, dahil ang sinumang pumatay ay parurusahan.' 
 
 
 
@@ -898,7 +898,7 @@ Tinitiyak ko sa iyo, hindi ka makakalabas ng bilangguan hanggaʼt hindi mo nabab
 
 
 
-"Narinig ninyo na sinabi <i class="trans-change">noong una_, 'Huwag kang mangangalunya.' 
+"Narinig ninyo na sinabi noong una_, 'Huwag kang mangangalunya.' 
 
 
 
@@ -1030,7 +1030,7 @@ At kung ang kanang kamay mo ang dahilan ng iyong pagkakasala, putulin mo ito at 
 
 
 
-"Sinabi rin <i class="trans-change">noong una_, 'Kung nais ng isang lalaki na hiwalayan ang kanyang asawa, kinakailangang bigyan niya ito ng kasulatan ng paghihiwalay.' 
+"Sinabi rin noong una_, 'Kung nais ng isang lalaki na hiwalayan ang kanyang asawa, kinakailangang bigyan niya ito ng kasulatan ng paghihiwalay.' 
 
 
 
@@ -1063,7 +1063,7 @@ At kung ang kanang kamay mo ang dahilan ng iyong pagkakasala, putulin mo ito at 
 
 
 
-Ngunit sinasabi ko sa inyo na kapag hiniwalayan ng lalaki ang kanyang asawa sa anumang dahilan maliban sa sekswal na imoralidad, siya na rin ang nagtulak sa kanyang asawa na mangalunya <i class="trans-change">kapag nag-asawa itong muli_. At ang sinumang mag-asawa ng babaeng hiniwalayan ay nagkasala <i class="trans-change">rin_ ng pangangalunya." ## Ang Turo tungkol sa Panunumpa 
+Ngunit sinasabi ko sa inyo na kapag hiniwalayan ng lalaki ang kanyang asawa sa anumang dahilan maliban sa sekswal na imoralidad, siya na rin ang nagtulak sa kanyang asawa na mangalunya kapag nag-asawa itong muli_. At ang sinumang mag-asawa ng babaeng hiniwalayan ay nagkasala rin_ ng pangangalunya." ## Ang Turo tungkol sa Panunumpa 
 
 
 
@@ -1261,7 +1261,7 @@ Sabihin mo na lang na 'Oo' kung oo, at 'Hindi' kung hindi; dahil kung manunumpa 
 
 
 
-"Narinig ninyo na sinabi <i class="trans-change">noong una_, 'Mata sa mata, ngipin sa ngipin.' 
+"Narinig ninyo na sinabi noong una_, 'Mata sa mata, ngipin sa ngipin.' 
 
 
 
@@ -1426,7 +1426,7 @@ Bigyan mo ang nanghihingi sa iyo, at huwag mong tanggihan ang nanghihiram sa iyo
 
 
 
-"Narinig ninyo na sinabi <i class="trans-change">noong una_, 'Mahalin mo ang iyong kaibigan, at kapootan mo ang iyong kaaway.' 
+"Narinig ninyo na sinabi noong una_, 'Mahalin mo ang iyong kaibigan, at kapootan mo ang iyong kaaway.' 
 
 
 
@@ -1525,7 +1525,7 @@ Kung gagawin ninyo ito, magiging tunay na anak kayo ng inyong Amang nasa langit.
 
 
 
-Kung ang mamahalin lang ninyo ay ang mga nagmamahal sa inyo, anong gantimpala ang matatanggap ninyo <i class="trans-change">mula sa Dios_? Hindi baʼt ginagawa rin iyan ng mga maniningil ng buwis <i class="trans-change">na itinuturing na masasama_? 
+Kung ang mamahalin lang ninyo ay ang mga nagmamahal sa inyo, anong gantimpala ang matatanggap ninyo mula sa Dios_? Hindi baʼt ginagawa rin iyan ng mga maniningil ng buwis na itinuturing na masasama_? 
 
 
 

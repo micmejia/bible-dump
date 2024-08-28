@@ -304,7 +304,7 @@ Pero walang taong nakakagawa nito sa dila. Wala itong tigil sa kasamaan at puno 
 
 
 
-Sa pamamagitan ng dila, pinupuri natin ang <i class="trans-change">ating_ Panginoon at Ama, pero sa pamamagitan din nito ay isinusumpa natin ang ating kapwa na nilikhang kalarawan ng Dios. 
+Sa pamamagitan ng dila, pinupuri natin ang ating_ Panginoon at Ama, pero sa pamamagitan din nito ay isinusumpa natin ang ating kapwa na nilikhang kalarawan ng Dios. 
 
 
 
@@ -471,7 +471,7 @@ Sino sa inyo ang marunong at nakakaunawa? Ipakita niya na talagang marunong siya
 
 
 
-Kung pagkainggit at pagkamakasarili naman ang umiiral sa inyong puso, huwag ninyong ipagyabang <i class="trans-change">na may karunungan kayo_, dahil pinasisinungalingan nʼyo ang katotohanan. 
+Kung pagkainggit at pagkamakasarili naman ang umiiral sa inyong puso, huwag ninyong ipagyabang na may karunungan kayo_, dahil pinasisinungalingan nʼyo ang katotohanan. 
 
 
 

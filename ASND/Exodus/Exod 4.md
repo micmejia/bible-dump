@@ -106,7 +106,7 @@ Sinabi sa kanya ng Panginoon, "Ano iyang hawak mo?" Sumagot si Moises, "Baston p
 
 
 
-Sinabi ng Panginoon, "Ihagis mo sa lupa." Kaya inihagis ni Moises ang baston at naging ahas ito. <i class="trans-change">Natakot si Moises,_ kaya napatakbo siya. 
+Sinabi ng Panginoon, "Ihagis mo sa lupa." Kaya inihagis ni Moises ang baston at naging ahas ito. Natakot si Moises,_ kaya napatakbo siya. 
 
 
 
@@ -139,7 +139,7 @@ Sinabi ng Panginoon, "Ihagis mo sa lupa." Kaya inihagis ni Moises ang baston at 
 
 
 
-Sinabi sa kanya ng Panginoon, "Hulihin mo ito sa buntot." Kaya hinuli ito ni Moises at <i class="trans-change">muling_ naging baston. 
+Sinabi sa kanya ng Panginoon, "Hulihin mo ito sa buntot." Kaya hinuli ito ni Moises at muling_ naging baston. 
 
 
 
@@ -304,7 +304,7 @@ Pagkatapos, sinabi ng Panginoon, "Kung hindi sila maniwala sa unang himala, sa i
 
 
 
-Pero kung hindi pa rin sila maniwala sa iyo pagkatapos ng dalawang himala, kumuha ka ng tubig sa <i class="trans-change">Ilog ng_ Nilo at ibuhos mo ito sa tuyong lupa, at magiging dugo ito." 
+Pero kung hindi pa rin sila maniwala sa iyo pagkatapos ng dalawang himala, kumuha ka ng tubig sa Ilog ng_ Nilo at ibuhos mo ito sa tuyong lupa, at magiging dugo ito." 
 
 
 
@@ -667,7 +667,7 @@ Bago umalis si Moises sa Midian, sinabi sa kanya ng Panginoon, "Bumalik ka na sa
 
 
 
-Kaya kinuha ni Moises ang asawa niya at mga anak na lalaki, at pinasakay sa asno at bumalik sa Egipto. Dinala rin niya ang baston <i class="trans-change">na ipinapadala sa kanya_ ng Panginoon. 
+Kaya kinuha ni Moises ang asawa niya at mga anak na lalaki, at pinasakay sa asno at bumalik sa Egipto. Dinala rin niya ang baston na ipinapadala sa kanya_ ng Panginoon. 
 
 
 
@@ -799,7 +799,7 @@ kaya iniuutos ko sa iyo na payagan mo silang umalis para makasamba sa akin, pero
 
 
 
-Nang naglalakbay na sina Moises at ang kanyang pamilya, nagpahinga sila sa isang bahay-pahingahan. Pinuntahan ng Panginoon si Moises at pinagtangkaang patayin. <sup class="versenum">25-26</sup>Pero kumuha si Zipora ng matalim na bato at tinuli ang kanyang anak, at ang nakuha niyang balat ay idinikit niya sa paa ni Moises. At sinabi ni Zipora, "Ikaw ang duguang asawa ko." (Ang ibig sabihin ni Zipora ay may kaugnayan sa pagtutuli.) Kaya hindi pinatay ng Panginoon si Moises. 
+Nang naglalakbay na sina Moises at ang kanyang pamilya, nagpahinga sila sa isang bahay-pahingahan. Pinuntahan ng Panginoon si Moises at pinagtangkaang patayin. 25-26Pero kumuha si Zipora ng matalim na bato at tinuli ang kanyang anak, at ang nakuha niyang balat ay idinikit niya sa paa ni Moises. At sinabi ni Zipora, "Ikaw ang duguang asawa ko." (Ang ibig sabihin ni Zipora ay may kaugnayan sa pagtutuli.) Kaya hindi pinatay ng Panginoon si Moises. 
 
 
 
@@ -832,7 +832,7 @@ Nang naglalakbay na sina Moises at ang kanyang pamilya, nagpahinga sila sa isang
 
 
 
-Samantala, sinabi ng Panginoon kay Aaron, "Lumakad ka at salubungin si Moises sa disyerto." Kaya sinalubong niya si Moises sa Bundok ng Dios at hinagkan <i class="trans-change">bilang pagbati_. 
+Samantala, sinabi ng Panginoon kay Aaron, "Lumakad ka at salubungin si Moises sa disyerto." Kaya sinalubong niya si Moises sa Bundok ng Dios at hinagkan bilang pagbati_. 
 
 
 

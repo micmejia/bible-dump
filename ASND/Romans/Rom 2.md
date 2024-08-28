@@ -174,7 +174,7 @@ Sapagkat ibibigay ng Dios sa bawat isa ang nararapat ayon sa kanyang mga gawa.
 
 
 
-Bibigyan niya ng buhay na walang hanggan ang mga taong nagpapatuloy sa paggawa ng mabuti, na ang hangad ay makamtan ang karangalan, papuri <i class="trans-change">mula sa Dios_, at buhay na walang kamatayan. 
+Bibigyan niya ng buhay na walang hanggan ang mga taong nagpapatuloy sa paggawa ng mabuti, na ang hangad ay makamtan ang karangalan, papuri mula sa Dios_, at buhay na walang kamatayan. 
 
 
 
@@ -273,7 +273,7 @@ Lahat ng taong gumagawa ng masama ay parurusahan ng Dios, ang mga Judio muna bag
 
 
 
-Ngunit bibigyan <i class="trans-change">ng Dios_ ng papuri, karangalan at kapayapaan ang lahat ng gumagawa ng kabutihan, una ang mga Judio bago ang mga hindi Judio. 
+Ngunit bibigyan ng Dios_ ng papuri, karangalan at kapayapaan ang lahat ng gumagawa ng kabutihan, una ang mga Judio bago ang mga hindi Judio. 
 
 
 
@@ -339,7 +339,7 @@ Sapagkat pantay-pantay ang pagtingin ng Dios sa lahat ng tao.
 
 
 
-Ang mga taong nagkakasala na walang alam sa Kautusan <i class="trans-change">ni Moises_ ay mapapahamak, at ang kaparusahan nila ay hindi ibabatay sa Kautusan. Ang mga nakakaalam naman ng Kautusan <i class="trans-change">ni Moises_, pero patuloy na gumagawa ng kasamaan ay parurusahan na batay sa Kautusan. 
+Ang mga taong nagkakasala na walang alam sa Kautusan ni Moises_ ay mapapahamak, at ang kaparusahan nila ay hindi ibabatay sa Kautusan. Ang mga nakakaalam naman ng Kautusan ni Moises_, pero patuloy na gumagawa ng kasamaan ay parurusahan na batay sa Kautusan. 
 
 
 
@@ -405,7 +405,7 @@ Sapagkat hindi ang nakikinig sa Kautusan ang itinuturing ng Dios na matuwid kund
 
 
 
-Ang mga hindi Judio ay walang kaalaman tungkol sa Kautusan <i class="trans-change">ni Moises_. Pero kung gumagawa sila nang naaayon sa sinasabi ng Kautusan, ipinapakita nila na kahit wala silang alam tungkol dito ay alam nila ang nararapat gawin. 
+Ang mga hindi Judio ay walang kaalaman tungkol sa Kautusan ni Moises_. Pero kung gumagawa sila nang naaayon sa sinasabi ng Kautusan, ipinapakita nila na kahit wala silang alam tungkol dito ay alam nila ang nararapat gawin. 
 
 
 
@@ -438,7 +438,7 @@ Ang mga hindi Judio ay walang kaalaman tungkol sa Kautusan <i class="trans-chang
 
 
 
-Ang <i class="trans-change">mabubuting_ gawa nila ay nagpapakita na ang iniuutos ng Kautusan ay nakaukit sa kanilang puso. Pinatutunayan ito ng kanilang konsensya, dahil kung minsaʼy inuusig sila nito at kung minsan namaʼy ipinagtatanggol. 
+Ang mabubuting_ gawa nila ay nagpapakita na ang iniuutos ng Kautusan ay nakaukit sa kanilang puso. Pinatutunayan ito ng kanilang konsensya, dahil kung minsaʼy inuusig sila nito at kung minsan namaʼy ipinagtatanggol. 
 
 
 
@@ -572,7 +572,7 @@ Alam ninyo kung ano ang kalooban ng Dios at alam din ninyo kung ano ang dapat ga
 
 
 
-Ipinapalagay ninyong tagaakay kayo ng mga bulag <i class="trans-change">sa katotohanan_, ilaw sa mga taong nasa kadiliman, 
+Ipinapalagay ninyong tagaakay kayo ng mga bulag sa katotohanan_, ilaw sa mga taong nasa kadiliman, 
 
 
 
@@ -605,7 +605,7 @@ Ipinapalagay ninyong tagaakay kayo ng mga bulag <i class="trans-change">sa katot
 
 
 
-at tagapagturo sa mga kulang ng pang-unawa at mga bata pa <i class="trans-change">sa mga bagay tungkol sa Dios_. Ganito nga ang palagay ninyo sa inyong sarili, dahil naniniwala kayo na sa pamamagitan ng Kautusan ay nakamit na ninyo ang lahat ng kaalaman at katotohanan. 
+at tagapagturo sa mga kulang ng pang-unawa at mga bata pa sa mga bagay tungkol sa Dios_. Ganito nga ang palagay ninyo sa inyong sarili, dahil naniniwala kayo na sa pamamagitan ng Kautusan ay nakamit na ninyo ang lahat ng kaalaman at katotohanan. 
 
 
 
@@ -671,7 +671,7 @@ Tinuturuan ninyo ang iba, pero bakit hindi ninyo maturuan ang inyong sarili? Nan
 
 
 
-Sinasabi ninyong huwag mangalunya, pero kayo mismo ay nangangalunya. Kinasusuklaman ninyo ang mga dios-diosang <i class="trans-change">sinasamba ng mga hindi Judio_, pero ninanakawan naman ninyo ang <i class="trans-change">kanilang_ mga templo. 
+Sinasabi ninyong huwag mangalunya, pero kayo mismo ay nangangalunya. Kinasusuklaman ninyo ang mga dios-diosang sinasamba ng mga hindi Judio_, pero ninanakawan naman ninyo ang kanilang_ mga templo. 
 
 
 
@@ -704,7 +704,7 @@ Sinasabi ninyong huwag mangalunya, pero kayo mismo ay nangangalunya. Kinasusukla
 
 
 
-Nagmamalaki kayo na nasa inyo ang Kautusan <i class="trans-change">ng Dios_, pero ginagawa ninyong kahiya-hiya ang Dios dahil sa paglabag ninyo sa Kautusan. 
+Nagmamalaki kayo na nasa inyo ang Kautusan ng Dios_, pero ginagawa ninyong kahiya-hiya ang Dios dahil sa paglabag ninyo sa Kautusan. 
 
 
 
@@ -770,7 +770,7 @@ Sinasabi sa Kasulatan, "Dahil sa inyo, nilalapastangan ng mga hindi Judio ang pa
 
 
 
-<i class="trans-change">Nagtitiwala kayo na kayo ang mga taong pinili ng Dios dahil kayoʼy tuli_. May halaga lang ang pagiging tuli kung sinusunod ninyo ang Kautusan. Pero kung nilalabag naman ninyo ang Kautusan, para na rin kayong mga hindi tuli. 
+Nagtitiwala kayo na kayo ang mga taong pinili ng Dios dahil kayoʼy tuli_. May halaga lang ang pagiging tuli kung sinusunod ninyo ang Kautusan. Pero kung nilalabag naman ninyo ang Kautusan, para na rin kayong mga hindi tuli. 
 
 
 

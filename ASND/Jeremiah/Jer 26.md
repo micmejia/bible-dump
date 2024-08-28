@@ -271,7 +271,7 @@ Bakit mo sinabi sa pangalan ng Panginoon na ang templong itoʼy gigibain katulad
 
 
 
-Nang marinig ito ng mga pinuno ng Juda, pumunta sila sa templo. Umupo sila sa dinadaanan sa Bagong Pintuan ng templo <i class="trans-change">para humatol_. 
+Nang marinig ito ng mga pinuno ng Juda, pumunta sila sa templo. Umupo sila sa dinadaanan sa Bagong Pintuan ng templo para humatol_. 
 
 
 
@@ -304,7 +304,7 @@ Nang marinig ito ng mga pinuno ng Juda, pumunta sila sa templo. Umupo sila sa di
 
 
 
-Sinabi ng mga pari at mga propeta sa mga pinuno at sa lahat <i class="trans-change">ng naroroon_, "Dapat hatulan ng kamatayan ang taong ito dahil nagsalita siya laban sa lungsod na ito. Narinig mismo ninyo ang kanyang sinabi." 
+Sinabi ng mga pari at mga propeta sa mga pinuno at sa lahat ng naroroon_, "Dapat hatulan ng kamatayan ang taong ito dahil nagsalita siya laban sa lungsod na ito. Narinig mismo ninyo ang kanyang sinabi." 
 
 
 
@@ -337,7 +337,7 @@ Sinabi ng mga pari at mga propeta sa mga pinuno at sa lahat <i class="trans-chan
 
 
 
-Sinabi naman ni Jeremias sa lahat ng pinuno at sa lahat ng tao <i class="trans-change">na naroroon_, "Isinugo ako ng Panginoon para magsalita ng laban sa templo at sa lungsod na ito katulad ng narinig ninyo. 
+Sinabi naman ni Jeremias sa lahat ng pinuno at sa lahat ng tao na naroroon_, "Isinugo ako ng Panginoon para magsalita ng laban sa templo at sa lungsod na ito katulad ng narinig ninyo. 
 
 
 
@@ -535,7 +535,7 @@ Pagkatapos, may ilang mga tagapamahala na tumayo sa harap at nagsalita sa mga ta
 
 
 
-"Noong si Hezekia ang hari ng Juda, nagsalita si Micas na taga-Moreshet tungkol sa ipinasasabi ng Panginoon sa lahat ng taga-Juda. <i class="trans-change">Sinabi niya,_ 'Sinabi ng Panginoong Makapangyarihan <i class="trans-change">na wawasakin_ niya ang Zion, ang <i class="trans-change">lungsod ng_ Jerusalem. Itoʼy matutulad sa inararong bukirin, tambakan ng mga nagibang gusali at magiging kagubatan ang bundok na tinatayuan ng templo.' 
+"Noong si Hezekia ang hari ng Juda, nagsalita si Micas na taga-Moreshet tungkol sa ipinasasabi ng Panginoon sa lahat ng taga-Juda. Sinabi niya,_ 'Sinabi ng Panginoong Makapangyarihan na wawasakin_ niya ang Zion, ang lungsod ng_ Jerusalem. Itoʼy matutulad sa inararong bukirin, tambakan ng mga nagibang gusali at magiging kagubatan ang bundok na tinatayuan ng templo.' 
 
 
 
@@ -568,7 +568,7 @@ Pagkatapos, may ilang mga tagapamahala na tumayo sa harap at nagsalita sa mga ta
 
 
 
-Pinatay ba siya ni Hezekia o ng sinumang nasa Juda? Hindi! Sa halip, natakot si Hezekia sa Panginoon at lumapit siya sa kanya. Kaya hindi itinuloy ng Panginoon ang sinabi niyang kapahamakan laban sa kanila. <i class="trans-change">Kaya kung papatayin nʼyo si Jeremias,_ kayo na rin ang magdadala ng kaparusahan sa sarili ninyo." 
+Pinatay ba siya ni Hezekia o ng sinumang nasa Juda? Hindi! Sa halip, natakot si Hezekia sa Panginoon at lumapit siya sa kanya. Kaya hindi itinuloy ng Panginoon ang sinabi niyang kapahamakan laban sa kanila. Kaya kung papatayin nʼyo si Jeremias,_ kayo na rin ang magdadala ng kaparusahan sa sarili ninyo." 
 
 
 

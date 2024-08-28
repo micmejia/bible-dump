@@ -106,7 +106,7 @@ Ano bang makukuha ko sa mga taong ito na mahihina at talagang wala ng lakas?
 
 
 
-Payat na payat sila dahil sa labis na kahirapan at gutom. Kahit gabi ay nagkakaykay sila ng mga lamang-lupa sa ilang <i class="trans-change">para may makain_. 
+Payat na payat sila dahil sa labis na kahirapan at gutom. Kahit gabi ay nagkakaykay sila ng mga lamang-lupa sa ilang para may makain_. 
 
 
 
@@ -139,7 +139,7 @@ Payat na payat sila dahil sa labis na kahirapan at gutom. Kahit gabi ay nagkakay
 
 
 
-Binubunot nila at kinakain ang mga tanim sa ilang pati na ang ugat ng <i class="trans-change">punong_ enebro. 
+Binubunot nila at kinakain ang mga tanim sa ilang pati na ang ugat ng punong_ enebro. 
 
 
 
@@ -667,7 +667,7 @@ at inihagis sa putik. Naging parang alikabok at abo na lang ako.
 
 
 
-"<i class="trans-change">O Dios,_ humingi ako ng tulong sa inyo pero hindi kayo sumagot. Tumayo pa ako sa presensya nʼyo pero tiningnan nʼyo lang ako. 
+"O Dios,_ humingi ako ng tulong sa inyo pero hindi kayo sumagot. Tumayo pa ako sa presensya nʼyo pero tiningnan nʼyo lang ako. 
 
 
 
@@ -931,7 +931,7 @@ Walang tigil na nasasaktan ang aking damdamin. Araw-araw paghihirap ang dumarati
 
 
 
-Umitim ang balat ko hindi dahil sa init ng araw <i class="trans-change">kundi sa aking karamdaman_. Tumayo ako sa harap ng kapulungan at humingi ng tulong. 
+Umitim ang balat ko hindi dahil sa init ng araw kundi sa aking karamdaman_. Tumayo ako sa harap ng kapulungan at humingi ng tulong. 
 
 
 

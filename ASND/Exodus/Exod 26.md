@@ -40,7 +40,7 @@ next: ['Exod 27']
 
 
 
-"Magpagawa ka ng Toldang Sambahan. Ito ang mga gagamitin sa paggawa nito: sampung piraso ng pinong <i class="trans-change">telang_ linen na may lanang kulay asul, ube at pula. At paburdahan ito ng kerubin sa mahuhusay na mambuburda. 
+"Magpagawa ka ng Toldang Sambahan. Ito ang mga gagamitin sa paggawa nito: sampung piraso ng pinong telang_ linen na may lanang kulay asul, ube at pula. At paburdahan ito ng kerubin sa mahuhusay na mambuburda. 
 
 
 
@@ -1030,7 +1030,7 @@ Pabalutan ng ginto ang mga tabla at palagyan ng mga argolyang ginto na pagsusuot
 
 
 
-"Magpagawa ka rin ng kurtina na gawa sa pinong <i class="trans-change">telang_ linen na may lanang kulay asul, ube at pula. At paburdahan mo ito ng kerubin. 
+"Magpagawa ka rin ng kurtina na gawa sa pinong telang_ linen na may lanang kulay asul, ube at pula. At paburdahan mo ito ng kerubin. 
 
 
 

@@ -436,7 +436,7 @@ Kung may gusto siyang kunin, walang makakapigil sa kanya. At sino ang makakapagr
 
 
 
-Hindi pinipigil ng Dios ang kanyang galit. Kahit ang mga katulong ng <i class="trans-change">dragon na si_ Rahab ay yumuyukod sa takot sa kanya. 
+Hindi pinipigil ng Dios ang kanyang galit. Kahit ang mga katulong ng dragon na si_ Rahab ay yumuyukod sa takot sa kanya. 
 
 
 
@@ -502,7 +502,7 @@ Kaya papaano ko ipagtatanggol ang sarili ko sa Dios? Ano ang mga salitang maaari
 
 
 
-Kahit na wala akong kasalanan, hindi ko maipagtatanggol ang sarili ko. Ang magagawa ko lamang ay magmakaawa sa <i class="trans-change">Dios na_ aking Hukom. 
+Kahit na wala akong kasalanan, hindi ko maipagtatanggol ang sarili ko. Ang magagawa ko lamang ay magmakaawa sa Dios na_ aking Hukom. 
 
 
 
@@ -799,7 +799,7 @@ Kapag biglang namatay sa kalamidad ang matuwid, natatawa lang siya.
 
 
 
-Ipinagkatiwala niya ang mundo sa masasama. Tinatakpan niya ang mata ng mga hukom <i class="trans-change">para hindi sila humatol ng tama_. Kung hindi siya ang gumagawa nito, sino pa kaya? 
+Ipinagkatiwala niya ang mundo sa masasama. Tinatakpan niya ang mata ng mga hukom para hindi sila humatol ng tama_. Kung hindi siya ang gumagawa nito, sino pa kaya? 
 
 
 
@@ -931,7 +931,7 @@ Kahit tumigil na ako sa pagdaing at pagdadalamhati at akoʼy ngumiti na,
 
 
 
-nananaig pa rin sa akin ang takot sa mga paghihirap <i class="trans-change">na maaaring dumating sa akin_. Dahil alam kong hindi niya ako ituturing na walang kasalanan. 
+nananaig pa rin sa akin ang takot sa mga paghihirap na maaaring dumating sa akin_. Dahil alam kong hindi niya ako ituturing na walang kasalanan. 
 
 
 
@@ -1030,7 +1030,7 @@ Kahit sabunan ko pa ang aking buong katawan para luminis,
 
 
 
-ilulubog pa rin niya ako sa <i class="trans-change">maputik na_ hukay, upang kahit ang sarili kong damit ay ikahiya ako. 
+ilulubog pa rin niya ako sa maputik na_ hukay, upang kahit ang sarili kong damit ay ikahiya ako. 
 
 
 

@@ -304,7 +304,7 @@ Tumingin sila agad sa paligid, pero wala nang ibang naroon kundi si Jesus na lan
 
 
 
-Nang pababa na sila sa bundok, pinagbilinan sila ni Jesus, "Huwag ninyong sasabihin kahit kanino ang nakita ninyo hanggaʼt <i class="trans-change">ako na_ Anak ng Tao ay hindi pa muling nabubuhay." 
+Nang pababa na sila sa bundok, pinagbilinan sila ni Jesus, "Huwag ninyong sasabihin kahit kanino ang nakita ninyo hanggaʼt ako na_ Anak ng Tao ay hindi pa muling nabubuhay." 
 
 
 
@@ -370,7 +370,7 @@ Kaya hindi nila sinabi kahit kanino ang pangyayaring iyon. Pero pinag-usapan nil
 
 
 
-Nagtanong sila kay Jesus, "Bakit sinasabi po ng mga tagapagturo ng Kautusan na kailangan daw munang dumating si Elias <i class="trans-change">bago dumating ang Cristo_?" <sup class="versenum">12-13</sup>Sumagot siya sa kanila, "Totoo iyan, kailangan ngang dumating muna si Elias upang ihanda ang lahat ng bagay. Ngunit sasabihin ko sa inyo: dumating na si Elias at ginawa ng mga tao ang gusto nilang gawin sa kanya ayon na rin sa isinulat tungkol sa kanya. Ngunit bakit nasusulat din na <i class="trans-change">ako na_ Anak ng Tao ay magtitiis ng maraming hirap at itatakwil <i class="trans-change">ng mga tao_?" ## Pinagaling ni Jesus ang Batang Sinasaniban ng Masamang Espiritu 
+Nagtanong sila kay Jesus, "Bakit sinasabi po ng mga tagapagturo ng Kautusan na kailangan daw munang dumating si Elias bago dumating ang Cristo_?" 12-13Sumagot siya sa kanila, "Totoo iyan, kailangan ngang dumating muna si Elias upang ihanda ang lahat ng bagay. Ngunit sasabihin ko sa inyo: dumating na si Elias at ginawa ng mga tao ang gusto nilang gawin sa kanya ayon na rin sa isinulat tungkol sa kanya. Ngunit bakit nasusulat din na ako na_ Anak ng Tao ay magtitiis ng maraming hirap at itatakwil ng mga tao_?" ## Pinagaling ni Jesus ang Batang Sinasaniban ng Masamang Espiritu 
 
 
 
@@ -403,7 +403,7 @@ Nagtanong sila kay Jesus, "Bakit sinasabi po ng mga tagapagturo ng Kautusan na k
 
 
 
-Pagdating nina Jesus sa <i class="trans-change">kinaroroonan ng iba pa niyang_ mga tagasunod <i class="trans-change">na naiwan_, nakita nila na maraming tao ang nagtitipon doon. Naroon din ang ilang tagapagturo ng Kautusan na nakikipagtalo sa mga tagasunod ni Jesus. 
+Pagdating nina Jesus sa kinaroroonan ng iba pa niyang_ mga tagasunod na naiwan_, nakita nila na maraming tao ang nagtitipon doon. Naroon din ang ilang tagapagturo ng Kautusan na nakikipagtalo sa mga tagasunod ni Jesus. 
 
 
 
@@ -502,7 +502,7 @@ Tinanong ni Jesus ang mga tagasunod niya, "Ano ang pinagtatalunan ninyo?"
 
 
 
-May isang lalaki roon na sumagot, "Guro, dinala ko po rito sa inyo ang anak kong lalaki dahil sinasaniban siya ng <i class="trans-change">masamang_ espiritu at hindi na makapagsalita. 
+May isang lalaki roon na sumagot, "Guro, dinala ko po rito sa inyo ang anak kong lalaki dahil sinasaniban siya ng masamang_ espiritu at hindi na makapagsalita. 
 
 
 
@@ -535,7 +535,7 @@ May isang lalaki roon na sumagot, "Guro, dinala ko po rito sa inyo ang anak kong
 
 
 
-Kapag sinasaniban siya ng <i class="trans-change">masamang_ espiritu, natutumba siya, bumubula ang bibig, nagngangalit ang mga ngipin, at pagkatapos ay naninigas ang katawan niya. Nakiusap ako sa mga tagasunod nʼyo na palayasin <i class="trans-change">ang masamang espiritu_, pero hindi po nila kaya." 
+Kapag sinasaniban siya ng masamang_ espiritu, natutumba siya, bumubula ang bibig, nagngangalit ang mga ngipin, at pagkatapos ay naninigas ang katawan niya. Nakiusap ako sa mga tagasunod nʼyo na palayasin ang masamang espiritu_, pero hindi po nila kaya." 
 
 
 
@@ -601,7 +601,7 @@ Sinabi ni Jesus sa kanila, "Kayong henerasyon ng mga walang pananampalataya! Han
 
 
 
-Kaya dinala nila ang bata kay Jesus. Pero nang makita ng <i class="trans-change">masamang_ espiritu si Jesus, pinangisay niya ang bata, itinumba, at pinagulong-gulong sa lupa na bumubula ang bibig. 
+Kaya dinala nila ang bata kay Jesus. Pero nang makita ng masamang_ espiritu si Jesus, pinangisay niya ang bata, itinumba, at pinagulong-gulong sa lupa na bumubula ang bibig. 
 
 
 
@@ -667,7 +667,7 @@ Tinanong ni Jesus ang ama ng bata, "Kailan pa siya nagkaganyan?" Sumagot ang ama
 
 
 
-Madalas siyang itinutumba ng <i class="trans-change">masamang_ espiritu sa apoy o sa tubig para patayin. Kaya maawa po kayo sa amin; kung may magagawa kayo, tulungan nʼyo po kami!" 
+Madalas siyang itinutumba ng masamang_ espiritu sa apoy o sa tubig para patayin. Kaya maawa po kayo sa amin; kung may magagawa kayo, tulungan nʼyo po kami!" 
 
 
 
@@ -700,7 +700,7 @@ Madalas siyang itinutumba ng <i class="trans-change">masamang_ espiritu sa apoy 
 
 
 
-Sinagot siya ni Jesus, "Bakit mo sinabing kung may magagawa ako? Ang lahat ng bagay ay magagawa <i class="trans-change">ko_ sa taong sumasampalataya <i class="trans-change">sa akin_!" 
+Sinagot siya ni Jesus, "Bakit mo sinabing kung may magagawa ako? Ang lahat ng bagay ay magagawa ko_ sa taong sumasampalataya sa akin_!" 
 
 
 
@@ -898,7 +898,7 @@ Nang pumasok na sina Jesus sa bahay na tinutuluyan nila, tinanong siya ng mga ta
 
 
 
-Sinagot sila ni Jesus, "Ang ganoong uri <i class="trans-change">ng masamang espiritu_ ay mapapalayas lang sa pamamagitan ng panalangin." ## Ang Ikalawang Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
+Sinagot sila ni Jesus, "Ang ganoong uri ng masamang espiritu_ ay mapapalayas lang sa pamamagitan ng panalangin." ## Ang Ikalawang Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
 
 
 
@@ -964,7 +964,7 @@ Umalis sila sa lugar na iyon at dumaan sa Galilea. Ayaw ni Jesus na malaman ng m
 
 
 
-dahil tinuturuan niya ang mga tagasunod niya. Sinabi niya sa kanila, "<i class="trans-change">Ako na_ Anak ng Tao ay ibibigay sa kamay ng mga tao <i class="trans-change">na kumokontra sa akin_. Papatayin nila ako, ngunit muli akong mabubuhay pagkaraan ng tatlong araw." 
+dahil tinuturuan niya ang mga tagasunod niya. Sinabi niya sa kanila, "Ako na_ Anak ng Tao ay ibibigay sa kamay ng mga tao na kumokontra sa akin_. Papatayin nila ako, ngunit muli akong mabubuhay pagkaraan ng tatlong araw." 
 
 
 
@@ -1098,7 +1098,7 @@ Hindi sila sumagot, dahil ang pinagtatalunan nila ay kung sino sa kanila ang pin
 
 
 
-Kaya umupo si Jesus at tinawag ang 12 <i class="trans-change">apostol_, at sinabi sa kanila, "Ang sinuman sa inyo na gustong maging pinakadakila sa lahat ay dapat magpakababa at maging lingkod ng lahat." 
+Kaya umupo si Jesus at tinawag ang 12 apostol_, at sinabi sa kanila, "Ang sinuman sa inyo na gustong maging pinakadakila sa lahat ay dapat magpakababa at maging lingkod ng lahat." 
 
 
 
@@ -1164,7 +1164,7 @@ Kumuha si Jesus ng isang maliit na bata at pinatayo sa harapan nila. Pagkatapos,
 
 
 
-"Ang sinumang tumatanggap sa batang tulad nito dahil sa akin ay tumatanggap din sa akin. At ang tumatanggap sa akin ay tumatanggap sa <i class="trans-change">aking Amang_ nagsugo sa akin." ## Kakampi Natin ang Hindi Laban sa Atin 
+"Ang sinumang tumatanggap sa batang tulad nito dahil sa akin ay tumatanggap din sa akin. At ang tumatanggap sa akin ay tumatanggap sa aking Amang_ nagsugo sa akin." ## Kakampi Natin ang Hindi Laban sa Atin 
 
 
 
@@ -1329,7 +1329,7 @@ Sinasabi ko sa inyo ang totoo, ang sinumang magbigay sa inyo ng kahit isang baso
 
 
 
-"Ngunit ang sinumang magiging dahilan ng pagkakasala ng maliliit na batang ito na sumasampalataya sa akin ay mabuti pang talian sa leeg ng gilingang bato at itapon sa dagat. <sup class="versenum">43-44</sup>Kung ang kamay mo ang dahilan ng iyong pagkakasala, putulin mo! Mas mabuti pang isa lang ang kamay mo pero may buhay na walang hanggan ka, kaysa sa dalawa ang kamay mo pero sa impyerno ka naman mapupunta, kung saan ang apoy ay hindi namamatay. <sup class="versenum">45-46</sup>Kung ang paa mo ang dahilan ng iyong pagkakasala, putulin mo! Mas mabuti pang isa lang ang paa mo pero may buhay na walang hanggan ka, kaysa sa dalawa ang paa mo pero itatapon ka naman sa impyerno. 
+"Ngunit ang sinumang magiging dahilan ng pagkakasala ng maliliit na batang ito na sumasampalataya sa akin ay mabuti pang talian sa leeg ng gilingang bato at itapon sa dagat. 43-44Kung ang kamay mo ang dahilan ng iyong pagkakasala, putulin mo! Mas mabuti pang isa lang ang kamay mo pero may buhay na walang hanggan ka, kaysa sa dalawa ang kamay mo pero sa impyerno ka naman mapupunta, kung saan ang apoy ay hindi namamatay. 45-46Kung ang paa mo ang dahilan ng iyong pagkakasala, putulin mo! Mas mabuti pang isa lang ang paa mo pero may buhay na walang hanggan ka, kaysa sa dalawa ang paa mo pero itatapon ka naman sa impyerno. 
 
 
 

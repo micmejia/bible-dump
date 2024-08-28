@@ -337,7 +337,7 @@ Hindi na sana sumikat ang tala sa umaga ng araw na iyon, at hindi na sana dumati
 
 
 
-<i class="trans-change">Isinusumpa ko ang araw na iyon_ dahil hindi niya pinigilan ang pagsilang sa akin, nang hindi ko na sana naranasan ang ganitong paghihirap. 
+Isinusumpa ko ang araw na iyon_ dahil hindi niya pinigilan ang pagsilang sa akin, nang hindi ko na sana naranasan ang ganitong paghihirap. 
 
 
 
@@ -403,7 +403,7 @@ Hindi na sana sumikat ang tala sa umaga ng araw na iyon, at hindi na sana dumati
 
 
 
-Bakit pa ako kinalingaʼt pinasuso <i class="trans-change">ng aking ina_? 
+Bakit pa ako kinalingaʼt pinasuso ng aking ina_? 
 
 
 

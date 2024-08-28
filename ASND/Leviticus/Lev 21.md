@@ -172,7 +172,7 @@ Huwag din ninyong dungisan ang inyong sarili sa inyong pagpunta sa libing ng kam
 
 
 
-<i class="trans-change">Kung kayoʼy magluluksa sa patay,_ huwag ninyong aahitin ang inyong buhok o puputulan ang inyong balbas o susugatan ang inyong katawan. 
+Kung kayoʼy magluluksa sa patay,_ huwag ninyong aahitin ang inyong buhok o puputulan ang inyong balbas o susugatan ang inyong katawan. 
 
 
 
@@ -337,7 +337,7 @@ Kung kayoʼy may anak na babae na nagdudulot ng kahihiyan sa inyo dahil sa nagbe
 
 
 
-Kung ang punong pari ay namatayan ng kamag-anak, huwag niyang guguluhin ang kanyang buhok ni pupunitin ang kanyang damit <i class="trans-change">bilang tanda ng pagluluksa_. 
+Kung ang punong pari ay namatayan ng kamag-anak, huwag niyang guguluhin ang kanyang buhok ni pupunitin ang kanyang damit bilang tanda ng pagluluksa_. 
 
 
 
@@ -403,7 +403,7 @@ Dapat din niyang iwasan ang paglapit sa patay kahit na iyon ay kanyang ama o ina
 
 
 
-At dahil siyaʼy itinalaga sa akin bilang punong pari sa pamamagitan ng pagpapahid sa kanya ng langis ng pagtatalaga, hindi siya dapat umalis sa Toldang Tipanan dahil kapag siyaʼy umalis doon <i class="trans-change">at sumama sa libing,_ marurumihan ang Tolda. Ako ang Panginoon. <sup class="versenum">13-14</sup>Kung ang punong pari ay mag-aasawa, dapat Israelitang katulad niya at tunay na dalaga. Huwag siyang mag-aasawa ng biyuda, o ng babaeng hiwalay sa asawa, o ng babaeng marumi na nagbebenta ng panandaliang-aliw, 
+At dahil siyaʼy itinalaga sa akin bilang punong pari sa pamamagitan ng pagpapahid sa kanya ng langis ng pagtatalaga, hindi siya dapat umalis sa Toldang Tipanan dahil kapag siyaʼy umalis doon at sumama sa libing,_ marurumihan ang Tolda. Ako ang Panginoon. 13-14Kung ang punong pari ay mag-aasawa, dapat Israelitang katulad niya at tunay na dalaga. Huwag siyang mag-aasawa ng biyuda, o ng babaeng hiwalay sa asawa, o ng babaeng marumi na nagbebenta ng panandaliang-aliw, 
 
 
 
@@ -502,7 +502,7 @@ Inutusan ng Panginoon si Moises
 
 
 
-na sabihin ito kay Aaron: Walang sinuman sa angkan mo hanggang sa susunod pang mga henerasyon na may kapansanan ang katawan na makapaghahandog sa akin ng <i class="trans-change">mga handog na_ pagkain. 
+na sabihin ito kay Aaron: Walang sinuman sa angkan mo hanggang sa susunod pang mga henerasyon na may kapansanan ang katawan na makapaghahandog sa akin ng mga handog na_ pagkain. 
 
 
 
@@ -601,7 +601,7 @@ bali ang paa o kamay,
 
 
 
-kuba, unano, may sakit sa mata o sa balat, o baog. <sup class="versenum">21-23</sup>Kaya kung ang angkan ni Aaron ay may kapansanan sa katawan, hindi siya maaaring maghandog sa akin ng mga handog sa pamamagitan ng apoy na siyang pagkain ko. Hindi rin siya maaaring pumasok sa Banal na Lugar o lumapit sa altar dahil madudungisan ang aking Tolda. Pero maaari siyang kumain ng mga pagkaing bahagi ng mga pari sa mga banal at pinakabanal na handog. Ako ang Panginoong nagtalaga sa inyo para maging akin. 
+kuba, unano, may sakit sa mata o sa balat, o baog. 21-23Kaya kung ang angkan ni Aaron ay may kapansanan sa katawan, hindi siya maaaring maghandog sa akin ng mga handog sa pamamagitan ng apoy na siyang pagkain ko. Hindi rin siya maaaring pumasok sa Banal na Lugar o lumapit sa altar dahil madudungisan ang aking Tolda. Pero maaari siyang kumain ng mga pagkaing bahagi ng mga pari sa mga banal at pinakabanal na handog. Ako ang Panginoong nagtalaga sa inyo para maging akin. 
 
 
 

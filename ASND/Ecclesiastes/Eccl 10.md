@@ -271,7 +271,7 @@ Nakakita rin ako ng mga aliping nakasakay sa kabayo habang ang mga dakilang taoÊ
 
 
 
-Kapag ikaw ang naghukay, baka ikaw din ang mahulog doon. Kapag lumusot ka sa <i class="trans-change">butas ng_ pader, baka tuklawin ka ng ahas doon. 
+Kapag ikaw ang naghukay, baka ikaw din ang mahulog doon. Kapag lumusot ka sa butas ng_ pader, baka tuklawin ka ng ahas doon. 
 
 
 
@@ -502,7 +502,7 @@ At wala siyang tigil sa kasasalita. Walang nakakaalam tungkol sa mga mangyayari 
 
 
 
-Napapagod ang mangmang sa kanyang trabaho, kaya naiisip niyang huwag nang pumunta sa bayan <i class="trans-change">para magtrabaho_. 
+Napapagod ang mangmang sa kanyang trabaho, kaya naiisip niyang huwag nang pumunta sa bayan para magtrabaho_. 
 
 
 

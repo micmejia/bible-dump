@@ -39,7 +39,7 @@ up: ['Amos']
 
 
 
-<i class="trans-change">Sinabi ni Amos:_ Nakita ko ang Panginoon na nakatayo malapit sa altar at sinabi niya, "Hampasin mo ang itaas na bahagi ng mga haligi ng templo upang mawasak ang bubong at nang mabagsakan ang mga tao. Ang matitirang buhay ay mamamatay sa digmaan. Wala ni isa mang makakatakas o makakaligtas. 
+Sinabi ni Amos:_ Nakita ko ang Panginoon na nakatayo malapit sa altar at sinabi niya, "Hampasin mo ang itaas na bahagi ng mga haligi ng templo upang mawasak ang bubong at nang mabagsakan ang mga tao. Ang matitirang buhay ay mamamatay sa digmaan. Wala ni isa mang makakatakas o makakaligtas. 
 
 
 
@@ -105,7 +105,7 @@ Kahit magtago pa sila sa ilalim ng lupa, sa lugar ng mga patay, kukunin ko pa ri
 
 
 
-Kahit na magtago pa sila sa tuktok ng <i class="trans-change">Bundok ng_ Carmel, hahanapin ko sila roon at huhulihin. Magtago man sila sa kailaliman ng dagat, uutusan ko ang ahas na tuklawin sila. 
+Kahit na magtago pa sila sa tuktok ng Bundok ng_ Carmel, hahanapin ko sila roon at huhulihin. Magtago man sila sa kailaliman ng dagat, uutusan ko ang ahas na tuklawin sila. 
 
 
 
@@ -204,7 +204,7 @@ Kapag hinipo ng Panginoong Dios na Makapangyarihan ang lupa, mayayanig ito at ma
 
 
 
-Ang Dios ang gumawa ng kanyang <i class="trans-change">sariling_ tirahan sa langit. At siya ang gumawa ng kalawakan sa itaas ng lupa. Siya rin ang nag-iipon ng tubig-dagat <i class="trans-change">sa mga alapaap_ at pinauulan ito sa lupa. Ang pangalan niyaʼy Panginoon. 
+Ang Dios ang gumawa ng kanyang sariling_ tirahan sa langit. At siya ang gumawa ng kalawakan sa itaas ng lupa. Siya rin ang nag-iipon ng tubig-dagat sa mga alapaap_ at pinauulan ito sa lupa. Ang pangalan niyaʼy Panginoon. 
 
 
 
@@ -270,7 +270,7 @@ Sinabi ng Panginoon, "Ang turing ko sa inyo na mga taga-Israel ay katulad lang s
 
 
 
-<i class="trans-change">Ako,_ ang Panginoong Dios ay nagmamanman sa inyong makasalanang kaharian. At lilipulin ko kayo hanggang sa mawala kayo ng lubusan sa mundo. Pero may ilang matitira sa inyo na mga lahi ni Jacob. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+Ako,_ ang Panginoong Dios ay nagmamanman sa inyong makasalanang kaharian. At lilipulin ko kayo hanggang sa mawala kayo ng lubusan sa mundo. Pero may ilang matitira sa inyo na mga lahi ni Jacob. Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -336,7 +336,7 @@ Tingnan ninyo! Mag-uutos na ako; sasalain ko kayong mga mamamayan ng Israel kasa
 
 
 
-<i class="trans-change">hindi rin makakalusot sa akin ang masasama sa inyo, kundi_ mamamatay silang lahat sa digmaan, silang mga nagsasabi na wala raw masamang mangyayari sa kanila.
+hindi rin makakalusot sa akin ang masasama sa inyo, kundi_ mamamatay silang lahat sa digmaan, silang mga nagsasabi na wala raw masamang mangyayari sa kanila.
 
 ## Muling Itatayo ang Israel 
 
@@ -404,7 +404,7 @@ Tingnan ninyo! Mag-uutos na ako; sasalain ko kayong mga mamamayan ng Israel kasa
 
 
 
-upang masakop ng mga Israelita ang natitirang lupain ng Edom at ang iba pang mga bansa <i class="trans-change">na sinakop nila noon,_ na itinuring kong akin. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito, at gagawin ko ang mga bagay na ito." 
+upang masakop ng mga Israelita ang natitirang lupain ng Edom at ang iba pang mga bansa na sinakop nila noon,_ na itinuring kong akin. Ako,_ ang Panginoon, ang nagsasabi nito, at gagawin ko ang mga bagay na ito." 
 
 
 
@@ -437,7 +437,7 @@ upang masakop ng mga Israelita ang natitirang lupain ng Edom at ang iba pang mga
 
 
 
-Sinabi pa ng Panginoon <i class="trans-change">tungkol sa mga taga-Israel_, "Darating ang araw <i class="trans-change">na magiging masagana ang kanilang ani_, hindi pa nga nila natatapos ang pag-aani, sinisimulan na naman ang pag-aararo. At hindi pa natatapos ang pagpisa ng ubas, panahon na naman ng pagtatanim nito. Kung titingnan ang napakaraming ubas na namumunga sa mga bundok at burol, para bang dumadaloy ang matamis na bagong katas nito. 
+Sinabi pa ng Panginoon tungkol sa mga taga-Israel_, "Darating ang araw na magiging masagana ang kanilang ani_, hindi pa nga nila natatapos ang pag-aani, sinisimulan na naman ang pag-aararo. At hindi pa natatapos ang pagpisa ng ubas, panahon na naman ng pagtatanim nito. Kung titingnan ang napakaraming ubas na namumunga sa mga bundok at burol, para bang dumadaloy ang matamis na bagong katas nito. 
 
 
 

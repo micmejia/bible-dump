@@ -211,7 +211,7 @@ mga alaga nʼyong hayop, at mga hayop sa gubat na nasa inyong lupain.
 
 
 
-Ang ika-50 taon ay ituring ninyong natatanging taon dahil iyon ay panahon ng pagpapalaya ng mga alipin para silaʼy makabalik na sa sarili nilang sambahayan. Panahon din ito ng pagsasauli sa may-ari ng mga lupain na ipinagbili niya. <sup class="versenum">11-12</sup>Sa taong ito, na Taon ng Pagpapalaya at Pagsasauli, huwag kayong magtatanim sa inyong mga bukirin at huwag din kayong mag-aani o mamimitas ng mga bunga ng mga tanim na kusang tumubo, pero pwede kayong kumuha para may makain kayo. Itoʼy banal na taon para sa inyo. 
+Ang ika-50 taon ay ituring ninyong natatanging taon dahil iyon ay panahon ng pagpapalaya ng mga alipin para silaʼy makabalik na sa sarili nilang sambahayan. Panahon din ito ng pagsasauli sa may-ari ng mga lupain na ipinagbili niya. 11-12Sa taong ito, na Taon ng Pagpapalaya at Pagsasauli, huwag kayong magtatanim sa inyong mga bukirin at huwag din kayong mag-aani o mamimitas ng mga bunga ng mga tanim na kusang tumubo, pero pwede kayong kumuha para may makain kayo. Itoʼy banal na taon para sa inyo. 
 
 
 
@@ -376,7 +376,7 @@ Kung mahaba pa ang mga taon bago dumating ang Taon ng Pagpapalaya at Pagsasauli,
 
 
 
-Huwag kayong magdadayaan, sa halip ay matakot kayo sa akin, dahil ako ang Panginoon na inyong Dios. <sup class="versenum">18-19</sup>Sundin ninyo ang mga tuntunin at utos ko para kayoʼy mamuhay ng mapayapa sa lupaing inyong titirhan at hindi kayo mawawalan ng pagkain dahil sa masaganang ani ng lupain. 
+Huwag kayong magdadayaan, sa halip ay matakot kayo sa akin, dahil ako ang Panginoon na inyong Dios. 18-19Sundin ninyo ang mga tuntunin at utos ko para kayoʼy mamuhay ng mapayapa sa lupaing inyong titirhan at hindi kayo mawawalan ng pagkain dahil sa masaganang ani ng lupain. 
 
 
 
@@ -508,7 +508,7 @@ Kaya sa tuwing magtatanim kayo sa ikawalong taon, ang kakainin ninyo ay ang inyo
 
 
 
-Huwag ninyong ipagbibili ang inyong lupain na hindi na ninyo matutubos pa, dahil ang lupaing ito ay akin. Pinatitirhan at <i class="trans-change">pinasasakahan_ ko lang ito sa inyo. 
+Huwag ninyong ipagbibili ang inyong lupain na hindi na ninyo matutubos pa, dahil ang lupaing ito ay akin. Pinatitirhan at pinasasakahan_ ko lang ito sa inyo. 
 
 
 
@@ -673,7 +673,7 @@ Kapag nangyari ito, babayaran niya ang bumili ng kanyang lupain ng halagang ayon
 
 
 
-Pero kung kulang ang perang pantubos niya, mananatili ang lupain sa bumili hanggang sa dumating ang Taon ng Pagpapalaya at Pagsasauli. At sa taong iyon, ibabalik na sa kanya ang lupain niya <i class="trans-change">nang walang bayad_. 
+Pero kung kulang ang perang pantubos niya, mananatili ang lupain sa bumili hanggang sa dumating ang Taon ng Pagpapalaya at Pagsasauli. At sa taong iyon, ibabalik na sa kanya ang lupain niya nang walang bayad_. 
 
 
 
@@ -904,7 +904,7 @@ Pati ang mga pastulang nasa palibot ng kanilang bayan ay hindi dapat ipagbili, d
 
 
 
-Kung maghirap ang kapwa ninyo Israelita at hindi na niya kayang buhayin ang kanyang sarili, tulungan nʼyo siya katulad ng inyong pagtulong sa isang dayuhan o bisita para patuloy siyang makapamuhay kasama ninyo. <sup class="versenum">36-37</sup>Pahiramin ninyo siya ng pera na walang tubo, at pagbilhan ninyo siya ng pagkain na walang tubo para patuloy siyang naninirahang kasama ninyo. Gawin ninyo ito para ipakita na may takot kayo sa <i class="trans-change">akin na_ inyong Dios. 
+Kung maghirap ang kapwa ninyo Israelita at hindi na niya kayang buhayin ang kanyang sarili, tulungan nʼyo siya katulad ng inyong pagtulong sa isang dayuhan o bisita para patuloy siyang makapamuhay kasama ninyo. 36-37Pahiramin ninyo siya ng pera na walang tubo, at pagbilhan ninyo siya ng pagkain na walang tubo para patuloy siyang naninirahang kasama ninyo. Gawin ninyo ito para ipakita na may takot kayo sa akin na_ inyong Dios. 
 
 
 
@@ -1102,7 +1102,7 @@ Kayoʼy mga alipin ko, kayoʼy mga Israelitang inilabas ko sa Egipto. Kaya huwag
 
 
 
-Huwag ninyong pagmamalupitan ang inyong kapwa Israelita na alipin ninyo. Ipakita ninyong kayoʼy may takot sa <i class="trans-change">akin na_ inyong Dios. 
+Huwag ninyong pagmamalupitan ang inyong kapwa Israelita na alipin ninyo. Ipakita ninyong kayoʼy may takot sa akin na_ inyong Dios. 
 
 
 
@@ -1234,7 +1234,7 @@ At maaari nʼyo silang ipamana sa inyong mga anak upang maglingkod sa kanila hab
 
 
 
-Kung sa labis na kahirapan ay ipinagbili ng isang Israelita ang kanyang sarili <i class="trans-change">bilang alipin_ sa isang dayuhang naninirahang kasama ninyo, o sa kamag-anak ng dayuhang iyon, 
+Kung sa labis na kahirapan ay ipinagbili ng isang Israelita ang kanyang sarili bilang alipin_ sa isang dayuhang naninirahang kasama ninyo, o sa kamag-anak ng dayuhang iyon, 
 
 
 
@@ -1300,7 +1300,7 @@ ang Israelitang iyon ay maaari pang tubusin. Maaari siyang tubusin ng kanyang ka
 
 
 
-tiyuhin, pinsan, o sinumang malapit niyang kamag-anak. Maaari ring siya mismo ang tumubos ng kanyang sarili kung kaya na niya. <sup class="versenum">50-52</sup>Kukuwentahin niya at ng bumili sa kanya kung ilang taon siyang naglingkod at kung magkano ang katumbas na halaga nito kung babayaran siya katulad ng isang upahang manggagawa. At ang halaga nito ay ibabawas niya sa halagang ibinayad sa kanya noong siya ay binili bilang isang alipin. (Ang halagang iyon ay batay sa dami ng taon mula nang siyaʼy binili hanggang sa Taon ng Pagpapalaya at Pagsasauli.) At kung magkano ang natira, iyon ang babayaran niya para matubos ang kanyang sarili. 
+tiyuhin, pinsan, o sinumang malapit niyang kamag-anak. Maaari ring siya mismo ang tumubos ng kanyang sarili kung kaya na niya. 50-52Kukuwentahin niya at ng bumili sa kanya kung ilang taon siyang naglingkod at kung magkano ang katumbas na halaga nito kung babayaran siya katulad ng isang upahang manggagawa. At ang halaga nito ay ibabawas niya sa halagang ibinayad sa kanya noong siya ay binili bilang isang alipin. (Ang halagang iyon ay batay sa dami ng taon mula nang siyaʼy binili hanggang sa Taon ng Pagpapalaya at Pagsasauli.) At kung magkano ang natira, iyon ang babayaran niya para matubos ang kanyang sarili. 
 
 
 
@@ -1399,4 +1399,4 @@ Kung hindi siya makakalaya at ang mga anak niya sa ganoong paraan, maaari pa rin
 
 
 
-<i class="trans-change">Kaya hindi kayo magiging alipin ng inyong mga kababayan magpakailanman,_ dahil alipin ko kayo, ako ang naglabas sa inyo mula sa Egipto. Ako ang Panginoon na inyong Dios.
+Kaya hindi kayo magiging alipin ng inyong mga kababayan magpakailanman,_ dahil alipin ko kayo, ako ang naglabas sa inyo mula sa Egipto. Ako ang Panginoon na inyong Dios.

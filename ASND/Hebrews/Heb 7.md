@@ -40,7 +40,7 @@ next: ['Heb 8']
 
 
 
-Itong si Melkizedek ay hari noon sa Salem, at pari ng Kataas-taasang Dios. Nang pauwi na si Abraham mula sa pakikipaglaban sa mga haring nilupig <i class="trans-change">niya_, sinalubong siya ni Melkizedek at pinagpala. 
+Itong si Melkizedek ay hari noon sa Salem, at pari ng Kataas-taasang Dios. Nang pauwi na si Abraham mula sa pakikipaglaban sa mga haring nilupig niya_, sinalubong siya ni Melkizedek at pinagpala. 
 
 
 
@@ -73,7 +73,7 @@ Itong si Melkizedek ay hari noon sa Salem, at pari ng Kataas-taasang Dios. Nang 
 
 
 
-Pagkatapos, ibinigay sa kanya ni Abraham ang ikapu <i class="trans-change">ng lahat ng nasamsam niya sa labanan_. Ang kahulugan ng pangalang Melkizedek ay "Hari ng Katuwiran." At dahil hari siya ng Salem, nangangahulugan na siyaʼy "Hari ng Kapayapaan." 
+Pagkatapos, ibinigay sa kanya ni Abraham ang ikapu ng lahat ng nasamsam niya sa labanan_. Ang kahulugan ng pangalang Melkizedek ay "Hari ng Katuwiran." At dahil hari siya ng Salem, nangangahulugan na siyaʼy "Hari ng Kapayapaan." 
 
 
 
@@ -106,7 +106,7 @@ Pagkatapos, ibinigay sa kanya ni Abraham ang ikapu <i class="trans-change">ng la
 
 
 
-Walang <i class="trans-change">naisulat tungkol sa kanyang_ ama at ina o maging sa mga ninuno niya. At wala <i class="trans-change">ring naisulat tungkol sa kanyang_ kapanganakan at kamatayan. Katulad siya ng Anak ng Dios; ang pagkapari niyaʼy walang hanggan. 
+Walang naisulat tungkol sa kanyang_ ama at ina o maging sa mga ninuno niya. At wala ring naisulat tungkol sa kanyang_ kapanganakan at kamatayan. Katulad siya ng Anak ng Dios; ang pagkapari niyaʼy walang hanggan. 
 
 
 
@@ -172,7 +172,7 @@ Isipin nʼyo na lang kung gaano kadakila si Melkizedek: Kahit na si Abraham na a
 
 
 
-Ayon sa Kautusan <i class="trans-change">ni Moises_, ang mga paring mula sa lahi ni Levi ang siyang tatanggap ng ikapu mula sa mga kapwa nila Judio, kahit na nagmula silang lahat kay Abraham. 
+Ayon sa Kautusan ni Moises_, ang mga paring mula sa lahi ni Levi ang siyang tatanggap ng ikapu mula sa mga kapwa nila Judio, kahit na nagmula silang lahat kay Abraham. 
 
 
 
@@ -271,7 +271,7 @@ At alam nating mas mataas ang nagpapala kaysa sa pinagpapala.
 
 
 
-Kung tungkol sa mga paring <i class="trans-change">mula sa lahi ni Levi na_ tumatanggap ng ikapu, mga tao lang sila na may kamatayan. Pero pinatutunayan ng Kasulatan na si Melkizedek <i class="trans-change">na tumanggap ng ikapu mula kay Abraham_ ay nananatiling buhay. 
+Kung tungkol sa mga paring mula sa lahi ni Levi na_ tumatanggap ng ikapu, mga tao lang sila na may kamatayan. Pero pinatutunayan ng Kasulatan na si Melkizedek na tumanggap ng ikapu mula kay Abraham_ ay nananatiling buhay. 
 
 
 
@@ -304,7 +304,7 @@ Kung tungkol sa mga paring <i class="trans-change">mula sa lahi ni Levi na_ tuma
 
 
 
-At masasabi natin na kahit si Levi, na <i class="trans-change">ang angkan niya ang_ tumatanggap ng ikapu, ay nagbigay din ng kanyang ikapu sa pamamagitan ni Abraham. 
+At masasabi natin na kahit si Levi, na ang angkan niya ang_ tumatanggap ng ikapu, ay nagbigay din ng kanyang ikapu sa pamamagitan ni Abraham. 
 
 
 
@@ -403,7 +403,7 @@ Alam natin na ang Kautusang ibinigay ng Dios sa mga Judio ay batay sa pagkapari 
 
 
 
-At kung papalitan ang pagkapari, kailangan ding palitan ang Kautusan. <sup class="versenum">13-14</sup>Ang ating Panginoong <i class="trans-change">Jesus_ na siyang tinutukoy na ipinalit sa mga pari ay kabilang sa ibang lahi, dahil malinaw na galing siya sa lahi ni Juda <i class="trans-change">at hindi kay Levi_. At wala pang naglingkod kahit kailan bilang pari mula sa lahi ni Juda. Sapagkat nang sabihin ni Moises kung sino ang maaaring maging pari, wala siyang sinabi tungkol sa lahi ni Juda.
+At kung papalitan ang pagkapari, kailangan ding palitan ang Kautusan. 13-14Ang ating Panginoong Jesus_ na siyang tinutukoy na ipinalit sa mga pari ay kabilang sa ibang lahi, dahil malinaw na galing siya sa lahi ni Juda at hindi kay Levi_. At wala pang naglingkod kahit kailan bilang pari mula sa lahi ni Juda. Sapagkat nang sabihin ni Moises kung sino ang maaaring maging pari, wala siyang sinabi tungkol sa lahi ni Juda.
 
 ## Si Jesus ay Katulad ni Melkizedek 
 
@@ -438,7 +438,7 @@ At kung papalitan ang pagkapari, kailangan ding palitan ang Kautusan. <sup class
 
 
 
-Lalo pang naging malinaw <i class="trans-change">na pinalitan na ang mga paring mula sa lahi ni Levi_ nang magkaroon ng ibang pari na gaya ni Melkizedek. 
+Lalo pang naging malinaw na pinalitan na ang mga paring mula sa lahi ni Levi_ nang magkaroon ng ibang pari na gaya ni Melkizedek. 
 
 
 
@@ -504,7 +504,7 @@ Naging pari siya, hindi dahil sa lahi niya ayon sa Kautusan, kundi dahil sa maka
 
 
 
-Sapagkat ito ang sinasabi <i class="trans-change">ng Kasulatan tungkol sa kanya_: "Ikaw ay pari magpakailanman, ayon sa pagkapari ni Melkizedek." 
+Sapagkat ito ang sinasabi ng Kasulatan tungkol sa kanya_: "Ikaw ay pari magpakailanman, ayon sa pagkapari ni Melkizedek." 
 
 
 
@@ -537,7 +537,7 @@ Sapagkat ito ang sinasabi <i class="trans-change">ng Kasulatan tungkol sa kanya_
 
 
 
-Kaya nga pinalitan na ng Dios ang dating Kautusan dahil mahina ito at hindi makakatulong <i class="trans-change">sa atin_, 
+Kaya nga pinalitan na ng Dios ang dating Kautusan dahil mahina ito at hindi makakatulong sa atin_, 
 
 
 
@@ -570,7 +570,7 @@ Kaya nga pinalitan na ng Dios ang dating Kautusan dahil mahina ito at hindi maka
 
 
 
-sapagkat walang naging matuwid <i class="trans-change">sa paningin ng Dios_ sa pamamagitan ng <i class="trans-change">pagsunod sa_ Kautusan. Ito ang dahilan kung bakit tayo binigyan ngayon ng mas mabuting pag-asa, at sa pamamagitan nitoʼy makakalapit na tayo sa Dios. 
+sapagkat walang naging matuwid sa paningin ng Dios_ sa pamamagitan ng pagsunod sa_ Kautusan. Ito ang dahilan kung bakit tayo binigyan ngayon ng mas mabuting pag-asa, at sa pamamagitan nitoʼy makakalapit na tayo sa Dios. 
 
 
 
@@ -603,7 +603,7 @@ sapagkat walang naging matuwid <i class="trans-change">sa paningin ng Dios_ sa p
 
 
 
-Mas mabuti ang bagong pag-asang ito dahil nilakipan ito <i class="trans-change">ng Dios_ ng panunumpa. Hindi siya nanumpa nang gawin niyang mga pari ang lahi ni Levi, 
+Mas mabuti ang bagong pag-asang ito dahil nilakipan ito ng Dios_ ng panunumpa. Hindi siya nanumpa nang gawin niyang mga pari ang lahi ni Levi, 
 
 
 
@@ -636,7 +636,7 @@ Mas mabuti ang bagong pag-asang ito dahil nilakipan ito <i class="trans-change">
 
 
 
-pero nanumpa siya nang gawin niyang pari si Jesus. <i class="trans-change">Ito ang sinasabi ng Kasulatan:_ "Sumumpa ang Panginoon na ikaw ay pari magpakailanman. At hindi magbabago ang pasya niya." 
+pero nanumpa siya nang gawin niyang pari si Jesus. Ito ang sinasabi ng Kasulatan:_ "Sumumpa ang Panginoon na ikaw ay pari magpakailanman. At hindi magbabago ang pasya niya." 
 
 
 
@@ -867,4 +867,4 @@ Hindi siya katulad ng ibang punong pari na kailangang maghandog araw-araw para s
 
 
 
-Ang mga tao na naging punong pari ayon sa Kautusan ay may mga kahinaan. Ngunit ayon sa sinumpaan ng Dios matapos <i class="trans-change">maibigay_ ang Kautusan, itinalaga niya ang kanyang Anak <i class="trans-change">na maging punong pari_ magpakailanman, dahil natupad nito ang layunin ng Dios.
+Ang mga tao na naging punong pari ayon sa Kautusan ay may mga kahinaan. Ngunit ayon sa sinumpaan ng Dios matapos maibigay_ ang Kautusan, itinalaga niya ang kanyang Anak na maging punong pari_ magpakailanman, dahil natupad nito ang layunin ng Dios.

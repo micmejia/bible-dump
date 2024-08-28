@@ -172,7 +172,7 @@ Noong akoʼy nasa mabuti pang kalagayan, ang Dios ay matalik kong kaibigan, at p
 
 
 
-Pinapatnubayan pa ako noon ng <i class="trans-change">Dios na_ Makapangyarihan, at magkakasama pa kami ng mga anak ko. 
+Pinapatnubayan pa ako noon ng Dios na_ Makapangyarihan, at magkakasama pa kami ng mga anak ko. 
 
 
 
@@ -271,7 +271,7 @@ Kapag pumupunta ako sa pintuang bayan at sumasama sa mga pinuno ng lungsod sa tu
 
 
 
-tumatabi ang mga kabataang lalaki kapag nakita nila ako, at ang matatandaʼy tumatayo <i class="trans-change">para magbigay galang sa akin_. 
+tumatabi ang mga kabataang lalaki kapag nakita nila ako, at ang matatandaʼy tumatayo para magbigay galang sa akin_. 
 
 
 
@@ -337,7 +337,7 @@ Tumatahimik kahit ang mga pinuno
 
 
 
-at ang mararangal na tao <i class="trans-change">kapag nakikita nila ako_. 
+at ang mararangal na tao kapag nakikita nila ako_. 
 
 
 
@@ -436,7 +436,7 @@ Sapagkat tinutulungan ko ang mga dukhang humihingi ng tulong at mga ulilang wala
 
 
 
-Binabasbasan ako ng mga taong nag-aagaw buhay <i class="trans-change">na aking tinulungan_, at umaawit sa galak ang mga biyuda <i class="trans-change">na aking natulungan din_. 
+Binabasbasan ako ng mga taong nag-aagaw buhay na aking tinulungan_, at umaawit sa galak ang mga biyuda na aking natulungan din_. 
 
 
 
@@ -634,7 +634,7 @@ Winasak ko ang kapangyarihan ng masasamang tao at iniligtas ko ang mga biktima n
 
 
 
-Sapagkat ang katulad ko nooʼy <i class="trans-change">matibay na_ punongkahoy na umaabot ang mga ugat sa tubig at laging nahahamugan ang mga sanga. 
+Sapagkat ang katulad ko nooʼy matibay na_ punongkahoy na umaabot ang mga ugat sa tubig at laging nahahamugan ang mga sanga. 
 
 
 

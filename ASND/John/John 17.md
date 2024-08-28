@@ -106,7 +106,7 @@ Sapagkat binigyan mo ako ng kapangyarihan sa lahat ng tao para mabigyan ko ng bu
 
 
 
-At ito ang <i class="trans-change">kahulugan ng_ buhay na walang hanggan: ang makilala ka ng mga tao na ikaw lang ang tunay na Dios, at makilala rin nila ako na isinugo mo. 
+At ito ang kahulugan ng_ buhay na walang hanggan: ang makilala ka ng mga tao na ikaw lang ang tunay na Dios, at makilala rin nila ako na isinugo mo. 
 
 
 
@@ -205,7 +205,7 @@ Kaya ngayon, Ama, parangalan mo ako sa piling mo. Ipagkaloob mo sa akin ang kara
 
 
 
-"Ipinakilala kita sa mga taong pinili mo mula sa <i class="trans-change">mga tao sa_ mundo at ibinigay sa akin. Sila ay sa iyo at ibinigay mo sila sa akin, at sinunod nila ang iyong salita. 
+"Ipinakilala kita sa mga taong pinili mo mula sa mga tao sa_ mundo at ibinigay sa akin. Sila ay sa iyo at ibinigay mo sila sa akin, at sinunod nila ang iyong salita. 
 
 
 
@@ -304,7 +304,7 @@ Sapagkat itinuro ko sa kanila ang mga itinuro mo sa akin, at tinanggap naman nil
 
 
 
-"Idinadalangin ko sila. Hindi ako nananalangin para sa <i class="trans-change">mga taong_ makamundo kundi para sa mga taong ibinigay mo sa akin, dahil sila ay sa iyo. 
+"Idinadalangin ko sila. Hindi ako nananalangin para sa mga taong_ makamundo kundi para sa mga taong ibinigay mo sa akin, dahil sila ay sa iyo. 
 
 
 
@@ -601,7 +601,7 @@ Ibukod mo sila upang maging iyo sa pamamagitan ng katotohanan; ang salita mo ay 
 
 
 
-Isinugo mo ako rito sa mundo, kaya isinusugo ko rin sila sa mundo <i class="trans-change">upang mangaral_. 
+Isinugo mo ako rito sa mundo, kaya isinusugo ko rin sila sa mundo upang mangaral_. 
 
 
 
@@ -667,7 +667,7 @@ Alang-alang sa kanila, itinatalaga ko ang aking sarili sa iyo, upang sila man ay
 
 
 
-"Ang panalangin koʼy hindi lang para sa kanila <i class="trans-change">na sumasampalataya sa akin_, kundi pati na rin sa mga sasampalataya pa sa akin sa pamamagitan ng pangangaral nila. 
+"Ang panalangin koʼy hindi lang para sa kanila na sumasampalataya sa akin_, kundi pati na rin sa mga sasampalataya pa sa akin sa pamamagitan ng pangangaral nila. 
 
 
 
@@ -700,7 +700,7 @@ Alang-alang sa kanila, itinatalaga ko ang aking sarili sa iyo, upang sila man ay
 
 
 
-Idinadalangin ko sa iyo, Ama, na silang lahat ay maging isa gaya natin. Kung paanong ikaw ay nasa akin at akoʼy nasa iyo, nawaʼy sila man ay sumaatin, para maniwala ang <i class="trans-change">mga tao sa_ mundo na ikaw ang nagsugo sa akin. 
+Idinadalangin ko sa iyo, Ama, na silang lahat ay maging isa gaya natin. Kung paanong ikaw ay nasa akin at akoʼy nasa iyo, nawaʼy sila man ay sumaatin, para maniwala ang mga tao sa_ mundo na ikaw ang nagsugo sa akin. 
 
 
 
@@ -766,7 +766,7 @@ Binigyan ko sila ng karangalan tulad ng ibinigay mo sa akin, upang silaʼy magin
 
 
 
-Nasa kanila ako at ikaw ay nasa akin, para silaʼy lubos na maging isa. Sa ganoon ay malalaman ng <i class="trans-change">mga tao sa_ mundo na isinugo mo ako, at malalaman din nilang minamahal mo ang mga mananampalataya tulad ng pagmamahal mo sa akin. 
+Nasa kanila ako at ikaw ay nasa akin, para silaʼy lubos na maging isa. Sa ganoon ay malalaman ng mga tao sa_ mundo na isinugo mo ako, at malalaman din nilang minamahal mo ang mga mananampalataya tulad ng pagmamahal mo sa akin. 
 
 
 
@@ -832,7 +832,7 @@ Nasa kanila ako at ikaw ay nasa akin, para silaʼy lubos na maging isa. Sa ganoo
 
 
 
-Amang Makatarungan, kahit hindi ka nakikilala ng <i class="trans-change">mga taong_ makamundo, nakikilala naman kita, at alam ng mga mananampalataya na ikaw ang nagsugo sa akin. 
+Amang Makatarungan, kahit hindi ka nakikilala ng mga taong_ makamundo, nakikilala naman kita, at alam ng mga mananampalataya na ikaw ang nagsugo sa akin. 
 
 
 

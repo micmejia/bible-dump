@@ -72,7 +72,7 @@ Nang makaahon na kami at ligtas na sa panganib, nalaman namin na ang islang iyon
 
 
 
-Napakabait sa amin ng mga taga-roon at mabuti ang kanilang pagtanggap sa aming lahat. Nagsiga sila <i class="trans-change">para makapagpainit kami_, dahil umuulan at maginaw. 
+Napakabait sa amin ng mga taga-roon at mabuti ang kanilang pagtanggap sa aming lahat. Nagsiga sila para makapagpainit kami_, dahil umuulan at maginaw. 
 
 
 
@@ -138,7 +138,7 @@ Nanguha si Pablo ng isang bigkis ng kahoy na panggatong. Pero nang mailagay na n
 
 
 
-Pagkakita ng mga taga-roon sa ahas na nakabitin sa kamay ni Pablo, sinabi nila, "Tiyak na kriminal ang taong ito. Nakaligtas siya sa dagat pero ayaw pumayag ng <i class="trans-change">dios ng_ katarungan na mabuhay pa siya." 
+Pagkakita ng mga taga-roon sa ahas na nakabitin sa kamay ni Pablo, sinabi nila, "Tiyak na kriminal ang taong ito. Nakaligtas siya sa dagat pero ayaw pumayag ng dios ng_ katarungan na mabuhay pa siya." 
 
 
 
@@ -371,7 +371,7 @@ Marami silang ibinigay sa amin na regalo. At nang paalis na kami, binigyan pa ni
 
 
 
-Matapos ang tatlong buwan na <i class="trans-change">pananatili namin sa isla ng Malta_, sumakay kami sa isang barkong nagpalipas doon ng tag-unos. Ang barkong itoʼy galing sa Alexandria, at nakalarawan sa unahan nito ang kambal na dios. 
+Matapos ang tatlong buwan na pananatili namin sa isla ng Malta_, sumakay kami sa isang barkong nagpalipas doon ng tag-unos. Ang barkong itoʼy galing sa Alexandria, at nakalarawan sa unahan nito ang kambal na dios. 
 
 
 
@@ -470,7 +470,7 @@ Mula roon, bumiyahe kami hanggang sa nakarating kami sa Regium. Kinabukasan, umi
 
 
 
-Doon may nakita kaming mga kapatid <i class="trans-change">sa Panginoon_. Hiniling nila sa amin na manatili roon ng isang linggo. Pagkatapos, dumiretso kami sa Roma. 
+Doon may nakita kaming mga kapatid sa Panginoon_. Hiniling nila sa amin na manatili roon ng isang linggo. Pagkatapos, dumiretso kami sa Roma. 
 
 
 
@@ -769,7 +769,7 @@ Pero gusto rin naming marinig kung ano ang iyong sasabihin, dahil alam namin na 
 
 
 
-Kaya nagtakda sila ng araw para magtipong muli. Pagdating ng araw na iyon, lalong dumami ang pumunta sa bahay na tinutuluyan ni Pablo. Pinatunayan niya sa kanila ang tungkol sa paghahari ng Dios, at ipinaliwanag niya ang tungkol kay Jesus sa pamamagitan ng mga Kautusan ni Moises at ng <i class="trans-change">mga isinulat ng_ mga propeta para sumampalataya sila <i class="trans-change">sa kanya_. 
+Kaya nagtakda sila ng araw para magtipong muli. Pagdating ng araw na iyon, lalong dumami ang pumunta sa bahay na tinutuluyan ni Pablo. Pinatunayan niya sa kanila ang tungkol sa paghahari ng Dios, at ipinaliwanag niya ang tungkol kay Jesus sa pamamagitan ng mga Kautusan ni Moises at ng mga isinulat ng_ mga propeta para sumampalataya sila sa kanya_. 
 
 
 
@@ -934,7 +934,7 @@ dahil matigas ang puso ng mga taong ito. Tinakpan nila ang kanilang mga tainga a
 
 
 
-<i class="trans-change">Sinabi pa ni Pablo,_ "Gusto ko ring sabihin sa inyo na ang salita ng Dios tungkol sa kaligtasan ay ibinalita na sa mga hindi Judio, at sila ay talagang nakikinig." [ 
+Sinabi pa ni Pablo,_ "Gusto ko ring sabihin sa inyo na ang salita ng Dios tungkol sa kaligtasan ay ibinalita na sa mga hindi Judio, at sila ay talagang nakikinig." [ 
 
 
 

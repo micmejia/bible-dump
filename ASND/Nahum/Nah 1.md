@@ -39,7 +39,7 @@ next: ['Nah 2']
 
 
 
-Ang mensahe ng aklat na ito ay tungkol sa Nineve. Itoʼy ipinahayag <i class="trans-change">ng Panginoon_ kay Nahum na taga-Elkosh.
+Ang mensahe ng aklat na ito ay tungkol sa Nineve. Itoʼy ipinahayag ng Panginoon_ kay Nahum na taga-Elkosh.
 
 ## Ang Galit ng Panginoon sa Nineve 
 
@@ -140,7 +140,7 @@ Ang Panginoon ay hindi madaling magalit, ngunit dakila ang kanyang kapangyarihan
 
 
 
-Sa utos lamang niyaʼy natutuyo ang mga dagat at mga ilog. Nalalanta ang mga tanim sa Bashan, sa <i class="trans-change">Bundok ng_ Carmel at sa Lebanon. 
+Sa utos lamang niyaʼy natutuyo ang mga dagat at mga ilog. Nalalanta ang mga tanim sa Bashan, sa Bundok ng_ Carmel at sa Lebanon. 
 
 
 
@@ -305,7 +305,7 @@ Para siyang rumaragasang baha na lubusang pupuksain ang kanyang mga kaaway. Tutu
 
 
 
-<i class="trans-change">Mga taga-Asiria,_ kung ano man ang masamang binabalak ninyo laban sa <i class="trans-change">mga mamamayan ng_ Panginoon, wawakasan iyan ng Panginoon at hindi na mauulit pa. 
+Mga taga-Asiria,_ kung ano man ang masamang binabalak ninyo laban sa mga mamamayan ng_ Panginoon, wawakasan iyan ng Panginoon at hindi na mauulit pa. 
 
 
 
@@ -371,7 +371,7 @@ Para kayong mga lasing na nakapulupot sa matinik na halaman. Lilipulin kayo na p
 
 
 
-Ang isa sa inyong mga pinuno ay nagbalak ng masama laban sa <i class="trans-change">mga mamamayan ng_ Panginoon. Masama ang kanyang ipinapayo. 
+Ang isa sa inyong mga pinuno ay nagbalak ng masama laban sa mga mamamayan ng_ Panginoon. Masama ang kanyang ipinapayo. 
 
 
 
@@ -404,7 +404,7 @@ Ang isa sa inyong mga pinuno ay nagbalak ng masama laban sa <i class="trans-chan
 
 
 
-Ito ang sinasabi ng Panginoon <i class="trans-change">sa mga taga-Juda_: "Kahit na malakas at marami ang kalaban ninyong taga-Asiria, lilipulin ko sila hanggang sa mawala. Kahit na pinarusahan ko kayo, hindi ko na iyon uulitin pang muli. 
+Ito ang sinasabi ng Panginoon sa mga taga-Juda_: "Kahit na malakas at marami ang kalaban ninyong taga-Asiria, lilipulin ko sila hanggang sa mawala. Kahit na pinarusahan ko kayo, hindi ko na iyon uulitin pang muli. 
 
 
 
@@ -503,4 +503,4 @@ Ito naman ang sinasabi ng Panginoon sa mga taga-Asiria: "Mawawala ang lahi ninyo
 
 
 
-Mga taga-Juda, tingnan ninyo ang kabundukan! Dumarating na ang mensaherong maghahatid ng magandang balita ng kapayapaan sa inyong bayan. Kaya ipagdiwang ninyo ang inyong mga pista, at tuparin ninyo ang inyong mga panata <i class="trans-change">sa Panginoon_. Sapagkat ang masamang <i class="trans-change">bansa ng Asiria_ ay hindi na sasalakay sa inyo, dahil lubusan na silang lilipulin.
+Mga taga-Juda, tingnan ninyo ang kabundukan! Dumarating na ang mensaherong maghahatid ng magandang balita ng kapayapaan sa inyong bayan. Kaya ipagdiwang ninyo ang inyong mga pista, at tuparin ninyo ang inyong mga panata sa Panginoon_. Sapagkat ang masamang bansa ng Asiria_ ay hindi na sasalakay sa inyo, dahil lubusan na silang lilipulin.

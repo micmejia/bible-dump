@@ -6,7 +6,7 @@ next: ['Gal 2']
 # Galatians 1
 
 ***
-###### 1-2 <i class="trans-change">Mula kay_ Pablo na isang apostol, kasama ang lahat ng kapatid dito. Ang pagka-apostol ko ay hindi galing sa tao o sa pamamagitan ng tao, kundi sa pamamagitan ni Jesu-Cristo at ng Dios Ama na muling bumuhay sa kanya mula sa kamatayan. <i class="trans-change">Mahal kong mga kapatid_ sa mga iglesya diyan sa Galacia: 
+###### 1-2 Mula kay_ Pablo na isang apostol, kasama ang lahat ng kapatid dito. Ang pagka-apostol ko ay hindi galing sa tao o sa pamamagitan ng tao, kundi sa pamamagitan ni Jesu-Cristo at ng Dios Ama na muling bumuhay sa kanya mula sa kamatayan. Mahal kong mga kapatid_ sa mga iglesya diyan sa Galacia: 
 
 
 
@@ -173,7 +173,7 @@ Nagtaka ako dahil ang dali ninyong tumalikod sa Dios na tumawag sa inyo sa pamam
 
 
 
-<i class="trans-change">Ang totoo,_ walang ibang magandang balita. Nasabi ko ito dahil may mga taong nanggugulo sa inyo, at gusto nilang baluktutin ang Magandang Balita tungkol kay Cristo. 
+Ang totoo,_ walang ibang magandang balita. Nasabi ko ito dahil may mga taong nanggugulo sa inyo, at gusto nilang baluktutin ang Magandang Balita tungkol kay Cristo. 
 
 
 
@@ -272,7 +272,7 @@ Sinabi na namin sa inyo noon at muli kong sasabihin: Kung may mangangaral sa iny
 
 
 
-Huwag ninyong isipin na ang nais ko ay malugod sa akin ang tao. <i class="trans-change">Hindi!_ Ang nais ko ay malugod sa akin ang Dios. Kung ang ikalulugod ng tao ang hinahanap ko, hindi ako tunay na lingkod ni Cristo.
+Huwag ninyong isipin na ang nais ko ay malugod sa akin ang tao. Hindi!_ Ang nais ko ay malugod sa akin ang Dios. Kung ang ikalulugod ng tao ang hinahanap ko, hindi ako tunay na lingkod ni Cristo.
 
 ## Paano Naging Apostol si Pablo 
 
@@ -406,7 +406,7 @@ Alam naman ninyo ang dati kong pamumuhay noong kasapi ako sa relihiyon ng mga Ju
 
 
 
-At tungkol naman sa pagsunod sa relihiyon ng mga Judio, nahigitan ko ang marami sa mga kaedad ko, dahil tapat kong sinunod ang mga tradisyong nanggaling pa sa mga ninuno namin. <sup class="versenum">15-16</sup>Ngunit sa awa ng Dios, bago pa man ako ipanganak, pinili na niya ako at tinawag upang ihayag sa akin ang kanyang Anak para maipangaral siya sa mga hindi Judio. Nang mangyari ito, hindi ako sumangguni kaninuman. 
+At tungkol naman sa pagsunod sa relihiyon ng mga Judio, nahigitan ko ang marami sa mga kaedad ko, dahil tapat kong sinunod ang mga tradisyong nanggaling pa sa mga ninuno namin. 15-16Ngunit sa awa ng Dios, bago pa man ako ipanganak, pinili na niya ako at tinawag upang ihayag sa akin ang kanyang Anak para maipangaral siya sa mga hindi Judio. Nang mangyari ito, hindi ako sumangguni kaninuman. 
 
 
 

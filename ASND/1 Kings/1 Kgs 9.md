@@ -238,7 +238,7 @@ Pero kung tatalikod kayo o ang inyong mga angkan sa akin at hindi susunod sa aki
 
 
 
-paaalisin ko kayo sa lupaing ibinigay ko sa inyo at itatakwil ko ang templong ito na hinirang kong lugar kung saan <i class="trans-change">pararangalan_ ang aking pangalan. Pagkatapos, kukutyain at pagtatawanan ng lahat ng tao ang Israel. 
+paaalisin ko kayo sa lupaing ibinigay ko sa inyo at itatakwil ko ang templong ito na hinirang kong lugar kung saan pararangalan_ ang aking pangalan. Pagkatapos, kukutyain at pagtatawanan ng lahat ng tao ang Israel. 
 
 
 
@@ -271,7 +271,7 @@ paaalisin ko kayo sa lupaing ibinigay ko sa inyo at itatakwil ko ang templong it
 
 
 
-At kahit maganda at tanyag ang templong ito, <i class="trans-change">sisirain ko ito._ Magugulat at mamamangha ang lahat ng dumaraan dito at painsultong sasabihin, 'Bakit ginawa ito ng Panginoon sa lupain at templong ito?' 
+At kahit maganda at tanyag ang templong ito, sisirain ko ito._ Magugulat at mamamangha ang lahat ng dumaraan dito at painsultong sasabihin, 'Bakit ginawa ito ng Panginoon sa lupain at templong ito?' 
 
 
 
@@ -403,7 +403,7 @@ ibinigay niya ang 20 bayan sa Galilea kay Haring Hiram ng Tyre. Ginawa niya ito 
 
 
 
-Pero nang pumunta si Hiram <i class="trans-change">sa Galilea_ mula sa Tyre para tingnan ang mga bayan na ibinigay sa kanya ni Solomon, hindi siya nasiyahan dito. 
+Pero nang pumunta si Hiram sa Galilea_ mula sa Tyre para tingnan ang mga bayan na ibinigay sa kanya ni Solomon, hindi siya nasiyahan dito. 
 
 
 
@@ -634,7 +634,7 @@ ang Baalat, ang Tamar na nasa disyerto na sakop ng kanyang lupain,
 
 
 
-at ang lahat ng lungsod na imbakan ng kanyang mga pangangailangan, at mga karwahe at mga kabayo. Ipinatayo niya ang lahat ng ninanais niyang ipatayo sa Jerusalem, sa Lebanon at sa lahat ng lupaing sakop niya. <sup class="versenum">20-21</sup>May mga tao pa na naiwan sa Israel na hindi mga Israelita. Sila ay mga lahi ng mga Amoreo, Heteo, Perezeo, Hiveo at mga Jebuseo, na hindi nalipol ng lubusan ng mga Israelita <i class="trans-change">nang sakupin nila ang lupain ng Canaan_. Ginawa silang alipin ni Solomon at pinilit na magtrabaho, at nananatili silang alipin hanggang ngayon. 
+at ang lahat ng lungsod na imbakan ng kanyang mga pangangailangan, at mga karwahe at mga kabayo. Ipinatayo niya ang lahat ng ninanais niyang ipatayo sa Jerusalem, sa Lebanon at sa lahat ng lupaing sakop niya. 20-21May mga tao pa na naiwan sa Israel na hindi mga Israelita. Sila ay mga lahi ng mga Amoreo, Heteo, Perezeo, Hiveo at mga Jebuseo, na hindi nalipol ng lubusan ng mga Israelita nang sakupin nila ang lupain ng Canaan_. Ginawa silang alipin ni Solomon at pinilit na magtrabaho, at nananatili silang alipin hanggang ngayon. 
 
 
 

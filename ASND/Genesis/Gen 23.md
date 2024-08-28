@@ -337,7 +337,7 @@ na ibenta niya sa akin ang kweba niya na nasa tabi ng bukirin niya sa Macpela. S
 
 
 
-Naroon <i class="trans-change">pala_ si Efron na nakaupo kasama ng mga kababayan niyang Heteo. Kaya sumagot siya kay Abraham na naririnig ng lahat ng Heteo na nagtitipon doon sa pintuan ng lungsod. 
+Naroon pala_ si Efron na nakaupo kasama ng mga kababayan niyang Heteo. Kaya sumagot siya kay Abraham na naririnig ng lahat ng Heteo na nagtitipon doon sa pintuan ng lungsod. 
 
 
 
@@ -403,7 +403,7 @@ Sinabi niya, "Sa harap ng mga kababayan ko ay ibinibigay ko sa iyo ang buong buk
 
 
 
-Muling yumukod si Abraham <i class="trans-change">tanda ng pagpapasalamat_ sa harapan ng mga Heteo. 
+Muling yumukod si Abraham tanda ng pagpapasalamat_ sa harapan ng mga Heteo. 
 
 
 
@@ -535,7 +535,7 @@ Sumagot si Efron,
 
 
 
-Pumayag si Abraham sa halagang sinabi ni Efron. Kaya nagkilo siya ng 400 pirasong pilak ayon sa bigat na pinagbabasihan noon ng mga mangangalakal. At ibinayad niya ito kay Efron sa harap ng mga Heteo. <sup class="versenum">17-18</sup>Kaya naging pag-aari ni Abraham ang bukid ni Efron sa Macpela, sa silangan ng Mamre, pati na ang kweba at ang mga punongkahoy sa paligid ng bukid. Saksi ang lahat ng Heteo na nagtipon doon sa pintuan ng lungsod. 
+Pumayag si Abraham sa halagang sinabi ni Efron. Kaya nagkilo siya ng 400 pirasong pilak ayon sa bigat na pinagbabasihan noon ng mga mangangalakal. At ibinayad niya ito kay Efron sa harap ng mga Heteo. 17-18Kaya naging pag-aari ni Abraham ang bukid ni Efron sa Macpela, sa silangan ng Mamre, pati na ang kweba at ang mga punongkahoy sa paligid ng bukid. Saksi ang lahat ng Heteo na nagtipon doon sa pintuan ng lungsod. 
 
 
 

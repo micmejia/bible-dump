@@ -39,7 +39,7 @@ next: ['Hos 2']
 
 
 
-Ito ang ipinahayag ng Panginoon kay Hoseas na anak ni Beeri noong <i class="trans-change">magkakasunod na_ naging hari sa Juda sina Uzia, Jotam, Ahaz at Hezekia, habang naghahari naman sa Israel si Jeroboam na anak ni Joash.
+Ito ang ipinahayag ng Panginoon kay Hoseas na anak ni Beeri noong magkakasunod na_ naging hari sa Juda sina Uzia, Jotam, Ahaz at Hezekia, habang naghahari naman sa Israel si Jeroboam na anak ni Joash.
 
 ## Ang Asawa at mga Anak ni Hoseas 
 
@@ -74,7 +74,7 @@ Ito ang ipinahayag ng Panginoon kay Hoseas na anak ni Beeri noong <i class="tran
 
 
 
-Ito ang unang sinabi ng Panginoon kay Hoseas, "Mag-asawa ka ng babaeng nangangalunya, at ang inyong mga anak ay ituturing na mga anak ng babaeng nangangalunya. Ito ang magiging larawan ng kataksilan ng <i class="trans-change">aking_ mga mamamayan sa <i class="trans-change">akin na kanilang_ Panginoon, dahil sa pagsamba nila sa mga dios-diosan." 
+Ito ang unang sinabi ng Panginoon kay Hoseas, "Mag-asawa ka ng babaeng nangangalunya, at ang inyong mga anak ay ituturing na mga anak ng babaeng nangangalunya. Ito ang magiging larawan ng kataksilan ng aking_ mga mamamayan sa akin na kanilang_ Panginoon, dahil sa pagsamba nila sa mga dios-diosan." 
 
 
 
@@ -140,7 +140,7 @@ Kaya nagpakasal si Hoseas kay Gomer na anak ni Diblaim. Hindi nagtagal, nabuntis
 
 
 
-Sinabi ng Panginoon kay Hoseas, "Jezreel ang ipangalan mo sa bata, dahil hindi na magtatagal at parurusahan ko ang hari ng Israel dahil sa ginawang pagpatay ng ninuno niyang si Jehu sa <i class="trans-change">lungsod ng_ Jezreel. Wawakasan ko na ang kaharian ng Israel. 
+Sinabi ng Panginoon kay Hoseas, "Jezreel ang ipangalan mo sa bata, dahil hindi na magtatagal at parurusahan ko ang hari ng Israel dahil sa ginawang pagpatay ng ninuno niyang si Jehu sa lungsod ng_ Jezreel. Wawakasan ko na ang kaharian ng Israel. 
 
 
 
@@ -239,7 +239,7 @@ Muling nabuntis si Gomer at nanganak ng isang babae. Sinabi ng Panginoon kay Hos
 
 
 
-Pero kaaawaan ko ang mga mamamayan ng Juda. <i class="trans-change">Ako,_ ang Panginoon nilang Dios, ang magliligtas sa kanila sa pamamagitan ng kapangyarihan ko at hindi sa pamamagitan ng digmaan – ng pana, espada, mga kabayo o mangangabayo." 
+Pero kaaawaan ko ang mga mamamayan ng Juda. Ako,_ ang Panginoon nilang Dios, ang magliligtas sa kanila sa pamamagitan ng kapangyarihan ko at hindi sa pamamagitan ng digmaan – ng pana, espada, mga kabayo o mangangabayo." 
 
 
 
@@ -305,7 +305,7 @@ Nang maawat na ni Gomer si Lo Ruhama sa pagsuso, nabuntis ulit siya at nanganak 
 
 
 
-Sinabi ng Panginoon <i class="trans-change">kay Hoseas_, "Lo Ami ang ipangalan mo sa bata, dahil ang mga mamamayan ng Israel ay hindi ko na mga mamamayan at ako ay hindi na nila <i class="trans-change">Dios_. 
+Sinabi ng Panginoon kay Hoseas_, "Lo Ami ang ipangalan mo sa bata, dahil ang mga mamamayan ng Israel ay hindi ko na mga mamamayan at ako ay hindi na nila Dios_. 
 
 
 
@@ -338,7 +338,7 @@ Sinabi ng Panginoon <i class="trans-change">kay Hoseas_, "Lo Ami ang ipangalan m
 
 
 
-Pero darating ang araw na <i class="trans-change">kaaawaan ko sila at pagpapalain;_ dadami sila tulad ng buhangin sa tabing-dagat na hindi kayang takalin o bilangin. Sa ngayon ay tinatawag silang 'Kayoʼy hindi ko mga mamamayan,' silaʼy tatawaging, 'Mga anak ng Dios na buhay.' 
+Pero darating ang araw na kaaawaan ko sila at pagpapalain;_ dadami sila tulad ng buhangin sa tabing-dagat na hindi kayang takalin o bilangin. Sa ngayon ay tinatawag silang 'Kayoʼy hindi ko mga mamamayan,' silaʼy tatawaging, 'Mga anak ng Dios na buhay.' 
 
 
 

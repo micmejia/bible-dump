@@ -405,7 +405,7 @@ Parang ayaw nang humiwalay ng taong iyon kina Pedro at Juan. Lagi siyang nakahaw
 
 
 
-Pagkakita ni Pedro sa mga tao, sinabi niya sa kanila, "<i class="trans-change">Mga kababayan kong_ mga Israelita, bakit kayo namangha sa pangyayaring ito? Bakit ninyo kami tinititigan? Akala ba ninyoʼy napalakad namin ang taong ito dahil sa aming kapangyarihan at kabanalan? 
+Pagkakita ni Pedro sa mga tao, sinabi niya sa kanila, "Mga kababayan kong_ mga Israelita, bakit kayo namangha sa pangyayaring ito? Bakit ninyo kami tinititigan? Akala ba ninyoʼy napalakad namin ang taong ito dahil sa aming kapangyarihan at kabanalan? 
 
 
 
@@ -438,7 +438,7 @@ Pagkakita ni Pedro sa mga tao, sinabi niya sa kanila, "<i class="trans-change">M
 
 
 
-<i class="trans-change">Hindi!_ Ang Dios ng ating mga ninunong sina Abraham, Isaac, at Jacob ang siyang gumawa nito upang parangalan niya ang kanyang lingkod na si Jesus. <i class="trans-change">Ang Jesus na ito_ ang siyang ibinigay ninyo <i class="trans-change">sa mga may kapangyarihan_ at itinakwil ninyo sa harapan ni Pilato, kahit napagpasyahan na niyang pakawalan siya. 
+Hindi!_ Ang Dios ng ating mga ninunong sina Abraham, Isaac, at Jacob ang siyang gumawa nito upang parangalan niya ang kanyang lingkod na si Jesus. Ang Jesus na ito_ ang siyang ibinigay ninyo sa mga may kapangyarihan_ at itinakwil ninyo sa harapan ni Pilato, kahit napagpasyahan na niyang pakawalan siya. 
 
 
 
@@ -471,7 +471,7 @@ Pagkakita ni Pedro sa mga tao, sinabi niya sa kanila, "<i class="trans-change">M
 
 
 
-Banal siya at matuwid, ngunit itinakwil nʼyo at hiniling <i class="trans-change">kay Pilato_ na pakawalan ang isang mamamatay-tao <i class="trans-change">sa halip na siya_. 
+Banal siya at matuwid, ngunit itinakwil nʼyo at hiniling kay Pilato_ na pakawalan ang isang mamamatay-tao sa halip na siya_. 
 
 
 
@@ -702,7 +702,7 @@ at matanggap nʼyo ang bagong kalakasan mula sa Panginoon. Pagkatapos, ipapadala
 
 
 
-Ngunit kinakailangang <i class="trans-change">manatili muna_ si Jesus sa langit hanggang sa dumating ang panahon na mabago ng Dios ang lahat ng bagay. Iyan din ang sinabi ng Dios noon sa pamamagitan ng kanyang mga propeta. 
+Ngunit kinakailangang manatili muna_ si Jesus sa langit hanggang sa dumating ang panahon na mabago ng Dios ang lahat ng bagay. Iyan din ang sinabi ng Dios noon sa pamamagitan ng kanyang mga propeta. 
 
 
 

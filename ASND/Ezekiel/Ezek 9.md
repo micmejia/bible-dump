@@ -73,7 +73,7 @@ Pagkatapos, narinig ko ang Dios na nagsasalita nang malakas, "Halikayo sa Jerusa
 
 
 
-Pagkatapos, may anim na taong pumasok sa hilagang pintuan ng templo. Lahat silaʼy may dalang sandata. May kasama silang taong nakadamit ng <i class="trans-change">telang_ linen at may panulat sa baywang. Tumayo sila sa tabi ng tansong altar. 
+Pagkatapos, may anim na taong pumasok sa hilagang pintuan ng templo. Lahat silaʼy may dalang sandata. May kasama silang taong nakadamit ng telang_ linen at may panulat sa baywang. Tumayo sila sa tabi ng tansong altar. 
 
 
 
@@ -106,7 +106,7 @@ Pagkatapos, may anim na taong pumasok sa hilagang pintuan ng templo. Lahat sila�
 
 
 
-Mula pa noon, ang kapangyarihan ng Dios ng Israel ay nasa itaas ng mga kerubin <i class="trans-change">sa loob ng templo_, ngayon ay umalis na roon at lumipat sa pintuan ng templo. Pagkatapos, tinawag ng Panginoon ang taong nakadamit ng <i class="trans-change">telang_ linen at may panulat sa baywang, 
+Mula pa noon, ang kapangyarihan ng Dios ng Israel ay nasa itaas ng mga kerubin sa loob ng templo_, ngayon ay umalis na roon at lumipat sa pintuan ng templo. Pagkatapos, tinawag ng Panginoon ang taong nakadamit ng telang_ linen at may panulat sa baywang, 
 
 
 
@@ -172,7 +172,7 @@ at sinabi sa kanya, "Libutin mo ang buong lungsod ng Jerusalem at tatakan mo ang
 
 
 
-At narinig ko ring sinabi ng Dios sa iba, "Sundan ninyo siya sa lungsod at patayin ang mga <i class="trans-change">walang tatak sa noo_. Huwag kayong maawa sa kanila. 
+At narinig ko ring sinabi ng Dios sa iba, "Sundan ninyo siya sa lungsod at patayin ang mga walang tatak sa noo_. Huwag kayong maawa sa kanila. 
 
 
 
@@ -370,4 +370,4 @@ Kaya hindi ko na sila kahahabagan, sa halip gagawin ko rin sa kanila ang ginawa 
 
 
 
-Bumalik sa Panginoon ang taong nakadamit ng <i class="trans-change">telang_ linen at may panulat sa baywang at sinabi, "Nagawa ko na po ang ipinapagawa ninyo sa akin."
+Bumalik sa Panginoon ang taong nakadamit ng telang_ linen at may panulat sa baywang at sinabi, "Nagawa ko na po ang ipinapagawa ninyo sa akin."

@@ -172,7 +172,7 @@ Ipinapatupad nila sa inyo ang mahihirap nilang kautusan, pero sila mismo ay hind
 
 
 
-Ang lahat ng ginagawa nila ay pakitang-tao lang. <i class="trans-change">At upang ipakita na napakarelihiyoso nila_, nilalakihan nila ang kanilang mga pilakterya at hinahabaan ang laylayan <i class="trans-change">ng kanilang mga damit_. 
+Ang lahat ng ginagawa nila ay pakitang-tao lang. At upang ipakita na napakarelihiyoso nila_, nilalakihan nila ang kanilang mga pilakterya at hinahabaan ang laylayan ng kanilang mga damit_. 
 
 
 
@@ -403,7 +403,7 @@ Ang pinakadakila sa inyo ay dapat maging lingkod ninyo.
 
 
 
-Ang nagpapakataas ng kanyang sarili ay ibababa <i class="trans-change">ng Dios_, at ang nagpapakababa ay itataas <i class="trans-change">ng Dios_." ## Tinuligsa ni Jesus ang mga Tagapagturo ng Kautusan at mga Pariseo 
+Ang nagpapakataas ng kanyang sarili ay ibababa ng Dios_, at ang nagpapakababa ay itataas ng Dios_." ## Tinuligsa ni Jesus ang mga Tagapagturo ng Kautusan at mga Pariseo 
 
 
 
@@ -799,7 +799,7 @@ At kapag nanumpa siya sa langit, nanunumpa rin siya pati sa trono ng Dios at sa 
 
 
 
-Mga bulag na tagaakay! Sinasala ninyo ang maliliit na insekto <i class="trans-change">sa inyong inumin_, pero lumululon naman kayo ng kamelyo! 
+Mga bulag na tagaakay! Sinasala ninyo ang maliliit na insekto sa inyong inumin_, pero lumululon naman kayo ng kamelyo! 
 
 
 
@@ -832,7 +832,7 @@ Mga bulag na tagaakay! Sinasala ninyo ang maliliit na insekto <i class="trans-ch
 
 
 
-"Nakakaawa kayong mga tagapagturo ng Kautusan at mga Pariseo, kayong mga mapagkunwari! Nililinis ninyo ang labas ng tasa at pinggan <i class="trans-change">ayon sa inyong seremonya_, ngunit ang loob ng puso ninyoʼy puno naman ng kasakiman at katakawan. 
+"Nakakaawa kayong mga tagapagturo ng Kautusan at mga Pariseo, kayong mga mapagkunwari! Nililinis ninyo ang labas ng tasa at pinggan ayon sa inyong seremonya_, ngunit ang loob ng puso ninyoʼy puno naman ng kasakiman at katakawan. 
 
 
 
@@ -1228,7 +1228,7 @@ Talagang kayong mga nabubuhay sa panahong ito ang mananagot sa lahat ng mga kasa
 
 
 
-"Kayong mga taga-Jerusalem, binabato ninyo at pinapatay ang mga propeta na sinugo <i class="trans-change">ng Dios_ sa inyo. Maraming beses ko na kayong gustong tipunin <i class="trans-change">at alagaan_ gaya ng isang inahing manok na nagtitipon <i class="trans-change">at nagkakanlong_ ng kanyang mga sisiw sa ilalim ng kanyang mga pakpak, pero ayaw ninyo. 
+"Kayong mga taga-Jerusalem, binabato ninyo at pinapatay ang mga propeta na sinugo ng Dios_ sa inyo. Maraming beses ko na kayong gustong tipunin at alagaan_ gaya ng isang inahing manok na nagtitipon at nagkakanlong_ ng kanyang mga sisiw sa ilalim ng kanyang mga pakpak, pero ayaw ninyo. 
 
 
 

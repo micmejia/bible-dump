@@ -205,7 +205,7 @@ Halimbawa, may isang taong matuwid na ginagawa kung ano ang tama.
 
 
 
-Hindi siya sumasamba sa mga dios-diosan ng Israel o kumakain <i class="trans-change">ng mga inihandog sa mga dios-diosang ito sa mga sambahan_ sa mga bundok. Hindi siya sumisiping sa asawa ng iba o sa babaeng may buwanang dalaw. 
+Hindi siya sumasamba sa mga dios-diosan ng Israel o kumakain ng mga inihandog sa mga dios-diosang ito sa mga sambahan_ sa mga bundok. Hindi siya sumisiping sa asawa ng iba o sa babaeng may buwanang dalaw. 
 
 
 
@@ -304,7 +304,7 @@ Hindi siya nagpapatubo kapag nagpapahiram ng pera. Hindi rin siya gumagawa ng ma
 
 
 
-Sinusunod niyang mabuti ang mga utos koʼt mga tuntunin. Ang taong ganito ay matuwid at patuloy na mabubuhay. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Sinusunod niyang mabuti ang mga utos koʼt mga tuntunin. Ang taong ganito ay matuwid at patuloy na mabubuhay. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -370,7 +370,7 @@ Sinusunod niyang mabuti ang mga utos koʼt mga tuntunin. Ang taong ganito ay mat
 
 
 
-na hindi ginawa ng kanyang ama: Kumakain siya <i class="trans-change">ng mga pagkaing inihandog sa mga dios-diosan_ sa mga <i class="trans-change">sambahan sa_ bundok at sumisiping sa asawa ng iba. 
+na hindi ginawa ng kanyang ama: Kumakain siya ng mga pagkaing inihandog sa mga dios-diosan_ sa mga sambahan sa_ bundok at sumisiping sa asawa ng iba. 
 
 
 
@@ -469,7 +469,7 @@ at nagpapatubo sa mga may utang sa kanya. Maliligtas kaya siya? Hindi! Mamamatay
 
 
 
-"Kung ang <i class="trans-change">masamang_ taong ito ay may anak na lalaki at nakita niya ang lahat ng masamang ginawa ng kanyang ama pero hindi niya ito ginaya, 
+"Kung ang masamang_ taong ito ay may anak na lalaki at nakita niya ang lahat ng masamang ginawa ng kanyang ama pero hindi niya ito ginaya, 
 
 
 
@@ -502,7 +502,7 @@ at nagpapatubo sa mga may utang sa kanya. Maliligtas kaya siya? Hindi! Mamamatay
 
 
 
-hindi siya sumamba sa mga dios-diosan ng Israel o kumain ng mga pagkaing <i class="trans-change">inihandog sa mga dios-diosang ito_ sa mga sambahan sa bundok, hindi siya sumisiping sa hindi niya asawa, 
+hindi siya sumamba sa mga dios-diosan ng Israel o kumain ng mga pagkaing inihandog sa mga dios-diosang ito_ sa mga sambahan sa bundok, hindi siya sumisiping sa hindi niya asawa, 
 
 
 
@@ -733,7 +733,7 @@ Ang taong nagkasala ang siyang dapat mamatay. Hindi dapat parusahan ang anak dah
 
 
 
-Hindi na siya mananagot sa lahat ng nagawa niyang kasalanan at dahil sa ginawa niyang matuwid, <i class="trans-change">patuloy_ siyang mabubuhay. 
+Hindi na siya mananagot sa lahat ng nagawa niyang kasalanan at dahil sa ginawa niyang matuwid, patuloy_ siyang mabubuhay. 
 
 
 
@@ -766,7 +766,7 @@ Hindi na siya mananagot sa lahat ng nagawa niyang kasalanan at dahil sa ginawa n
 
 
 
-<i class="trans-change">Ako,_ ang Panginoong Dios ay hindi natutuwa kapag namamatay ang masama. Masaya ako kapag nagsisi siya at <i class="trans-change">patuloy na_ mabuhay. 
+Ako,_ ang Panginoong Dios ay hindi natutuwa kapag namamatay ang masama. Masaya ako kapag nagsisi siya at patuloy na_ mabuhay. 
 
 
 
@@ -799,7 +799,7 @@ Hindi na siya mananagot sa lahat ng nagawa niyang kasalanan at dahil sa ginawa n
 
 
 
-"Pero kung ang taong matuwid ay tumigil sa paggawa ng matuwid, nagpakasama at gumawa pa ng kasuklam-suklam gaya ng ginagawa ng mga taong masama, patuloy pa rin kaya siyang mabubuhay? <i class="trans-change">Siyempre hindi!_ Kalilimutan na ang mga ginawa niyang matuwid. At dahil sa pagtataksil niya sa akin at sa mga ginawa niyang kasalanan, mamamatay siya. 
+"Pero kung ang taong matuwid ay tumigil sa paggawa ng matuwid, nagpakasama at gumawa pa ng kasuklam-suklam gaya ng ginagawa ng mga taong masama, patuloy pa rin kaya siyang mabubuhay? Siyempre hindi!_ Kalilimutan na ang mga ginawa niyang matuwid. At dahil sa pagtataksil niya sa akin at sa mga ginawa niyang kasalanan, mamamatay siya. 
 
 
 
@@ -997,7 +997,7 @@ Ngunit baka sabihin ninyo mamamayan ng Israel, 'Hindi tama ang ginagawa ng Pangi
 
 
 
-"Kaya sinasabi ko sa inyo, mga mamamayan ng Israel, <i class="trans-change">ako,_ ang Panginoong Dios, ako ang hahatol sa bawat isa sa inyo ayon sa inyong mga ginawa. Kaya, magsisi na kayo! Talikuran na ninyo ang lahat ng inyong kasalanan para hindi kayo mapahamak. 
+"Kaya sinasabi ko sa inyo, mga mamamayan ng Israel, ako,_ ang Panginoong Dios, ako ang hahatol sa bawat isa sa inyo ayon sa inyong mga ginawa. Kaya, magsisi na kayo! Talikuran na ninyo ang lahat ng inyong kasalanan para hindi kayo mapahamak. 
 
 
 
@@ -1063,4 +1063,4 @@ Mga mamamayan ng Israel, bakit gusto ninyong mamatay? Tumigil na kayo sa paggawa
 
 
 
-Hindi ako natutuwa kapag may namamatay. Kaya magsisi na kayo para kayoʼy mabuhay! <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito."
+Hindi ako natutuwa kapag may namamatay. Kaya magsisi na kayo para kayoʼy mabuhay! Ako,_ ang Panginoong Dios, ang nagsasabi nito."

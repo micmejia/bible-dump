@@ -173,7 +173,7 @@ Sunud-sunod na sumalakay ang mga pulutong ng balang. Ang mga naiwan na tanim na 
 
 
 
-Kayong mga lasenggo, bumangon kayo at umiyak nang malakas! Sapagkat wala na kayong maiinom; wala nang <i class="trans-change">bunga ang mga ubas na gagawing_ alak. 
+Kayong mga lasenggo, bumangon kayo at umiyak nang malakas! Sapagkat wala na kayong maiinom; wala nang bunga ang mga ubas na gagawing_ alak. 
 
 
 
@@ -305,7 +305,7 @@ Umiyak kayo katulad ng isang dalaga na nakadamit ng sako na namatayan ng binatan
 
 
 
-<i class="trans-change">Sapagkat_ wala nang butil o inumin na maihahandog sa templo ng Panginoon, <i class="trans-change">kaya_ nalulungkot ang mga paring naglilingkod sa kanya. 
+Sapagkat_ wala nang butil o inumin na maihahandog sa templo ng Panginoon, kaya_ nalulungkot ang mga paring naglilingkod sa kanya. 
 
 
 
@@ -604,7 +604,7 @@ Namatay ang mga binhi sa tigang na lupa. At dahil natuyo ang mga butil, wala nan
 
 
 
-Umaatungal ang mga hayop <i class="trans-change">dahil sa gutom_. Gumagala ang mga baka na naghahanap ng makakain, pati ang mga tupa ay nahihirapan na rin. 
+Umaatungal ang mga hayop dahil sa gutom_. Gumagala ang mga baka na naghahanap ng makakain, pati ang mga tupa ay nahihirapan na rin. 
 
 
 
@@ -637,7 +637,7 @@ Umaatungal ang mga hayop <i class="trans-change">dahil sa gutom_. Gumagala ang m
 
 
 
-<i class="trans-change">Nanalangin si Joel:_ Panginoon, nananawagan po ako sa inyo, dahil natuyo na ang mga pastulan at ang lahat ng punongkahoy sa bukirin, na parang nilamon ng apoy. 
+Nanalangin si Joel:_ Panginoon, nananawagan po ako sa inyo, dahil natuyo na ang mga pastulan at ang lahat ng punongkahoy sa bukirin, na parang nilamon ng apoy. 
 
 
 

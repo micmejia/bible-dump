@@ -240,7 +240,7 @@ Pagkatapos, ang lahat ng tagapamahala ng bayan sa pinakamalapit na lugar kung sa
 
 At sasabihin nila, 'Hindi kami ang pumatay at hindi rin namin nakita kung sino ang pumatay.
 
-###### 8-9 O Panginoon, patawarin nʼyo po ang mga mamamayan ninyong Israelita na inyong iniligtas <i class="trans-change">sa Egipto_. Huwag ninyo kaming panagutin sa kamatayan ng inosenteng taong ito.' Kung ganito ang gagawin ninyo hindi na kayo pananagutin ng Panginoon sa pagpatay, dahil makikita niya na matuwid kayo.
+###### 8-9 O Panginoon, patawarin nʼyo po ang mga mamamayan ninyong Israelita na inyong iniligtas sa Egipto_. Huwag ninyo kaming panagutin sa kamatayan ng inosenteng taong ito.' Kung ganito ang gagawin ninyo hindi na kayo pananagutin ng Panginoon sa pagpatay, dahil makikita niya na matuwid kayo.
 
 ## Ang Pag-aasawa ng Bihag na Babae 
 
@@ -710,4 +710,4 @@ Pagkatapos, dapat siyang batuhin ng lahat ng naninirahan sa bayan hanggang sa ma
 
 
 
-hindi dapat umabot hanggang umaga ang bangkay niya roon. Dapat ninyo itong ilibing sa araw ding iyon, dahil ang sinumang ibinitin sa puno ay isinumpa ng Dios. Kung hindi ninyo ito ililibing <i class="trans-change">sa araw ding iyon,_ madudungisan nito ang lupaing ibinibigay sa inyo ng Panginoon na inyong Dios bilang mana ninyo.
+hindi dapat umabot hanggang umaga ang bangkay niya roon. Dapat ninyo itong ilibing sa araw ding iyon, dahil ang sinumang ibinitin sa puno ay isinumpa ng Dios. Kung hindi ninyo ito ililibing sa araw ding iyon,_ madudungisan nito ang lupaing ibinibigay sa inyo ng Panginoon na inyong Dios bilang mana ninyo.

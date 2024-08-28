@@ -207,7 +207,7 @@ Kaya bumaba tayo. Pag-iba-ibahin natin ang wika nila para hindi sila magkaintind
 
 
 
-Kaya pinangalat sila ng Panginoon sa buong mundo <i class="trans-change">dahil hindi na sila magkaintindihan_, at nahinto ang pagtatayo nila ng lungsod. 
+Kaya pinangalat sila ng Panginoon sa buong mundo dahil hindi na sila magkaintindihan_, at nahinto ang pagtatayo nila ng lungsod. 
 
 
 

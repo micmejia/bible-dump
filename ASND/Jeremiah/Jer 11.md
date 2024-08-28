@@ -106,7 +106,7 @@ Sinabi ng Panginoon kay Jeremias,
 
 
 
-Sabihin mo sa kanila na <i class="trans-change">ako,_ ang Panginoon, ang Dios ng Israel, ay nagsasabing isusumpa ko ang taong ayaw sumunod sa mga sinasabi sa kasunduang ito. 
+Sabihin mo sa kanila na ako,_ ang Panginoon, ang Dios ng Israel, ay nagsasabing isusumpa ko ang taong ayaw sumunod sa mga sinasabi sa kasunduang ito. 
 
 
 
@@ -469,7 +469,7 @@ Kaya hihingi na lang sila ng tulong sa mga dios-diosang pinaghahandugan nila ng 
 
 
 
-"Kaya <i class="trans-change">Jeremias_, huwag ka nang mananalangin para sa mga taong ito. Huwag ka nang magmakaawa sa akin para sa kanila dahil hindi ko sila sasagutin kung tatawag sila sa akin sa oras ng paghihirap nila. 
+"Kaya Jeremias_, huwag ka nang mananalangin para sa mga taong ito. Huwag ka nang magmakaawa sa akin para sa kanila dahil hindi ko sila sasagutin kung tatawag sila sa akin sa oras ng paghihirap nila. 
 
 
 
@@ -669,7 +669,7 @@ Tulad ako ng isang tupang dinadala sa katayan nang hindi ko nalalaman. Hindi ko 
 
 
 
-Pero <i class="trans-change">nanalangin ako_, "O Panginoong Makapangyarihan, matuwid po ang paghatol ninyo. Nalalaman po ninyo ang isip at puso ng tao. Ipakita nʼyo po sa akin ang paghihiganti nʼyo sa kanila, dahil ipinaubaya ko sa inyo ang usaping ito!" <sup class="versenum">21-22</sup>Nais ng mga taga-Anatot na patayin ako kung hindi ako titigil sa pagpapahayag ng mensahe ng Panginoon. Kaya ito ang sinasabi ng Panginoong Makapangyarihan, "Parurusahan ko sila. Mamamatay sa digmaan ang mga kabataan nilang lalaki at mamamatay sa gutom ang mga anak nila. 
+Pero nanalangin ako_, "O Panginoong Makapangyarihan, matuwid po ang paghatol ninyo. Nalalaman po ninyo ang isip at puso ng tao. Ipakita nʼyo po sa akin ang paghihiganti nʼyo sa kanila, dahil ipinaubaya ko sa inyo ang usaping ito!" 21-22Nais ng mga taga-Anatot na patayin ako kung hindi ako titigil sa pagpapahayag ng mensahe ng Panginoon. Kaya ito ang sinasabi ng Panginoong Makapangyarihan, "Parurusahan ko sila. Mamamatay sa digmaan ang mga kabataan nilang lalaki at mamamatay sa gutom ang mga anak nila. 
 
 
 

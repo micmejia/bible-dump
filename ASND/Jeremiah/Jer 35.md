@@ -370,7 +370,7 @@ Tumira kami sa mga tolda at sinunod namin ang lahat ng itinuro sa amin ni Jonada
 
 
 
-Pero nang sumalakay si Haring Nebucadnezar ng Babilonia sa bansang ito, natakot kami sa mga sundalo ng Babilonia at ng Aram, kaya nagpasya kaming tumakas at pumunta sa Jerusalem. Ito ang dahilan kaya nakatira kami dito sa Jerusalem." <sup class="versenum">12-13</sup>Sinabi pa ng Panginoong Makapangyarihan, ang Dios ng Israel, kay Jeremias, "Pumunta ka sa mga mamamayan ng Juda at Jerusalem, at sabihin ito: Bakit ayaw ninyong makinig sa mga itinuturo ko at ayaw ninyong sundin ang mga salita ko? 
+Pero nang sumalakay si Haring Nebucadnezar ng Babilonia sa bansang ito, natakot kami sa mga sundalo ng Babilonia at ng Aram, kaya nagpasya kaming tumakas at pumunta sa Jerusalem. Ito ang dahilan kaya nakatira kami dito sa Jerusalem." 12-13Sinabi pa ng Panginoong Makapangyarihan, ang Dios ng Israel, kay Jeremias, "Pumunta ka sa mga mamamayan ng Juda at Jerusalem, at sabihin ito: Bakit ayaw ninyong makinig sa mga itinuturo ko at ayaw ninyong sundin ang mga salita ko? 
 
 
 
@@ -502,7 +502,7 @@ Sumunod sa utos ni Jonadab ang mga angkan niyang anak ni Recab. Pero kayoʼy hin
 
 
 
-Kaya <i class="trans-change">ako,_ ang Panginoong Dios na Makapangyarihan, ang Dios ng Israel, ay nagsasabi: 'Makinig kayo! Kayong mga taga-Juda at taga-Jerusalem. Pasasapitin ko sa inyo ang kapahamakang sinabi ko laban sa inyo. Nakipag-usap ako sa inyo pero hindi kayo nakinig, tumawag ako sa inyo pero hindi kayo sumagot.' " 
+Kaya ako,_ ang Panginoong Dios na Makapangyarihan, ang Dios ng Israel, ay nagsasabi: 'Makinig kayo! Kayong mga taga-Juda at taga-Jerusalem. Pasasapitin ko sa inyo ang kapahamakang sinabi ko laban sa inyo. Nakipag-usap ako sa inyo pero hindi kayo nakinig, tumawag ako sa inyo pero hindi kayo sumagot.' " 
 
 
 
@@ -568,4 +568,4 @@ Pagkatapos, sinabi ni Jeremias sa mga Recabita ang sinabi ng Panginoong Makapang
 
 
 
-kaya nangako akong si Jonadab na anak ni Recab ay hindi mawawalan ng angkan na maglilingkod sa akin. <i class="trans-change">Ako,_ ang Panginoong Makapangyarihan, ang Dios ng Israel, ang nagsasabi nito."
+kaya nangako akong si Jonadab na anak ni Recab ay hindi mawawalan ng angkan na maglilingkod sa akin. Ako,_ ang Panginoong Makapangyarihan, ang Dios ng Israel, ang nagsasabi nito."

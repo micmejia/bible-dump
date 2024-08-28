@@ -469,7 +469,7 @@ Pero kung pagsasabihan nʼyo sila sa masasama nilang ginagawa, malalaman nilang 
 
 
 
-Sapagkat maliliwanagan ang lahat ng naabot ng liwanag <i class="trans-change">ng katotohanan_. Kaya nga sinasabi, "Gumising ka, ikaw na natutulog, bumangon ka mula sa mga patay at liliwanagan ka ni Cristo." 
+Sapagkat maliliwanagan ang lahat ng naabot ng liwanag ng katotohanan_. Kaya nga sinasabi, "Gumising ka, ikaw na natutulog, bumangon ka mula sa mga patay at liliwanagan ka ni Cristo." 
 
 
 
@@ -502,7 +502,7 @@ Sapagkat maliliwanagan ang lahat ng naabot ng liwanag <i class="trans-change">ng
 
 
 
-Kaya mag-ingat kayo kung paano kayo namamuhay. Huwag kayong mamuhay tulad ng mga mangmang kundi tulad ng marurunong <i class="trans-change">na nakakaalam ng kalooban ng Dios_. 
+Kaya mag-ingat kayo kung paano kayo namamuhay. Huwag kayong mamuhay tulad ng mga mangmang kundi tulad ng marurunong na nakakaalam ng kalooban ng Dios_. 
 
 
 
@@ -568,7 +568,7 @@ Huwag ninyong sayangin ang panahon nʼyo; gamitin nʼyo ito sa paggawa ng mabuti
 
 
 
-Huwag kayong magpakamangmang kundi alamin nʼyo kung ano ang kalooban ng Panginoon <i class="trans-change">na gawin ninyo_. 
+Huwag kayong magpakamangmang kundi alamin nʼyo kung ano ang kalooban ng Panginoon na gawin ninyo_. 
 
 
 
@@ -634,7 +634,7 @@ Huwag kayong maglalasing dahil nakakasira ito ng maayos na pamumuhay. Sa halip, 
 
 
 
-<i class="trans-change">Sa pagtitipon nʼyo,_ umawit kayo ng mga salmo, himno, at ng iba pang mga awiting espiritwal. Buong puso kayong umawit at magpuri sa Panginoon. 
+Sa pagtitipon nʼyo,_ umawit kayo ng mga salmo, himno, at ng iba pang mga awiting espiritwal. Buong puso kayong umawit at magpuri sa Panginoon. 
 
 
 
@@ -867,7 +867,7 @@ Mga lalaki, mahalin ninyo ang inyong asawa, tulad ng pagmamahal ni Cristo sa kan
 
 
 
-upang maging banal ito matapos linisin sa pamamagitan ng <i class="trans-change">bautismo sa_ tubig at ng salita <i class="trans-change">ng Dios_. 
+upang maging banal ito matapos linisin sa pamamagitan ng bautismo sa_ tubig at ng salita ng Dios_. 
 
 
 
@@ -900,7 +900,7 @@ upang maging banal ito matapos linisin sa pamamagitan ng <i class="trans-change"
 
 
 
-<i class="trans-change">Ginawa niya ito_ para maiharap niya sa kanyang sarili ang iglesya na maluwalhati, banal, walang kapintasan, at walang anumang bahid o dungis. 
+Ginawa niya ito_ para maiharap niya sa kanyang sarili ang iglesya na maluwalhati, banal, walang kapintasan, at walang anumang bahid o dungis. 
 
 
 
@@ -933,7 +933,7 @@ upang maging banal ito matapos linisin sa pamamagitan ng <i class="trans-change"
 
 
 
-Kaya dapat mahalin ng lalaki ang asawa niya tulad ng pagmamahal niya sa kanyang sarili. Sapagkat ang nagmamahal sa kanyang asawa ay nagmamahal sa kanyang sarili. <sup class="versenum">29-30</sup>Walang taong nasusuklam sa sariling katawan, sa halip, pinapakain niya ito at inaalagaan. Ganito rin ang ginagawa ni Cristo sa atin dahil bahagi tayo ng kanyang katawan <i class="trans-change">na tinatawag na iglesya_. 
+Kaya dapat mahalin ng lalaki ang asawa niya tulad ng pagmamahal niya sa kanyang sarili. Sapagkat ang nagmamahal sa kanyang asawa ay nagmamahal sa kanyang sarili. 29-30Walang taong nasusuklam sa sariling katawan, sa halip, pinapakain niya ito at inaalagaan. Ganito rin ang ginagawa ni Cristo sa atin dahil bahagi tayo ng kanyang katawan na tinatawag na iglesya_. 
 
 
 
@@ -966,7 +966,7 @@ Kaya dapat mahalin ng lalaki ang asawa niya tulad ng pagmamahal niya sa kanyang 
 
 
 
-<i class="trans-change">Sinasabi sa Kasulatan,_ "Iiwan ng lalaki ang kanyang amaʼt ina at makikipag-isa sa kanyang asawa, at silang dalawa ay magiging isa." 
+Sinasabi sa Kasulatan,_ "Iiwan ng lalaki ang kanyang amaʼt ina at makikipag-isa sa kanyang asawa, at silang dalawa ay magiging isa." 
 
 
 
@@ -999,7 +999,7 @@ Kaya dapat mahalin ng lalaki ang asawa niya tulad ng pagmamahal niya sa kanyang 
 
 
 
-Kamangha-mangha itong malalim na katotohanan na ipinahayag <i class="trans-change">ng Dios_. Isinasalarawan nito ang ugnayan ni Cristo at ng iglesya niya. 
+Kamangha-mangha itong malalim na katotohanan na ipinahayag ng Dios_. Isinasalarawan nito ang ugnayan ni Cristo at ng iglesya niya. 
 
 
 

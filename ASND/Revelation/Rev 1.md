@@ -39,7 +39,7 @@ next: ['Rev 2']
 
 
 
-<i class="trans-change">Ang sulat na ito ay_ tungkol sa mga bagay na inihayag ni Jesu-Cristo na mangyayari sa lalong madaling panahon. Ibinigay ito ng Dios kay Cristo upang maihayag naman sa mga naglilingkod sa Dios. Kaya inihayag ito ni Cristo sa lingkod niyang si Juan sa pamamagitan ng anghel na kanyang isinugo. Ako si Juan, 
+Ang sulat na ito ay_ tungkol sa mga bagay na inihayag ni Jesu-Cristo na mangyayari sa lalong madaling panahon. Ibinigay ito ng Dios kay Cristo upang maihayag naman sa mga naglilingkod sa Dios. Kaya inihayag ito ni Cristo sa lingkod niyang si Juan sa pamamagitan ng anghel na kanyang isinugo. Ako si Juan, 
 
 
 
@@ -109,7 +109,7 @@ Mapalad ang bumabasa at ang mga nakikinig sa sulat na ito kung tinutupad nila an
 
 ## Pagbati sa Pitong Iglesya
 
-###### 4-5 Mula kay Juan, para sa pitong iglesya sa <i class="trans-change">probinsya ng_ Asia. Sumainyo nawa ang pagpapala at kapayapaang galing sa Dios, sa Espiritu, at kay Jesu-Cristo. Kung tungkol sa Dios, siyaʼy hindi nagbabago ngayon, noon, at sa hinaharap. Kung tungkol sa pitong Espiritu, siyaʼy nasa harapan ng trono ng Dios. At kung tungkol kay Jesu-Cristo, siya ang mapagkakatiwalaang saksi. Siya ang unang nabuhay mula sa mga patay. At siya rin ang namumuno sa <i class="trans-change">lahat ng_ hari sa lupa. Iniibig niya tayo, at sa pamamagitan ng kanyang dugo iniligtas niya tayo sa ating mga kasalanan. 
+###### 4-5 Mula kay Juan, para sa pitong iglesya sa probinsya ng_ Asia. Sumainyo nawa ang pagpapala at kapayapaang galing sa Dios, sa Espiritu, at kay Jesu-Cristo. Kung tungkol sa Dios, siyaʼy hindi nagbabago ngayon, noon, at sa hinaharap. Kung tungkol sa pitong Espiritu, siyaʼy nasa harapan ng trono ng Dios. At kung tungkol kay Jesu-Cristo, siya ang mapagkakatiwalaang saksi. Siya ang unang nabuhay mula sa mga patay. At siya rin ang namumuno sa lahat ng_ hari sa lupa. Iniibig niya tayo, at sa pamamagitan ng kanyang dugo iniligtas niya tayo sa ating mga kasalanan. 
 
 
 
@@ -241,7 +241,7 @@ Ang Panginoong Dios ang makapangyarihan sa lahat. Kung ano siya noon, ganoon din
 
 
 
-Ako si Juan na kapatid ninyo at kasama sa paghihirap, paghahari, at pagtitiis dahil tayo ay nakay Jesus. Itinapon ako sa isla ng Patmos dahil sa <i class="trans-change">pangangaral ko ng_ salita ng Dios at ng katotohanang itinuro ni Jesus. 
+Ako si Juan na kapatid ninyo at kasama sa paghihirap, paghahari, at pagtitiis dahil tayo ay nakay Jesus. Itinapon ako sa isla ng Patmos dahil sa pangangaral ko ng_ salita ng Dios at ng katotohanang itinuro ni Jesus. 
 
 
 
@@ -274,7 +274,7 @@ Ako si Juan na kapatid ninyo at kasama sa paghihirap, paghahari, at pagtitiis da
 
 
 
-Noong araw ng Panginoon, pinuspos ako ng <i class="trans-change">Banal na_ Espiritu, at narinig ko ang malakas na tinig na parang tunog ng trumpeta mula sa aking likuran. 
+Noong araw ng Panginoon, pinuspos ako ng Banal na_ Espiritu, at narinig ko ang malakas na tinig na parang tunog ng trumpeta mula sa aking likuran. 
 
 
 

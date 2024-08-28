@@ -73,7 +73,7 @@ next: ['Isa 45']
 
 
 
-<i class="trans-change">Ako,_ ang Panginoon, na lumikha at tumutulong sa iyo. Huwag kang matakot, ikaw na aking lingkod at pinili ko. 
+Ako,_ ang Panginoon, na lumikha at tumutulong sa iyo. Huwag kang matakot, ikaw na aking lingkod at pinili ko. 
 
 
 
@@ -273,7 +273,7 @@ Sino ang kagaya ko? Sabihin niya sa harap ko kung ano ang mga nangyari mula nang
 
 
 
-Huwag kayong matakot o kabahan man. Hindi baʼt ipinaalam ko na sa inyo noong una pa ang layunin ko sa inyo? Kayo ang mga saksi ko. Mayroon pa bang ibang Dios maliban sa akin? Wala! Wala na akong alam na may iba pang Bato <i class="trans-change">na kanlungan_ maliban sa akin." 
+Huwag kayong matakot o kabahan man. Hindi baʼt ipinaalam ko na sa inyo noong una pa ang layunin ko sa inyo? Kayo ang mga saksi ko. Mayroon pa bang ibang Dios maliban sa akin? Wala! Wala na akong alam na may iba pang Bato na kanlungan_ maliban sa akin." 
 
 
 
@@ -702,7 +702,7 @@ Ang mga gumagawa nitoʼy parang kumain ng abo. Ang hangal niyang isip ang naglig
 
 
 
-<i class="trans-change">Sinabi pa ng Panginoon,_ "Israel, dahil sa ikaw ay aking lingkod, isipin mo ito: Ginawa kita para maglingkod sa akin. Hindi kita kalilimutan. 
+Sinabi pa ng Panginoon,_ "Israel, dahil sa ikaw ay aking lingkod, isipin mo ito: Ginawa kita para maglingkod sa akin. Hindi kita kalilimutan. 
 
 
 

@@ -105,7 +105,7 @@ at umaagos sa gitna ng pangunahing lansangan ng lungsod. Sa magkabilang tabi ng 
 
 
 
-Walang anumang isinumpa ng Dios na makikita <i class="trans-change">roon_. Naroon ang trono ng Dios at ng Tupa, at sasambahin siya ng mga lingkod niya. 
+Walang anumang isinumpa ng Dios na makikita roon_. Naroon ang trono ng Dios at ng Tupa, at sasambahin siya ng mga lingkod niya. 
 
 
 
@@ -239,7 +239,7 @@ At sinabi sa akin ng anghel, "Ang mga salitang ito ay totoo at maaasahan. Ang Pa
 
 
 
-<i class="trans-change">Sinabi ni Jesus,_ "Malapit na akong dumating! Mapalad ang mga sumusunod sa mga pahayag ng Dios sa aklat na ito." 
+Sinabi ni Jesus,_ "Malapit na akong dumating! Mapalad ang mga sumusunod sa mga pahayag ng Dios sa aklat na ito." 
 
 
 
@@ -305,7 +305,7 @@ Akong si Juan ang nakarinig at nakakita ng lahat ng ito. Matapos kong marinig at
 
 
 
-Pero sinabi niya sa akin, "Huwag! Huwag mo akong sambahin. Sapagkat katulad mo, alipin din ako <i class="trans-change">ng Dios_ at ng mga katulad mong propeta, at ng lahat ng sumusunod sa mga nakasulat sa aklat na ito. Ang Dios ang sambahin mo!" 
+Pero sinabi niya sa akin, "Huwag! Huwag mo akong sambahin. Sapagkat katulad mo, alipin din ako ng Dios_ at ng mga katulad mong propeta, at ng lahat ng sumusunod sa mga nakasulat sa aklat na ito. Ang Dios ang sambahin mo!" 
 
 
 
@@ -404,7 +404,7 @@ Ang masama ay magpapakasama pa, at ang marumi ay magpapakarumi pa. Pero ang matu
 
 
 
-<i class="trans-change">Sinabi ng Panginoong Jesus,_ "Makinig kayo! Malapit na akong dumating! Dala ko ang aking gantimpala para sa bawat isa ayon sa mga ginawa niya. 
+Sinabi ng Panginoong Jesus,_ "Makinig kayo! Malapit na akong dumating! Dala ko ang aking gantimpala para sa bawat isa ayon sa mga ginawa niya. 
 
 
 
@@ -437,7 +437,7 @@ Ang masama ay magpapakasama pa, at ang marumi ay magpapakarumi pa. Pero ang matu
 
 
 
-Ako ang Alpha at ang Omega, <i class="trans-change">na ang ibig sabihin,_ ang una at ang huli, o ang simula at ang katapusan <i class="trans-change">ng lahat_. 
+Ako ang Alpha at ang Omega, na ang ibig sabihin,_ ang una at ang huli, o ang simula at ang katapusan ng lahat_. 
 
 
 
@@ -569,7 +569,7 @@ Pero maiiwan sa labas ang masasamang tao, mga mangkukulam, mga imoral, mga mamam
 
 
 
-Nag-iimbita ang <i class="trans-change">Banal na_ Espiritu at ang babaeng ikakasal, "Halikayo!" Ang lahat ng nakarinig nito ay magsabi rin, "Halikayo!" Lumapit ang sinumang nauuhaw at gustong uminom ng tubig na nagbibigay-buhay. Wala itong bayad.
+Nag-iimbita ang Banal na_ Espiritu at ang babaeng ikakasal, "Halikayo!" Ang lahat ng nakarinig nito ay magsabi rin, "Halikayo!" Lumapit ang sinumang nauuhaw at gustong uminom ng tubig na nagbibigay-buhay. Wala itong bayad.
 
 ## Ang Pangwakas na Sinabi ni Juan 
 
@@ -604,7 +604,7 @@ Nag-iimbita ang <i class="trans-change">Banal na_ Espiritu at ang babaeng ikakas
 
 
 
-Ako, <i class="trans-change">si Juan_ ay nagbibigay babala sa lahat ng nakakarinig sa mga pahayag ng Dios sa aklat na ito. Ang sinumang magdagdag sa mga nilalaman ng aklat na ito, idaragdag ng Dios sa kanyang parusa ang mga salot na nakasulat dito. 
+Ako, si Juan_ ay nagbibigay babala sa lahat ng nakakarinig sa mga pahayag ng Dios sa aklat na ito. Ang sinumang magdagdag sa mga nilalaman ng aklat na ito, idaragdag ng Dios sa kanyang parusa ang mga salot na nakasulat dito. 
 
 
 
@@ -670,7 +670,7 @@ At ang sinumang magbawas sa mga nilalaman ng aklat na ito ay aalisan ng Dios ng 
 
 
 
-Si Jesus ang nagpapatunay sa lahat ng nakasulat dito. At sinabi pa niya, "Talagang malapit na akong dumating!" <i class="trans-change">Sinabi ko naman,_ "Sana nga po! Pumarito na po kayo, Panginoong Jesus." 
+Si Jesus ang nagpapatunay sa lahat ng nakasulat dito. At sinabi pa niya, "Talagang malapit na akong dumating!" Sinabi ko naman,_ "Sana nga po! Pumarito na po kayo, Panginoong Jesus." 
 
 
 

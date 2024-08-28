@@ -469,4 +469,4 @@ At malalaman nilang ako ang Panginoon kapag ang bangkay ng mga kababayan nila ay
 
 
 
-Parurusahan ko sila saan man sila tumira, at gagawin kong mapanglaw ang lupain nila mula sa disyerto <i class="trans-change">sa timog_ hanggang sa Dibla <i class="trans-change">sa hilaga_, at malalaman nila na ako ang Panginoon.' "
+Parurusahan ko sila saan man sila tumira, at gagawin kong mapanglaw ang lupain nila mula sa disyerto sa timog_ hanggang sa Dibla sa hilaga_, at malalaman nila na ako ang Panginoon.' "

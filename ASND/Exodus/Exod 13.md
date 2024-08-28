@@ -139,7 +139,7 @@ Pagkatapos, sinabi ni Moises sa mga tao, "Alalahanin ninyo ang araw na ito, ang 
 
 
 
-<i class="trans-change">Alalahanin ninyo_ ang araw na ito ng buwan ng Abib – ang araw na inilabas kayo <i class="trans-change">sa Egipto_. 
+Alalahanin ninyo_ ang araw na ito ng buwan ng Abib – ang araw na inilabas kayo sa Egipto_. 
 
 
 
@@ -205,7 +205,7 @@ Dapat nʼyo itong ipagdiwang kapag dinala na kayo ng Panginoon sa lupain ng mga 
 
 
 
-<i class="trans-change">Sa panahon ng pagdiriwang ninyo,_ kakain kayo ng tinapay na walang pampaalsa sa loob ng pitong araw, at sa ikapitong araw ninyo sisimulang idaos ang pista para sa Panginoon. 
+Sa panahon ng pagdiriwang ninyo,_ kakain kayo ng tinapay na walang pampaalsa sa loob ng pitong araw, at sa ikapitong araw ninyo sisimulang idaos ang pista para sa Panginoon. 
 
 
 
@@ -436,7 +436,7 @@ italaga nʼyo sa Panginoon ang inyong mga panganay na lalaki at pati na rin ang 
 
 
 
-Maaaring tubusin <i class="trans-change">sa Panginoon_ ang mga panganay ng mga asno sa pamamagitan ng pagpapalit nito ng tupa. Pero kung hindi ninyo ito tutubusin, kailangang patayin ang asno sa pamamagitan ng pagbali sa leeg nito. Maaari rin ninyong tubusin ang inyong mga panganay na lalaki. 
+Maaaring tubusin sa Panginoon_ ang mga panganay ng mga asno sa pamamagitan ng pagpapalit nito ng tupa. Pero kung hindi ninyo ito tutubusin, kailangang patayin ang asno sa pamamagitan ng pagbali sa leeg nito. Maaari rin ninyong tubusin ang inyong mga panganay na lalaki. 
 
 
 
@@ -601,7 +601,7 @@ Nang pinaalis na ng Faraon ang mga Israelita, hindi sila pinadaan ng Dios sa daa
 
 
 
-Kaya pinaliko sila ng Dios sa disyerto papunta sa Dagat na Pula. Armado ang mga Israelita <i class="trans-change">para sa labanan_ nang lisanin nila ang Egipto. 
+Kaya pinaliko sila ng Dios sa disyerto papunta sa Dagat na Pula. Armado ang mga Israelita para sa labanan_ nang lisanin nila ang Egipto. 
 
 
 

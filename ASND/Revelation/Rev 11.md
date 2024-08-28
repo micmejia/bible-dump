@@ -73,7 +73,7 @@ Pagkatapos nito, binigyan ako ng isang panukat na parang tungkod at sinabi sa ak
 
 
 
-Pero huwag mong sukatin ang labas ng templo dahil inilaan iyan para sa mga taong hindi kumikilala sa Dios. Sila ang mga taong sisira sa banal na lungsod <i class="trans-change">ng Jerusalem_ sa loob ng 42 buwan. 
+Pero huwag mong sukatin ang labas ng templo dahil inilaan iyan para sa mga taong hindi kumikilala sa Dios. Sila ang mga taong sisira sa banal na lungsod ng Jerusalem_ sa loob ng 42 buwan. 
 
 
 
@@ -106,7 +106,7 @@ Pero huwag mong sukatin ang labas ng templo dahil inilaan iyan para sa mga taong
 
 
 
-Sa mga araw na iyon isusugo ko roon ang dalawang saksi ko. Magsusuot sila ng damit na sako <i class="trans-change">bilang pahiwatig sa mga tao na kailangan na nilang magsisi sa mga kasalanan nila_. Ipapahayag nila ang mensahe ng Dios sa loob ng 1,260 araw." 
+Sa mga araw na iyon isusugo ko roon ang dalawang saksi ko. Magsusuot sila ng damit na sako bilang pahiwatig sa mga tao na kailangan na nilang magsisi sa mga kasalanan nila_. Ipapahayag nila ang mensahe ng Dios sa loob ng 1,260 araw." 
 
 
 

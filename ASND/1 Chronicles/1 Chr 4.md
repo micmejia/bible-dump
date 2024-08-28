@@ -40,7 +40,7 @@ next: ['1 Chr 5']
 
 
 
-Ito ang <i class="trans-change">iba pang_ lahi ni Juda: sina Perez, Hezron, Carmi, Hur at Shobal. 
+Ito ang iba pang_ lahi ni Juda: sina Perez, Hezron, Carmi, Hur at Shobal. 
 
 
 
@@ -238,7 +238,7 @@ Ang mga anak na lalaki nina Naara at Ashur ay sina Ahuzam, Hefer, Temeni at Haah
 
 
 
-Ang mga anak naman nina Hela <i class="trans-change">at Ashur_ ay sina Zeret, Zohar, Etnan, 
+Ang mga anak naman nina Hela at Ashur_ ay sina Zeret, Zohar, Etnan, 
 
 
 
@@ -535,7 +535,7 @@ Ito ang mga anak na lalaki ni Caleb na anak ni Jefune: sina Iru, Elah at Naam. A
 
 
 
-Ang mga anak na lalaki ni Jehalelel ay sina Zif, Zifa, Tiria at Asarel. <sup class="versenum">17-18</sup>Ang mga anak na lalaki ni Ezra ay sina Jeter, Mered, Efer at Jalon. Asawa ni Mered si Bitia na anak ng Faraon. Ang mga anak nila ay sina Miriam, Shamai at Ishba. Si Ishba ang ama ni Estemoa. May asawa rin si Mered na taga-Judea, at ang mga anak nila ay sina Jered na ama ni Gedor, Heber na ama ni Soco, at Jekutiel na ama ni Zanoa. 
+Ang mga anak na lalaki ni Jehalelel ay sina Zif, Zifa, Tiria at Asarel. 17-18Ang mga anak na lalaki ni Ezra ay sina Jeter, Mered, Efer at Jalon. Asawa ni Mered si Bitia na anak ng Faraon. Ang mga anak nila ay sina Miriam, Shamai at Ishba. Si Ishba ang ama ni Estemoa. May asawa rin si Mered na taga-Judea, at ang mga anak nila ay sina Jered na ama ni Gedor, Heber na ama ni Soco, at Jekutiel na ama ni Zanoa. 
 
 
 
@@ -634,7 +634,7 @@ Ang mga anak na lalaki ni Shimon ay sina Amnon, Rina, Ben Hanan at Tilon. Ang mg
 
 
 
-Ito ang mga angkan ni Shela na anak ni Juda: si Er (na ama ni Leca), at si Laada (na ama ni Maresha), at ang pamilya ng mga tagagawa ng <i class="trans-change">telang_ linen sa Bet Ashbea. 
+Ito ang mga angkan ni Shela na anak ni Juda: si Er (na ama ni Leca), at si Laada (na ama ni Maresha), at ang pamilya ng mga tagagawa ng telang_ linen sa Bet Ashbea. 
 
 
 
@@ -667,7 +667,7 @@ Ito ang mga angkan ni Shela na anak ni Juda: si Er (na ama ni Leca), at si Laada
 
 
 
-<i class="trans-change">Ito pa ang mga angkan Shela:_ si Jokim, ang mga mamamayan ng Cozeba, si Joash, at si Saraf na namuno sa Moab at sa Jashubi Lehem. (Ang talaang ito ay mula sa matagal nang dokumento.) 
+Ito pa ang mga angkan Shela:_ si Jokim, ang mga mamamayan ng Cozeba, si Joash, at si Saraf na namuno sa Moab at sa Jashubi Lehem. (Ang talaang ito ay mula sa matagal nang dokumento.) 
 
 
 
@@ -1032,7 +1032,7 @@ Tumira rin sila sa limang bayan sa paligid nila: sa Etam, Ayin, Rimon, Token at 
 
 
 
-pati na rin sa mga baryo sa paligid ng mga bayang ito hanggang sa Baalat. Ito ang mga lugar na tinirhan nila, at naitago nila ang mga talaan ng kanilang angkan. <i class="trans-change">Ito ang iba pang lahi ni Simeon:_ 
+pati na rin sa mga baryo sa paligid ng mga bayang ito hanggang sa Baalat. Ito ang mga lugar na tinirhan nila, at naitago nila ang mga talaan ng kanilang angkan. Ito ang iba pang lahi ni Simeon:_ 
 
 
 

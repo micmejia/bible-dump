@@ -141,7 +141,7 @@ Pagkatapos nilang mag-ayuno at manalangin, pinatungan nila sina Bernabe at Saulo
 
 
 
-Kaya pumunta sina Bernabe at Saulo sa Seleucia ayon sa sinabi ng Banal na Espiritu. Mula roon, naglayag sila patungo sa <i class="trans-change">isla ng_ Cyprus. 
+Kaya pumunta sina Bernabe at Saulo sa Seleucia ayon sa sinabi ng Banal na Espiritu. Mula roon, naglayag sila patungo sa isla ng_ Cyprus. 
 
 
 
@@ -174,7 +174,7 @@ Kaya pumunta sina Bernabe at Saulo sa Seleucia ayon sa sinabi ng Banal na Espiri
 
 
 
-Pagdating nila roon sa bayan ng Salamis, nangaral sila ng salita ng Dios sa mga sambahan ng mga Judio. Kasama rin nila si Juan <i class="trans-change">Marcos_ at tumutulong siya sa kanilang gawain. 
+Pagdating nila roon sa bayan ng Salamis, nangaral sila ng salita ng Dios sa mga sambahan ng mga Judio. Kasama rin nila si Juan Marcos_ at tumutulong siya sa kanilang gawain. 
 
 
 
@@ -207,7 +207,7 @@ Pagdating nila roon sa bayan ng Salamis, nangaral sila ng salita ng Dios sa mga 
 
 
 
-Inikot nila ang buong isla hanggang sa nakarating sila sa bayan ng Pafos. May nakita sila roon na isang Judiong salamangkero na nagkukunwaring propeta <i class="trans-change">ng Dios_. Ang pangalan niya ay Bar Jesus. 
+Inikot nila ang buong isla hanggang sa nakarating sila sa bayan ng Pafos. May nakita sila roon na isang Judiong salamangkero na nagkukunwaring propeta ng Dios_. Ang pangalan niya ay Bar Jesus. 
 
 
 
@@ -273,7 +273,7 @@ Kaibigan siya ni Sergius Paulus, ang matalinong gobernador ng islang iyon. Ipina
 
 
 
-Pero hinadlangan sila ng salamangkerong si Elimas. (Ito ang pangalan <i class="trans-change">ni Bar Jesus_ sa wikang Griego.) Ginawa niya ang lahat ng paraan para huwag sumampalataya ang gobernador <i class="trans-change">kay Jesus_. 
+Pero hinadlangan sila ng salamangkerong si Elimas. (Ito ang pangalan ni Bar Jesus_ sa wikang Griego.) Ginawa niya ang lahat ng paraan para huwag sumampalataya ang gobernador kay Jesus_. 
 
 
 
@@ -440,7 +440,7 @@ Nang makita ng gobernador ang nangyari kay Elimas, sumampalataya siya, at namang
 
 
 
-Umalis sina Pablo sa Pafos at bumiyahe papuntang Perga na sakop ng Pamfilia. Pagdating nila roon, iniwan sila ni Juan <i class="trans-change">Marcos_, at bumalik siya sa Jerusalem. 
+Umalis sina Pablo sa Pafos at bumiyahe papuntang Perga na sakop ng Pamfilia. Pagdating nila roon, iniwan sila ni Juan Marcos_, at bumalik siya sa Jerusalem. 
 
 
 
@@ -506,7 +506,7 @@ Sina Pablo ay tumuloy sa Antioc na sakop ng Pisidia. Pagdating ng Araw ng Pamama
 
 
 
-May nagbasa mula sa Kautusan <i class="trans-change">ni Moises_ at sa <i class="trans-change">mga isinulat ng_ mga propeta. Pagkatapos, nag-utos ang namumuno sa sambahan na sabihin ito kina Pablo: "Mga kapatid, kung may sasabihin kayo na makapagpapalakas-loob sa mga tao, sabihin ninyo." 
+May nagbasa mula sa Kautusan ni Moises_ at sa mga isinulat ng_ mga propeta. Pagkatapos, nag-utos ang namumuno sa sambahan na sabihin ito kina Pablo: "Mga kapatid, kung may sasabihin kayo na makapagpapalakas-loob sa mga tao, sabihin ninyo." 
 
 
 
@@ -539,7 +539,7 @@ May nagbasa mula sa Kautusan <i class="trans-change">ni Moises_ at sa <i class="
 
 
 
-Kaya tumayo si Pablo, at sinenyasan niya ang mga tao na makinig sa kanya. Sinabi niya, "<i class="trans-change">Mga kapwa kong_ mga Israelita, at kayong mga <i class="trans-change">hindi Israelita na_ sumasamba rin sa Dios, makinig kayo sa akin! 
+Kaya tumayo si Pablo, at sinenyasan niya ang mga tao na makinig sa kanya. Sinabi niya, "Mga kapwa kong_ mga Israelita, at kayong mga hindi Israelita na_ sumasamba rin sa Dios, makinig kayo sa akin! 
 
 
 
@@ -770,7 +770,7 @@ Nang alisin ng Dios si Saul, ipinalit niya si David bilang hari. Ito ang sinabi 
 
 
 
-<i class="trans-change">Sinabi pa ni Pablo sa mga tao,_ "Sa angkan ni David nagmula si Jesus, ang Tagapagligtas na ipinangako ng Dios sa Israel. 
+Sinabi pa ni Pablo sa mga tao,_ "Sa angkan ni David nagmula si Jesus, ang Tagapagligtas na ipinangako ng Dios sa Israel. 
 
 
 
@@ -869,7 +869,7 @@ At nang malapit nang matapos ni Juan ang kanyang gawain, sinabi niya sa mga tao,
 
 
 
-"Mga kapatid, na mula sa lahi ni Abraham at mga <i class="trans-change">hindi Judio na_ sumasamba rin sa Dios, tayo ang pinadalhan ng Dios ng Magandang Balita tungkol sa kaligtasan. 
+"Mga kapatid, na mula sa lahi ni Abraham at mga hindi Judio na_ sumasamba rin sa Dios, tayo ang pinadalhan ng Dios ng Magandang Balita tungkol sa kaligtasan. 
 
 
 
@@ -902,7 +902,7 @@ At nang malapit nang matapos ni Juan ang kanyang gawain, sinabi niya sa mga tao,
 
 
 
-Pero ang mga Judiong nakatira sa Jerusalem at ang kanilang mga pinuno ay hindi kumilala kay Jesus bilang Tagapagligtas. Hindi rin nila nauunawaan ang sinasabi ng mga propeta na binabasa nila tuwing Araw ng Pamamahinga. Pero sila na rin ang tumupad sa mga ipinahayag ng mga propeta nang hatulan nila <i class="trans-change">si Jesus ng kamatayan_. 
+Pero ang mga Judiong nakatira sa Jerusalem at ang kanilang mga pinuno ay hindi kumilala kay Jesus bilang Tagapagligtas. Hindi rin nila nauunawaan ang sinasabi ng mga propeta na binabasa nila tuwing Araw ng Pamamahinga. Pero sila na rin ang tumupad sa mga ipinahayag ng mga propeta nang hatulan nila si Jesus ng kamatayan_. 
 
 
 
@@ -1199,7 +1199,7 @@ At sinabi pa sa isa pang Salmo, 'Hindi ka papayag na mabulok ang katawan ng iyon
 
 
 
-<i class="trans-change">Hindi si David ang tinutukoy dito,_ dahil nang matapos ni David ang ipinapagawa sa kanya ng Dios na maglingkod sa kanyang henerasyon, namatay siya at inilibing sa tabi ng kanyang mga ninuno, at ang kanyang katawan ay nabulok. 
+Hindi si David ang tinutukoy dito,_ dahil nang matapos ni David ang ipinapagawa sa kanya ng Dios na maglingkod sa kanyang henerasyon, namatay siya at inilibing sa tabi ng kanyang mga ninuno, at ang kanyang katawan ay nabulok. 
 
 
 
@@ -1232,7 +1232,7 @@ At sinabi pa sa isa pang Salmo, 'Hindi ka papayag na mabulok ang katawan ng iyon
 
 
 
-Ngunit si Jesus na muling binuhay ng Dios ay hindi nabulok. <sup class="versenum">38-39</sup>Kaya nga mga kapatid, dapat ninyong malaman na sa pamamagitan ni Jesus ay ipinapahayag namin sa inyo ang balita na patatawarin tayo ng Dios sa ating mga kasalanan. Ang sinumang sumasampalataya kay Jesus ay itinuturing ng Dios na matuwid. Hindi ito magagawa sa pamamagitan ng pagsunod sa Kautusan ni Moises. 
+Ngunit si Jesus na muling binuhay ng Dios ay hindi nabulok. 38-39Kaya nga mga kapatid, dapat ninyong malaman na sa pamamagitan ni Jesus ay ipinapahayag namin sa inyo ang balita na patatawarin tayo ng Dios sa ating mga kasalanan. Ang sinumang sumasampalataya kay Jesus ay itinuturing ng Dios na matuwid. Hindi ito magagawa sa pamamagitan ng pagsunod sa Kautusan ni Moises. 
 
 
 
@@ -1298,7 +1298,7 @@ Kaya mag-ingat kayo para hindi mangyari sa inyo ang sinabi ng mga propeta,
 
 
 
-'Kayong mga nangungutya, mamamangha kayo <i class="trans-change">sa aking gagawin_. Mamamatay kayo dahil mayroon akong gagawin sa inyong kapanahunan, na hindi ninyo paniniwalaan kahit na may magsabi pa sa inyo.' " 
+'Kayong mga nangungutya, mamamangha kayo sa aking gagawin_. Mamamatay kayo dahil mayroon akong gagawin sa inyong kapanahunan, na hindi ninyo paniniwalaan kahit na may magsabi pa sa inyo.' " 
 
 
 
@@ -1399,7 +1399,7 @@ Pagkatapos ng pagtitipon, maraming Judio at mga taong lumipat sa relihiyon ng mg
 
 
 
-Nang sumunod na Araw ng Pamamahinga, halos lahat ng naninirahan sa Antioc ay nagtipon <i class="trans-change">sa sambahan ng mga Judio_ para makinig sa salita ng Panginoon. 
+Nang sumunod na Araw ng Pamamahinga, halos lahat ng naninirahan sa Antioc ay nagtipon sa sambahan ng mga Judio_ para makinig sa salita ng Panginoon. 
 
 
 
@@ -1432,7 +1432,7 @@ Nang sumunod na Araw ng Pamamahinga, halos lahat ng naninirahan sa Antioc ay nag
 
 
 
-Nang makita ng mga <i class="trans-change">pinuno ng mga_ Judio na maraming tao ang dumalo, nainggit sila. Sinalungat nila si Pablo at pinagsalitaan nang hindi maganda. 
+Nang makita ng mga pinuno ng mga_ Judio na maraming tao ang dumalo, nainggit sila. Sinalungat nila si Pablo at pinagsalitaan nang hindi maganda. 
 
 
 
@@ -1465,7 +1465,7 @@ Nang makita ng mga <i class="trans-change">pinuno ng mga_ Judio na maraming tao 
 
 
 
-Pero buong tapang silang sinagot nina Pablo at Bernabe, "Dapat sanaʼy sa inyo munang <i class="trans-change">mga Judio_ ipapangaral ang salita ng Dios. Ngunit dahil tinanggihan ninyo ito, nangangahulugan lang na hindi kayo karapat-dapat bigyan ng buhay na walang hanggan. Kaya mula ngayon, sa mga hindi Judio na kami mangangaral ng Magandang Balita. 
+Pero buong tapang silang sinagot nina Pablo at Bernabe, "Dapat sanaʼy sa inyo munang mga Judio_ ipapangaral ang salita ng Dios. Ngunit dahil tinanggihan ninyo ito, nangangahulugan lang na hindi kayo karapat-dapat bigyan ng buhay na walang hanggan. Kaya mula ngayon, sa mga hindi Judio na kami mangangaral ng Magandang Balita. 
 
 
 
@@ -1531,7 +1531,7 @@ Sapagkat ito ang utos ng Panginoon sa amin: 'Ginawa kitang ilaw sa mga hindi Jud
 
 
 
-Nang marinig iyon ng mga hindi Judio, natuwa sila at <i class="trans-change">kanilang sinabi_, "Kahanga-hanga ang salita ng Panginoon." At ang lahat ng itinalaga para sa buhay na walang hanggan ay naging mananampalataya. 
+Nang marinig iyon ng mga hindi Judio, natuwa sila at kanilang sinabi_, "Kahanga-hanga ang salita ng Panginoon." At ang lahat ng itinalaga para sa buhay na walang hanggan ay naging mananampalataya. 
 
 
 
@@ -1597,7 +1597,7 @@ Kaya kumalat ang salita ng Panginoon sa lugar na iyon.
 
 
 
-Pero sinulsulan ng mga <i class="trans-change">pinuno ng mga_ Judio ang mga namumuno sa lungsod, pati na rin ang mga relihiyoso at mga kilalang babae, na kalabanin sina Pablo. Kaya inusig nila sina Pablo at Bernabe, at pinalayas sa lugar na iyon. 
+Pero sinulsulan ng mga pinuno ng mga_ Judio ang mga namumuno sa lungsod, pati na rin ang mga relihiyoso at mga kilalang babae, na kalabanin sina Pablo. Kaya inusig nila sina Pablo at Bernabe, at pinalayas sa lugar na iyon. 
 
 
 
@@ -1663,4 +1663,4 @@ Ipinagpag nina Pablo at Bernabe ang alikabok sa kanilang mga paa bilang babala l
 
 
 
-Ang mga tagasunod <i class="trans-change">ni Jesus doon sa Antioc_ ay puspos ng Banal na Espiritu at masayang-masaya.
+Ang mga tagasunod ni Jesus doon sa Antioc_ ay puspos ng Banal na Espiritu at masayang-masaya.

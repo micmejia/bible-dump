@@ -40,7 +40,7 @@ next: ['Dan 7']
 
 
 
-Pumili si <i class="trans-change">Haring_ Darius ng 120 gobernador para mamahala sa kanyang buong kaharian. 
+Pumili si Haring_ Darius ng 120 gobernador para mamahala sa kanyang buong kaharian. 
 
 
 
@@ -271,7 +271,7 @@ Kaming mga administrador, mayor, gobernador, tagapayo, at mga komisyoner ng inyo
 
 
 
-Kaya Mahal na Hari, magpalabas na po kayo ng ganoong kautusan. <i class="trans-change">Ipasulat nʼyo po_ at lagdaan para hindi na mabago o mapawalang-bisa ayon sa kautusan ng <i class="trans-change">ating kahariang_ Media at Persia." 
+Kaya Mahal na Hari, magpalabas na po kayo ng ganoong kautusan. Ipasulat nʼyo po_ at lagdaan para hindi na mabago o mapawalang-bisa ayon sa kautusan ng ating kahariang_ Media at Persia." 
 
 
 
@@ -403,7 +403,7 @@ Pero sinusubaybayan pala siya ng mga opisyal na kumakalaban sa kanya, at nakita 
 
 
 
-Kaya pumunta sila sa hari at sinabi ang paglabag ni Daniel sa kautusan. Sinabi nila sa hari, "Mahal na Hari, hindi baʼt lumagda kayo ng kautusan na sa loob ng 30 araw ay walang mananalangin sa alin mang dios o tao maliban sa inyo? At ang sinumang lumabag sa kautusang iyon ay ihuhulog sa kulungan ng mga leon?" Sumagot ang hari, "Totoo iyon, at hindi na iyon mababago o mapapawalang-bisa ayon sa kautusan ng <i class="trans-change">ating kahariang_ Media at Persia." 
+Kaya pumunta sila sa hari at sinabi ang paglabag ni Daniel sa kautusan. Sinabi nila sa hari, "Mahal na Hari, hindi baʼt lumagda kayo ng kautusan na sa loob ng 30 araw ay walang mananalangin sa alin mang dios o tao maliban sa inyo? At ang sinumang lumabag sa kautusang iyon ay ihuhulog sa kulungan ng mga leon?" Sumagot ang hari, "Totoo iyon, at hindi na iyon mababago o mapapawalang-bisa ayon sa kautusan ng ating kahariang_ Media at Persia." 
 
 
 
@@ -502,7 +502,7 @@ Nang marinig ito ng hari, nabalisa siya ng sobra. Nais niyang tulungan si Daniel
 
 
 
-Nagtipong <i class="trans-change">muli_ ang mga opisyal ng hari at sinabi, "Mahal na Hari, alam nʼyo naman na ayon sa kautusan ng Media at Persia, kapag nagpalabas ang hari ng kautusan ay hindi na ito maaaring baguhin." 
+Nagtipong muli_ ang mga opisyal ng hari at sinabi, "Mahal na Hari, alam nʼyo naman na ayon sa kautusan ng Media at Persia, kapag nagpalabas ang hari ng kautusan ay hindi na ito maaaring baguhin." 
 
 
 
@@ -568,7 +568,7 @@ Kaya iniutos ng hari na hulihin si Daniel at ihulog sa kulungan ng mga leon. Sin
 
 
 
-Pagkatapos, tinakpan ng isang malaking bato ang kulungan <i class="trans-change">na pinaghulugan kay Daniel_, at tinatakan ng singsing ng hari at ng singsing ng mga marangal sa kaharian para walang sinumang magbubukas nito. 
+Pagkatapos, tinakpan ng isang malaking bato ang kulungan na pinaghulugan kay Daniel_, at tinatakan ng singsing ng hari at ng singsing ng mga marangal sa kaharian para walang sinumang magbubukas nito. 
 
 
 
@@ -766,7 +766,7 @@ Hindi ako sinaktan ng mga leon, dahil nagpadala ang Dios ng kanyang mga anghel p
 
 
 
-<i class="trans-change">Nang marinig iyon ng hari,_ nagalak siya at nag-utos na kunin si Daniel sa kulungan. Nang nakuha na si Daniel, wala silang nakitang kahit galos man lamang sa kanyang katawan, dahil nagtiwala siya sa Dios. 
+Nang marinig iyon ng hari,_ nagalak siya at nag-utos na kunin si Daniel sa kulungan. Nang nakuha na si Daniel, wala silang nakitang kahit galos man lamang sa kanyang katawan, dahil nagtiwala siya sa Dios. 
 
 
 
@@ -832,7 +832,7 @@ Nag-utos ang hari na ang lahat ng nagparatang kay Daniel ay hulihin at ihulog sa
 
 
 
-Pagkatapos ay sumulat si Haring Darius sa lahat ng tao sa ibaʼt ibang bansa, lahi at wika sa mundo. <i class="trans-change">Ito ang nakasulat:_ "Nawaʼy nasa mabuti kayong kalagayan. 
+Pagkatapos ay sumulat si Haring Darius sa lahat ng tao sa ibaʼt ibang bansa, lahi at wika sa mundo. Ito ang nakasulat:_ "Nawaʼy nasa mabuti kayong kalagayan. 
 
 
 

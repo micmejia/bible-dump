@@ -238,7 +238,7 @@ At nang malaman pa niyang si Mordecai ay isang Judio, naisip niyang hindi lang s
 
 
 
-Nang buwan ng Nisan, ang unang buwan <i class="trans-change">ng taon_, noong ika-12 taon ng paghahari ni Ahasuerus, nag-utos si Haman na magpalabunutan para malaman kung ano ang tamang araw at buwan para ipatupad ang plano niya. (Ang ginagamit nila sa palabunutan ay tinatawag nilang "pur".) At ang nabunot ay ang <i class="trans-change">ika-13 araw ng_ ika-12 buwan, ang buwan ng Adar. 
+Nang buwan ng Nisan, ang unang buwan ng taon_, noong ika-12 taon ng paghahari ni Ahasuerus, nag-utos si Haman na magpalabunutan para malaman kung ano ang tamang araw at buwan para ipatupad ang plano niya. (Ang ginagamit nila sa palabunutan ay tinatawag nilang "pur".) At ang nabunot ay ang ika-13 araw ng_ ika-12 buwan, ang buwan ng Adar. 
 
 
 
@@ -436,4 +436,4 @@ Kaya noong ika-13 araw ng unang buwan, ipinatawag ni Haman ang lahat ng kalihim 
 
 
 
-Ang sulat na iyon ay ipinadala sa lahat ng probinsya ng kaharian sa pamamagitan ng mga mensahero. Nakasulat dito ang utos na sa loob lang ng isang araw ay papatayin ang lahat ng Judio: bata, matanda, lalaki at babae, at sasamsamin ang lahat ng ari-arian nila. Gagawin ito sa ika-13 araw ng ika-12 buwan, ang buwan ng Adar. <sup class="versenum">14-15</sup>Sa utos ng hari, mabilis na nagsialis ang mga mensahero para ihatid sa bawat probinsya ang kopya ng kautusan ng hari, at ipinaalam ito sa mga tao para makapaghanda sila para sa araw ng pagpatay sa lahat ng Judio. At ang utos na itoʼy ipinaalam din sa lungsod ng Susa. Habang nakaupo at nag-iinuman ang hari at si Haman, nagkakagulo naman ang lungsod ng Susa dahil sa mga nangyayari.
+Ang sulat na iyon ay ipinadala sa lahat ng probinsya ng kaharian sa pamamagitan ng mga mensahero. Nakasulat dito ang utos na sa loob lang ng isang araw ay papatayin ang lahat ng Judio: bata, matanda, lalaki at babae, at sasamsamin ang lahat ng ari-arian nila. Gagawin ito sa ika-13 araw ng ika-12 buwan, ang buwan ng Adar. 14-15Sa utos ng hari, mabilis na nagsialis ang mga mensahero para ihatid sa bawat probinsya ang kopya ng kautusan ng hari, at ipinaalam ito sa mga tao para makapaghanda sila para sa araw ng pagpatay sa lahat ng Judio. At ang utos na itoʼy ipinaalam din sa lungsod ng Susa. Habang nakaupo at nag-iinuman ang hari at si Haman, nagkakagulo naman ang lungsod ng Susa dahil sa mga nangyayari.

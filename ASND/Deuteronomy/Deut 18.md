@@ -172,7 +172,7 @@ Ibigay din ninyo sa mga pari ang naunang bahagi ng inyong trigo, bagong katas ng
 
 
 
-Sapagkat sa lahat ng lahi <i class="trans-change">ng Israel_, sila at ang kanilang mga angkan ang pinili ng Panginoon na inyong Dios para maglingkod sa kanya magpakailanman. 
+Sapagkat sa lahat ng lahi ng Israel_, sila at ang kanilang mga angkan ang pinili ng Panginoon na inyong Dios para maglingkod sa kanya magpakailanman. 
 
 
 
@@ -506,7 +506,7 @@ Wala dapat kayong maging kapintasan sa harap ng Panginoon na inyong Dios.
 
 
 
-<i class="trans-change">Sa halip,_ magpapadala sa inyo ang Panginoon na inyong Dios ng isang propeta na mula sa inyo at kadugo ninyo tulad ko. At kailangang makinig kayo sa kanya. 
+Sa halip,_ magpapadala sa inyo ang Panginoon na inyong Dios ng isang propeta na mula sa inyo at kadugo ninyo tulad ko. At kailangang makinig kayo sa kanya. 
 
 
 

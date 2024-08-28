@@ -337,7 +337,7 @@ At ang dugo nitoʼy iwiwisik niya sa paligid ng altar, at ang natitirang dugo ay
 
 
 
-Ihahandog din ng pari ang isa pang handog na sinusunog ayon sa paraan ng paghahandog nito. Ganito ang paraan na gagawin ng pari para matubos ang tao sa kanyang kasalanan at patatawarin siya <i class="trans-change">ng Panginoon_. 
+Ihahandog din ng pari ang isa pang handog na sinusunog ayon sa paraan ng paghahandog nito. Ganito ang paraan na gagawin ng pari para matubos ang tao sa kanyang kasalanan at patatawarin siya ng Panginoon_. 
 
 
 
@@ -370,7 +370,7 @@ Ihahandog din ng pari ang isa pang handog na sinusunog ayon sa paraan ng paghaha
 
 
 
-Pero kung hindi niya kayang maghandog ng dalawang kalapati o dalawang ibon na batu-bato, maghahandog na lang siya ng dalawang kilo ng magandang klaseng harina. Huwag niyang lalagyan ng langis at insenso dahil itoʼy handog sa paglilinis <i class="trans-change">at hindi handog ng pagpaparangal_. 
+Pero kung hindi niya kayang maghandog ng dalawang kalapati o dalawang ibon na batu-bato, maghahandog na lang siya ng dalawang kilo ng magandang klaseng harina. Huwag niyang lalagyan ng langis at insenso dahil itoʼy handog sa paglilinis at hindi handog ng pagpaparangal_. 
 
 
 
@@ -436,7 +436,7 @@ Dadalhin niya ito sa pari at babawasan ng pari ng isang dakot bilang pag-alaala 
 
 
 
-Sa pamamagitan ng gagawing ito ng pari, matubos ang tao sa anumang kasalanang nagawa niya at patatawarin siya <i class="trans-change">ng Panginoon_. Ang natirang handog na harina ay sa pari na, gaya ng ginagawa sa handog ng pagpaparangal.
+Sa pamamagitan ng gagawing ito ng pari, matubos ang tao sa anumang kasalanang nagawa niya at patatawarin siya ng Panginoon_. Ang natirang handog na harina ay sa pari na, gaya ng ginagawa sa handog ng pagpaparangal.
 
 ## Ang Handog na Pambayad ng Kasalanan 
 
@@ -504,7 +504,7 @@ Ibinigay din ng Panginoon ang utos na ito kay Moises:
 
 
 
-Kapag ang taoʼy lumabag <i class="trans-change">sa utos ng Panginoon_ dahil sa hindi niya ibinigay <i class="trans-change">ang anumang nauukol_ para sa Panginoon, kahit hindi niya sinasadya, kailangang maghandog siya ng lalaking tupa na walang kapintasan bilang kabayaran sa kanyang kasalanan. Maaari rin niyang bayaran ng pilak na katumbas ng halaga ng lalaking tupa ayon sa bigat ng pilak sa timbangang ginagamit ng mga pari. Itoʼy handog na pambayad ng kasalanan. 
+Kapag ang taoʼy lumabag sa utos ng Panginoon_ dahil sa hindi niya ibinigay ang anumang nauukol_ para sa Panginoon, kahit hindi niya sinasadya, kailangang maghandog siya ng lalaking tupa na walang kapintasan bilang kabayaran sa kanyang kasalanan. Maaari rin niyang bayaran ng pilak na katumbas ng halaga ng lalaking tupa ayon sa bigat ng pilak sa timbangang ginagamit ng mga pari. Itoʼy handog na pambayad ng kasalanan. 
 
 
 
@@ -537,7 +537,7 @@ Kapag ang taoʼy lumabag <i class="trans-change">sa utos ng Panginoon_ dahil sa 
 
 
 
-Kinakailangan niyang bayaran ang hindi niya naibigay na nauukol sa Panginoon, at dadagdagan pa niya ng 20 porsiyento ng halagang hindi niya naibigay. Ibibigay niyang lahat ito sa paring maghahandog ng tupa bilang handog na pambayad ng kanyang kasalanan at patatawarin siya <i class="trans-change">ng Panginoon_. 
+Kinakailangan niyang bayaran ang hindi niya naibigay na nauukol sa Panginoon, at dadagdagan pa niya ng 20 porsiyento ng halagang hindi niya naibigay. Ibibigay niyang lahat ito sa paring maghahandog ng tupa bilang handog na pambayad ng kanyang kasalanan at patatawarin siya ng Panginoon_. 
 
 
 
@@ -570,4 +570,4 @@ Kinakailangan niyang bayaran ang hindi niya naibigay na nauukol sa Panginoon, at
 
 
 
-Kung may tao namang lumabag sa utos ng Panginoon nang hindi niya alam, siyaʼy nagkasala pa rin at may pananagutan <i class="trans-change">sa Panginoon_. <sup class="versenum">18-19</sup><i class="trans-change">Kung alam na niyang nagkasala siya,_ kinakailangang magdala siya sa pari ng lalaking tupa na walang kapintasan na ihahandog niya bilang pambayad sa kanyang kasalanan. Maaari rin niyang bayaran ng pilak na katumbas ng halaga ng lalaking tupa ayon sa bigat ng pilak sa timbangan na ginagamit ng mga pari. Sa pamamagitan ng gagawing ito ng pari, matutubos ang tao sa kanyang kasalanang hindi sinasadya at patatawarin siya <i class="trans-change">ng Panginoon_.
+Kung may tao namang lumabag sa utos ng Panginoon nang hindi niya alam, siyaʼy nagkasala pa rin at may pananagutan sa Panginoon_. 18-19Kung alam na niyang nagkasala siya,_ kinakailangang magdala siya sa pari ng lalaking tupa na walang kapintasan na ihahandog niya bilang pambayad sa kanyang kasalanan. Maaari rin niyang bayaran ng pilak na katumbas ng halaga ng lalaking tupa ayon sa bigat ng pilak sa timbangan na ginagamit ng mga pari. Sa pamamagitan ng gagawing ito ng pari, matutubos ang tao sa kanyang kasalanang hindi sinasadya at patatawarin siya ng Panginoon_.

@@ -106,7 +106,7 @@ Kung magtatanong sila kung saan sila pupunta, sabihin mo na ito ang sinabi ko: '
 
 
 
-"<i class="trans-change">Ako,_ ang Panginoon, ay nagsasabing ipapadala ko sa kanila ang apat na uri ng mamumuksa: Mamamatay sila sa digmaan, kakaladkarin ng mga aso ang mga bangkay nila, tutukain sila ng mga ibon at ang natitira sa mga bangkay nilaʼy uubusin ng mababangis na hayop. 
+"Ako,_ ang Panginoon, ay nagsasabing ipapadala ko sa kanila ang apat na uri ng mamumuksa: Mamamatay sila sa digmaan, kakaladkarin ng mga aso ang mga bangkay nila, tutukain sila ng mga ibon at ang natitira sa mga bangkay nilaʼy uubusin ng mababangis na hayop. 
 
 
 
@@ -172,7 +172,7 @@ Kamumuhian sila ng lahat ng bansa sa mundo dahil sa ginawa ni Manase na anak ni 
 
 
 
-"<i class="trans-change">O mga taga-Jerusalem,_ sino kaya ang mahahabag sa inyo? Sino kaya ang malulungkot para sa inyo? At sino kaya ang magtatanong tungkol sa inyong kalagayan? 
+"O mga taga-Jerusalem,_ sino kaya ang mahahabag sa inyo? Sino kaya ang malulungkot para sa inyo? At sino kaya ang magtatanong tungkol sa inyong kalagayan? 
 
 
 
@@ -205,7 +205,7 @@ Kamumuhian sila ng lahat ng bansa sa mundo dahil sa ginawa ni Manase na anak ni 
 
 
 
-Itinakwil nʼyo ako; palagi nʼyo akong tinatalikuran. Kaya <i class="trans-change">ako,_ ang Panginoon, ay nagsasabing iuunat ko na ang mga kamay ko para lipulin kayo. Sawa na akong kahabagan kayo. 
+Itinakwil nʼyo ako; palagi nʼyo akong tinatalikuran. Kaya ako,_ ang Panginoon, ay nagsasabing iuunat ko na ang mga kamay ko para lipulin kayo. Sawa na akong kahabagan kayo. 
 
 
 
@@ -271,7 +271,7 @@ Parurusahan ko kayo na parang ipa na tinatahip sa pintuan ng lungsod. Lilipulin 
 
 
 
-Pararamihin ko ang inyong mga biyuda na <i class="trans-change">parang_ mas marami pa kaysa sa buhangin sa tabing-dagat. Sa katanghaliang tapat, ipapadala ko ang lilipol sa mga ina ng mga kabataan ninyong lalaki. Biglang darating sa inyo ang pagdadalamhati at takot. 
+Pararamihin ko ang inyong mga biyuda na parang_ mas marami pa kaysa sa buhangin sa tabing-dagat. Sa katanghaliang tapat, ipapadala ko ang lilipol sa mga ina ng mga kabataan ninyong lalaki. Biglang darating sa inyo ang pagdadalamhati at takot. 
 
 
 
@@ -304,7 +304,7 @@ Pararamihin ko ang inyong mga biyuda na <i class="trans-change">parang_ mas mara
 
 
 
-May inang mawawalan ng pitong anak na lalaki. Hihimatayin siya at mahihirapang huminga. Ang kanyang <i class="trans-change">mga anak ay parang_ araw na lumubog nang napakaaga pa. Mapapahiya siya <i class="trans-change">dahil wala na siyang anak_. At ang mga matitirang buhay ay ipapapatay ko rin sa mga kaaway. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito." ## Dumaing si Jeremias 
+May inang mawawalan ng pitong anak na lalaki. Hihimatayin siya at mahihirapang huminga. Ang kanyang mga anak ay parang_ araw na lumubog nang napakaaga pa. Mapapahiya siya dahil wala na siyang anak_. At ang mga matitirang buhay ay ipapapatay ko rin sa mga kaaway. Ako,_ ang Panginoon, ang nagsasabi nito." ## Dumaing si Jeremias 
 
 
 
@@ -370,7 +370,7 @@ Kaawa-awa ako! Sanaʼy hindi na ako isinilang ng aking ina! Palagi akong kinakal
 
 
 
-Sinabi <i class="trans-change">sa akin_ ng Panginoon, "Ang totoo, magiging mabuti ang lahat para sa iyo. Makikiusap sa iyo ang mga kaaway mo na ipanalangin mo sila sa panahon ng paghihirap at pagdadalamhati nila. 
+Sinabi sa akin_ ng Panginoon, "Ang totoo, magiging mabuti ang lahat para sa iyo. Makikiusap sa iyo ang mga kaaway mo na ipanalangin mo sila sa panahon ng paghihirap at pagdadalamhati nila. 
 
 
 
@@ -403,7 +403,7 @@ Sinabi <i class="trans-change">sa akin_ ng Panginoon, "Ang totoo, magiging mabut
 
 
 
-"<i class="trans-change">Kung papaanong_ walang makakabali ng piraso ng bakal o tanso, <i class="trans-change">wala ring makakatalo sa mga kaaway_ na galing sa hilaga. 
+"Kung papaanong_ walang makakabali ng piraso ng bakal o tanso, wala ring makakatalo sa mga kaaway_ na galing sa hilaga. 
 
 
 
@@ -502,7 +502,7 @@ Ipapaalipin ko kayo sa mga kaaway nʼyo sa lupaing hindi nʼyo alam, at ipadaram
 
 
 
-<i class="trans-change">Sinabi ni Jeremias,_ "Panginoon, alam nʼyo po ang lahat! Alalahanin at tulungan nʼyo po ako. Ipaghiganti nʼyo ako sa mga umuusig sa akin. <i class="trans-change">Alam ko na_ hindi kayo madaling magalit, kaya huwag nʼyo po akong hayaang mamatay. Alalahanin nʼyo po ang mga paghihirap ko dahil sa inyo. 
+Sinabi ni Jeremias,_ "Panginoon, alam nʼyo po ang lahat! Alalahanin at tulungan nʼyo po ako. Ipaghiganti nʼyo ako sa mga umuusig sa akin. Alam ko na_ hindi kayo madaling magalit, kaya huwag nʼyo po akong hayaang mamatay. Alalahanin nʼyo po ang mga paghihirap ko dahil sa inyo. 
 
 
 
@@ -634,7 +634,7 @@ Bakit hindi po natatapos ang paghihirap ko? Bakit hindi na gumagaling ang mga su
 
 
 
-Kaya sinabi <i class="trans-change">sa akin_ ng Panginoon, "Kung magsisisi ka, pababalikin kita sa piling ko para patuloy kang makapaglingkod sa akin. Kung magsasalita ka ng mga makabuluhang bagay at iiwasan ang mga bagay na walang kabuluhan, muli kitang gagawing tagapagsalita ko. Kinakailangang sila ang lumapit sa iyo at hindi ikaw ang lalapit sa kanila. 
+Kaya sinabi sa akin_ ng Panginoon, "Kung magsisisi ka, pababalikin kita sa piling ko para patuloy kang makapaglingkod sa akin. Kung magsasalita ka ng mga makabuluhang bagay at iiwasan ang mga bagay na walang kabuluhan, muli kitang gagawing tagapagsalita ko. Kinakailangang sila ang lumapit sa iyo at hindi ikaw ang lalapit sa kanila. 
 
 
 

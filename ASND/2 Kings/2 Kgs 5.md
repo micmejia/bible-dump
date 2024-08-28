@@ -106,7 +106,7 @@ Noong lumusob ang mga sundalo ng Aram sa Israel, may nabihag silang dalagita na 
 
 
 
-Isang araw, sinabi ng dalagita sa kanyang amo, "Kung makikipagkita lang ang amo ko <i class="trans-change">na si Naaman_ sa propeta na nasa Samaria, pagagalingin siya nito sa sakit niya sa balat." 
+Isang araw, sinabi ng dalagita sa kanyang amo, "Kung makikipagkita lang ang amo ko na si Naaman_ sa propeta na nasa Samaria, pagagalingin siya nito sa sakit niya sa balat." 
 
 
 
@@ -172,7 +172,7 @@ Pumunta si Naaman sa hari at sinabi niya ang sinabi ng dalagita na mula sa Israe
 
 
 
-Sinabi ng hari ng Aram, "Lumakad ka, dalhin mo ang sulat ko sa hari ng Israel." Kaya umalis si Naaman na may dalang <i class="trans-change">regalo_ na 350 kilong pilak, 70 kilong ginto at sampung pirasong damit. 
+Sinabi ng hari ng Aram, "Lumakad ka, dalhin mo ang sulat ko sa hari ng Israel." Kaya umalis si Naaman na may dalang regalo_ na 350 kilong pilak, 70 kilong ginto at sampung pirasong damit. 
 
 
 
@@ -337,7 +337,7 @@ Kaya umalis si Naaman sakay ng mga kabayo at karwahe niya at huminto sa pintuan 
 
 
 
-Nagsugo si Eliseo ng mensahero para sabihin kay Naaman na pumunta siya sa <i class="trans-change">Ilog ng_ Jordan, lumubog doon ng pitong beses at gagaling siya. 
+Nagsugo si Eliseo ng mensahero para sabihin kay Naaman na pumunta siya sa Ilog ng_ Jordan, lumubog doon ng pitong beses at gagaling siya. 
 
 
 
@@ -370,7 +370,7 @@ Nagsugo si Eliseo ng mensahero para sabihin kay Naaman na pumunta siya sa <i cla
 
 
 
-Pero nagalit si Naaman at umalis <i class="trans-change">nang padabog_. Sinabi niya, "Akala ko, talagang lalabas siya at haharap sa akin. Iniisip ko na tatawagin niya ang Panginoon niyang Dios, at ikukumpas ang kanyang kamay sa ibabaw ng aking balat at pagagalingin ako. 
+Pero nagalit si Naaman at umalis nang padabog_. Sinabi niya, "Akala ko, talagang lalabas siya at haharap sa akin. Iniisip ko na tatawagin niya ang Panginoon niyang Dios, at ikukumpas ang kanyang kamay sa ibabaw ng aking balat at pagagalingin ako. 
 
 
 
@@ -469,7 +469,7 @@ Pero lumapit ang mga utusan niya at sinabi, "Amo, kung may ipinapagawa po sa iny
 
 
 
-Kaya pumunta si Naaman sa <i class="trans-change">Ilog ng_ Jordan at lumubog ng pitong beses, ayon sa sinabi ng lingkod ng Dios. Gumaling nga ang kanyang sakit at kuminis ang kanyang balat gaya ng balat ng sanggol. 
+Kaya pumunta si Naaman sa Ilog ng_ Jordan at lumubog ng pitong beses, ayon sa sinabi ng lingkod ng Dios. Gumaling nga ang kanyang sakit at kuminis ang kanyang balat gaya ng balat ng sanggol. 
 
 
 
@@ -667,7 +667,7 @@ Sinabi ni Eliseo, "Umalis ka nang payapa." Pero hindi pa nakakalayo si Naaman,
 
 
 
-sinabi ni Gehazi <i class="trans-change">sa sarili niya_, "Hindi dapat hinayaan ng aking amo na paalisin ang Arameong si Naaman nang hindi tinatanggap ang regalong dala niya. Sumusumpa ako sa buhay na Panginoon na hahabulin ko siya at kukuha ako ng kahit ano sa kanya." 
+sinabi ni Gehazi sa sarili niya_, "Hindi dapat hinayaan ng aking amo na paalisin ang Arameong si Naaman nang hindi tinatanggap ang regalong dala niya. Sumusumpa ako sa buhay na Panginoon na hahabulin ko siya at kukuha ako ng kahit ano sa kanya." 
 
 
 

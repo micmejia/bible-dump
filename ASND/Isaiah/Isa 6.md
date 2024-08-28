@@ -337,7 +337,7 @@ Sinabi niya, "Umalis ka at sabihin mo sa mga mamamayan ng Israel, 'Makinig man k
 
 
 
-<i class="trans-change">Sinabi pa niya,_ "Patigasin mo ang puso ng mga taong ito. Hayaan mo silang magbingi-bingihan at magbulag-bulagan, dahil baka makarinig sila, makakita, at makaunawa. Dahil kung makaunawa sila, magbabalik-loob sila sa akin, at gagaling." 
+Sinabi pa niya,_ "Patigasin mo ang puso ng mga taong ito. Hayaan mo silang magbingi-bingihan at magbulag-bulagan, dahil baka makarinig sila, makakita, at makaunawa. Dahil kung makaunawa sila, magbabalik-loob sila sa akin, at gagaling." 
 
 
 
@@ -370,7 +370,7 @@ Sinabi niya, "Umalis ka at sabihin mo sa mga mamamayan ng Israel, 'Makinig man k
 
 
 
-Nagtanong ako, "Panginoon, gaano katagal?" Sumagot siya, "Hanggang sa mawasak ang mga lungsod <i class="trans-change">ng Israel_ at wala nang manirahan dito. Hanggang sa wala nang tumira sa mga bahay at ang lupain ay maging tiwangwang at wasak. 
+Nagtanong ako, "Panginoon, gaano katagal?" Sumagot siya, "Hanggang sa mawasak ang mga lungsod ng Israel_ at wala nang manirahan dito. Hanggang sa wala nang tumira sa mga bahay at ang lupain ay maging tiwangwang at wasak. 
 
 
 

@@ -172,7 +172,7 @@ Ang mayaman ay maraming kaibigan, ngunit ang mahirap namaʼy iniiwanan ng kaibig
 
 
 
-Ang saksing sinungaling ay parurusahan, at ang nagsisinungaling ay hindi makakatakas <i class="trans-change">sa kaparusahan_. 
+Ang saksing sinungaling ay parurusahan, at ang nagsisinungaling ay hindi makakatakas sa kaparusahan_. 
 
 
 
@@ -436,7 +436,7 @@ Ang galit ng hari ay parang atungal ng leon, ngunit ang kanyang kabutihan ay tul
 
 
 
-Ang anak na hangal ay nagdudulot ng kapahamakan sa kanyang ama. Ang bungangerang asawa ay <i class="trans-change">nakakainis_ tulad ng tulo sa bubungan. 
+Ang anak na hangal ay nagdudulot ng kapahamakan sa kanyang ama. Ang bungangerang asawa ay nakakainis_ tulad ng tulo sa bubungan. 
 
 
 
@@ -535,7 +535,7 @@ Kung ikaw ay tamad at tulog lang nang tulog, magugutom ka.
 
 
 
-Mabubuhay nang matagal ang taong sumusunod sa utos <i class="trans-change">ng Dios_, ngunit ang hindi sumusunod ay mamamatay. 
+Mabubuhay nang matagal ang taong sumusunod sa utos ng Dios_, ngunit ang hindi sumusunod ay mamamatay. 
 
 
 

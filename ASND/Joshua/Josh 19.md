@@ -238,7 +238,7 @@ Bet Lebaot at Sharuhen – 13 bayan kasama ang mga baryo sa paligid nito.
 
 
 
-<i class="trans-change">Dagdag pa rito ang_ Ayin, Rimon, Eter at Ashan – 4 na bayan, kasama ang lahat ng mga baryo sa paligid nito, 
+Dagdag pa rito ang_ Ayin, Rimon, Eter at Ashan – 4 na bayan, kasama ang lahat ng mga baryo sa paligid nito, 
 
 
 
@@ -471,7 +471,7 @@ Mula roon, papunta ito sa silangan sa Gat Hefer, sa Et Kazin, sa Rimon at paliko
 
 
 
-Ang hangganan <i class="trans-change">ng Zebulun_ sa hilaga ay dumaraan sa Hanaton at nagtatapos sa Lambak ng Ifta El: 
+Ang hangganan ng Zebulun_ sa hilaga ay dumaraan sa Hanaton at nagtatapos sa Lambak ng Ifta El: 
 
 
 
@@ -504,7 +504,7 @@ Ang hangganan <i class="trans-change">ng Zebulun_ sa hilaga ay dumaraan sa Hanat
 
 
 
-Lahat ay 12 bayan, kasama ang mga baryo sa paligid nito. <i class="trans-change">Kasama rin ang mga bayan ng_ Katat, Nahalal, Shimron, Idala at Betlehem. 
+Lahat ay 12 bayan, kasama ang mga baryo sa paligid nito. Kasama rin ang mga bayan ng_ Katat, Nahalal, Shimron, Idala at Betlehem. 
 
 
 
@@ -737,7 +737,7 @@ Remet, En Ganim, En Hada at Bet Pazez.
 
 
 
-Ang hangganan ng lupain ay umaabot sa Tabor, Shahazuma at sa Bet Shemesh at nagtatapos sa <i class="trans-change">Ilog ng_ Jordan – 16 na bayan lahat, kasama ang mga baryo sa paligid nito. 
+Ang hangganan ng lupain ay umaabot sa Tabor, Shahazuma at sa Bet Shemesh at nagtatapos sa Ilog ng_ Jordan – 16 na bayan lahat, kasama ang mga baryo sa paligid nito. 
 
 
 
@@ -970,7 +970,7 @@ Ebron, Rehob, Hammon, Kana at hanggang sa Malaking Sidon.
 
 
 
-Pagkatapos, liliko ito patungong Rama at sa napapaderang bayan ng Tyre, at papuntang Hosa, at nagtatapos sa Dagat <i class="trans-change">ng Mediteraneo_. Ang iba pang mga bayan na sakop nila ay ang Mehebel, Aczib, 
+Pagkatapos, liliko ito patungong Rama at sa napapaderang bayan ng Tyre, at papuntang Hosa, at nagtatapos sa Dagat ng Mediteraneo_. Ang iba pang mga bayan na sakop nila ay ang Mehebel, Aczib, 
 
 
 
@@ -1104,7 +1104,7 @@ Ang ikaanim na pinartihan ng lupa ay ang mga sambahayan ng lahi ni Naftali.
 
 
 
-Ang hangganan ng lupain nila ay nagsimula sa Helef at sa puno ng terebinto sa Zaananim papuntang Adami Nekeb at Jabneel hanggang sa Lakum, at nagtapos sa <i class="trans-change">Ilog ng_ Jordan. 
+Ang hangganan ng lupain nila ay nagsimula sa Helef at sa puno ng terebinto sa Zaananim papuntang Adami Nekeb at Jabneel hanggang sa Lakum, at nagtapos sa Ilog ng_ Jordan. 
 
 
 
@@ -1137,7 +1137,7 @@ Ang hangganan ng lupain nila ay nagsimula sa Helef at sa puno ng terebinto sa Za
 
 
 
-Mula roon, paliko ito sa kanluran papuntang Aznot Tabor, pagkatapos sa Hukok, hanggang sa hangganan ng Zebulun sa timog, sa hangganan ng Asher sa kanluran at sa <i class="trans-change">Ilog ng_ Jordan sa silangan. 
+Mula roon, paliko ito sa kanluran papuntang Aznot Tabor, pagkatapos sa Hukok, hanggang sa hangganan ng Zebulun sa timog, sa hangganan ng Asher sa kanluran at sa Ilog ng_ Jordan sa silangan. 
 
 
 

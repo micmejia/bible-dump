@@ -370,7 +370,7 @@ Pero kalooban ng Panginoon na saktan siya at pahirapan. Kahit na ginawa siyang h
 
 
 
-Kapag nakita niya ang bunga ng kanyang paghihirap, matutuwa siya. <i class="trans-change">Sinabi ng Panginoon,_ "Sa pamamagitan ng karunungan ng aking matuwid na lingkod ay marami ang ituturing niyang matuwid, magdurusa siya para sa kanilang mga kasalanan. 
+Kapag nakita niya ang bunga ng kanyang paghihirap, matutuwa siya. Sinabi ng Panginoon,_ "Sa pamamagitan ng karunungan ng aking matuwid na lingkod ay marami ang ituturing niyang matuwid, magdurusa siya para sa kanilang mga kasalanan. 
 
 
 

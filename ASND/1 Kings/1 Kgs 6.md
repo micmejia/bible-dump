@@ -370,7 +370,7 @@ At ang mga kwarto sa mga gilid at likod ng templo, na ang taas ay pitoʼt kalaha
 
 
 
-Sinabi ng Panginoon kay Solomon, <sup class="versenum">12-13</sup>"Kung tutuparin mo ang aking mga tuntunin at mga utos, tutuparin ko rin sa pamamagitan mo ang ipinangako ko kay David na iyong ama. Maninirahan ako kasama ng mga Israelita sa templong ito na iyong ipinatayo at hindi ko sila itatakwil." 
+Sinabi ng Panginoon kay Solomon, 12-13"Kung tutuparin mo ang aking mga tuntunin at mga utos, tutuparin ko rin sa pamamagitan mo ang ipinangako ko kay David na iyong ama. Maninirahan ako kasama ng mga Israelita sa templong ito na iyong ipinatayo at hindi ko sila itatakwil." 
 
 
 
@@ -537,7 +537,7 @@ Ang haba naman ng kwarto sa labas ng Pinakabanal na Lugar ay 60 talampakan.
 
 
 
-Ang buong dingding sa loob ng templo ay natatakpan ng <i class="trans-change">tablang_ sedro kaya hindi makita ang mga bato sa dingding. May mga inukit din ditong mga bulaklak at mga gumagapang na halaman. 
+Ang buong dingding sa loob ng templo ay natatakpan ng tablang_ sedro kaya hindi makita ang mga bato sa dingding. May mga inukit din ditong mga bulaklak at mga gumagapang na halaman. 
 
 
 
@@ -603,7 +603,7 @@ Inihanda ni Solomon ang Pinakabanal na Lugar sa loob ng templo para mailagay ang
 
 
 
-Ang kwartong ito ay kwadrado; ang haba, luwang at taas ay pare-parehong 30 talampakan. Ang mga dingding at kisame nito ay pinatakpan ni Solomon ng purong ginto at ganoon din ang altar na gawa sa <i class="trans-change">kahoy ng_ sedro. 
+Ang kwartong ito ay kwadrado; ang haba, luwang at taas ay pare-parehong 30 talampakan. Ang mga dingding at kisame nito ay pinatakpan ni Solomon ng purong ginto at ganoon din ang altar na gawa sa kahoy ng_ sedro. 
 
 
 
@@ -702,7 +702,7 @@ Kaya natatakpan lahat ng ginto ang loob ng templo, pati na ang altar na nasa loo
 
 
 
-Nagpalagay si Solomon sa loob ng Pinakabanal na Lugar ng dalawang kerubin na gawa sa kahoy na olibo, na ang bawat isa ay 15 talampakan ang taas. <sup class="versenum">24-26</sup>Ang dalawang kerubing ito ay magkasinglaki at magkasinghugis. Ang bawat isa ay may dalawang pakpak, at bawat pakpak ay may habang pitoʼt kalahating talampakan. Kaya ang haba mula sa dulo ng isang pakpak hanggang sa dulo ng isa pang pakpak ay 15 talampakan. 
+Nagpalagay si Solomon sa loob ng Pinakabanal na Lugar ng dalawang kerubin na gawa sa kahoy na olibo, na ang bawat isa ay 15 talampakan ang taas. 24-26Ang dalawang kerubing ito ay magkasinglaki at magkasinghugis. Ang bawat isa ay may dalawang pakpak, at bawat pakpak ay may habang pitoʼt kalahating talampakan. Kaya ang haba mula sa dulo ng isang pakpak hanggang sa dulo ng isa pang pakpak ay 15 talampakan. 
 
 
 
@@ -1065,7 +1065,7 @@ Ipinagawa rin niya ang loob ng bakuran ng templo. Napapaligiran ito ng pader na 
 
 
 
-Inilagay ang pundasyon ng templo ng Panginoon nang <i class="trans-change">ikalawang buwan, na siyang_ buwan ng Ziv, noong ikaapat na taon <i class="trans-change">ng paghahari ni Solomon_. 
+Inilagay ang pundasyon ng templo ng Panginoon nang ikalawang buwan, na siyang_ buwan ng Ziv, noong ikaapat na taon ng paghahari ni Solomon_. 
 
 
 
@@ -1098,4 +1098,4 @@ Inilagay ang pundasyon ng templo ng Panginoon nang <i class="trans-change">ikala
 
 
 
-Natapos ang templo nang ikawalong buwan, na siyang buwan ng Bul, noong ika-11 taon <i class="trans-change">ng paghahari ni Solomon_. Pitong taon ang pagpapatayo ng templo, at sinunod ang mga detalye nito ayon sa plano.
+Natapos ang templo nang ikawalong buwan, na siyang buwan ng Bul, noong ika-11 taon ng paghahari ni Solomon_. Pitong taon ang pagpapatayo ng templo, at sinunod ang mga detalye nito ayon sa plano.

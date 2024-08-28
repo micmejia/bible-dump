@@ -7,7 +7,7 @@ next: ['Judg 17']
 # Judges 16
 
 ***
-###### 1-2 Isang araw, pumunta si Samson sa Gaza <i class="trans-change">na isang lungsod ng Filisteo_. May nakilala siya roon na isang babaeng bayaran, at sumiping siya sa babaeng iyon. Nalaman ng mga taga-Gaza na naroon si Samson, kaya pinalibutan nila ang lungsod at binantayan ang pintuan ng lungsod buong gabi. Hindi sila lumusob nang gabing iyon. Nagpasya sila na papatayin nila si Samson nang madaling-araw. 
+###### 1-2 Isang araw, pumunta si Samson sa Gaza na isang lungsod ng Filisteo_. May nakilala siya roon na isang babaeng bayaran, at sumiping siya sa babaeng iyon. Nalaman ng mga taga-Gaza na naroon si Samson, kaya pinalibutan nila ang lungsod at binantayan ang pintuan ng lungsod buong gabi. Hindi sila lumusob nang gabing iyon. Nagpasya sila na papatayin nila si Samson nang madaling-araw. 
 
 
 
@@ -704,7 +704,7 @@ Pero unti-unting tumubo ulit ang kanyang buhok.
 
 
 
-Muling nagkatipon ang mga pinuno ng mga Filisteo para magdiwang at mag-alay ng maraming handog sa kanilang dios na si Dagon. Sa pagdiriwang nila ay nag-aawitan sila: "Pinagtagumpay tayo ng dios natin laban sa kalaban nating si Samson." <sup class="versenum">24-25</sup>Labis ang kanilang kasiyahan at nagsigawan sila, "Dalhin dito si Samson para magbigay aliw sa atin!" Kaya pinalabas si Samson sa bilangguan. At nang makita ng mga tao si Samson, pinuri nila ang kanilang dios. Sinabi nila, "Pinagtagumpay tayo ng dios natin sa ating kalaban na nangwasak sa lupain natin at pumatay ng marami sa atin." Pinatayo nila si Samson sa gitna ng dalawang haligi at ginawang katatawanan. 
+Muling nagkatipon ang mga pinuno ng mga Filisteo para magdiwang at mag-alay ng maraming handog sa kanilang dios na si Dagon. Sa pagdiriwang nila ay nag-aawitan sila: "Pinagtagumpay tayo ng dios natin laban sa kalaban nating si Samson." 24-25Labis ang kanilang kasiyahan at nagsigawan sila, "Dalhin dito si Samson para magbigay aliw sa atin!" Kaya pinalabas si Samson sa bilangguan. At nang makita ng mga tao si Samson, pinuri nila ang kanilang dios. Sinabi nila, "Pinagtagumpay tayo ng dios natin sa ating kalaban na nangwasak sa lupain natin at pumatay ng marami sa atin." Pinatayo nila si Samson sa gitna ng dalawang haligi at ginawang katatawanan. 
 
 
 

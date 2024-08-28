@@ -139,7 +139,7 @@ Nakita nʼyo mismo ang lahat ng ginawa ng Panginoon na inyong Dios sa mga bansan
 
 
 
-Pinaghati-hati ko na sa inyo bilang mana ng mga lahi nʼyo ang lahat ng lupain ng mga bansang nasakop natin, mula sa <i class="trans-change">Ilog ng_ Jordan <i class="trans-change">sa silangan_ hanggang sa Dagat ng Mediteraneo <i class="trans-change">sa kanluran_, pati na rin ang mga lupain ng mga bansang hindi pa natin nasasakop. 
+Pinaghati-hati ko na sa inyo bilang mana ng mga lahi nʼyo ang lahat ng lupain ng mga bansang nasakop natin, mula sa Ilog ng_ Jordan sa silangan_ hanggang sa Dagat ng Mediteraneo sa kanluran_, pati na rin ang mga lupain ng mga bansang hindi pa natin nasasakop. 
 
 
 
@@ -535,4 +535,4 @@ Pero ngayon na tinupad ng Panginoon na inyong Dios ang lahat ng mabubuting bagay
 
 
 
-<i class="trans-change">Oo, mangyayari ito sa inyo_ kung lalabag kayo sa kasunduan ng Panginoon na inyong Dios at kung sasamba kayo at maglilingkod sa ibang mga dios. Talagang ipaparanas niya sa inyo ang kanyang galit at malilipol agad kayo sa magandang lupain na ibinigay niya sa inyo."
+Oo, mangyayari ito sa inyo_ kung lalabag kayo sa kasunduan ng Panginoon na inyong Dios at kung sasamba kayo at maglilingkod sa ibang mga dios. Talagang ipaparanas niya sa inyo ang kanyang galit at malilipol agad kayo sa magandang lupain na ibinigay niya sa inyo."

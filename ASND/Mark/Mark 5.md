@@ -73,7 +73,7 @@ Dumating sila sa kabila ng lawa, sa lupain ng mga Geraseno.
 
 
 
-Pagbaba ni Jesus sa bangka, sinalubong siya ng isang lalaking galing sa <i class="trans-change">kwebang_ libingan. Ang lalaking itoʼy sinasaniban ng masamang espiritu, 
+Pagbaba ni Jesus sa bangka, sinalubong siya ng isang lalaking galing sa kwebang_ libingan. Ang lalaking itoʼy sinasaniban ng masamang espiritu, 
 
 
 
@@ -172,7 +172,7 @@ Ilang beses na siyang kinadenahan sa kamay at paa, pero nalalagot niya ang mga i
 
 
 
-Nagsisisigaw siya araw at gabi sa mga libingan at kaburulan, at sinusugatan ang sarili ng <i class="trans-change">matatalas na_ bato. 
+Nagsisisigaw siya araw at gabi sa mga libingan at kaburulan, at sinusugatan ang sarili ng matatalas na_ bato. 
 
 
 
@@ -603,7 +603,7 @@ Pero hindi pumayag si Jesus. Sa halip, sinabi niya sa lalaki, "Umuwi ka sa pamil
 
 
 
-Kaya umalis ang lalaki at ipinamalita sa Decapolis, ang ginawa sa kanya ni Jesus. At namangha ang lahat <i class="trans-change">ng nakarinig tungkol sa nangyari_.
+Kaya umalis ang lalaki at ipinamalita sa Decapolis, ang ginawa sa kanya ni Jesus. At namangha ang lahat ng nakarinig tungkol sa nangyari_.
 
 ## Ang Anak ni Jairus at ang Babaeng Dinudugo 
 
@@ -803,7 +803,7 @@ May isang babae roon na 12 taon nang dinudugo.
 
 
 
-Maraming hirap ang dinanas niya sa kabila ng pagpapagamot sa ibaʼt ibang doktor. Naubos na niya ang lahat <i class="trans-change">ng ari-arian niya sa pagpapagamot_, pero sa halip na gumaling ay lalo pang lumala ang kanyang sakit. 
+Maraming hirap ang dinanas niya sa kabila ng pagpapagamot sa ibaʼt ibang doktor. Naubos na niya ang lahat ng ari-arian niya sa pagpapagamot_, pero sa halip na gumaling ay lalo pang lumala ang kanyang sakit. 
 
 
 
@@ -902,7 +902,7 @@ Naisip kasi ng babae, "Mahipo ko lang ang damit niya ay gagaling ako."
 
 
 
-<i class="trans-change">Nang mahipo nga niya ang damit ni Jesus,_ biglang tumigil ang kanyang pagdurugo at naramdaman niyang magaling na siya. 
+Nang mahipo nga niya ang damit ni Jesus,_ biglang tumigil ang kanyang pagdurugo at naramdaman niyang magaling na siya. 
 
 
 
@@ -1166,7 +1166,7 @@ Pero hindi pinansin ni Jesus ang sinabi nila. Sa halip, sinabi niya kay Jairus, 
 
 
 
-Hindi pinayagan ni Jesus ang mga tao na sumama sa kanya <i class="trans-change">sa bahay ni Jairus_. Sa halip, si Pedro at ang magkapatid na sina Santiago at Juan lang ang isinama niya. 
+Hindi pinayagan ni Jesus ang mga tao na sumama sa kanya sa bahay ni Jairus_. Sa halip, si Pedro at ang magkapatid na sina Santiago at Juan lang ang isinama niya. 
 
 
 

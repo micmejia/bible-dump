@@ -370,7 +370,7 @@ Sinabi ni Jesus, "Paupuin ninyo ang mga tao." Umupo naman ang mga tao dahil mada
 
 
 
-Kinuha ni Jesus ang tinapay at nagpasalamat <i class="trans-change">sa Dios_. Pagkatapos, ipinamahagi ito sa mga tao. Ganoon din ang ginawa niya sa isda, at nabusog ang lahat. 
+Kinuha ni Jesus ang tinapay at nagpasalamat sa Dios_. Pagkatapos, ipinamahagi ito sa mga tao. Ganoon din ang ginawa niya sa isda, at nabusog ang lahat. 
 
 
 
@@ -603,7 +603,7 @@ Madilim na at wala pa rin si Jesus, kaya sumakay na sila sa isang bangka at tuma
 
 
 
-At <i class="trans-change">habang tumatawid sila_, nagsimulang lumakas ang hangin at lumaki ang mga alon. 
+At habang tumatawid sila_, nagsimulang lumakas ang hangin at lumaki ang mga alon. 
 
 
 
@@ -704,7 +704,7 @@ Pero sinabi sa kanila ni Jesus, "Ako ito! Huwag kayong matakot."
 
 Kaya pinasakay nila si Jesus sa bangka, at nakarating agad sila sa kanilang pupuntahan.
 
-## Hinanap ng mga Tao si Jesus <sup class="versenum">22-23</sup>Kinabukasan, naroon pa ang mga tao sa kabila ng lawa, kung saan sila kumain ng tinapay matapos magpasalamat ng Panginoon. Alam nilang iisa lang ang bangka roon nang gabing iyon, at iyon ang sinakyan ng mga tagasunod ni Jesus. Alam din nilang hindi kasamang umalis si Jesus ng mga tagasunod niya. Samantala, may dumating na mga bangka galing sa Tiberias at dumaong malapit sa kinaroroonan ng mga tao. 
+## Hinanap ng mga Tao si Jesus 22-23Kinabukasan, naroon pa ang mga tao sa kabila ng lawa, kung saan sila kumain ng tinapay matapos magpasalamat ng Panginoon. Alam nilang iisa lang ang bangka roon nang gabing iyon, at iyon ang sinakyan ng mga tagasunod ni Jesus. Alam din nilang hindi kasamang umalis si Jesus ng mga tagasunod niya. Samantala, may dumating na mga bangka galing sa Tiberias at dumaong malapit sa kinaroroonan ng mga tao. 
 
 
 
@@ -838,7 +838,7 @@ Sumagot si Jesus sa kanila, "Ang totoo, hinahanap nʼyo ako, hindi dahil sa mga 
 
 
 
-Huwag kayong magtrabaho para lang sa pagkaing nasisira, kundi para sa pagkaing hindi nasisira at nakakapagbigay ng buhay na walang hanggan. <i class="trans-change">Ako na_ Anak ng Tao ang siyang magbibigay sa inyo ng pagkaing ito, dahil ako ang binigyan ng Ama ng kapangyarihang magbigay nito." 
+Huwag kayong magtrabaho para lang sa pagkaing nasisira, kundi para sa pagkaing hindi nasisira at nakakapagbigay ng buhay na walang hanggan. Ako na_ Anak ng Tao ang siyang magbibigay sa inyo ng pagkaing ito, dahil ako ang binigyan ng Ama ng kapangyarihang magbigay nito." 
 
 
 
@@ -1036,7 +1036,7 @@ Sinabi ni Jesus sa kanila, "Sinasabi ko sa inyo ang totoo, hindi si Moises ang n
 
 
 
-Sapagkat ang tinapay na ibinibigay ng Dios ay walang iba kundi siya na bumaba mula sa langit at nagbibigay-buhay sa <i class="trans-change">mga tao sa_ mundo." 
+Sapagkat ang tinapay na ibinibigay ng Dios ay walang iba kundi siya na bumaba mula sa langit at nagbibigay-buhay sa mga tao sa_ mundo." 
 
 
 
@@ -1135,7 +1135,7 @@ Sinabi ni Jesus sa kanila, "Ako ang tinapay na nagbibigay-buhay. Ang sinumang lu
 
 
 
-"Ngunit gaya ng sinabi ko sa inyo, ayaw ninyong manampalataya sa akin kahit nakita na ninyo <i class="trans-change">ang mga himalang ginawa ko_. 
+"Ngunit gaya ng sinabi ko sa inyo, ayaw ninyong manampalataya sa akin kahit nakita na ninyo ang mga himalang ginawa ko_. 
 
 
 
@@ -1498,7 +1498,7 @@ Hindi ito nangangahulugang may nakakita na sa Ama. Ako lang na nagmula sa Dios A
 
 
 
-"Sinasabi ko sa inyo ang totoo, ang sumasampalataya <i class="trans-change">sa akin_ ay may buhay na walang hanggan, 
+"Sinasabi ko sa inyo ang totoo, ang sumasampalataya sa akin_ ay may buhay na walang hanggan, 
 
 
 
@@ -1630,7 +1630,7 @@ Pero narito ang tinapay na mula sa langit, at hindi na mamamatay ang sinumang ku
 
 
 
-Ako ang tinapay na mula sa langit. Mabubuhay magpakailanman ang sinumang kumain ng tinapay na ito. Sapagkat ang ibibigay kong tinapay para magkaroon ng buhay <i class="trans-change">na walang hanggan ang mga tao_ sa mundo ay walang iba kundi ang aking katawan." 
+Ako ang tinapay na mula sa langit. Mabubuhay magpakailanman ang sinumang kumain ng tinapay na ito. Sapagkat ang ibibigay kong tinapay para magkaroon ng buhay na walang hanggan ang mga tao_ sa mundo ay walang iba kundi ang aking katawan." 
 
 
 
@@ -1663,7 +1663,7 @@ Ako ang tinapay na mula sa langit. Mabubuhay magpakailanman ang sinumang kumain 
 
 
 
-Nagtalo-talo ang mga Judiong <i class="trans-change">nakikinig kay Jesus_. Sinabi nila, "Paano maibibigay sa atin ng taong ito ang kanyang katawan para kainin?" 
+Nagtalo-talo ang mga Judiong nakikinig kay Jesus_. Sinabi nila, "Paano maibibigay sa atin ng taong ito ang kanyang katawan para kainin?" 
 
 
 
@@ -1696,7 +1696,7 @@ Nagtalo-talo ang mga Judiong <i class="trans-change">nakikinig kay Jesus_. Sinab
 
 
 
-Sinabi ni Jesus sa kanila, "Sinasabi ko sa inyo ang totoo, malibang kainin ninyo ang katawan ng Anak ng Tao at inumin ang kanyang dugo, hindi kayo magkakaroon ng buhay <i class="trans-change">na walang hanggan_. 
+Sinabi ni Jesus sa kanila, "Sinasabi ko sa inyo ang totoo, malibang kainin ninyo ang katawan ng Anak ng Tao at inumin ang kanyang dugo, hindi kayo magkakaroon ng buhay na walang hanggan_. 
 
 
 
@@ -1828,7 +1828,7 @@ Ang kumakain ng aking katawan at umiinom ng aking dugo ay nananatili sa akin, at
 
 
 
-Ang <i class="trans-change">Dios_ Amang nagsugo sa akin ang pinagmumulan ng buhay, at dahil sa kanya ay nabubuhay ako. Ganoon din naman, ang sinumang kumain sa akin ay mabubuhay dahil sa akin. 
+Ang Dios_ Amang nagsugo sa akin ang pinagmumulan ng buhay, at dahil sa kanya ay nabubuhay ako. Ganoon din naman, ang sinumang kumain sa akin ay mabubuhay dahil sa akin. 
 
 
 
@@ -1995,7 +1995,7 @@ Kahit na walang nagsabi sa kanya, alam ni Jesus na nagbubulung-bulungan ang mga 
 
 
 
-Paano pa kaya kung makita ninyo <i class="trans-change">ako na_ Anak ng Tao na pumapaitaas pabalik sa aking pinanggalingan? 
+Paano pa kaya kung makita ninyo ako na_ Anak ng Tao na pumapaitaas pabalik sa aking pinanggalingan? 
 
 
 
@@ -2028,7 +2028,7 @@ Paano pa kaya kung makita ninyo <i class="trans-change">ako na_ Anak ng Tao na p
 
 
 
-Ang <i class="trans-change">Banal na_ Espiritu ang nagbibigay-buhay; hindi ito magagawa ng tao. Ang mga salitang sinabi ko sa inyo ay mula sa Espiritu at nakakapagbigay-buhay. 
+Ang Banal na_ Espiritu ang nagbibigay-buhay; hindi ito magagawa ng tao. Ang mga salitang sinabi ko sa inyo ay mula sa Espiritu at nakakapagbigay-buhay. 
 
 
 
@@ -2160,7 +2160,7 @@ Mula noon, marami sa mga tagasunod niya ang tumalikod at hindi na sumunod sa kan
 
 
 
-Kaya tinanong ni Jesus ang 12 <i class="trans-change">apostol_, "Kayo ba, gusto rin ninyong umalis?" 
+Kaya tinanong ni Jesus ang 12 apostol_, "Kayo ba, gusto rin ninyong umalis?" 
 
 
 
@@ -2193,7 +2193,7 @@ Kaya tinanong ni Jesus ang 12 <i class="trans-change">apostol_, "Kayo ba, gusto 
 
 
 
-Sumagot si Simon Pedro, "Panginoon, kanino pa po kami pupunta? Kayo lang ang may mensaheng nagbibigay ng buhay <i class="trans-change">na walang hanggan_. 
+Sumagot si Simon Pedro, "Panginoon, kanino pa po kami pupunta? Kayo lang ang may mensaheng nagbibigay ng buhay na walang hanggan_. 
 
 
 
@@ -2292,4 +2292,4 @@ Sinabi ni Jesus sa kanila, "Hindi baʼt pinili ko kayong 12? Pero ang isa sa iny
 
 
 
-Ang tinutukoy ni Jesus ay si Judas na anak ni Simon Iscariote, dahil kahit kabilang si Judas sa 12 <i class="trans-change">apostol_, tatraydurin niya si Jesus sa bandang huli.
+Ang tinutukoy ni Jesus ay si Judas na anak ni Simon Iscariote, dahil kahit kabilang si Judas sa 12 apostol_, tatraydurin niya si Jesus sa bandang huli.

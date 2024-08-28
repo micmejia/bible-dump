@@ -107,7 +107,7 @@ Sinabi ng Panginoon, "Lilipulin ko ang lahat ng bagay na nasa mundo –
 
 
 
-ang mga tao, hayop, ibon at isda. Mawawala ang lahat ng nag-uudyok sa tao para magkasala pati ang mga makasalanan. Lilipulin ko nga ang lahat ng tao sa mundo. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+ang mga tao, hayop, ibon at isda. Mawawala ang lahat ng nag-uudyok sa tao para magkasala pati ang mga makasalanan. Lilipulin ko nga ang lahat ng tao sa mundo. Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -173,7 +173,7 @@ ang mga tao, hayop, ibon at isda. Mawawala ang lahat ng nag-uudyok sa tao para m
 
 
 
-<i class="trans-change">Lilipulin ko rin_ ang mga taong umaakyat sa bubong ng kanilang bahay para sumamba sa araw, sa buwan at mga bituin. <i class="trans-change">Lilipulin ko_ ang mga sumasamba at sumusumpang maglilingkod sa akin, pero sumusumpa ring maglilingkod sa <i class="trans-change">dios-diosang si_ Molec. 
+Lilipulin ko rin_ ang mga taong umaakyat sa bubong ng kanilang bahay para sumamba sa araw, sa buwan at mga bituin. Lilipulin ko_ ang mga sumasamba at sumusumpang maglilingkod sa akin, pero sumusumpa ring maglilingkod sa dios-diosang si_ Molec. 
 
 
 
@@ -206,7 +206,7 @@ ang mga tao, hayop, ibon at isda. Mawawala ang lahat ng nag-uudyok sa tao para m
 
 
 
-<i class="trans-change">Lilipulin ko_ ang mga tumatalikod at hindi dumudulog sa akin. 
+Lilipulin ko_ ang mga tumatalikod at hindi dumudulog sa akin. 
 
 
 
@@ -239,7 +239,7 @@ ang mga tao, hayop, ibon at isda. Mawawala ang lahat ng nag-uudyok sa tao para m
 
 
 
-"Tumahimik kayo sa harapan ko, dahil malapit na ang araw ng aking pagpaparusa. Inihanda ko na ang <i class="trans-change">aking mga mamamayan para patayin tulad ng_ hayop na ihahandog. Pinili ko na ang mga <i class="trans-change">kalaban na_ tinawag ko <i class="trans-change">na sasalakay sa Juda_. 
+"Tumahimik kayo sa harapan ko, dahil malapit na ang araw ng aking pagpaparusa. Inihanda ko na ang aking mga mamamayan para patayin tulad ng_ hayop na ihahandog. Pinili ko na ang mga kalaban na_ tinawag ko na sasalakay sa Juda_. 
 
 
 
@@ -272,7 +272,7 @@ ang mga tao, hayop, ibon at isda. Mawawala ang lahat ng nag-uudyok sa tao para m
 
 
 
-Sa araw na iyon, papatayin ko ang <i class="trans-change">mga taga-Juda na parang_ hayop na ihahandog. Parurusahan ko ang <i class="trans-change">kanilang_ mga opisyal at ang mga anak ng <i class="trans-change">kanilang_ hari, at ang lahat <i class="trans-change">sa kanila_ na sumusunod sa <i class="trans-change">masasamang_ ugali ng ibang bansa. 
+Sa araw na iyon, papatayin ko ang mga taga-Juda na parang_ hayop na ihahandog. Parurusahan ko ang kanilang_ mga opisyal at ang mga anak ng kanilang_ hari, at ang lahat sa kanila_ na sumusunod sa masasamang_ ugali ng ibang bansa. 
 
 
 
@@ -305,7 +305,7 @@ Sa araw na iyon, papatayin ko ang <i class="trans-change">mga taga-Juda na paran
 
 
 
-Parurusahan ko rin sa araw na iyon ang lahat ng sumasali sa mga seremonya ng mga hindi nakakakilala sa akin, at ang mga nagmamalupit at nandaraya para punuin <i class="trans-change">ng mga bagay_ ang bahay ng kanilang panginoon. 
+Parurusahan ko rin sa araw na iyon ang lahat ng sumasali sa mga seremonya ng mga hindi nakakakilala sa akin, at ang mga nagmamalupit at nandaraya para punuin ng mga bagay_ ang bahay ng kanilang panginoon. 
 
 
 
@@ -338,7 +338,7 @@ Parurusahan ko rin sa araw na iyon ang lahat ng sumasali sa mga seremonya ng mga
 
 
 
-"<i class="trans-change">Ako,_ ang Panginoon ay nagsasabing sa araw na iyon maririnig ang iyakan sa pintuan na tinatawag na Isda <i class="trans-change">ng lungsod ng Jerusalem_ at sa bagong bahagi ng lungsod. Maririnig din ang malakas na ingay <i class="trans-change">ng mga nagigibang bahay_ sa mga burol. 
+"Ako,_ ang Panginoon ay nagsasabing sa araw na iyon maririnig ang iyakan sa pintuan na tinatawag na Isda ng lungsod ng Jerusalem_ at sa bagong bahagi ng lungsod. Maririnig din ang malakas na ingay ng mga nagigibang bahay_ sa mga burol. 
 
 
 
@@ -371,7 +371,7 @@ Parurusahan ko rin sa araw na iyon ang lahat ng sumasali sa mga seremonya ng mga
 
 
 
-Mag-iyakan kayo, kayong mga naninirahan sa mababang bahagi <i class="trans-change">ng lungsod ng Jerusalem_ dahil mamamatay ang lahat ng inyong mga mangangalakal. 
+Mag-iyakan kayo, kayong mga naninirahan sa mababang bahagi ng lungsod ng Jerusalem_ dahil mamamatay ang lahat ng inyong mga mangangalakal. 
 
 
 
@@ -470,7 +470,7 @@ Aagawin sa mga taong ito ang kanilang mga pag-aari at wawasakin ang kanilang mga
 
 
 
-Malapit na ang nakakatakot na araw ng pagpaparusa ng Panginoon. Itoʼy mabilis na dumarating. Mapait ang araw na iyon, dahil kahit na ang matatapang na sundalo ay sisigaw <i class="trans-change">para humingi ng tulong_. 
+Malapit na ang nakakatakot na araw ng pagpaparusa ng Panginoon. Itoʼy mabilis na dumarating. Mapait ang araw na iyon, dahil kahit na ang matatapang na sundalo ay sisigaw para humingi ng tulong_. 
 
 
 
@@ -569,7 +569,7 @@ at maririnig ang tunog ng trumpeta at sigawan ng mga sundalong sumasalakay sa mg
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Ipaparanas ko ang paghihirap sa mga tao, at lalakad sila na parang bulag dahil nagkasala sila sa akin. Dadaloy na parang tubig ang kanilang dugo, at mabubulok na parang dumi ang kanilang bangkay. 
+Sinabi ng Panginoon,_ "Ipaparanas ko ang paghihirap sa mga tao, at lalakad sila na parang bulag dahil nagkasala sila sa akin. Dadaloy na parang tubig ang kanilang dugo, at mabubulok na parang dumi ang kanilang bangkay. 
 
 
 

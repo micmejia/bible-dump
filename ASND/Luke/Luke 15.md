@@ -40,7 +40,7 @@ next: ['Luke 16']
 
 
 
-Maraming maniningil ng buwis at <i class="trans-change">iba pang mga itinuturing na_ makasalanan ang pumunta kay Jesus upang makinig sa kanya. 
+Maraming maniningil ng buwis at iba pang mga itinuturing na_ makasalanan ang pumunta kay Jesus upang makinig sa kanya. 
 
 
 

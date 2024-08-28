@@ -106,7 +106,7 @@ tumayo si Ishmael na anak ni Netania at ang sampung kasama niya at pinatay nila 
 
 
 
-Pinatay din ni Ishmael at ng mga tauhan niya ang lahat ng <i class="trans-change">pinuno ng mga_ Judio roon sa Mizpa, pati ang mga sundalo na taga-Babilonia. 
+Pinatay din ni Ishmael at ng mga tauhan niya ang lahat ng pinuno ng mga_ Judio roon sa Mizpa, pati ang mga sundalo na taga-Babilonia. 
 
 
 
@@ -172,7 +172,7 @@ Kinaumagahan, bago pa malaman ng sinuman na si Gedalia ay pinatay,
 
 
 
-may 80 lalaking papunta sa Mizpa mula sa Shekem, Shilo, at Samaria. Inahit nila ang mga balbas nila, pinunit ang kanilang mga damit at sinugatan ang mga katawan nila <i class="trans-change">para ipakitang nagluluksa sila_. May mga dala silang handog para parangalan ang Panginoon at mga insenso para ihandog sa templo ng Panginoon. 
+may 80 lalaking papunta sa Mizpa mula sa Shekem, Shilo, at Samaria. Inahit nila ang mga balbas nila, pinunit ang kanilang mga damit at sinugatan ang mga katawan nila para ipakitang nagluluksa sila_. May mga dala silang handog para parangalan ang Panginoon at mga insenso para ihandog sa templo ng Panginoon. 
 
 
 

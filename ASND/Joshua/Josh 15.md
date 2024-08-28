@@ -106,7 +106,7 @@ Ang kanilang hangganan sa timog ay nagsisimula sa baybayin ng katimugang bahagi 
 
 
 
-papunta sa timog ng Daang Paahon ng Akrabim hanggang sa <i class="trans-change">ilang ng_ Zin papunta sa timog ng Kadesh Barnea, at lumampas sa Hezron paakyat sa Adar at paliko papunta sa Karka, 
+papunta sa timog ng Daang Paahon ng Akrabim hanggang sa ilang ng_ Zin papunta sa timog ng Kadesh Barnea, at lumampas sa Hezron paakyat sa Adar at paliko papunta sa Karka, 
 
 
 
@@ -172,7 +172,7 @@ papunta sa Azmon, sa Lambak ng Egipto at sa Dagat ng Mediteraneo. Ito ang hangga
 
 
 
-Ang hangganan sa silangan ay ang Dagat na Patay hanggang sa labasan ng tubig ng <i class="trans-change">Ilog ng_ Jordan. Ang hangganan sa hilaga ay nagmula roon sa labasan ng tubig ng <i class="trans-change">Ilog ng_ Jordan, 
+Ang hangganan sa silangan ay ang Dagat na Patay hanggang sa labasan ng tubig ng Ilog ng_ Jordan. Ang hangganan sa hilaga ay nagmula roon sa labasan ng tubig ng Ilog ng_ Jordan, 
 
 
 
@@ -271,7 +271,7 @@ Mula rito, papunta sa Lambak ng Acor hanggang sa Debir, at paliko sa hilaga papu
 
 
 
-Mula roon papunta sa Lambak ng Ben Hinom hanggang sa katimugang libis ng lungsod ng mga Jebuseo. (Ito ay ang Jerusalem.) Mula roon, paahon sa tuktok ng bundok sa kanluran ng Lambak ng <i class="trans-change">Ben_ Hinom sa dulo ng hilagang bahagi ng Lambak ng Refaim. 
+Mula roon papunta sa Lambak ng Ben Hinom hanggang sa katimugang libis ng lungsod ng mga Jebuseo. (Ito ay ang Jerusalem.) Mula roon, paahon sa tuktok ng bundok sa kanluran ng Lambak ng Ben_ Hinom sa dulo ng hilagang bahagi ng Lambak ng Refaim. 
 
 
 
@@ -370,7 +370,7 @@ lumiko sa bandang kanluran ng Baala papunta sa Bundok ng Seir. Pagkatapos, papun
 
 
 
-Mula roon, nagpatuloy ito sa hilagang bahagi ng libis ng Ekron at paliko papunta sa Shikeron, at dumaraan sa Bundok ng Baala hanggang sa Jabneel. Ang hangganan nito ay ang Dagat <i class="trans-change">ng Mediteraneo_, 
+Mula roon, nagpatuloy ito sa hilagang bahagi ng libis ng Ekron at paliko papunta sa Shikeron, at dumaraan sa Bundok ng Baala hanggang sa Jabneel. Ang hangganan nito ay ang Dagat ng Mediteraneo_, 
 
 
 
@@ -603,7 +603,7 @@ Si Otniel na anak ni Kenaz na kapatid ni Caleb ang nakaagaw ng lungsod. Kaya sa 
 
 
 
-Nang ikinasal na sila, hinikayat ni Acsa ang asawa niya na humingi sila ng <i class="trans-change">dagdag na_ lupain sa ama nito. <i class="trans-change">Pagkatapos, pumunta si Acsa kay Caleb_, at nang makababa na siya sa kanyang asno, tinanong siya ni Caleb kung ano ang kailangan niya. 
+Nang ikinasal na sila, hinikayat ni Acsa ang asawa niya na humingi sila ng dagdag na_ lupain sa ama nito. Pagkatapos, pumunta si Acsa kay Caleb_, at nang makababa na siya sa kanyang asno, tinanong siya ni Caleb kung ano ang kailangan niya. 
 
 
 
@@ -636,7 +636,7 @@ Nang ikinasal na sila, hinikayat ni Acsa ang asawa niya na humingi sila ng <i cl
 
 
 
-Sumagot si Acsa, "Hihingi po sana ako ng pabor sa inyo, gusto ko po sanang bigyan nʼyo ako ng <i class="trans-change">lupaing may_ mga bukal dahil ang lupaing ibinigay nʼyo sa akin sa Negev <i class="trans-change">ay walang bukal_." Kaya ibinigay sa kanya ni Caleb ang lugar na may mga bukal sa itaas at sa ibaba ng Negev.
+Sumagot si Acsa, "Hihingi po sana ako ng pabor sa inyo, gusto ko po sanang bigyan nʼyo ako ng lupaing may_ mga bukal dahil ang lupaing ibinigay nʼyo sa akin sa Negev ay walang bukal_." Kaya ibinigay sa kanya ni Caleb ang lugar na may mga bukal sa itaas at sa ibaba ng Negev.
 
 ## Ang mga Lungsod ng Juda 
 
@@ -1100,7 +1100,7 @@ Lebaot, Shilhim, Ayin at Rimon – 29 na bayan lahat, kasama ang mga bayan at 
 
 
 
-Ang <i class="trans-change">mga bayan sa_ kaburulan sa kanluran: Estaol, Zora, Ashna, 
+Ang mga bayan sa_ kaburulan sa kanluran: Estaol, Zora, Ashna, 
 
 
 
@@ -1232,7 +1232,7 @@ Shaaraim, Aditaim, Gedera (o Gederotaim) – 14 na bayan lahat, kasama ang mga
 
 
 
-<i class="trans-change">Kasama rin ang_ Zenan, Hadasha, Migdal Gad, 
+Kasama rin ang_ Zenan, Hadasha, Migdal Gad, 
 
 
 
@@ -1397,7 +1397,7 @@ Gederot, Bet Dagon, Naama at Makeda – 16 na bayan lahat, kasama ang mga bary
 
 
 
-<i class="trans-change">Kasama pa ang_ Libna, Eter, Ashan, 
+Kasama pa ang_ Libna, Eter, Ashan, 
 
 
 
@@ -1496,7 +1496,7 @@ Keila, Aczib at Maresha – 9 na bayan lahat, kasama ang mga baryo sa paligid 
 
 
 
-<i class="trans-change">Ganoon din_ ang Ekron at ang mga bayan at baryo sa paligid nito, 
+Ganoon din_ ang Ekron at ang mga bayan at baryo sa paligid nito, 
 
 
 
@@ -1529,7 +1529,7 @@ Keila, Aczib at Maresha – 9 na bayan lahat, kasama ang mga baryo sa paligid 
 
 
 
-at ang lahat ng bayan at mga baryo na malapit sa Ashdod mula sa Ekron papunta sa Dagat <i class="trans-change">ng Mediteraneo_. 
+at ang lahat ng bayan at mga baryo na malapit sa Ashdod mula sa Ekron papunta sa Dagat ng Mediteraneo_. 
 
 
 
@@ -1595,7 +1595,7 @@ Ang Ashdod at Gaza, kasama ang mga bayan nito at mga baryo hanggang sa Lambak ng
 
 
 
-<i class="trans-change">Ang mga bayan_ sa kabundukan: Shamir, Jatir, Soco, 
+Ang mga bayan_ sa kabundukan: Shamir, Jatir, Soco, 
 
 
 
@@ -1727,7 +1727,7 @@ Goshen, Holon at Gilo – 11 bayan lahat, kasama ang mga baryo sa paligid nito
 
 
 
-<i class="trans-change">Ganoon din_ ang Arab, Duma, Eshan, 
+Ganoon din_ ang Arab, Duma, Eshan, 
 
 
 
@@ -1826,7 +1826,7 @@ Humta, Kiriat Arba (na siyang Hebron) at Zior – 9 bayan lahat, kasama ang mg
 
 
 
-<i class="trans-change">Kabilang din_ ang Maon, Carmel, Zif, Juta, 
+Kabilang din_ ang Maon, Carmel, Zif, Juta, 
 
 
 
@@ -1925,7 +1925,7 @@ Kain, Gibea at Timnah – 10 bayan lahat, kasama ang mga baryo sa paligid nito
 
 
 
-<i class="trans-change">Ganoon din_ ang Halhul, Bet Zur at Gedor, 
+Ganoon din_ ang Halhul, Bet Zur at Gedor, 
 
 
 

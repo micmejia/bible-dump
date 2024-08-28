@@ -238,7 +238,7 @@ Ang katawan koʼy puno ng uod at langib. Nagnanana at pumuputok ang mga pigsa ko
 
 
 
-<i class="trans-change">O Dios,_ alalahanin nʼyo po na ang buhay koʼy parang isang hinga lamang, at hindi na po ako makadama ng anumang ligaya. 
+O Dios,_ alalahanin nʼyo po na ang buhay koʼy parang isang hinga lamang, at hindi na po ako makadama ng anumang ligaya. 
 
 
 
@@ -403,7 +403,7 @@ Hindi na siya makakauwi sa kanyang bahay, at makakalimutan na siya ng mga nakaka
 
 
 
-<i class="trans-change">O Dios,_ bakit nʼyo po ako binabantayan? Isa ba akong dambuhalang halimaw sa dagat na dapat bantayan? 
+O Dios,_ bakit nʼyo po ako binabantayan? Isa ba akong dambuhalang halimaw sa dagat na dapat bantayan? 
 
 
 

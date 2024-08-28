@@ -601,7 +601,7 @@ Ang karunungan ay magpapabuti ng iyong kalagayan.
 
 
 
-Mapalad ang taong may karunungan, dahil magbibigay ito ng mabuti at mahabang buhay. <sup class="versenum">19-20</sup>Sa pamamagitan ng karunungan, nilikha ng Panginoon ang lupa at ang langit, at bumukas ang mga bukal at mula sa mga ulap ay bumuhos ang ulan. 
+Mapalad ang taong may karunungan, dahil magbibigay ito ng mabuti at mahabang buhay. 19-20Sa pamamagitan ng karunungan, nilikha ng Panginoon ang lupa at ang langit, at bumukas ang mga bukal at mula sa mga ulap ay bumuhos ang ulan. 
 
 
 

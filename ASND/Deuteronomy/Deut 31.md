@@ -535,7 +535,7 @@ Nagpakita ang Panginoon sa pamamagitan ng ulap na parang haligi roon sa may pint
 
 
 
-Sinabi ng Panginoon kay Moises, "Malapit ka nang <i class="trans-change">mamatay at_ makasama ng mga ninuno mo. Kung wala ka na, ang mga taong ito ay sasamba sa ibang mga dios na sinasamba ng mga tao sa lupaing pupuntahan nila. Itatakwil nila ako at susuwayin ang kasunduang ginawa ko sa kanila. 
+Sinabi ng Panginoon kay Moises, "Malapit ka nang mamatay at_ makasama ng mga ninuno mo. Kung wala ka na, ang mga taong ito ay sasamba sa ibang mga dios na sinasamba ng mga tao sa lupaing pupuntahan nila. Itatakwil nila ako at susuwayin ang kasunduang ginawa ko sa kanila. 
 
 
 

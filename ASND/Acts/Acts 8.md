@@ -42,7 +42,7 @@ next: ['Acts 9']
 
 
 
-ay nagsumikap na wasakin ang iglesya. Kaya pinasok niya ang mga bahay-bahay at dinakip <i class="trans-change">ang mga mananampalataya_, lalaki man o babae, at dinala sa bilangguan.
+ay nagsumikap na wasakin ang iglesya. Kaya pinasok niya ang mga bahay-bahay at dinakip ang mga mananampalataya_, lalaki man o babae, at dinala sa bilangguan.
 
 ## Ipinangaral ang Magandang Balita sa Samaria 
 
@@ -77,7 +77,7 @@ ay nagsumikap na wasakin ang iglesya. Kaya pinasok niya ang mga bahay-bahay at d
 
 
 
-Ang mga mananampalatayang nangalat <i class="trans-change">sa ibaʼt ibang lugar_ ay nangaral ng Magandang Balita. 
+Ang mga mananampalatayang nangalat sa ibaʼt ibang lugar_ ay nangaral ng Magandang Balita. 
 
 
 
@@ -110,7 +110,7 @@ Ang mga mananampalatayang nangalat <i class="trans-change">sa ibaʼt ibang lugar
 
 
 
-Isa <i class="trans-change">sa mga mananampalataya_ ay si Felipe. Pumunta siya sa isang lungsod ng Samaria at nangaral sa mga tao tungkol kay Cristo. 
+Isa sa mga mananampalataya_ ay si Felipe. Pumunta siya sa isang lungsod ng Samaria at nangaral sa mga tao tungkol kay Cristo. 
 
 
 
@@ -242,7 +242,7 @@ Kaya masayang-masaya ang mga tao sa lungsod na iyon.
 
 
 
-May tao rin doon na ang pangalan ay Simon. Matagal na niyang pinahahanga ang mga taga-Samaria sa kanyang <i class="trans-change">kahusayan sa_ salamangka. Nagmamayabang siya na akala mo kung sino siyang dakila. 
+May tao rin doon na ang pangalan ay Simon. Matagal na niyang pinahahanga ang mga taga-Samaria sa kanyang kahusayan sa_ salamangka. Nagmamayabang siya na akala mo kung sino siyang dakila. 
 
 
 
@@ -308,7 +308,7 @@ Ang lahat ng tao sa lungsod, mahirap man o mayaman ay nakikinig nang mabuti sa k
 
 
 
-Matagal na niyang pinahahanga ang mga tao sa kanyang <i class="trans-change">kahusayan sa_ salamangka, kaya patuloy silang naniniwala sa kanya. 
+Matagal na niyang pinahahanga ang mga tao sa kanyang kahusayan sa_ salamangka, kaya patuloy silang naniniwala sa kanya. 
 
 
 
@@ -539,7 +539,7 @@ Ipinatong nina Pedro at Juan ang kanilang mga kamay sa kanila, at natanggap nila
 
 
 
-Nakita ni Simon na sa pagpatong ng kamay ng mga apostol sa mga mananampalataya ay natanggap nila ang <i class="trans-change">Banal na_ Espiritu. Kaya inalok niya ng pera sina Pedro at Juan at sinabi 
+Nakita ni Simon na sa pagpatong ng kamay ng mga apostol sa mga mananampalataya ay natanggap nila ang Banal na_ Espiritu. Kaya inalok niya ng pera sina Pedro at Juan at sinabi 
 
 
 
@@ -904,7 +904,7 @@ Nakasakay siya sa kanyang karwahe at nagbabasa ng aklat ni Propeta Isaias.
 
 
 
-Sinabi ng <i class="trans-change">Banal na_ Espiritu kay Felipe, "Puntahan mo at makisabay ka sa kanyang karwahe." 
+Sinabi ng Banal na_ Espiritu kay Felipe, "Puntahan mo at makisabay ka sa kanyang karwahe." 
 
 
 
@@ -937,7 +937,7 @@ Sinabi ng <i class="trans-change">Banal na_ Espiritu kay Felipe, "Puntahan mo at
 
 
 
-Kaya tumakbo si Felipe at <i class="trans-change">inabutan niya ang karwahe_. Narinig niyang nagbabasa ang opisyal ng aklat ni Propeta Isaias. Tinanong siya ni Felipe kung nauunawaan niya ang kanyang binabasa. 
+Kaya tumakbo si Felipe at inabutan niya ang karwahe_. Narinig niyang nagbabasa ang opisyal ng aklat ni Propeta Isaias. Tinanong siya ni Felipe kung nauunawaan niya ang kanyang binabasa. 
 
 
 

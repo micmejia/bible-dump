@@ -370,7 +370,7 @@ Sinabi ng Panginoon, "Gagawa ako ng kasunduan sa inyo. Sa harap ng lahat ng kaba
 
 
 
-Sundin mo ang iniutos ko sa iyo sa araw na ito. Itataboy ko ang mga Amoreo, Cananeo, Heteo, Perezeo, Hiveo at mga Jebuseo <i class="trans-change">mula sa lupaing ipinangako ko sa inyo_. 
+Sundin mo ang iniutos ko sa iyo sa araw na ito. Itataboy ko ang mga Amoreo, Cananeo, Heteo, Perezeo, Hiveo at mga Jebuseo mula sa lupaing ipinangako ko sa inyo_. 
 
 
 
@@ -436,7 +436,7 @@ Huwag kang gagawa ng kasunduan sa mga tao sa lupaing pupuntahan ninyo, dahil mag
 
 
 
-Sa halip, gibain ninyo ang mga altar nila, durugin ang mga alaalang bato nila, at putulin ang mga posteng <i class="trans-change">simbolo ng diosang si_ Ashera. 
+Sa halip, gibain ninyo ang mga altar nila, durugin ang mga alaalang bato nila, at putulin ang mga posteng simbolo ng diosang si_ Ashera. 
 
 
 
@@ -502,7 +502,7 @@ Huwag kayong sasamba sa ibang mga dios dahil ako, ang Panginoon, ay ayaw na may 
 
 
 
-Huwag kayong gagawa ng kasunduan sa mga taong nakatira sa lupain <i class="trans-change">na pupuntahan ninyo_. Dahil baka matukso kayong kumain ng mga handog nila, at anyayahan nila kayo sa paghahandog at pagsamba nila sa kanilang mga dios. 
+Huwag kayong gagawa ng kasunduan sa mga taong nakatira sa lupain na pupuntahan ninyo_. Dahil baka matukso kayong kumain ng mga handog nila, at anyayahan nila kayo sa paghahandog at pagsamba nila sa kanilang mga dios. 
 
 
 
@@ -766,7 +766,7 @@ Maaaring matubos ang panganay na lalaki ng mga asno nʼyo sa pamamagitan ng pagp
 
 
 
-"Tatlong beses sa isang taon, pupunta ang kalalakihan ninyo sa mga pistang ito <i class="trans-change">sa pagsamba sa_ Panginoong Dios, ang Dios ng Israel. 
+"Tatlong beses sa isang taon, pupunta ang kalalakihan ninyo sa mga pistang ito sa pagsamba sa_ Panginoong Dios, ang Dios ng Israel. 
 
 
 
@@ -1030,7 +1030,7 @@ Nang makita ni Aaron at ng lahat ng mga Israelita ang nakakasilaw na mukha ni Mo
 
 
 
-Pero ipinatawag sila ni Moises, kaya lumapit sila Aaron at ang mga pinuno ng mamamayan <i class="trans-change">ng Israel_, at nakipag-usap si Moises sa kanila. 
+Pero ipinatawag sila ni Moises, kaya lumapit sila Aaron at ang mga pinuno ng mamamayan ng Israel_, at nakipag-usap si Moises sa kanila. 
 
 
 

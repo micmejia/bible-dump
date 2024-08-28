@@ -40,7 +40,7 @@ next: ['Hos 9']
 
 
 
-"Hipan ninyo ang trumpeta upang bigyang babala ang aking mga mamamayan, ang <i class="trans-change">Israel na itinuturing kong_ tahanan, na lulusubin sila ng kalaban na kasimbilis ng agila. Sapagkat sinira nila ang kasunduan ko <i class="trans-change">sa kanila_ at nilabag nila ang aking Kautusan. 
+"Hipan ninyo ang trumpeta upang bigyang babala ang aking mga mamamayan, ang Israel na itinuturing kong_ tahanan, na lulusubin sila ng kalaban na kasimbilis ng agila. Sapagkat sinira nila ang kasunduan ko sa kanila_ at nilabag nila ang aking Kautusan. 
 
 
 
@@ -139,7 +139,7 @@ Pero itinakwil nila ang mabuti, kaya hahabulin sila ng kanilang kalaban.
 
 
 
-Pumili sila ng mga hari at mga opisyal na hindi ko pinili. Gumawa sila ng mga dios-diosan mula sa kanilang mga pilak at ginto, <i class="trans-change">at ang mga ito_ ang nagdala sa kanila sa kapahamakan. 
+Pumili sila ng mga hari at mga opisyal na hindi ko pinili. Gumawa sila ng mga dios-diosan mula sa kanilang mga pilak at ginto, at ang mga ito_ ang nagdala sa kanila sa kapahamakan. 
 
 
 

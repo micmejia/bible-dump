@@ -73,7 +73,7 @@ Nang ika-24 na araw ng buwan ding iyon, nagtipon ang mga Israelita para mag-ayun
 
 
 
-Hindi nila isinama <i class="trans-change">sa pag-aayuno_ ang mga dayuhan. Tumayo sila at ipinahayag ang kanilang mga kasalanan at ang mga kasalanan ng kanilang mga ninuno. 
+Hindi nila isinama sa pag-aayuno_ ang mga dayuhan. Tumayo sila at ipinahayag ang kanilang mga kasalanan at ang mga kasalanan ng kanilang mga ninuno. 
 
 
 
@@ -172,7 +172,7 @@ Ang ibang mga Levita ay nakatayo sa hagdanan, at malakas na nananalangin sa Pang
 
 
 
-At ang mga Levita <i class="trans-change">na tumawag sa mga tao para sumamba_ ay sina: Jeshua, Kadmiel, Bani, Hashabneya, Sherebia, Hodia, Shebania, at Petahia. Sabi nila, "Tumayo kayo at purihin ang Panginoon na inyong Dios na walang hanggan!" <i class="trans-change">Pagkatapos, sinabi nila,_ "<i class="trans-change">O Panginoon,_ kapuri-puri po ang inyong pagiging makapangyarihan! Hindi ito mapapantayan ng aming pagpupuri. 
+At ang mga Levita na tumawag sa mga tao para sumamba_ ay sina: Jeshua, Kadmiel, Bani, Hashabneya, Sherebia, Hodia, Shebania, at Petahia. Sabi nila, "Tumayo kayo at purihin ang Panginoon na inyong Dios na walang hanggan!" Pagkatapos, sinabi nila,_ "O Panginoon,_ kapuri-puri po ang inyong pagiging makapangyarihan! Hindi ito mapapantayan ng aming pagpupuri. 
 
 
 
@@ -568,7 +568,7 @@ Ngunit sila na aming mga ninuno ay naging mapagmataas, matigas ang ulo, at masuw
 
 
 
-Ayaw nilang makinig <i class="trans-change">sa mga sinasabi nʼyo_, at kinalimutan lang ang mga himalang ginawa ninyo sa kanila. Naging matigas ang kanilang ulo, at sumalungat sila sa inyong pamamaraan sa pamamagitan ng pagpili ng pinuno na magdadala sa kanila pabalik sa pagkaalipin <i class="trans-change">sa Egipto_. Ngunit kayo ay mapagpatawad na Dios, mahabagin, maalalahanin, hindi madaling magalit, at mapagmahal. Kaya hindi nʼyo po sila pinabayaan, 
+Ayaw nilang makinig sa mga sinasabi nʼyo_, at kinalimutan lang ang mga himalang ginawa ninyo sa kanila. Naging matigas ang kanilang ulo, at sumalungat sila sa inyong pamamaraan sa pamamagitan ng pagpili ng pinuno na magdadala sa kanila pabalik sa pagkaalipin sa Egipto_. Ngunit kayo ay mapagpatawad na Dios, mahabagin, maalalahanin, hindi madaling magalit, at mapagmahal. Kaya hindi nʼyo po sila pinabayaan, 
 
 
 
@@ -964,7 +964,7 @@ Kaya ipinaubaya nʼyo po sila sa kanilang mga kalaban na nagpahirap sa kanila. P
 
 
 
-Pinaalalahanan nʼyo po sila na tumupad muli sa inyong Kautusan, pero naging mapagmataas sila at hindi nila tinupad ang inyong mga utos. Nagkasala sila laban sa inyong mga utos na nagbibigay <i class="trans-change">ng totoong_ buhay sa tumutupad nito. Sa katigasan ng kanilang mga ulo tumalikod sila sa inyo, at ayaw nilang makinig sa inyo. 
+Pinaalalahanan nʼyo po sila na tumupad muli sa inyong Kautusan, pero naging mapagmataas sila at hindi nila tinupad ang inyong mga utos. Nagkasala sila laban sa inyong mga utos na nagbibigay ng totoong_ buhay sa tumutupad nito. Sa katigasan ng kanilang mga ulo tumalikod sila sa inyo, at ayaw nilang makinig sa inyo. 
 
 
 

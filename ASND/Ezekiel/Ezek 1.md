@@ -303,7 +303,7 @@ Ang mga buhay na nilalang na itoʼy nagpaparooʼt parito na kasimbilis ng kidlat
 
 
 
-Habang nakatingin ako sa apat na buhay na nilalang, nakita kong ang bawat isa sa kanila ay may gulong sa ilalim. Ang <i class="trans-change">apat na_ gulong ay nakasayad sa lupa. 
+Habang nakatingin ako sa apat na buhay na nilalang, nakita kong ang bawat isa sa kanila ay may gulong sa ilalim. Ang apat na_ gulong ay nakasayad sa lupa. 
 
 
 
@@ -336,7 +336,7 @@ Habang nakatingin ako sa apat na buhay na nilalang, nakita kong ang bawat isa sa
 
 
 
-Ganito ang anyo ng mga gulong: Kumikislap ang mga ito na parang <i class="trans-change">mamahaling batong_ krisolito at magkakapareho ang kanilang anyo. Ang bawat gulong ay may isa pang gulong sa loob na nakakrus. 
+Ganito ang anyo ng mga gulong: Kumikislap ang mga ito na parang mamahaling batong_ krisolito at magkakapareho ang kanilang anyo. Ang bawat gulong ay may isa pang gulong sa loob na nakakrus. 
 
 
 

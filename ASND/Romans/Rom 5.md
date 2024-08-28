@@ -139,7 +139,7 @@ At nagagalak din tayo kahit na dumaranas tayo ng mga paghihirap, dahil natututo 
 
 
 
-Alam natin na ang pagtitiis ay nagpapabuti sa ating pagkatao. At kung mabuti ang ating pagkatao, may pag-asa tayo <i class="trans-change">na makakabahagi tayo sa kadakilaan ng Dios_. 
+Alam natin na ang pagtitiis ay nagpapabuti sa ating pagkatao. At kung mabuti ang ating pagkatao, may pag-asa tayo na makakabahagi tayo sa kadakilaan ng Dios_. 
 
 
 
@@ -205,7 +205,7 @@ At hindi tayo mabibigo sa ating pag-asa dahil ipinadama ng Dios sa atin ang kany
 
 
 
-Nang wala tayong kakayahang <i class="trans-change">makaligtas sa kaparusahan_, namatay si Cristo para sa ating mga kasalanan sa panahong itinakda ng Dios. 
+Nang wala tayong kakayahang makaligtas sa kaparusahan_, namatay si Cristo para sa ating mga kasalanan sa panahong itinakda ng Dios. 
 
 
 
@@ -304,7 +304,7 @@ Pero ipinakita ng Dios sa atin ang kanyang pag-ibig sa ganitong paraan: Kahit no
 
 
 
-At ngayong itinuring na tayong matuwid sa pamamagitan ng dugo ni Cristo, tiyak na maliligtas tayo sa parusa <i class="trans-change">ng Dios_ dahil kay Cristo. 
+At ngayong itinuring na tayong matuwid sa pamamagitan ng dugo ni Cristo, tiyak na maliligtas tayo sa parusa ng Dios_ dahil kay Cristo. 
 
 
 
@@ -337,7 +337,7 @@ At ngayong itinuring na tayong matuwid sa pamamagitan ng dugo ni Cristo, tiyak n
 
 
 
-Datiʼy kaaway tayo ng Dios, pero ngayon, tinanggap na niya tayong mga kaibigan sa pamamagitan ng pagkamatay ng kanyang Anak. At ngayong mayroon na tayong magandang relasyon sa Dios, tiyak na ililigtas niya tayo <i class="trans-change">sa kaparusahan_ sa pamamagitan ng buhay ni Cristo. 
+Datiʼy kaaway tayo ng Dios, pero ngayon, tinanggap na niya tayong mga kaibigan sa pamamagitan ng pagkamatay ng kanyang Anak. At ngayong mayroon na tayong magandang relasyon sa Dios, tiyak na ililigtas niya tayo sa kaparusahan_ sa pamamagitan ng buhay ni Cristo. 
 
 
 
@@ -438,7 +438,7 @@ Dumating ang kasalanan sa mundo dahil sa paglabag ni Adan sa utos ng Dios. At da
 
 
 
-Nasa mundo na ang kasalanan bago pa man ibigay <i class="trans-change">ng Dios_ ang Kautusan. Pero hindi pinapanagot ang mga tao sa kanilang mga kasalanan kung wala namang Kautusan. 
+Nasa mundo na ang kasalanan bago pa man ibigay ng Dios_ ang Kautusan. Pero hindi pinapanagot ang mga tao sa kanilang mga kasalanan kung wala namang Kautusan. 
 
 
 
@@ -471,7 +471,7 @@ Nasa mundo na ang kasalanan bago pa man ibigay <i class="trans-change">ng Dios_ 
 
 
 
-Ganoon pa man, naghari pa rin ang kamatayan mula kay Adan hanggang kay Moises, kahit sa mga taong hindi naman nagkasala nang tulad ni Adan na lumabag sa utos ng Dios. Si Adan ay larawan ng Cristo na <i class="trans-change">nooʼy_ inaasahang darating. 
+Ganoon pa man, naghari pa rin ang kamatayan mula kay Adan hanggang kay Moises, kahit sa mga taong hindi naman nagkasala nang tulad ni Adan na lumabag sa utos ng Dios. Si Adan ay larawan ng Cristo na nooʼy_ inaasahang darating. 
 
 
 
@@ -504,7 +504,7 @@ Ganoon pa man, naghari pa rin ang kamatayan mula kay Adan hanggang kay Moises, k
 
 
 
-Pero <i class="trans-change">magkaiba ang dalawang ito, dahil_ ang kaloob ng Dios ay hindi katulad sa kasalanan ni Adan. Totoo ngang nagdala ng kamatayan sa maraming tao ang kasalanan ni Adan, pero mas nakakahigit ang biyaya at kaloob ng Dios na dumating sa maraming tao sa pamamagitan ng isang tao na walang iba kundi si Jesu-Cristo. 
+Pero magkaiba ang dalawang ito, dahil_ ang kaloob ng Dios ay hindi katulad sa kasalanan ni Adan. Totoo ngang nagdala ng kamatayan sa maraming tao ang kasalanan ni Adan, pero mas nakakahigit ang biyaya at kaloob ng Dios na dumating sa maraming tao sa pamamagitan ng isang tao na walang iba kundi si Jesu-Cristo. 
 
 
 
@@ -570,7 +570,7 @@ Ibang-iba ang idinulot ng kaloob ng Dios sa idinulot ng kasalanan ni Adan. Ang k
 
 
 
-Dahil sa kasalanan ng isang tao, naghari ang kamatayan, pero dahil sa ginawa ng isa pang tao na si Jesu-Cristo ang mga taong tumanggap ng masaganang biyaya at kaloob ng Dios ay itinuring niyang matuwid, at maghahari sila sa buhay <i class="trans-change">na walang hanggan_. 
+Dahil sa kasalanan ng isang tao, naghari ang kamatayan, pero dahil sa ginawa ng isa pang tao na si Jesu-Cristo ang mga taong tumanggap ng masaganang biyaya at kaloob ng Dios ay itinuring niyang matuwid, at maghahari sila sa buhay na walang hanggan_. 
 
 
 
@@ -603,7 +603,7 @@ Dahil sa kasalanan ng isang tao, naghari ang kamatayan, pero dahil sa ginawa ng 
 
 
 
-Kaya dahil sa kasalanan ng isang tao, ang lahat ay nahatulang maparusahan. Ganoon din naman, dahil sa matuwid na ginawa ng isang tao, ang lahat ay maituturing na matuwid at mabibigyan ng <i class="trans-change">bagong_ buhay. 
+Kaya dahil sa kasalanan ng isang tao, ang lahat ay nahatulang maparusahan. Ganoon din naman, dahil sa matuwid na ginawa ng isang tao, ang lahat ay maituturing na matuwid at mabibigyan ng bagong_ buhay. 
 
 
 
@@ -636,7 +636,7 @@ Kaya dahil sa kasalanan ng isang tao, ang lahat ay nahatulang maparusahan. Ganoo
 
 
 
-Kung sa pagsuway ng isang tao, marami ang naging makasalanan, ganoon din naman, dahil sa pagsunod ng isang tao marami ang itinuring <i class="trans-change">ng Dios_ na matuwid. 
+Kung sa pagsuway ng isang tao, marami ang naging makasalanan, ganoon din naman, dahil sa pagsunod ng isang tao marami ang itinuring ng Dios_ na matuwid. 
 
 
 
@@ -702,4 +702,4 @@ Ibinigay ng Dios ang Kautusan para ipakita sa mga tao na marami ang kanilang pag
 
 
 
-Kaya kung paanong naghari ang kasalanan at nagdulot ng kamatayan, ganoon din naman, naghahari ang biyaya <i class="trans-change">ng Dios_ at nagdudulot ng buhay na walang hanggan. At dahil sa ginawa ng ating Panginoong Jesu-Cristo, itinuring tayong matuwid <i class="trans-change">ng Dios_.
+Kaya kung paanong naghari ang kasalanan at nagdulot ng kamatayan, ganoon din naman, naghahari ang biyaya ng Dios_ at nagdudulot ng buhay na walang hanggan. At dahil sa ginawa ng ating Panginoong Jesu-Cristo, itinuring tayong matuwid ng Dios_.

@@ -106,7 +106,7 @@ Sinabi sa akin ng Panginoon,
 
 
 
-<i class="trans-change">Ako_, ang Panginoong Dios ay nagsasabing nakakaawa ang mga hangal na propetang nanghuhula mula sa sarili nilang isipan, at wala silang nakikitang mga pangitain. 
+Ako_, ang Panginoong Dios ay nagsasabing nakakaawa ang mga hangal na propetang nanghuhula mula sa sarili nilang isipan, at wala silang nakikitang mga pangitain. 
 
 
 
@@ -172,7 +172,7 @@ O Israel, ang mga propeta moʼy katulad ng mga asong-gubat na nasa gibang lungso
 
 
 
-<i class="trans-change">Katulad nilaʼy_ mga walang pakialam sa wasak na mga pader ng Israel na hindi inayos para maging matibay dumating man ang digmaan, sa araw ng pagpaparusa ng Panginoon. 
+Katulad nilaʼy_ mga walang pakialam sa wasak na mga pader ng Israel na hindi inayos para maging matibay dumating man ang digmaan, sa araw ng pagpaparusa ng Panginoon. 
 
 
 
@@ -205,7 +205,7 @@ O Israel, ang mga propeta moʼy katulad ng mga asong-gubat na nasa gibang lungso
 
 
 
-Hindi totoo ang mga pangitain nila at kasinungalingan ang mga hula nila. Sinasabi nilang mula sa Panginoon ang sinasabi nila pero ang totooʼy <i class="trans-change">hindi ko sila sinugo_ at hinihintay nilang maganap ito. 
+Hindi totoo ang mga pangitain nila at kasinungalingan ang mga hula nila. Sinasabi nilang mula sa Panginoon ang sinasabi nila pero ang totooʼy hindi ko sila sinugo_ at hinihintay nilang maganap ito. 
 
 
 
@@ -271,7 +271,7 @@ Hindi totoo ang mga pangitain nila at kasinungalingan ang mga hula nila. Sinasab
 
 
 
-"Kaya <i class="trans-change">ako,_ ang Panginoong Dios ay nagsasabi na kakalabanin ko sila dahil kasinungalingan ang mga hula nila at hindi totoo ang kanilang mga pangitain. 
+"Kaya ako,_ ang Panginoong Dios ay nagsasabi na kakalabanin ko sila dahil kasinungalingan ang mga hula nila at hindi totoo ang kanilang mga pangitain. 
 
 
 
@@ -436,7 +436,7 @@ At kapag nawasak na ito, magtatanong ang mga tao sa kanila, 'Ano ang naitulong n
 
 
 
-"Kaya <i class="trans-change">ako,_ ang Panginoong Dios, ay nagsasabi: Sa tindi ng galit ko, wawasakin ko <i class="trans-change">ang pader_ sa pamamagitan ng malakas na bagyo, pag-ulan ng yelo na kasing tigas ng bato, at malakas na ulan. 
+"Kaya ako,_ ang Panginoong Dios, ay nagsasabi: Sa tindi ng galit ko, wawasakin ko ang pader_ sa pamamagitan ng malakas na bagyo, pag-ulan ng yelo na kasing tigas ng bato, at malakas na ulan. 
 
 
 
@@ -469,7 +469,7 @@ At kapag nawasak na ito, magtatanong ang mga tao sa kanila, 'Ano ang naitulong n
 
 
 
-<i class="trans-change">Oo_, wawasakin ko ang pader na tinapalan ninyo ng apog at putik. Wawasakin ko ito hanggang sa lumabas ang pundasyon nito. At kapag nawasak na ito, babagsakan kayo at mamamatay. At malalaman ninyo na ako ang Panginoon. 
+Oo_, wawasakin ko ang pader na tinapalan ninyo ng apog at putik. Wawasakin ko ito hanggang sa lumabas ang pundasyon nito. At kapag nawasak na ito, babagsakan kayo at mamamatay. At malalaman ninyo na ako ang Panginoon. 
 
 
 
@@ -535,7 +535,7 @@ Ipadarama ko ang galit ko sa pader at sa mga nagtapal dito. At ipamamalita ko na
 
 
 
-na walang iba kundi ang mga propeta ng Israel na humula na magiging maayos ang kalagayan ng Jerusalem, pero kasinungalingan naman. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+na walang iba kundi ang mga propeta ng Israel na humula na magiging maayos ang kalagayan ng Jerusalem, pero kasinungalingan naman. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -601,7 +601,7 @@ na walang iba kundi ang mga propeta ng Israel na humula na magiging maayos ang k
 
 
 
-Sabihin mo sa kanilang <i class="trans-change">ako,_ ang Panginoong Dios, ang nagsasabi: Nakakaawa kayo, kayong mga babaeng bumibiktima sa mga mamamayan ko, maging mga bata o matatanda sa pamamagitan ng mga anting-anting ninyo. Nilalagyan ninyo sila ng mga anting-anting na pulseras sa kanilang kamay at belo sa mga ulo. Binibiktima ninyo ang mga mamamayan ko para sa pansarili ninyong kapakinabangan. 
+Sabihin mo sa kanilang ako,_ ang Panginoong Dios, ang nagsasabi: Nakakaawa kayo, kayong mga babaeng bumibiktima sa mga mamamayan ko, maging mga bata o matatanda sa pamamagitan ng mga anting-anting ninyo. Nilalagyan ninyo sila ng mga anting-anting na pulseras sa kanilang kamay at belo sa mga ulo. Binibiktima ninyo ang mga mamamayan ko para sa pansarili ninyong kapakinabangan. 
 
 
 
@@ -667,7 +667,7 @@ Nilalapastangan ninyo ako sa harap ng mga mamamayan ko para lang sa kaunting seb
 
 
 
-"Kaya <i class="trans-change">ako,_ ang Panginoong Dios, ay nagsasabing: Labis akong nagagalit sa mga anting-anting na ginagamit ninyo para biktimahin ang mga tao na parang mga ibong nahuli sa bitag. Hahablutin ko ang mga anting-anting ninyo sa kamay at palalayain ko ang mga taong hinuli ninyo na parang ibon. 
+"Kaya ako,_ ang Panginoong Dios, ay nagsasabing: Labis akong nagagalit sa mga anting-anting na ginagamit ninyo para biktimahin ang mga tao na parang mga ibong nahuli sa bitag. Hahablutin ko ang mga anting-anting ninyo sa kamay at palalayain ko ang mga taong hinuli ninyo na parang ibon. 
 
 
 

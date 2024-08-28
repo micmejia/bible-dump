@@ -40,7 +40,7 @@ next: ['Acts 17']
 
 
 
-Nagpatuloy sina Pablo sa paglalakbay sa Derbe at Lystra. May tagasunod <i class="trans-change">ni Jesus_ doon sa Lystra na ang pangalan ay Timoteo. Ang kanyang ina ay Judio at mananampalataya rin, pero ang kanyang ama ay Griego. 
+Nagpatuloy sina Pablo sa paglalakbay sa Derbe at Lystra. May tagasunod ni Jesus_ doon sa Lystra na ang pangalan ay Timoteo. Ang kanyang ina ay Judio at mananampalataya rin, pero ang kanyang ama ay Griego. 
 
 
 
@@ -207,7 +207,7 @@ Kaya lalong tumibay ang pananampalataya ng mga iglesya, at araw-araw ay nadadagd
 
 
 
-Pumunta sina Pablo sa mga lugar na sakop ng Frigia at Galacia, dahil hindi sila pinahintulutan ng Banal na Espiritu na mangaral ng salita ng Dios sa <i class="trans-change">lalawigan ng_ Asia. 
+Pumunta sina Pablo sa mga lugar na sakop ng Frigia at Galacia, dahil hindi sila pinahintulutan ng Banal na Espiritu na mangaral ng salita ng Dios sa lalawigan ng_ Asia. 
 
 
 
@@ -306,7 +306,7 @@ Kaya dumaan na lang sila sa Mysia at pumunta sa Troas.
 
 
 
-Nang gabing iyon, ipinakita <i class="trans-change">ng Dios_ kay Pablo ang isang pangitain. Nakita niya ang isang taga-Macedonia na nakatayo at nagmamakaawa sa kanya. Sinabi ng tao, "Tumawid ka rito sa Macedonia at tulungan kami." 
+Nang gabing iyon, ipinakita ng Dios_ kay Pablo ang isang pangitain. Nakita niya ang isang taga-Macedonia na nakatayo at nagmamakaawa sa kanya. Sinabi ng tao, "Tumawid ka rito sa Macedonia at tulungan kami." 
 
 
 
@@ -506,7 +506,7 @@ Isa sa mga nakikinig sa amin ay si Lydia na taga-Tyatira. Siyaʼy isang negosyan
 
 
 
-Nagpabautismo siya at ang kanyang pamilya. Pagkatapos, sinabi niya, "Kung naniniwala kayo na ako ay isa nang tunay na mananampalataya sa Panginoon, doon na kayo tumuloy sa aking bahay." At nakumbinsi niya kaming <i class="trans-change">tumuloy sa bahay nila_.
+Nagpabautismo siya at ang kanyang pamilya. Pagkatapos, sinabi niya, "Kung naniniwala kayo na ako ay isa nang tunay na mananampalataya sa Panginoon, doon na kayo tumuloy sa aking bahay." At nakumbinsi niya kaming tumuloy sa bahay nila_.
 
 ## Sina Pablo at Silas sa Bilangguan 
 
@@ -607,7 +607,7 @@ Palagi kaming sinusundan ng babaeng ito at ganito ang kanyang isinisigaw, "Ang m
 
 
 
-Araw-araw, iyon ang ginagawa niya hanggang sa nainis na si Pablo. Kaya hinarap niya ang babae at sinabi sa masamang espiritung <i class="trans-change">nasa kanya_, "Sa pangalan ni Jesu-Cristo, inuutusan kitang lumabas sa kanya!" At agad namang lumabas ang masamang espiritu. 
+Araw-araw, iyon ang ginagawa niya hanggang sa nainis na si Pablo. Kaya hinarap niya ang babae at sinabi sa masamang espiritung nasa kanya_, "Sa pangalan ni Jesu-Cristo, inuutusan kitang lumabas sa kanya!" At agad namang lumabas ang masamang espiritu. 
 
 
 
@@ -1234,7 +1234,7 @@ At itoʼy ibinalita ng guwardya kay Pablo. Sinabi niya, "Nagpautos ang mga opisy
 
 
 
-Pero sinabi ni Pablo sa mga pulis na inutusan, "<i class="trans-change">Nilabag ng mga opisyal ang kautusan ng Roma dahil_ ipinahagupit nila kami sa publiko at ipinabilanggo nang walang paglilitis, kahit na mga Romano kami. At ngayon gusto nilang palayain kami nang palihim. Hindi maaari! Sila mismong mga opisyal ang dapat pumunta rito at magpalaya sa amin." 
+Pero sinabi ni Pablo sa mga pulis na inutusan, "Nilabag ng mga opisyal ang kautusan ng Roma dahil_ ipinahagupit nila kami sa publiko at ipinabilanggo nang walang paglilitis, kahit na mga Romano kami. At ngayon gusto nilang palayain kami nang palihim. Hindi maaari! Sila mismong mga opisyal ang dapat pumunta rito at magpalaya sa amin." 
 
 
 

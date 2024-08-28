@@ -5,7 +5,7 @@ up: ['3 John']
 # 3 John 1
 
 ***
-###### 1-2 <i class="trans-change">Mula sa_ namumuno sa iglesya. Mahal na kaibigang Gaius, na lubos kong minamahal: Idinadalangin ko na maging malusog ka at sanaʼy nasa mabuting kalagayan, tulad ng buhay mong espiritwal na alam kong nasa mabuti ring kalagayan. 
+###### 1-2 Mula sa_ namumuno sa iglesya. Mahal na kaibigang Gaius, na lubos kong minamahal: Idinadalangin ko na maging malusog ka at sanaʼy nasa mabuting kalagayan, tulad ng buhay mong espiritwal na alam kong nasa mabuti ring kalagayan. 
 
 
 
@@ -38,7 +38,7 @@ up: ['3 John']
 
 
 
-Labis akong natuwa nang dumating dito ang ilang mga kapatid at ibinalita <i class="trans-change">sa akin_ na naging tapat ka sa katotohanan at namumuhay ayon dito. 
+Labis akong natuwa nang dumating dito ang ilang mga kapatid at ibinalita sa akin_ na naging tapat ka sa katotohanan at namumuhay ayon dito. 
 
 
 
@@ -71,7 +71,7 @@ Labis akong natuwa nang dumating dito ang ilang mga kapatid at ibinalita <i clas
 
 
 
-Wala ng higit na makakapagpasaya sa akin kundi ang malamang namumuhay ayon sa katotohanan ang mga anak ko <i class="trans-change">sa pananampalataya_. 
+Wala ng higit na makakapagpasaya sa akin kundi ang malamang namumuhay ayon sa katotohanan ang mga anak ko sa pananampalataya_. 
 
 
 
@@ -104,7 +104,7 @@ Wala ng higit na makakapagpasaya sa akin kundi ang malamang namumuhay ayon sa ka
 
 
 
-Mahal <i class="trans-change">kong kaibigan_, maaasahan ka talaga, dahil inaasikaso mo ang mga kapatid na napapadaan diyan, kahit na ang mga hindi mo kakilala. 
+Mahal kong kaibigan_, maaasahan ka talaga, dahil inaasikaso mo ang mga kapatid na napapadaan diyan, kahit na ang mga hindi mo kakilala. 
 
 
 
@@ -137,7 +137,7 @@ Mahal <i class="trans-change">kong kaibigan_, maaasahan ka talaga, dahil inaasik
 
 
 
-Ibinalita nila sa iglesya <i class="trans-change">rito_ ang tungkol sa pag-ibig mo. Kung maaari, tulungan mo sila sa paraang kalugod-lugod sa Dios upang makapagpatuloy sila sa kanilang paglalakbay. 
+Ibinalita nila sa iglesya rito_ ang tungkol sa pag-ibig mo. Kung maaari, tulungan mo sila sa paraang kalugod-lugod sa Dios upang makapagpatuloy sila sa kanilang paglalakbay. 
 
 
 
@@ -236,7 +236,7 @@ Kaya dapat lang na tulungan natin sila, nang sa ganoon ay maging kabahagi tayo s
 
 
 
-Sumulat ako sa iglesya <i class="trans-change">riyan_ tungkol sa bagay na ito, ngunit hindi kami kinilala ni Diotrefes na gustong manguna sa inyo. 
+Sumulat ako sa iglesya riyan_ tungkol sa bagay na ito, ngunit hindi kami kinilala ni Diotrefes na gustong manguna sa inyo. 
 
 
 
@@ -269,7 +269,7 @@ Sumulat ako sa iglesya <i class="trans-change">riyan_ tungkol sa bagay na ito, n
 
 
 
-Kaya kapag pumunta ako riyan, sasabihin ko sa inyo ang mga pinaggagawa niya – ang mga paninirang ikinakalat niya tungkol sa amin. Bukod pa rito, hindi niya tinatanggap ang mga kapatid <i class="trans-change">na dumaraan diyan_, at pinagbabawalan pa niya ang iba na tumulong sa kanila. At ang mga gusto namang tumulong ay pinapaalis niya sa iglesya. 
+Kaya kapag pumunta ako riyan, sasabihin ko sa inyo ang mga pinaggagawa niya – ang mga paninirang ikinakalat niya tungkol sa amin. Bukod pa rito, hindi niya tinatanggap ang mga kapatid na dumaraan diyan_, at pinagbabawalan pa niya ang iba na tumulong sa kanila. At ang mga gusto namang tumulong ay pinapaalis niya sa iglesya. 
 
 
 
@@ -302,7 +302,7 @@ Kaya kapag pumunta ako riyan, sasabihin ko sa inyo ang mga pinaggagawa niya – 
 
 
 
-Mahal <i class="trans-change">kong kaibigan_, huwag mong gayahin ang masamang <i class="trans-change">ginagawa ng taong iyan_. Sa halip, gawin mo ang mabuti. Ang gumagawa ng mabuti ay sa Dios, at ang gumagawa ng masama ay hindi nakakakilala sa Dios. 
+Mahal kong kaibigan_, huwag mong gayahin ang masamang ginagawa ng taong iyan_. Sa halip, gawin mo ang mabuti. Ang gumagawa ng mabuti ay sa Dios, at ang gumagawa ng masama ay hindi nakakakilala sa Dios. 
 
 
 

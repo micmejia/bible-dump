@@ -172,7 +172,7 @@ Pero ngayon ay binigyan ako ng Panginoon na aking Dios ng kapayapaan sa paligid,
 
 
 
-Kaya naisip ko na magpatayo na ng templo para sa karangalan ng Panginoon na aking Dios, ayon sa sinabi ng Panginoon sa aking amang si David. Ito ang kanyang sinabi, 'Ang iyong anak, na ipapalit ko sa iyo bilang hari ang siyang magpapatayo ng templo para sa <i class="trans-change">karangalan ng_ aking pangalan.' 
+Kaya naisip ko na magpatayo na ng templo para sa karangalan ng Panginoon na aking Dios, ayon sa sinabi ng Panginoon sa aking amang si David. Ito ang kanyang sinabi, 'Ang iyong anak, na ipapalit ko sa iyo bilang hari ang siyang magpapatayo ng templo para sa karangalan ng_ aking pangalan.' 
 
 
 
@@ -403,7 +403,7 @@ At pinadalhan naman ni Solomon si Hiram ng 60,000 sakong trigo at 110,000 galong
 
 
 
-Binigyan ng Panginoon si Solomon ng karunungan ayon sa kanyang ipinangako. Maganda ang relasyon nina Solomon at Hiram, at gumawa sila ng kasunduan <i class="trans-change">na hindi sila maglalaban_. 
+Binigyan ng Panginoon si Solomon ng karunungan ayon sa kanyang ipinangako. Maganda ang relasyon nina Solomon at Hiram, at gumawa sila ng kasunduan na hindi sila maglalaban_. 
 
 
 

@@ -39,7 +39,7 @@ next: ['Phil 2']
 
 
 
-<i class="trans-change">Mula kay_ Pablo, kasama si Timoteo na kapwa ko lingkod ni Jesu-Cristo. Mahal kong mga banal na nakay Cristo Jesus diyan sa Filipos, kasama ng mga namumuno sa inyo at ng mga tumutulong sa kanila: 
+Mula kay_ Pablo, kasama si Timoteo na kapwa ko lingkod ni Jesu-Cristo. Mahal kong mga banal na nakay Cristo Jesus diyan sa Filipos, kasama ng mga namumuno sa inyo at ng mga tumutulong sa kanila: 
 
 
 
@@ -538,7 +538,7 @@ Totoong may ilan diyan na nangangaral lang tungkol kay Cristo dahil naiinggit si
 
 
 
-<i class="trans-change">Nangangaral sila_ dahil sa pagmamahal, at alam nilang dinala ako rito <i class="trans-change">ng Dios_ para ipagtanggol ang Magandang Balita. 
+Nangangaral sila_ dahil sa pagmamahal, at alam nilang dinala ako rito ng Dios_ para ipagtanggol ang Magandang Balita. 
 
 
 
@@ -703,7 +703,7 @@ Malaki ang hangarin at pag-asa ko na hindi ako mapapahiya, kundi tulad ng dati, 
 
 
 
-Sapagkat para sa akin, ang buhay ko ay para kay Cristo. At kung mamatay man ako, kapakinabangan ito sa akin <i class="trans-change">dahil makakapiling ko na siya_. 
+Sapagkat para sa akin, ang buhay ko ay para kay Cristo. At kung mamatay man ako, kapakinabangan ito sa akin dahil makakapiling ko na siya_. 
 
 
 

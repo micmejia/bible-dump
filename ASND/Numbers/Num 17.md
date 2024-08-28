@@ -139,7 +139,7 @@ Sa baston ng lahi ni Levi, isulat ang pangalan ni Aaron dahil kailangang may isa
 
 
 
-Ilagay mo ang lahat ng ito sa Toldang Tipanan, sa harapan ng <i class="trans-change">Kahon ng_ Kasunduan kung saan ako nakikipagkita sa inyo ni Aaron. 
+Ilagay mo ang lahat ng ito sa Toldang Tipanan, sa harapan ng Kahon ng_ Kasunduan kung saan ako nakikipagkita sa inyo ni Aaron. 
 
 
 
@@ -172,7 +172,7 @@ Ilagay mo ang lahat ng ito sa Toldang Tipanan, sa harapan ng <i class="trans-cha
 
 
 
-At ang baston ng taong pipiliin ko <i class="trans-change">na maglingkod sa akin bilang pari_ ay sisibulan at sa pamamagitan nito, titigil ang pagrereklamo ng mga Israelita laban sa inyo ni Aaron." 
+At ang baston ng taong pipiliin ko na maglingkod sa akin bilang pari_ ay sisibulan at sa pamamagitan nito, titigil ang pagrereklamo ng mga Israelita laban sa inyo ni Aaron." 
 
 
 
@@ -337,7 +337,7 @@ Pagkatapos, inilabas ni Moises ang lahat ng baston at ipinakita sa lahat ng mga 
 
 
 
-Sinabi ng Panginoon kay Moises, "Ibalik ang baston ni Aaron sa harapan ng <i class="trans-change">Kahon ng_ Kasunduan para maging babala ito sa mga rebelde na mamamatay sila kung hindi sila titigil sa pagrerebelde laban sa akin." 
+Sinabi ng Panginoon kay Moises, "Ibalik ang baston ni Aaron sa harapan ng Kahon ng_ Kasunduan para maging babala ito sa mga rebelde na mamamatay sila kung hindi sila titigil sa pagrerebelde laban sa akin." 
 
 
 

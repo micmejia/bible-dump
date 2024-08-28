@@ -238,7 +238,7 @@ Sinabi niya, "Iniluklok ko na ang hinirang kong hari sa kanyang trono sa Zion, s
 
 
 
-<i class="trans-change">Sinabi ng hari na hinirang ng Dios_, "Sasabihin ko ang sinabi sa akin ng Panginoon: 'Ikaw ang Anak ko, at ngayon, ipapahayag ko na ako ang iyong Ama. 
+Sinabi ng hari na hinirang ng Dios_, "Sasabihin ko ang sinabi sa akin ng Panginoon: 'Ikaw ang Anak ko, at ngayon, ipapahayag ko na ako ang iyong Ama. 
 
 
 

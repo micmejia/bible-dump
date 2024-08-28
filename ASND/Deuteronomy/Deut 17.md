@@ -669,4 +669,4 @@ Dapat niya itong ingatan at laging basahin sa buong buhay niya para matuto siyan
 
 
 
-Sa pamamagitan din ng laging pagbabasa nito, makakaiwas siya sa pagyayabang sa kapwa niya Israelita, at makakaiwas siya sa pagsuway sa mga utos ng Panginoon. <i class="trans-change">Kung susundin niyang lahat ito_, maghahari siya at ang kanyang angkan nang matagal sa Israel.
+Sa pamamagitan din ng laging pagbabasa nito, makakaiwas siya sa pagyayabang sa kapwa niya Israelita, at makakaiwas siya sa pagsuway sa mga utos ng Panginoon. Kung susundin niyang lahat ito_, maghahari siya at ang kanyang angkan nang matagal sa Israel.

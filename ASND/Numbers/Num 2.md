@@ -108,7 +108,7 @@ Sinabi ng Panginoon kina Moises at Aaron,
 
 
 
-Ang bilang ng lahat ng grupong ito na pinangungunahan ng lahi ni Juda ay 186,400. Sila ang nasa unahan kapag naglalakbay ang mga Israelita. <sup class="versenum">10-15</sup>"Ang mga lahi nina Reuben, Simeon at Gad ay magkakampo sa timog, sa ilalim ng bandila ng kani-kanilang lahi. Ito ang mga pangalan ng kanilang mga pinuno at ang bilang ng kanilang mga tauhan: 
+Ang bilang ng lahat ng grupong ito na pinangungunahan ng lahi ni Juda ay 186,400. Sila ang nasa unahan kapag naglalakbay ang mga Israelita. 10-15"Ang mga lahi nina Reuben, Simeon at Gad ay magkakampo sa timog, sa ilalim ng bandila ng kani-kanilang lahi. Ito ang mga pangalan ng kanilang mga pinuno at ang bilang ng kanilang mga tauhan: 
 
 
 
@@ -174,7 +174,7 @@ Ang bilang ng lahat ng grupong ito na pinangungunahan ng lahi ni Reuben ay 151,4
 
 
 
-"Kasunod nila ang mga Levita na nagdadala ng Toldang Tipanan. Ang lahat ng lahi ay maglalakad ng magkakasunod gaya ng kanilang posisyon kapag nagkakampo sila, bawat lahi ay nasa ilalim ng kani-kanilang bandila. <sup class="versenum">18-23</sup>"Ang mga lahi nina Efraim, Manase at Benjamin ay magkakampo sa kanluran, sa ilalim ng bandila ng kani-kanilang lahi. Ito ang mga pangalan ng kanilang mga pinuno at bilang ng kanilang mga tauhan: 
+"Kasunod nila ang mga Levita na nagdadala ng Toldang Tipanan. Ang lahat ng lahi ay maglalakad ng magkakasunod gaya ng kanilang posisyon kapag nagkakampo sila, bawat lahi ay nasa ilalim ng kani-kanilang bandila. 18-23"Ang mga lahi nina Efraim, Manase at Benjamin ay magkakampo sa kanluran, sa ilalim ng bandila ng kani-kanilang lahi. Ito ang mga pangalan ng kanilang mga pinuno at bilang ng kanilang mga tauhan: 
 
 
 
@@ -207,7 +207,7 @@ Ang bilang ng lahat ng grupong ito na pinangungunahan ng lahi ni Reuben ay 151,4
 
 
 
-Ang bilang ng lahat ng grupong ito na pinangungunahan ng lahi ni Efraim ay 108,100. Sila ang susunod sa lahi ni Levi kapag naglalakbay ang mga Israelita. <sup class="versenum">25-30</sup>"Ang mga lahi nina Dan, Asher at Naftali ay magkakampo sa hilaga, sa ilalim ng bandila ng kani-kanilang lahi. Ito ang mga pangalan ng kanilang mga pinuno at ang bilang ng kanilang mga tauhan: 
+Ang bilang ng lahat ng grupong ito na pinangungunahan ng lahi ni Efraim ay 108,100. Sila ang susunod sa lahi ni Levi kapag naglalakbay ang mga Israelita. 25-30"Ang mga lahi nina Dan, Asher at Naftali ay magkakampo sa hilaga, sa ilalim ng bandila ng kani-kanilang lahi. Ito ang mga pangalan ng kanilang mga pinuno at ang bilang ng kanilang mga tauhan: 
 
 
 

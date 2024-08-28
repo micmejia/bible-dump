@@ -469,7 +469,7 @@ Gusto lamang nila akong takutin at magkasala sa pamamagitan ng pagsunod sa sinas
 
 
 
-<i class="trans-change">Kaya nanalangin ako,_ "O aking Dios, huwag nʼyo pong kalimutan <i class="trans-change">na parusahan_ si Tobia at si Sanbalat sa kanilang <i class="trans-change">masamang_ ginawa, pati na ang babaeng propeta na si Noadias at ang iba pang mga propeta na naghahangad na takutin ako." ## Natapos ang Pagpapatayo ng Pader 
+Kaya nanalangin ako,_ "O aking Dios, huwag nʼyo pong kalimutan na parusahan_ si Tobia at si Sanbalat sa kanilang masamang_ ginawa, pati na ang babaeng propeta na si Noadias at ang iba pang mga propeta na naghahangad na takutin ako." ## Natapos ang Pagpapatayo ng Pader 
 
 
 
@@ -502,7 +502,7 @@ Gusto lamang nila akong takutin at magkasala sa pamamagitan ng pagsunod sa sinas
 
 
 
-Natapos ang pader noong ika-25 araw ng <i class="trans-change">ikaanim na buwan, na siyang_ buwan ng Elul. Natapos ito sa loob ng 52 araw. 
+Natapos ang pader noong ika-25 araw ng ikaanim na buwan, na siyang_ buwan ng Elul. Natapos ito sa loob ng 52 araw. 
 
 
 

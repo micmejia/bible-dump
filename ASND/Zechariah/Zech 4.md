@@ -205,7 +205,7 @@ Tinanong ko ang anghel na nakikipag-usap sa akin, "Ano po ba ang ibig sabihin ng
 
 
 
-Sinabi niya sa akin, "<i class="trans-change">Bago ko sagutin iyan, pakinggan mo muna_ itong mensahe ng Panginoong Makapangyarihan na sasabihin mo kay Zerubabel: "<i class="trans-change">Zerubabel, matatapos mo ang pagtatayo ng templo_ hindi sa pamamagitan ng lakas o kakayahan ng tao kundi sa pamamagitan ng aking Espiritu. 
+Sinabi niya sa akin, "Bago ko sagutin iyan, pakinggan mo muna_ itong mensahe ng Panginoong Makapangyarihan na sasabihin mo kay Zerubabel: "Zerubabel, matatapos mo ang pagtatayo ng templo_ hindi sa pamamagitan ng lakas o kakayahan ng tao kundi sa pamamagitan ng aking Espiritu. 
 
 
 
@@ -238,7 +238,7 @@ Sinabi niya sa akin, "<i class="trans-change">Bago ko sagutin iyan, pakinggan mo
 
 
 
-Maging kasinlaki man ng bundok ang hadlang na iyong haharapin, papatagin iyan. <i class="trans-change">Matatapos ang templo,_ at habang inilalagay ang kahuli-hulihang bato nito, isisigaw ng mga tao, 'Panginoon, pagpalain nʼyo po ito.'" 
+Maging kasinlaki man ng bundok ang hadlang na iyong haharapin, papatagin iyan. Matatapos ang templo,_ at habang inilalagay ang kahuli-hulihang bato nito, isisigaw ng mga tao, 'Panginoon, pagpalain nʼyo po ito.'" 
 
 
 
@@ -271,7 +271,7 @@ Maging kasinlaki man ng bundok ang hadlang na iyong haharapin, papatagin iyan. <
 
 
 
-Kaya <i class="trans-change">sa pamamagitan ng anghel_, sinabi sa akin ng Panginoon 
+Kaya sa pamamagitan ng anghel_, sinabi sa akin ng Panginoon 
 
 
 
@@ -337,7 +337,7 @@ na matatapos ang templo sa pamamahala ni Zerubabel, gaya ng pamamahala niya sa p
 
 
 
-May mga taong kumukutya dahil kakaunti pa lamang ang nagagawa sa pagpapatayo ng templo. Pero matutuwa sila kapag nakita na nilang inilalagay ni Zerubabel ang pinakahuli at natatanging bato sa templo. Pagkatapos, <i class="trans-change">sinabi sa akin ng anghel,_ "Ang pitong ilawang iyan ay ang mata ng Panginoon na nagmamasid sa buong mundo." 
+May mga taong kumukutya dahil kakaunti pa lamang ang nagagawa sa pagpapatayo ng templo. Pero matutuwa sila kapag nakita na nilang inilalagay ni Zerubabel ang pinakahuli at natatanging bato sa templo. Pagkatapos, sinabi sa akin ng anghel,_ "Ang pitong ilawang iyan ay ang mata ng Panginoon na nagmamasid sa buong mundo." 
 
 
 

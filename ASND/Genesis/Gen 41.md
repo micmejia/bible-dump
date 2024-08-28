@@ -205,7 +205,7 @@ Muling nakatulog ang Faraon at nanaginip na naman. Sa kanyang panaginip, nakakit
 
 
 
-At sa sanga ring iyon, sumulpot ang pitong uhay na payat ang butil na natuyo dahil sa <i class="trans-change">mainit na_ hangin na galing sa silangan. 
+At sa sanga ring iyon, sumulpot ang pitong uhay na payat ang butil na natuyo dahil sa mainit na_ hangin na galing sa silangan. 
 
 
 
@@ -271,7 +271,7 @@ Kinain agad ng mapapayat na uhay ang pitong matatabang uhay. At nagising agad an
 
 
 
-Kinaumagahan, litong-lito ang isip ng Faraon <i class="trans-change">tungkol sa mga panaginip niya_, kaya ipinatawag niya ang lahat ng salamangkero at matatalinong tao sa Egipto. Sinabi niya sa kanila ang mga panaginip niya, pero wala ni isa man sa kanila ang makapagpaliwanag kung ano ang kahulugan nito. 
+Kinaumagahan, litong-lito ang isip ng Faraon tungkol sa mga panaginip niya_, kaya ipinatawag niya ang lahat ng salamangkero at matatalinong tao sa Egipto. Sinabi niya sa kanila ang mga panaginip niya, pero wala ni isa man sa kanila ang makapagpaliwanag kung ano ang kahulugan nito. 
 
 
 
@@ -766,7 +766,7 @@ Pero pagkakain nila, hindi man lang halata na nakakain sila ng ganoon dahil gano
 
 
 
-At sa sanga ring iyon, sumulpot din ang pitong uhay na payat ang butil at natuyo dahil sa <i class="trans-change">mainit na_ hangin na galing sa silangan. 
+At sa sanga ring iyon, sumulpot din ang pitong uhay na payat ang butil at natuyo dahil sa mainit na_ hangin na galing sa silangan. 
 
 
 
@@ -832,7 +832,7 @@ At kinain ng mga payat na uhay ang pitong matatabang butil na uhay. Sinabi ko na
 
 
 
-Sinabi ni Jose sa Faraon, "Mahal na Hari, ang dalawang panaginip po ninyo ay iisa lang ang kahulugan. <i class="trans-change">Sa pamamagitan ng mga panaginip ninyo_, ipinapahayag sa inyo ng Dios kung ano ang kanyang gagawin. 
+Sinabi ni Jose sa Faraon, "Mahal na Hari, ang dalawang panaginip po ninyo ay iisa lang ang kahulugan. Sa pamamagitan ng mga panaginip ninyo_, ipinapahayag sa inyo ng Dios kung ano ang kanyang gagawin. 
 
 
 
@@ -898,7 +898,7 @@ Ang pitong matatabang baka at pitong matatabang uhay ay parehong pitong taon ang
 
 
 
-Ang pitong payat at pangit na baka at ang pitong payat na butil na uhay na pinatigas ng <i class="trans-change">mainit na_ hangin na galing sa silangan ay nangangahulugan po ng pitong taong taggutom. 
+Ang pitong payat at pangit na baka at ang pitong payat na butil na uhay na pinatigas ng mainit na_ hangin na galing sa silangan ay nangangahulugan po ng pitong taong taggutom. 
 
 
 
@@ -1030,7 +1030,7 @@ Pero susundan po agad ito ng pitong taon na taggutom, at makakalimutan na ng mga
 
 
 
-Matinding taggutom po ang darating na parang hindi nakaranas ng kasaganaan ang lupain <i class="trans-change">ng Egipto_. 
+Matinding taggutom po ang darating na parang hindi nakaranas ng kasaganaan ang lupain ng Egipto_. 
 
 
 
@@ -1162,7 +1162,7 @@ Maglagay din po kayo ng mga opisyal sa buong Egipto para ihanda ang lugar na ito
 
 
 
-Sa mga panahong iyon, ipaipon nʼyo rin po sa kanila ang lahat ng <i class="trans-change">makokolekta ninyo galing sa_ mga ani at sa ilalim ng inyong pamamahala, ipatago po ninyo sa kanila ang mga ani sa mga kamalig ng mga lungsod. 
+Sa mga panahong iyon, ipaipon nʼyo rin po sa kanila ang lahat ng makokolekta ninyo galing sa_ mga ani at sa ilalim ng inyong pamamahala, ipatago po ninyo sa kanila ang mga ani sa mga kamalig ng mga lungsod. 
 
 
 
@@ -1294,7 +1294,7 @@ Sinabi niya sa kanyang mga opisyal, "Wala na tayong makikita pang ibang tao na k
 
 
 
-Kaya sinabi ng Faraon kay Jose, "Sapagkat sinabi sa iyo ng Dios ang mga bagay na ito, wala na sigurong iba pang tao na may kaalaman at pang-unawa na kagaya mo. <sup class="versenum">40-41</sup>Gagawin kita ngayon na tagapamahala ng aking kaharian at gobernador ng buong Egipto, at susunod sa iyo ang lahat ng tauhan ko. Pero mas mataas pa rin ang karapatan ko kaysa sa iyo." 
+Kaya sinabi ng Faraon kay Jose, "Sapagkat sinabi sa iyo ng Dios ang mga bagay na ito, wala na sigurong iba pang tao na may kaalaman at pang-unawa na kagaya mo. 40-41Gagawin kita ngayon na tagapamahala ng aking kaharian at gobernador ng buong Egipto, at susunod sa iyo ang lahat ng tauhan ko. Pero mas mataas pa rin ang karapatan ko kaysa sa iyo." 
 
 
 
@@ -1327,7 +1327,7 @@ Kaya sinabi ng Faraon kay Jose, "Sapagkat sinabi sa iyo ng Dios ang mga bagay na
 
 
 
-Tinanggal agad ng Faraon ang kanyang singsing na pangtatak at isinuot sa daliri ni Jose. Pinasuotan niya si Jose ng <i class="trans-change">espesyal na_ damit na gawa sa <i class="trans-change">telang_ linen at pinasuotan ng gintong kwintas. 
+Tinanggal agad ng Faraon ang kanyang singsing na pangtatak at isinuot sa daliri ni Jose. Pinasuotan niya si Jose ng espesyal na_ damit na gawa sa telang_ linen at pinasuotan ng gintong kwintas. 
 
 
 
@@ -1426,7 +1426,7 @@ Sinabi pa ng Faraon kay Jose, "Ako ang hari rito sa Egipto, Pero walang sinuman 
 
 
 
-Pinangalanan niya si Jose ng Zafenat Panea. Pinag-asawa rin niya si Jose kay Asenat na anak ni Potifera na pari mula sa <i class="trans-change">lungsod ng_ On. Bilang gobernador, si Jose na ang namahala sa Egipto. 
+Pinangalanan niya si Jose ng Zafenat Panea. Pinag-asawa rin niya si Jose kay Asenat na anak ni Potifera na pari mula sa lungsod ng_ On. Bilang gobernador, si Jose na ang namahala sa Egipto. 
 
 
 
@@ -1525,7 +1525,7 @@ Tunay ngang naging masagana ang ani sa loob ng pitong taong kasaganaan.
 
 
 
-At sa panahong iyon, ipinaipon ni Jose ang lahat ng <i class="trans-change">nakolekta galing sa_ mga ani. Ipinatago niya sa bawat lungsod ang mga ani na galing sa bukid sa palibot nito. 
+At sa panahong iyon, ipinaipon ni Jose ang lahat ng nakolekta galing sa_ mga ani. Ipinatago niya sa bawat lungsod ang mga ani na galing sa bukid sa palibot nito. 
 
 
 
@@ -1591,7 +1591,7 @@ Napakarami ng trigong naipon ni Jose; parang kasing dami ng buhangin sa tabing-d
 
 
 
-Bago dumating ang taggutom, ipinanganak ang dalawang anak ni Jose kay Asenat na anak ni Potifera na pari <i class="trans-change">ng lungsod_ ng On. 
+Bago dumating ang taggutom, ipinanganak ang dalawang anak ni Jose kay Asenat na anak ni Potifera na pari ng lungsod_ ng On. 
 
 
 
@@ -1624,7 +1624,7 @@ Bago dumating ang taggutom, ipinanganak ang dalawang anak ni Jose kay Asenat na 
 
 
 
-Pinangalanan ni Jose ang panganay na Manase dahil ayon sa kanya, "Dahil sa tulong ng Dios, nakalimutan ko ang mga paghihirap ko at ang <i class="trans-change">aking pananabik sa_ sambahayan ng aking ama." 
+Pinangalanan ni Jose ang panganay na Manase dahil ayon sa kanya, "Dahil sa tulong ng Dios, nakalimutan ko ang mga paghihirap ko at ang aking pananabik sa_ sambahayan ng aking ama." 
 
 
 

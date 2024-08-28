@@ -172,7 +172,7 @@ Ang ating Tagapagligtas, na ang pangalan ay Panginoong Makapangyarihan ay ang Ba
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Babilonia, maupo ka nang tahimik doon sa dilim. Hindi ka na tatawaging reyna ng mga kaharian. 
+Sinabi ng Panginoon,_ "Babilonia, maupo ka nang tahimik doon sa dilim. Hindi ka na tatawaging reyna ng mga kaharian. 
 
 
 

@@ -106,7 +106,7 @@ next: ['Exod 24']
 
 
 
-Huwag ninyong papaboran ang kaso ng mga mahihirap <i class="trans-change">dahil lang sa kanilang kalagayan_. 
+Huwag ninyong papaboran ang kaso ng mga mahihirap dahil lang sa kanilang kalagayan_. 
 
 
 
@@ -372,7 +372,7 @@ Huwag kayong magbibintang sa iba nang walang katotohanan. Huwag ninyong papatayi
 
 
 
-Pero sa ikapitong taon, huwag nʼyo itong tataniman. <i class="trans-change">Kung may tutubong pananim sa lupa ninyo, pabayaan ninyo_ ang mahihirap na makakuha ng mga pananim para kainin, at kung may matira, ipakain na lang ninyo sa mga hayop. Ganito rin ang gagawin ninyo sa mga ubasan at taniman ng olibo. 
+Pero sa ikapitong taon, huwag nʼyo itong tataniman. Kung may tutubong pananim sa lupa ninyo, pabayaan ninyo_ ang mahihirap na makakuha ng mga pananim para kainin, at kung may matira, ipakain na lang ninyo sa mga hayop. Ganito rin ang gagawin ninyo sa mga ubasan at taniman ng olibo. 
 
 
 
@@ -405,7 +405,7 @@ Pero sa ikapitong taon, huwag nʼyo itong tataniman. <i class="trans-change">Kun
 
 
 
-"Magtrabaho kayo sa loob ng anim na araw, pero huwag kayong magtatrabaho sa ikapitong araw, para makapagpahinga kayo, ang mga baka at asno ninyo, ang mga alipin ninyo at ang mga dayuhan <i class="trans-change">na naninirahang kasama ninyo_. 
+"Magtrabaho kayo sa loob ng anim na araw, pero huwag kayong magtatrabaho sa ikapitong araw, para makapagpahinga kayo, ang mga baka at asno ninyo, ang mga alipin ninyo at ang mga dayuhan na naninirahang kasama ninyo_. 
 
 
 
@@ -539,7 +539,7 @@ Ipagdiwang ninyo ang Pista ng Tinapay na Walang Pampaalsa. Kagaya ng iniutos ko 
 
 
 
-"Ipagdiwang din ninyo ang Pista ng Pag-aani <i class="trans-change">sa pamamagitan ng pagdadala_ ng mga unang ani ng inyong bukid. Ipagdiwang din ninyo ang Pista ng Huling Pag-ani sa katapusan ng taon kapag titipunin na ninyo ang mga ani sa mga bukid ninyo. 
+"Ipagdiwang din ninyo ang Pista ng Pag-aani sa pamamagitan ng pagdadala_ ng mga unang ani ng inyong bukid. Ipagdiwang din ninyo ang Pista ng Huling Pag-ani sa katapusan ng taon kapag titipunin na ninyo ang mga ani sa mga bukid ninyo. 
 
 
 
@@ -770,7 +770,7 @@ Kung makikinig lang kayo nang mabuti sa sinasabi niya at gagawin ang lahat ng si
 
 
 
-Pangungunahan kayo ng aking anghel at dadalhin kayo sa <i class="trans-change">lupain ng_ mga Amoreo, Heteo, Perezeo, Cananeo, Hiveo at Jebuseo, at lilipulin ko sila. 
+Pangungunahan kayo ng aking anghel at dadalhin kayo sa lupain ng_ mga Amoreo, Heteo, Perezeo, Cananeo, Hiveo at Jebuseo, at lilipulin ko sila. 
 
 
 
@@ -836,7 +836,7 @@ Huwag kayong sasamba o maglilingkod sa mga dios-diosan nila, o tutularan ang mga
 
 
 
-Sambahin ninyo <i class="trans-change">ako_, ang Panginoon na inyong Dios, at bibigyan ko kayo ng masaganang pagkain at tubig. Pagagalingin ko ang inyong mga karamdaman, 
+Sambahin ninyo ako_, ang Panginoon na inyong Dios, at bibigyan ko kayo ng masaganang pagkain at tubig. Pagagalingin ko ang inyong mga karamdaman, 
 
 
 
@@ -1034,7 +1034,7 @@ Unti-unti ko silang itataboy hanggang sa dumami na kayo at kaya na ninyong angki
 
 
 
-"Sisiguraduhin ko na ang hangganan ng lupain ninyo ay magsisimula sa Dagat na Pula hanggang sa Dagat ng Mediteraneo, at mula sa disyerto <i class="trans-change">sa timog_ hanggang sa Ilog <i class="trans-change">ng Eufrates_. Ibibigay ko sa inyo ang mga nakatira sa lupaing iyon, at itataboy nʼyo sila. 
+"Sisiguraduhin ko na ang hangganan ng lupain ninyo ay magsisimula sa Dagat na Pula hanggang sa Dagat ng Mediteraneo, at mula sa disyerto sa timog_ hanggang sa Ilog ng Eufrates_. Ibibigay ko sa inyo ang mga nakatira sa lupaing iyon, at itataboy nʼyo sila. 
 
 
 

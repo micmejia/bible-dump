@@ -534,7 +534,7 @@ Makinig kayo! Darating ang Panginoon na may dalang apoy. Sasakay siya sa kanyang
 
 
 
-Sapagkat sa pamamagitan ng apoy at espada, parurusahan ng Panginoon ang lahat ng taong <i class="trans-change">makasalanan, at_ marami ang kanyang papatayin. 
+Sapagkat sa pamamagitan ng apoy at espada, parurusahan ng Panginoon ang lahat ng taong makasalanan, at_ marami ang kanyang papatayin. 
 
 
 
@@ -699,7 +699,7 @@ At dadalhin nilang pauwi mula sa mga bansa ang lahat ng mga kababayan ninyo na n
 
 
 
-At ang iba sa kanila ay gagawin kong pari at mga katulong ng pari sa templo. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito." 
+At ang iba sa kanila ay gagawin kong pari at mga katulong ng pari sa templo. Ako,_ ang Panginoon, ang nagsasabi nito." 
 
 
 

@@ -337,7 +337,7 @@ si Ahimaaz ay ama ni Azaria, at si Azaria ay ama ni Johanan.
 
 
 
-Si Johanan ay ama ni Azaria na siyang <i class="trans-change">punong_ pari nang ipinatayo ni Solomon ang templo sa Jerusalem. 
+Si Johanan ay ama ni Azaria na siyang punong_ pari nang ipinatayo ni Solomon ang templo sa Jerusalem. 
 
 
 
@@ -1067,7 +1067,7 @@ May mga taong itinalaga ni David sa pag-awit at pagtugtog sa bahay ng Panginoon 
 
 
 
-Naglingkod sila sa pamamagitan ng pag-awit doon sa Toldang Sambahan na <i class="trans-change">tinatawag ding_ Toldang Tipanan hanggang sa panahon na naipatayo ni Solomon ang templo ng Panginoon sa Jerusalem. Ginawa nila ang kanilang gawain ayon sa mga tuntunin na ipinatupad sa kanila. 
+Naglingkod sila sa pamamagitan ng pag-awit doon sa Toldang Sambahan na tinatawag ding_ Toldang Tipanan hanggang sa panahon na naipatayo ni Solomon ang templo ng Panginoon sa Jerusalem. Ginawa nila ang kanilang gawain ayon sa mga tuntunin na ipinatupad sa kanila. 
 
 
 
@@ -1298,7 +1298,7 @@ Si Kora ay anak ni Izar. Si Izar ay anak ni Kohat. Si Kohat ay anak ni Levi. Si 
 
 
 
-Si Asaf <i class="trans-change">na mula sa angkan ni Gershon_. Siya ang unang tagapamahala ni Heman. (Si Asaf ay anak ni Berekia. Si Berekia ay anak ni Shimea. 
+Si Asaf na mula sa angkan ni Gershon_. Siya ang unang tagapamahala ni Heman. (Si Asaf ay anak ni Berekia. Si Berekia ay anak ni Shimea. 
 
 
 
@@ -2158,7 +2158,7 @@ Kaya ibinigay ng mga Israelita sa mga Levita ang mga bayang ito at ang mga pastu
 
 
 
-Ibinigay din <i class="trans-change">sa lahi ni Levi_ ang mga nabanggit na bayan na mula sa lahi nina Juda, Simeon at Benjamin. 
+Ibinigay din sa lahi ni Levi_ ang mga nabanggit na bayan na mula sa lahi nina Juda, Simeon at Benjamin. 
 
 
 

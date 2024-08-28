@@ -73,7 +73,7 @@ Mga kapatid, kayo na rin ang nakakaalam na hindi nasayang ang pagpunta namin diy
 
 
 
-Alam nʼyo ang mga paghihirap at pag-aalipusta na dinanas namin sa Filipos <i class="trans-change">bago pa man kami dumating diyan sa inyo_. Pero sa kabila nito, binigyan kami ng Dios ng lakas ng loob na ipangaral ang Magandang Balita sa inyo, kahit na maraming hadlang. 
+Alam nʼyo ang mga paghihirap at pag-aalipusta na dinanas namin sa Filipos bago pa man kami dumating diyan sa inyo_. Pero sa kabila nito, binigyan kami ng Dios ng lakas ng loob na ipangaral ang Magandang Balita sa inyo, kahit na maraming hadlang. 
 
 
 
@@ -304,7 +304,7 @@ At dahil mahal namin kayo, hindi lang ang Magandang Balita ang malugod naming ib
 
 
 
-Tiyak na natatandaan nʼyo pa, mga kapatid, ang pagsisikap namin <i class="trans-change">noong nasa inyo pa kami_. Habang ipinangangaral namin ang Magandang Balita ng Dios, araw-gabi kaming nagtatrabaho para hindi kami maging pabigat sa inyo. 
+Tiyak na natatandaan nʼyo pa, mga kapatid, ang pagsisikap namin noong nasa inyo pa kami_. Habang ipinangangaral namin ang Magandang Balita ng Dios, araw-gabi kaming nagtatrabaho para hindi kami maging pabigat sa inyo. 
 
 
 
@@ -535,7 +535,7 @@ Silang mga Judio ang pumatay sa Panginoong Jesus at sa mga propeta noon. Sila ri
 
 
 
-Hinahadlangan nila ang pangangaral namin <i class="trans-change">ng salita ng Dios_ sa mga hindi Judio na siyang ikaliligtas ng mga ito. Dahil dito, umabot na sa sukdulan ang mga kasalanan nila at hahatulan na sila ng Dios.
+Hinahadlangan nila ang pangangaral namin ng salita ng Dios_ sa mga hindi Judio na siyang ikaliligtas ng mga ito. Dahil dito, umabot na sa sukdulan ang mga kasalanan nila at hahatulan na sila ng Dios.
 
 ## Ang Hangarin ni Pablo na Makadalaw Muli sa Tesalonica 
 
@@ -570,7 +570,7 @@ Hinahadlangan nila ang pangangaral namin <i class="trans-change">ng salita ng Di
 
 
 
-Mga kapatid, nananabik na kaming makita kayong <i class="trans-change">muli,_ kahit sandali pa lang kaming nawalay sa inyo. Nawalay nga kami sa katawan, pero hindi sa isipan. 
+Mga kapatid, nananabik na kaming makita kayong muli,_ kahit sandali pa lang kaming nawalay sa inyo. Nawalay nga kami sa katawan, pero hindi sa isipan. 
 
 
 
@@ -636,7 +636,7 @@ Gusto naming bumalik diyan sa inyo, lalung-lalo na ako, si Pablo. Maraming beses
 
 
 
-<i class="trans-change">Gusto naming bumalik,_ dahil walang ibang nagbibigay sa amin ng pag-asa at kagalakan kundi kayo. Hindi baʼt kayo rin ang maipagmamalaki namin sa harap ng Panginoong Jesu-Cristo sa pagbabalik niya? 
+Gusto naming bumalik,_ dahil walang ibang nagbibigay sa amin ng pag-asa at kagalakan kundi kayo. Hindi baʼt kayo rin ang maipagmamalaki namin sa harap ng Panginoong Jesu-Cristo sa pagbabalik niya? 
 
 
 

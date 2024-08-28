@@ -39,7 +39,7 @@ next: ['1 Pet 2']
 
 
 
-<i class="trans-change">Mula kay_ Pedro na apostol ni Jesu-Cristo. <i class="trans-change">Mahal kong_ mga pinili ng Dios na nangalat at naninirahan bilang mga dayuhan sa Pontus, Galacia, Capadosia, Asia at Bitinia: 
+Mula kay_ Pedro na apostol ni Jesu-Cristo. Mahal kong_ mga pinili ng Dios na nangalat at naninirahan bilang mga dayuhan sa Pontus, Galacia, Capadosia, Asia at Bitinia: 
 
 
 
@@ -72,7 +72,7 @@ next: ['1 Pet 2']
 
 
 
-Pinili na kayo ng Dios Ama noon pa para maging mga anak niya sa pamamagitan ng <i class="trans-change">Banal na_ Espiritu, para sundin nʼyo si Jesu-Cristo at upang linisin kayo sa mga kasalanan nʼyo sa pamamagitan ng kanyang dugo. Sumainyo nawa ang higit pang biyaya at kapayapaan.
+Pinili na kayo ng Dios Ama noon pa para maging mga anak niya sa pamamagitan ng Banal na_ Espiritu, para sundin nʼyo si Jesu-Cristo at upang linisin kayo sa mga kasalanan nʼyo sa pamamagitan ng kanyang dugo. Sumainyo nawa ang higit pang biyaya at kapayapaan.
 
 ## May Inihanda ang Dios para sa Atin
 
@@ -208,7 +208,7 @@ para masubukan kung talagang tunay ang pananampalataya ninyo. Katulad ng ginto, 
 
 
 
-Kahit hindi nʼyo siya nakita ay mahal nʼyo siya, at kahit hindi nʼyo pa siya nakikita hanggang ngayon, sumasampalataya <i class="trans-change">pa rin_ kayo sa kanya. At nag-uumapaw ang inyong kagalakan na hindi kayang ipahayag ng bibig, 
+Kahit hindi nʼyo siya nakita ay mahal nʼyo siya, at kahit hindi nʼyo pa siya nakikita hanggang ngayon, sumasampalataya pa rin_ kayo sa kanya. At nag-uumapaw ang inyong kagalakan na hindi kayang ipahayag ng bibig, 
 
 
 
@@ -340,7 +340,7 @@ Ipinahayag na sa kanila ng Espiritu ni Cristo na nasa kanila, na maghihirap siya
 
 
 
-Ipinahayag din sa kanila na ang mga bagay na ipinaalam nila ay hindi para sa ikabubuti nila kundi para sa atin. At ngayon, napakinggan nʼyo na sa mga nangangaral ng Magandang Balita ang mga ipinahayag nila. Nagsalita sila sa inyo sa pamamagitan ng <i class="trans-change">kapangyarihan ng_ Banal na Espiritung sinugo sa kanila mula sa langit. Kahit ang mga anghel noon ay nagnais na maunawaan ang Magandang Balitang ito na ipinangaral sa inyo.
+Ipinahayag din sa kanila na ang mga bagay na ipinaalam nila ay hindi para sa ikabubuti nila kundi para sa atin. At ngayon, napakinggan nʼyo na sa mga nangangaral ng Magandang Balita ang mga ipinahayag nila. Nagsalita sila sa inyo sa pamamagitan ng kapangyarihan ng_ Banal na Espiritung sinugo sa kanila mula sa langit. Kahit ang mga anghel noon ay nagnais na maunawaan ang Magandang Balitang ito na ipinangaral sa inyo.
 
 ## Sundin Ninyo ang Dios 
 
@@ -474,7 +474,7 @@ Banal ang Dios na tumawag sa inyo, kaya dapat magpakabanal din kayo sa lahat ng 
 
 
 
-Sapagkat sinasabi <i class="trans-change">ng Dios_ sa Kasulatan, "Magpakabanal kayo dahil banal ako." 
+Sapagkat sinasabi ng Dios_ sa Kasulatan, "Magpakabanal kayo dahil banal ako." 
 
 
 
@@ -606,7 +606,7 @@ kundi ang mahalagang dugo ni Cristo. Katulad siya ng isang tupa na walang dungis
 
 
 
-Bago pa likhain ang mundo, pinili na ng Dios si Cristo <i class="trans-change">para maging Tagapagligtas natin_. At ipinahayag siya ng Dios nitong mga huling araw alang-alang sa inyo. 
+Bago pa likhain ang mundo, pinili na ng Dios si Cristo para maging Tagapagligtas natin_. At ipinahayag siya ng Dios nitong mga huling araw alang-alang sa inyo. 
 
 
 
@@ -639,7 +639,7 @@ Bago pa likhain ang mundo, pinili na ng Dios si Cristo <i class="trans-change">p
 
 
 
-Sa pamamagitan niya, sumasampalataya kayo sa Dios na muling bumuhay at nagparangal sa kanya. Kaya ang pananalig nʼyo ay sa Dios, at umaasa kayo sa kanya <i class="trans-change">na muli niya rin kayong bubuhayin at pararangalan_. 
+Sa pamamagitan niya, sumasampalataya kayo sa Dios na muling bumuhay at nagparangal sa kanya. Kaya ang pananalig nʼyo ay sa Dios, at umaasa kayo sa kanya na muli niya rin kayong bubuhayin at pararangalan_. 
 
 
 
@@ -672,7 +672,7 @@ Sa pamamagitan niya, sumasampalataya kayo sa Dios na muling bumuhay at nagparang
 
 
 
-At dahil sumusunod na kayo sa katotohanan, malinis na kayo sa mga kasalanan ninyo, at ngayon ay nagkaroon na kayo ng tapat na pagmamahal sa mga kapatid nʼyo <i class="trans-change">kay Cristo_. Magmahalan kayo ng taos-puso, 
+At dahil sumusunod na kayo sa katotohanan, malinis na kayo sa mga kasalanan ninyo, at ngayon ay nagkaroon na kayo ng tapat na pagmamahal sa mga kapatid nʼyo kay Cristo_. Magmahalan kayo ng taos-puso, 
 
 
 
@@ -738,7 +738,7 @@ dahil ipinanganak na kayong muli. At ang kapanganakang itoʼy hindi sa pamamagit
 
 
 
-<i class="trans-change">Ayon sa Kasulatan,_ "Ang lahat ng tao ay parang damo, ang kanilang katanyagan ay parang bulaklak nito. Ang damo ay nalalanta at ang bulaklak nito ay nalalaglag, 
+Ayon sa Kasulatan,_ "Ang lahat ng tao ay parang damo, ang kanilang katanyagan ay parang bulaklak nito. Ang damo ay nalalanta at ang bulaklak nito ay nalalaglag, 
 
 
 

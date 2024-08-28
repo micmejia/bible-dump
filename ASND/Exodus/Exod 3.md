@@ -205,7 +205,7 @@ Sinabi ng Dios, "Huwag ka nang lumapit pa. Tanggalin mo ang iyong sandalyas, dah
 
 
 
-Ako ang Dios ng iyong mga ninuno, ang Dios nina Abraham, Isaac, at Jacob." <i class="trans-change">Nang marinig ito ni Moises,_ tinakpan niya ang kanyang mukha, dahil natatakot siyang tumingin sa Dios. 
+Ako ang Dios ng iyong mga ninuno, ang Dios nina Abraham, Isaac, at Jacob." Nang marinig ito ni Moises,_ tinakpan niya ang kanyang mukha, dahil natatakot siyang tumingin sa Dios. 
 
 
 
@@ -469,7 +469,7 @@ Sinabi ni Moises sa Dios, "Kung sakali pong pumunta ako ngayon sa mga Israelita 
 
 
 
-Sumagot ang Dios kay Moises, "Ako nga ang <i class="trans-change">Dios na_ ganoon pa rin. Ito ang isagot mo sa kanila: 'Ang Dios na ganoon pa rin ang nagpadala sa akin.' " 
+Sumagot ang Dios kay Moises, "Ako nga ang Dios na_ ganoon pa rin. Ito ang isagot mo sa kanila: 'Ang Dios na ganoon pa rin ang nagpadala sa akin.' " 
 
 
 
@@ -535,7 +535,7 @@ Sinabi pa ng Dios kay Moises, "Sabihin mo ito sa mga Israelita: 'Ang Panginoon, 
 
 
 
-<i class="trans-change">At sinabi pa ng Panginoon kay Moises,_ "Lumakad ka at tipunin ang mga tagapamahala ng Israel at sabihin mo sa kanila, 'Ang Panginoon, ang Dios ng inyong mga ninuno na sina Abraham, Isaac, at Jacob ay nagpakita sa akin, at nagsabi na: Binabantayan ko kayo, at nakita ko ang ginagawa ng mga Egipcio sa inyo. 
+At sinabi pa ng Panginoon kay Moises,_ "Lumakad ka at tipunin ang mga tagapamahala ng Israel at sabihin mo sa kanila, 'Ang Panginoon, ang Dios ng inyong mga ninuno na sina Abraham, Isaac, at Jacob ay nagpakita sa akin, at nagsabi na: Binabantayan ko kayo, at nakita ko ang ginagawa ng mga Egipcio sa inyo. 
 
 
 
@@ -733,4 +733,4 @@ Kaya parurusahan ko ang mga Egipcio sa pamamagitan ng mga himalang gagawin ko sa
 
 
 
-Ang mga <i class="trans-change">Israelitang_ babae ay manghihingi ng mga alahas na pilak at ginto at mga damit sa mga kapitbahay nila <i class="trans-change">na Egipcio_ at sa mga babaeng bisita nito. At ipapasuot ninyo ang mga bagay na ito sa inyong mga anak. Sa pamamagitan nito, masasamsam ninyo ang mga ari-arian ng mga Egipcio."
+Ang mga Israelitang_ babae ay manghihingi ng mga alahas na pilak at ginto at mga damit sa mga kapitbahay nila na Egipcio_ at sa mga babaeng bisita nito. At ipapasuot ninyo ang mga bagay na ito sa inyong mga anak. Sa pamamagitan nito, masasamsam ninyo ang mga ari-arian ng mga Egipcio."

@@ -40,7 +40,7 @@ next: ['Esth 5']
 
 
 
-Nang malaman ni Mordecai ang plano laban sa kanila, pinunit niya ang damit niya <i class="trans-change">bilang pagpapakita ng kanyang pagdadalamhati_. At nagsuot siya ng sako, naglagay ng abo sa ulo, at pumasok sa lungsod na umiiyak nang napakalakas. 
+Nang malaman ni Mordecai ang plano laban sa kanila, pinunit niya ang damit niya bilang pagpapakita ng kanyang pagdadalamhati_. At nagsuot siya ng sako, naglagay ng abo sa ulo, at pumasok sa lungsod na umiiyak nang napakalakas. 
 
 
 
@@ -238,7 +238,7 @@ Kaya pinuntahan naman ni Hatak si Mordecai sa plasa ng lungsod na nasa harap ng 
 
 
 
-Sinabi sa kanya ni Mordecai ang lahat ng nangyari at kung magkano ang ipinangako ni Haman na ibibigay sa taguan ng kayamanan ng kaharian <i class="trans-change">ng Susa_, para patayin ang lahat ng Judio. 
+Sinabi sa kanya ni Mordecai ang lahat ng nangyari at kung magkano ang ipinangako ni Haman na ibibigay sa taguan ng kayamanan ng kaharian ng Susa_, para patayin ang lahat ng Judio. 
 
 
 

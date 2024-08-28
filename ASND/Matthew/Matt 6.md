@@ -436,7 +436,7 @@ Patawarin nʼyo kami sa aming mga kasalanan, tulad ng pagpapatawad namin sa mga 
 
 
 
-At huwag nʼyo kaming hayaang matukso kundi iligtas nʼyo po kami kay Satanas. [Sapagkat kayo ang Hari, ang Makapangyarihan at Dakilang <i class="trans-change">Dios_ magpakailanman!]' 
+At huwag nʼyo kaming hayaang matukso kundi iligtas nʼyo po kami kay Satanas. [Sapagkat kayo ang Hari, ang Makapangyarihan at Dakilang Dios_ magpakailanman!]' 
 
 
 
@@ -733,7 +733,7 @@ Sapagkat kung nasaan ang inyong kayamanan, naroon din ang inyong puso." ## Ang I
 
 
 
-"Ang mata ang <i class="trans-change">nagsisilbing_ ilaw ng katawan. Kung malinaw ang iyong mata, maliliwanagan ang buo mong katawan. 
+"Ang mata ang nagsisilbing_ ilaw ng katawan. Kung malinaw ang iyong mata, maliliwanagan ang buo mong katawan. 
 
 
 
@@ -766,7 +766,7 @@ Sapagkat kung nasaan ang inyong kayamanan, naroon din ang inyong puso." ## Ang I
 
 
 
-Ngunit kung malabo ang iyong mata, madidiliman ang buo mong katawan. Kaya kung ang <i class="trans-change">nagsisilbing_ ilaw mo ay walang ibinibigay na liwanag, napakadilim ng kalagayan mo." ## Sino ang Dapat Nating Paglingkuran, Ang Dios o ang Kayamanan? 
+Ngunit kung malabo ang iyong mata, madidiliman ang buo mong katawan. Kaya kung ang nagsisilbing_ ilaw mo ay walang ibinibigay na liwanag, napakadilim ng kalagayan mo." ## Sino ang Dapat Nating Paglingkuran, Ang Dios o ang Kayamanan? 
 
 
 
@@ -865,7 +865,7 @@ Ngunit kung malabo ang iyong mata, madidiliman ang buo mong katawan. Kaya kung a
 
 
 
-Tingnan ninyo ang mga ibon sa himpapawid. Hindi sila nagtatanim, o nag-aani, o nag-iipon <i class="trans-change">ng pagkain_ sa bodega, ngunit pinapakain sila ng inyong Amang nasa langit. Hindi baʼt mas mahalaga kayo kaysa sa mga ibon? 
+Tingnan ninyo ang mga ibon sa himpapawid. Hindi sila nagtatanim, o nag-aani, o nag-iipon ng pagkain_ sa bodega, ngunit pinapakain sila ng inyong Amang nasa langit. Hindi baʼt mas mahalaga kayo kaysa sa mga ibon? 
 
 
 
@@ -997,7 +997,7 @@ Ngunit sasabihin ko sa inyo: kahit si Solomon ay hindi nakapagsuot ng damit na k
 
 
 
-Kung dinadamitan ng Dios nang ganito ang mga damo sa parang, na buhay ngayon pero kinabukasan ay <i class="trans-change">malalanta at_ susunugin, kayo pa kaya? Kay liit ng inyong pananampalataya! 
+Kung dinadamitan ng Dios nang ganito ang mga damo sa parang, na buhay ngayon pero kinabukasan ay malalanta at_ susunugin, kayo pa kaya? Kay liit ng inyong pananampalataya! 
 
 
 

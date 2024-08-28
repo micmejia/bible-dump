@@ -370,7 +370,7 @@ Nilagyan ko ng hangganan ang dagat; parang pintuang isinara at nilagyan ng trang
 
 
 
-Sinabihan ko <i class="trans-change">ang dagat_, 'Hanggang dito ka lang at huwag kang lalampas; hanggang dito lang ang malalaki mong alon.' 
+Sinabihan ko ang dagat_, 'Hanggang dito ka lang at huwag kang lalampas; hanggang dito lang ang malalaki mong alon.' 
 
 
 
@@ -403,7 +403,7 @@ Sinabihan ko <i class="trans-change">ang dagat_, 'Hanggang dito ka lang at huwag
 
 
 
-"Minsan ba sa buhay mo <i class="trans-change">Job_ ay nautusan mo ang umaga na magbukang-liwayway 
+"Minsan ba sa buhay mo Job_ ay nautusan mo ang umaga na magbukang-liwayway 
 
 
 
@@ -1030,7 +1030,7 @@ Ang tubig ay nagyeyelo na kasingtigas ng bato, pati na ang itaas na bahagi ng da
 
 
 
-"Kaya mo bang talian o kalagan ng tali ang <i class="trans-change">grupo ng mga bituin na tinatawag na_ Pleyades at Orion? 
+"Kaya mo bang talian o kalagan ng tali ang grupo ng mga bituin na tinatawag na_ Pleyades at Orion? 
 
 
 
@@ -1063,7 +1063,7 @@ Ang tubig ay nagyeyelo na kasingtigas ng bato, pati na ang itaas na bahagi ng da
 
 
 
-Mapapatnubayan mo ba ang mga bituin na lumabas sa tamang oras? Maituturo mo ba sa <i class="trans-change">grupo ng mga bituing tinatawag na_ Malaki at Maliit na Oso ang kanilang daan? 
+Mapapatnubayan mo ba ang mga bituin na lumabas sa tamang oras? Maituturo mo ba sa grupo ng mga bituing tinatawag na_ Malaki at Maliit na Oso ang kanilang daan? 
 
 
 

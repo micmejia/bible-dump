@@ -139,7 +139,7 @@ Sa araw na iyon, gagawin kong parang mabigat na bato ang Jerusalem, at ang alinm
 
 
 
-Ngunit tatakutin ko ang lahat ng kanilang mga kabayo at lilituhin ang mga sakay nito. <i class="trans-change">Ako,_ ang Panginoon, ay nagsasabing babantayan ko ang mga mamamayan ng Juda, ngunit bubulagin ko ang mga kabayo ng mga bansa. 
+Ngunit tatakutin ko ang lahat ng kanilang mga kabayo at lilituhin ang mga sakay nito. Ako,_ ang Panginoon, ay nagsasabing babantayan ko ang mga mamamayan ng Juda, ngunit bubulagin ko ang mga kabayo ng mga bansa. 
 
 
 
@@ -238,7 +238,7 @@ At sasabihin ng mga pinuno ng Juda sa kanilang sarili, 'Matatag ang mga mamamaya
 
 
 
-Una kong pagtatagumpayin ang <i class="trans-change">ibang mga lungsod ng_ Juda upang ang karangalan ng mga angkan ni David at ng mga taga-Jerusalem ay hindi hihigit sa <i class="trans-change">ibang mga lungsod ng_ Juda. 
+Una kong pagtatagumpayin ang ibang mga lungsod ng_ Juda upang ang karangalan ng mga angkan ni David at ng mga taga-Jerusalem ay hindi hihigit sa ibang mga lungsod ng_ Juda. 
 
 
 
@@ -370,4 +370,4 @@ Sa araw na iyon, lilipulin ko ang lahat ng bansang sasalakay sa Jerusalem.
 
 
 
-Sa araw na iyon, ang iyakan sa Jerusalem ay magiging kasintindi ng iyakan para kay Hadad Rimon sa kapatagan ng Megido. <sup class="versenum">12-14</sup>Iiyak ang bawat pamilya sa lupain <i class="trans-change">ng Israel_: ang mga pamilya ng angkan nina David, Natan, Levi, Shimei, at ang iba pang mga pamilya. Magkahiwalay na mag-iiyakan ang mga lalaki at mga babae."
+Sa araw na iyon, ang iyakan sa Jerusalem ay magiging kasintindi ng iyakan para kay Hadad Rimon sa kapatagan ng Megido. 12-14Iiyak ang bawat pamilya sa lupain ng Israel_: ang mga pamilya ng angkan nina David, Natan, Levi, Shimei, at ang iba pang mga pamilya. Magkahiwalay na mag-iiyakan ang mga lalaki at mga babae."

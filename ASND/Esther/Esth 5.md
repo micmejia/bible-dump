@@ -172,7 +172,7 @@ Sumagot si Ester, "Mahal na Hari, kung ibig po ninyo, inaanyayahan ko po kayo at
 
 
 
-Sinabi ng hari <i class="trans-change">sa mga alipin niya_, "Tawagin ninyo si Haman para masunod namin ang nais ni Ester." Kaya pumunta agad ang hari at si Haman sa hapunang inihanda ni Ester. 
+Sinabi ng hari sa mga alipin niya_, "Tawagin ninyo si Haman para masunod namin ang nais ni Ester." Kaya pumunta agad ang hari at si Haman sa hapunang inihanda ni Ester. 
 
 
 

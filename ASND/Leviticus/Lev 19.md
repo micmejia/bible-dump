@@ -667,7 +667,7 @@ Sundin ninyo ang aking mga utos. Huwag ninyong palalahian ang isang hayop sa iba
 
 
 
-Kung ang isang lalaki ay sumiping sa isang aliping babae na nakatakdang ikasal sa ibang lalaki, pero hindi pa natutubos o napapalaya ang babae, dapat silang parusahan. Pero huwag silang patayin dahil hindi pa napapalaya ang nasabing babae. <sup class="versenum">21-22</sup>Kinakailangang magdala ang lalaki ng lalaking tupa malapit sa may pintuan ng Toldang Tipanan bilang handog na pambayad sa kanyang kasalanan sa Panginoon. Sa paghahandog ng pari ng tupang iyon sa aking harapan, matutubos ang lalaking iyon sa kanyang kasalanan at patatawarin ko siya. 
+Kung ang isang lalaki ay sumiping sa isang aliping babae na nakatakdang ikasal sa ibang lalaki, pero hindi pa natutubos o napapalaya ang babae, dapat silang parusahan. Pero huwag silang patayin dahil hindi pa napapalaya ang nasabing babae. 21-22Kinakailangang magdala ang lalaki ng lalaking tupa malapit sa may pintuan ng Toldang Tipanan bilang handog na pambayad sa kanyang kasalanan sa Panginoon. Sa paghahandog ng pari ng tupang iyon sa aking harapan, matutubos ang lalaking iyon sa kanyang kasalanan at patatawarin ko siya. 
 
 
 
@@ -733,7 +733,7 @@ Kapag dumating na kayo sa lupaing ibibigay ko sa inyo, huwag ninyong kakainin an
 
 
 
-Sa ikaapat na taon, ang lahat ng bunga ay ihandog ninyo sa akin bilang papuri sa akin <i class="trans-change">kaya huwag ninyo itong kakainin_. 
+Sa ikaapat na taon, ang lahat ng bunga ay ihandog ninyo sa akin bilang papuri sa akin kaya huwag ninyo itong kakainin_. 
 
 
 
@@ -799,7 +799,7 @@ Sa ikalimang taon, makakain na ninyo ang mga bunga ng inyong mga pananim. At kun
 
 
 
-Huwag kayong kakain ng <i class="trans-change">karneng_ may dugo pa. Huwag ninyong gagawin ang ginagawa ng mga manghuhula at mangkukulam. 
+Huwag kayong kakain ng karneng_ may dugo pa. Huwag ninyong gagawin ang ginagawa ng mga manghuhula at mangkukulam. 
 
 
 
@@ -832,7 +832,7 @@ Huwag kayong kakain ng <i class="trans-change">karneng_ may dugo pa. Huwag ninyo
 
 
 
-<i class="trans-change">Kung magluluksa kayo sa patay,_ huwag ninyong pagugupitan ang inyong buhok sa palibot ng inyong ulo o magpuputol ng inyong balbas. 
+Kung magluluksa kayo sa patay,_ huwag ninyong pagugupitan ang inyong buhok sa palibot ng inyong ulo o magpuputol ng inyong balbas. 
 
 
 
@@ -997,7 +997,7 @@ Huwag kayong sasangguni sa mga espiritistang nakikipag-usap sa kaluluwa ng mga p
 
 
 
-Igalang ninyo ang matatanda. Igalang nʼyo <i class="trans-change">ako na_ inyong Dios, ako ang Panginoon. 
+Igalang ninyo ang matatanda. Igalang nʼyo ako na_ inyong Dios, ako ang Panginoon. 
 
 
 
@@ -1096,4 +1096,4 @@ Ituring ninyo silang gaya ng inyong mga kababayan at ibigin ninyo sila gaya ng s
 
 
 
-Huwag kayong mandadaya sa inyong pagtitimbang, pagsukat at pagtatakal. <sup class="versenum">36-37</sup>Gamitin ninyo ang tamang timbangan, sukatan, o takalan. Ako ang Panginoon na inyong Dios na naglabas sa inyo sa Egipto. Sundin ninyo ang lahat ng tuntunin at utos ko. Ako ang Panginoon.
+Huwag kayong mandadaya sa inyong pagtitimbang, pagsukat at pagtatakal. 36-37Gamitin ninyo ang tamang timbangan, sukatan, o takalan. Ako ang Panginoon na inyong Dios na naglabas sa inyo sa Egipto. Sundin ninyo ang lahat ng tuntunin at utos ko. Ako ang Panginoon.

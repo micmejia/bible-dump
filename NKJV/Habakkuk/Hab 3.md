@@ -15,7 +15,7 @@ A prayer of Habakkuk the prophet, on Shigionoth.
 O Lord, I have heard Your speech _and_ was afraid; O Lord, revive Your work in the midst of the years! In the midst of the years make _it_ known; In wrath remember mercy. 
 
 ###### 3 
-God came from Teman, The Holy One from Mount Paran. <i class="selah">Selah_ His glory covered the heavens, And the earth was full of His praise. 
+God came from Teman, The Holy One from Mount Paran. Selah_ His glory covered the heavens, And the earth was full of His praise. 
 
 ###### 4 
 _His_ brightness was like the light; He had rays _flashing_ from His hand, And there His power _was_ hidden. 
@@ -33,7 +33,7 @@ I saw the tents of Cushan in affliction; The curtains of the land of Midian trem
 O Lord, were _You_ displeased with the rivers, _Was_ Your anger against the rivers, _Was_ Your wrath against the sea, That You rode on Your horses, Your chariots of salvation? 
 
 ###### 9 
-Your bow was made quite ready; Oaths were sworn over _Your_ arrows. <i class="selah">Selah_ You divided the earth with rivers. 
+Your bow was made quite ready; Oaths were sworn over _Your_ arrows. Selah_ You divided the earth with rivers. 
 
 ###### 10 
 The mountains saw You _and_ trembled; The overflowing of the water passed by. The deep uttered its voice, _And_ lifted its hands on high. 
@@ -45,7 +45,7 @@ The sun and moon stood still in their habitation; At the light of Your arrows th
 You marched through the land in indignation; You trampled the nations in anger. 
 
 ###### 13 
-You went forth for the salvation of Your people, For salvation with Your Anointed. You struck the head from the house of the wicked, By laying bare from foundation to neck. <i class="selah">Selah_ 
+You went forth for the salvation of Your people, For salvation with Your Anointed. You struck the head from the house of the wicked, By laying bare from foundation to neck. Selah_ 
 
 ###### 14 
 You thrust through with his own arrows The head of his villages. They came out like a whirlwind to scatter me; Their rejoicing was like feasting on the poor in secret. 

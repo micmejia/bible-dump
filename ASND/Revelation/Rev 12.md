@@ -172,7 +172,7 @@ Tinangay ng buntot niya ang ikatlong bahagi ng mga bituin sa langit at itinapon 
 
 
 
-At nanganak nga ang babae ng isang sanggol na lalaki na siyang maghahari sa lahat ng bansa sa pamamagitan ng kamay na bakal. <i class="trans-change">Hindi nakain ng dragon ang sanggol dahil_ inagaw agad ang sanggol at dinala sa Dios doon sa kanyang trono. 
+At nanganak nga ang babae ng isang sanggol na lalaki na siyang maghahari sa lahat ng bansa sa pamamagitan ng kamay na bakal. Hindi nakain ng dragon ang sanggol dahil_ inagaw agad ang sanggol at dinala sa Dios doon sa kanyang trono. 
 
 
 
@@ -304,7 +304,7 @@ Ngunit natalo ang dragon at ang kanyang mga anghel, at pinalayas sila mula sa la
 
 
 
-Kaya itinaboy ang malaking dragon – ang ahas noong unang panahon na tinatawag na diyablo o Satanas na nanlilinlang sa <i class="trans-change">mga tao sa_ buong mundo. Itinapon siya sa lupa kasama ang kanyang mga anghel. 
+Kaya itinaboy ang malaking dragon – ang ahas noong unang panahon na tinatawag na diyablo o Satanas na nanlilinlang sa mga tao sa_ buong mundo. Itinapon siya sa lupa kasama ang kanyang mga anghel. 
 
 
 
@@ -568,7 +568,7 @@ Pero tinulungan ng lupa ang babae. Bumitak ito nang malalaki at hinigop ang tubi
 
 
 
-Lalo pang nagalit ang dragon kaya nilusob niya ang iba pang mga anak ng babae. Itoʼy walang iba kundi ang mga <i class="trans-change">taong_ sumusunod sa mga utos ng Dios at sa mga katotohanang itinuro ni Jesus. 
+Lalo pang nagalit ang dragon kaya nilusob niya ang iba pang mga anak ng babae. Itoʼy walang iba kundi ang mga taong_ sumusunod sa mga utos ng Dios at sa mga katotohanang itinuro ni Jesus. 
 
 
 

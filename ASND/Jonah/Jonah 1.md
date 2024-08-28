@@ -138,7 +138,7 @@ Pero tumakas agad sa Panginoon si Jonas at nagpasyang pumunta sa Tarshish. Pumun
 
 
 
-<i class="trans-change">Nang nasa laot na sila,_ nagpadala ang Panginoon ng napakalakas na hangin at halos mawasak na ang barko. 
+Nang nasa laot na sila,_ nagpadala ang Panginoon ng napakalakas na hangin at halos mawasak na ang barko. 
 
 
 
@@ -270,7 +270,7 @@ Nag-usap-usap ang mga tripulante, "Magpalabunutan na lang tayo upang malaman nat
 
 
 
-Kaya kinausap nila siya, "Gusto naming malaman kung sino ang dahilan ng pagdating ng sakunang ito. Sabihin mo kung ano ang iyong hanapbuhay at kung saan ka nanggaling. <i class="trans-change">Sabihin mo rin sa amin_ kung taga-saan ka at anong lahi mo." 
+Kaya kinausap nila siya, "Gusto naming malaman kung sino ang dahilan ng pagdating ng sakunang ito. Sabihin mo kung ano ang iyong hanapbuhay at kung saan ka nanggaling. Sabihin mo rin sa amin_ kung taga-saan ka at anong lahi mo." 
 
 
 
@@ -435,7 +435,7 @@ Sumagot si Jonas sa kanila, "Buhatin ninyo ako at ihagis sa dagat, at kakalma it
 
 
 
-<i class="trans-change">Hindi nila sinunod si Jonas,_ sa halip, sinikap ng mga tripulante na sumagwan papunta sa dalampasigan, pero nahirapan sila dahil lalo pang lumakas ang hangin. 
+Hindi nila sinunod si Jonas,_ sa halip, sinikap ng mga tripulante na sumagwan papunta sa dalampasigan, pero nahirapan sila dahil lalo pang lumakas ang hangin. 
 
 
 
@@ -501,7 +501,7 @@ Kaya tumawag sila sa Panginoon. Sinabi nila, "O Panginoon, nakikiusap po kami sa
 
 
 
-Kaya binuhat nila si Jonas at inihagis sa nagngangalit na dagat, at kumalma <i class="trans-change">nga_ ito. 
+Kaya binuhat nila si Jonas at inihagis sa nagngangalit na dagat, at kumalma nga_ ito. 
 
 
 

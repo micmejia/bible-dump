@@ -72,7 +72,7 @@ Tinipon ni Josue ang lahat ng lahi ng Israel sa Shekem. Tinawag niya ang mga tag
 
 
 
-Sinabi ni Josue sa lahat ng tao, "Ito ang sinasabi ng Panginoon, ang Dios ng Israel, 'Noon, ang mga ninuno nʼyo ay nakatira sa kabila ng Ilog <i class="trans-change">ng Eufrates_ at sumamba sa ibang mga dios-diosan. Isa sa kanila ay si Tera na ama nina Abraham at Nahor. 
+Sinabi ni Josue sa lahat ng tao, "Ito ang sinasabi ng Panginoon, ang Dios ng Israel, 'Noon, ang mga ninuno nʼyo ay nakatira sa kabila ng Ilog ng Eufrates_ at sumamba sa ibang mga dios-diosan. Isa sa kanila ay si Tera na ama nina Abraham at Nahor. 
 
 
 
@@ -270,7 +270,7 @@ Humingi ng tulong sa akin ang inyong mga ninuno at nilagyan ko ng kadiliman ang 
 
 
 
-" 'Pagkatapos, dinala ko kayo sa lupain ng mga Amoreo sa silangan ng <i class="trans-change">Ilog ng_ Jordan. Nakipaglaban sila sa inyo, pero pinagtagumpay ko kayo sa kanila. Nilipol ko sila at nasakop nʼyo ang lupain nila. 
+" 'Pagkatapos, dinala ko kayo sa lupain ng mga Amoreo sa silangan ng Ilog ng_ Jordan. Nakipaglaban sila sa inyo, pero pinagtagumpay ko kayo sa kanila. Nilipol ko sila at nasakop nʼyo ang lupain nila. 
 
 
 
@@ -369,7 +369,7 @@ Pero hindi ko pinahintulutan si Balaam na gawin ito sa inyo. Sa halip, binasbasa
 
 
 
-" 'Pagkatapos, tumawid kayo sa <i class="trans-change">Ilog ng_ Jordan at nakarating sa Jerico. Nakipaglaban sa inyo ang mga taga-Jerico, ganoon din ang mga Amoreo, Perezeo, Cananeo, Heteo, Gergaseo, Hiveo at Jebuseo. Pinagtagumpay ko kayo laban sa kanila. 
+" 'Pagkatapos, tumawid kayo sa Ilog ng_ Jordan at nakarating sa Jerico. Nakipaglaban sa inyo ang mga taga-Jerico, ganoon din ang mga Amoreo, Perezeo, Cananeo, Heteo, Gergaseo, Hiveo at Jebuseo. Pinagtagumpay ko kayo laban sa kanila. 
 
 
 
@@ -468,7 +468,7 @@ Binigyan ko kayo ng lupaing hindi nʼyo pinaghirapan. Pinatira ko kayo sa mga lu
 
 
 
-"Kaya ngayon, igalang nʼyo ang Panginoon at paglingkuran na may katapatan. Itakwil na ninyo ang mga dios-diosang sinasamba noon ng mga ninuno nʼyo sa kabila ng Ilog <i class="trans-change">ng Eufrates_ at sa Egipto, at maglingkod kayo sa Panginoon. 
+"Kaya ngayon, igalang nʼyo ang Panginoon at paglingkuran na may katapatan. Itakwil na ninyo ang mga dios-diosang sinasamba noon ng mga ninuno nʼyo sa kabila ng Ilog ng Eufrates_ at sa Egipto, at maglingkod kayo sa Panginoon. 
 
 
 
@@ -501,7 +501,7 @@ Binigyan ko kayo ng lupaing hindi nʼyo pinaghirapan. Pinatira ko kayo sa mga lu
 
 
 
-Pero kung ayaw nʼyong maglingkod sa Panginoon, mamili kayo ngayon sa araw na ito kung sino ang paglilingkuran ninyo. Maglilingkod ba kayo sa mga dios na pinaglilingkuran ng mga ninuno nʼyo sa kabila ng Ilog <i class="trans-change">ng Eufrates_, o sa mga dios ng mga Amoreo na ang lupain ay tinitirhan nʼyo ngayon? Pero para sa akin at sa pamilya ko maglilingkod kami sa Panginoon." 
+Pero kung ayaw nʼyong maglingkod sa Panginoon, mamili kayo ngayon sa araw na ito kung sino ang paglilingkuran ninyo. Maglilingkod ba kayo sa mga dios na pinaglilingkuran ng mga ninuno nʼyo sa kabila ng Ilog ng Eufrates_, o sa mga dios ng mga Amoreo na ang lupain ay tinitirhan nʼyo ngayon? Pero para sa akin at sa pamilya ko maglilingkod kami sa Panginoon." 
 
 
 
@@ -1031,7 +1031,7 @@ Inilibing siya sa lupain niya sa Timnat Sera, sa kabundukan ng Efraim, sa hilaga
 
 
 
-Naglingkod sa Panginoon ang mga Israelita habang nabubuhay pa si Josue. At kahit patay na si Josue, nanatili pa rin sila sa paglilingkod sa Panginoon habang buhay pa ang mga tagapamahala <i class="trans-change">ng Israel_ na nakaranas ng lahat ng ginawa ng Panginoon para sa Israel. 
+Naglingkod sa Panginoon ang mga Israelita habang nabubuhay pa si Josue. At kahit patay na si Josue, nanatili pa rin sila sa paglilingkod sa Panginoon habang buhay pa ang mga tagapamahala ng Israel_ na nakaranas ng lahat ng ginawa ng Panginoon para sa Israel. 
 
 
 

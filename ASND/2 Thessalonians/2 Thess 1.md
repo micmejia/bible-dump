@@ -39,7 +39,7 @@ next: ['2 Thess 2']
 
 
 
-<i class="trans-change">Mula kay_ Pablo, <i class="trans-change">kasama_ sina Silas at Timoteo. <i class="trans-change">Mahal kong mga kapatid_ sa iglesya diyan sa Tesalonica na nasa Dios na ating Ama at sa Panginoong Jesu-Cristo: 
+Mula kay_ Pablo, kasama_ sina Silas at Timoteo. Mahal kong mga kapatid_ sa iglesya diyan sa Tesalonica na nasa Dios na ating Ama at sa Panginoong Jesu-Cristo: 
 
 
 
@@ -107,7 +107,7 @@ Sumainyo nawa ang biyaya at kapayapaang galing sa Dios Ama at sa Panginoong Jesu
 
 
 
-Mga kapatid, lagi kaming nagpapasalamat sa Dios dahil sa inyo. Nararapat lang na gawin namin ito, dahil patuloy na lumalago ang pananampalataya nʼyo <i class="trans-change">kay Cristo_ at pagmamahalan sa isaʼt isa. 
+Mga kapatid, lagi kaming nagpapasalamat sa Dios dahil sa inyo. Nararapat lang na gawin namin ito, dahil patuloy na lumalago ang pananampalataya nʼyo kay Cristo_ at pagmamahalan sa isaʼt isa. 
 
 
 
@@ -140,7 +140,7 @@ Mga kapatid, lagi kaming nagpapasalamat sa Dios dahil sa inyo. Nararapat lang na
 
 
 
-Kaya naman, ipinagmamalaki namin kayo sa mga iglesya ng Dios <i class="trans-change">sa ibang lugar_ dahil sa katatagan at pananampalataya nʼyo, sa kabila ng lahat ng dinaranas ninyong paghihirap at pag-uusig. 
+Kaya naman, ipinagmamalaki namin kayo sa mga iglesya ng Dios sa ibang lugar_ dahil sa katatagan at pananampalataya nʼyo, sa kabila ng lahat ng dinaranas ninyong paghihirap at pag-uusig. 
 
 
 
@@ -272,7 +272,7 @@ At kayong mga naghihirap ay bibigyan niya ng kapahingahan kasama namin. Mangyaya
 
 
 
-<i class="trans-change">Darating siyang_ napapalibutan ng nagliliyab na apoy, at parurusahan niya ang mga hindi kumikilala sa Dios at hindi sumusunod sa Magandang Balita tungkol sa ating Panginoong Jesus. 
+Darating siyang_ napapalibutan ng nagliliyab na apoy, at parurusahan niya ang mga hindi kumikilala sa Dios at hindi sumusunod sa Magandang Balita tungkol sa ating Panginoong Jesus. 
 
 
 
@@ -338,7 +338,7 @@ Parurusahan sila ng walang hanggang paghihirap at pagkawalay sa Panginoon, at hi
 
 
 
-<i class="trans-change">Mangyayari ito_ sa araw ng pagbabalik niya, at papapurihan at pararangalan siya ng mga pinabanal niya na walang iba kundi ang lahat ng sumasampalataya sa kanya. <i class="trans-change">Kabilang kayo rito,_ dahil sumampalataya kayo sa ipinahayag namin <i class="trans-change">sa inyo_. 
+Mangyayari ito_ sa araw ng pagbabalik niya, at papapurihan at pararangalan siya ng mga pinabanal niya na walang iba kundi ang lahat ng sumasampalataya sa kanya. Kabilang kayo rito,_ dahil sumampalataya kayo sa ipinahayag namin sa inyo_. 
 
 
 

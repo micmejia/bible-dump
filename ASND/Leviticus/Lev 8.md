@@ -172,7 +172,7 @@ Dinala niya sa gitna si Aaron at ang mga anak niyang lalaki at silaʼy pinaligua
 
 
 
-Ipinasuot niya kay Aaron ang damit <i class="trans-change">bilang punong pari_: ang damit-panloob, ang sinturon, ang damit-panlabas, at ang espesyal na damit at binigkisang mabuti ng hinabing sinturon na maganda ang pagkakagawa. 
+Ipinasuot niya kay Aaron ang damit bilang punong pari_: ang damit-panloob, ang sinturon, ang damit-panlabas, at ang espesyal na damit at binigkisang mabuti ng hinabing sinturon na maganda ang pagkakagawa. 
 
 
 
@@ -370,7 +370,7 @@ Pagkatapos, binuhusan niya ng langis ang ulo ni Aaron bilang pagtatalaga sa kany
 
 
 
-At pinalapit niya sa gitna ang mga anak na lalaki ni Aaron at ipinasuot sa kanila ang kasuotan nila <i class="trans-change">na pampari_ at nilagyan ng sinturon. Ipinasuot din sa kanila ang kanilang mga turban. Ginawa ito ni Moises ayon sa iniutos sa kanya ng Panginoon. 
+At pinalapit niya sa gitna ang mga anak na lalaki ni Aaron at ipinasuot sa kanila ang kasuotan nila na pampari_ at nilagyan ng sinturon. Ipinasuot din sa kanila ang kanilang mga turban. Ginawa ito ni Moises ayon sa iniutos sa kanya ng Panginoon. 
 
 
 
@@ -436,7 +436,7 @@ Pagkatapos nitoʼy ipinakuha ni Moises ang baka na handog sa paglilinis. At ipin
 
 
 
-Pagkatapos, pinatay ni Moises ang baka at kumuha siya ng dugo. Inilubog niya ang kanyang daliri sa dugo at pinahiran niya ang <i class="trans-change">parang_ sungay sa mga sulok ng altar para luminis ito. At ang natirang dugo ay ibinuhos niya sa ilalim ng altar. Sa ganitong paraan niya itinalaga ang altar para sa Panginoon upang maging karapat-dapat na lugar na pinaghahandugan ng mga pantubos sa kasalanan. 
+Pagkatapos, pinatay ni Moises ang baka at kumuha siya ng dugo. Inilubog niya ang kanyang daliri sa dugo at pinahiran niya ang parang_ sungay sa mga sulok ng altar para luminis ito. At ang natirang dugo ay ibinuhos niya sa ilalim ng altar. Sa ganitong paraan niya itinalaga ang altar para sa Panginoon upang maging karapat-dapat na lugar na pinaghahandugan ng mga pantubos sa kasalanan. 
 
 
 
@@ -568,7 +568,7 @@ Pagkatapos, ipinakuha ni Moises ang lalaking tupa bilang handog na sinusunog. Ip
 
 
 
-At pinatay ni Moises ang tupa at iwinisik ang dugo sa paligid ng altar. <sup class="versenum">20-21</sup>Kinatay niya ang tupa at hinugasan ang mga lamang-loob at paa, at saka sinunog lahat doon sa altar pati na ang ulo at taba bilang handog na sinusunog. Ang mabangong samyo ng handog na ito sa pamamagitan ng apoy ay makalulugod sa Panginoon. Ginawa ito ni Moises ayon sa utos sa kanya ng Panginoon. 
+At pinatay ni Moises ang tupa at iwinisik ang dugo sa paligid ng altar. 20-21Kinatay niya ang tupa at hinugasan ang mga lamang-loob at paa, at saka sinunog lahat doon sa altar pati na ang ulo at taba bilang handog na sinusunog. Ang mabangong samyo ng handog na ito sa pamamagitan ng apoy ay makalulugod sa Panginoon. Ginawa ito ni Moises ayon sa utos sa kanya ng Panginoon. 
 
 
 
@@ -700,7 +700,7 @@ Pinapunta rin ni Moises sa gitna ang mga lalaking anak ni Aaron at pinahiran din
 
 
 
-Kinuha rin niya ang mga taba, ang matabang buntot, ang lahat ng taba sa lamang-loob, ang maliit na bahagi ng atay, ang mga bato pati ang taba nito, at ang kanang hita. <sup class="versenum">26-27</sup>Pagkatapos, kumuha rin si Moises ng tinapay mula sa basket na inihandog sa Panginoon – isang makapal na tinapay na walang pampaalsa, isang tinapay na may halong langis at isang tinapay na manipis. Pinahawakan niya ang lahat ng ito kay Aaron at sa mga anak nito pati na ang lahat ng taba at ang kanang hita ng tupa. At itinaas nila ito sa Panginoon bilang handog na itinataas. 
+Kinuha rin niya ang mga taba, ang matabang buntot, ang lahat ng taba sa lamang-loob, ang maliit na bahagi ng atay, ang mga bato pati ang taba nito, at ang kanang hita. 26-27Pagkatapos, kumuha rin si Moises ng tinapay mula sa basket na inihandog sa Panginoon – isang makapal na tinapay na walang pampaalsa, isang tinapay na may halong langis at isang tinapay na manipis. Pinahawakan niya ang lahat ng ito kay Aaron at sa mga anak nito pati na ang lahat ng taba at ang kanang hita ng tupa. At itinaas nila ito sa Panginoon bilang handog na itinataas. 
 
 
 
@@ -964,7 +964,7 @@ Ang Panginoon ang nag-utos sa atin na gawin natin ang ating ginagawa ngayon, par
 
 
 
-Kinakailangang manatili kayo rito araw at gabi sa loob ng pitong araw, at gawin ninyo ang ipinapagawa sa inyo ng Panginoon para hindi kayo mamatay, dahil ito ang iniutos sa akin ng Panginoon <i class="trans-change">na dapat ninyong gawin_." 
+Kinakailangang manatili kayo rito araw at gabi sa loob ng pitong araw, at gawin ninyo ang ipinapagawa sa inyo ng Panginoon para hindi kayo mamatay, dahil ito ang iniutos sa akin ng Panginoon na dapat ninyong gawin_." 
 
 
 

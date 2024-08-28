@@ -73,7 +73,7 @@ next: ['Exod 28']
 
 
 
-Palagyan ito ng <i class="trans-change">parang_ mga sungay sa apat na sulok, na kasama nang ginawa nang gawin ang altar. Pabalutan ng tanso ang altar. Ang lahat ng kagamitan ng altar ay kailangang gawa sa tanso – 
+Palagyan ito ng parang_ mga sungay sa apat na sulok, na kasama nang ginawa nang gawin ang altar. Pabalutan ng tanso ang altar. Ang lahat ng kagamitan ng altar ay kailangang gawa sa tanso – 
 
 
 
@@ -306,7 +306,7 @@ Ang ipapagawa mong altar ay tabla at dapat bakante sa loob. Ipagawa ito ayon sa 
 
 
 
-"Palagyan ng bakuran ang Toldang Sambahan, at palibutan ito ng kurtina na gawa sa pinong <i class="trans-change">telang_ linen. Ang haba ng kurtina sa bandang timog ay 150 talampakan. 
+"Palagyan ng bakuran ang Toldang Sambahan, at palibutan ito ng kurtina na gawa sa pinong telang_ linen. Ang haba ng kurtina sa bandang timog ay 150 talampakan. 
 
 
 
@@ -471,7 +471,7 @@ Ang kurtina sa bandang silangan ay 75 talampakan ang haba.
 
 
 
-Ang pintuan ng bakuran ay nasa silangan, <i class="trans-change">at may mga kurtina rin ito sa gilid._ Ang kurtina sa kanan ay 22 at kalahating talampakan ang haba, at nakakabit sa tatlong haligi na nakasuksok sa tatlo ring pundasyon. 
+Ang pintuan ng bakuran ay nasa silangan, at may mga kurtina rin ito sa gilid._ Ang kurtina sa kanan ay 22 at kalahating talampakan ang haba, at nakakabit sa tatlong haligi na nakasuksok sa tatlo ring pundasyon. 
 
 
 
@@ -537,7 +537,7 @@ Ang kurtina sa kaliwa ay 22 at kalahating talampakan ang haba, at nakakabit din 
 
 
 
-"Ang pintuan ng bakuran ay palagyan mo ng kurtina na 30 talampakan ang haba. Kailangang gawa ang kurtina mula sa pinong <i class="trans-change">telang_ linen na may lanang kulay asul, ube at pula. Kailangang napakaganda ng pagkakaburda nito. Pagkatapos, isabit ang kurtina sa apat na haligi na nakasuksok sa apat na pundasyon. 
+"Ang pintuan ng bakuran ay palagyan mo ng kurtina na 30 talampakan ang haba. Kailangang gawa ang kurtina mula sa pinong telang_ linen na may lanang kulay asul, ube at pula. Kailangang napakaganda ng pagkakaburda nito. Pagkatapos, isabit ang kurtina sa apat na haligi na nakasuksok sa apat na pundasyon. 
 
 
 
@@ -603,7 +603,7 @@ Kailangang may kawit at baras na pilak ang lahat ng haligi sa palibot ng bakuran
 
 
 
-Ang buong sukat ng bakuran ay 150 talampakan ang haba at 75 talampakan ang lapad. Napapalibutan ito ng kurtinang pinong <i class="trans-change">telang_ linen, na pitoʼt kalahating talampakan ang taas. <i class="trans-change">Ang mga haligi nito ay nakasuksok sa mga_ pundasyong tanso. 
+Ang buong sukat ng bakuran ay 150 talampakan ang haba at 75 talampakan ang lapad. Napapalibutan ito ng kurtinang pinong telang_ linen, na pitoʼt kalahating talampakan ang taas. Ang mga haligi nito ay nakasuksok sa mga_ pundasyong tanso. 
 
 
 
@@ -671,7 +671,7 @@ Kailangang purong tanso ang lahat ng kagamitan sa Toldang Sambahan pati na ang l
 
 
 
-"Utusan mo ang mga Israelita na dalhan ka nila ng purong langis na mula sa pinigang olibo para sa mga ilaw <i class="trans-change">ng Tolda_, para tuloy-tuloy ang pag-ilaw nito. 
+"Utusan mo ang mga Israelita na dalhan ka nila ng purong langis na mula sa pinigang olibo para sa mga ilaw ng Tolda_, para tuloy-tuloy ang pag-ilaw nito. 
 
 
 
@@ -704,4 +704,4 @@ Kailangang purong tanso ang lahat ng kagamitan sa Toldang Sambahan pati na ang l
 
 
 
-Ilagay ang lalagyan ng ilaw sa labas ng kurtina na tumatakip sa <i class="trans-change">Kahon ng_ Kasunduan. Si Aaron at ang mga anak niyang lalaki ang mag-aasikaso sa mga ilaw sa Toldang Tipanan. Sisindihan nila ito sa aking presensya araw at gabi. Ang tuntuning itoʼy dapat sundin ng mga Israelita at ng susunod pa nilang mga henerasyon.
+Ilagay ang lalagyan ng ilaw sa labas ng kurtina na tumatakip sa Kahon ng_ Kasunduan. Si Aaron at ang mga anak niyang lalaki ang mag-aasikaso sa mga ilaw sa Toldang Tipanan. Sisindihan nila ito sa aking presensya araw at gabi. Ang tuntuning itoʼy dapat sundin ng mga Israelita at ng susunod pa nilang mga henerasyon.

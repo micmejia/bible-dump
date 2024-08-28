@@ -139,7 +139,7 @@ Pagkatapos ng pitong taon, bumalik siya sa Israel at pumunta sa hari para magmak
 
 
 
-<i class="trans-change">Habang pumapasok siya,_ nakikipag-usap ang hari kay Gehazi na katulong ni Eliseo. Sinabi ng hari, "Sabihin mo sa akin ang lahat ng kamangha-manghang bagay na ginawa ni Eliseo." 
+Habang pumapasok siya,_ nakikipag-usap ang hari kay Gehazi na katulong ni Eliseo. Sinabi ng hari, "Sabihin mo sa akin ang lahat ng kamangha-manghang bagay na ginawa ni Eliseo." 
 
 
 
@@ -469,7 +469,7 @@ Sumagot si Hazael, "Paano magagawa ng isang aliping katulad ko ang mga bagay na 
 
 
 
-Umalis si Hazael at bumalik sa amo niya <i class="trans-change">na si Haring Ben Hadad_. Tinanong siya ni Ben Hadad, "Ano ang sinabi ni Eliseo sa iyo?" Sumagot si Hazael, "Sinabi niya po sa akin na tiyak na gagaling kayo." 
+Umalis si Hazael at bumalik sa amo niya na si Haring Ben Hadad_. Tinanong siya ni Ben Hadad, "Ano ang sinabi ni Eliseo sa iyo?" Sumagot si Hazael, "Sinabi niya po sa akin na tiyak na gagaling kayo." 
 
 
 
@@ -570,7 +570,7 @@ Naging hari ng Juda ang anak ni Jehoshafat na si Jehoram nang ikalimang taon ng 
 
 
 
-Si Jehoram ay 32 taong gulang nang maging hari. Sa Jerusalem <i class="trans-change">siya tumira, at_ naghari siya sa loob ng walong taon. 
+Si Jehoram ay 32 taong gulang nang maging hari. Sa Jerusalem siya tumira, at_ naghari siya sa loob ng walong taon. 
 
 
 
@@ -869,7 +869,7 @@ Naging hari ng Juda ang anak ni Jehoram na si Ahazia nang ika-12 taon ng paghaha
 
 
 
-Si Ahazia ay 22 taong gulang nang maging hari. Sa Jerusalem <i class="trans-change">siya tumira, at_ naghari siya sa loob ng isang taon. Ang ina niya ay si Atalia na apo ni Haring Omri ng Israel. 
+Si Ahazia ay 22 taong gulang nang maging hari. Sa Jerusalem siya tumira, at_ naghari siya sa loob ng isang taon. Ang ina niya ay si Atalia na apo ni Haring Omri ng Israel. 
 
 
 
@@ -902,4 +902,4 @@ Si Ahazia ay 22 taong gulang nang maging hari. Sa Jerusalem <i class="trans-chan
 
 
 
-Sumunod siya sa pamumuhay ng pamilya ni Ahab. Masama ang ginawa niya sa paningin ng Panginoon gaya ng ginawa ng pamilya ni Ahab dahil ginawa niyang asawa ang isa sa kapamilya nito. <sup class="versenum">28-29</sup>Sumama si Ahazia sa anak ni Ahab na si Joram sa pakikipaglaban kay Haring Hazael ng Aram. Nakipaglaban sila sa Ramot Gilead at nasugatan si Joram. Umuwi si Haring Joram sa <i class="trans-change">lungsod ng_ Jezreel para magpagaling ng sugat niya. Habang naroon siya, dinalaw siya ni Haring Ahazia ng Juda.
+Sumunod siya sa pamumuhay ng pamilya ni Ahab. Masama ang ginawa niya sa paningin ng Panginoon gaya ng ginawa ng pamilya ni Ahab dahil ginawa niyang asawa ang isa sa kapamilya nito. 28-29Sumama si Ahazia sa anak ni Ahab na si Joram sa pakikipaglaban kay Haring Hazael ng Aram. Nakipaglaban sila sa Ramot Gilead at nasugatan si Joram. Umuwi si Haring Joram sa lungsod ng_ Jezreel para magpagaling ng sugat niya. Habang naroon siya, dinalaw siya ni Haring Ahazia ng Juda.

@@ -304,7 +304,7 @@ Ang totoo, kahit ayaw niyang bumangon at magbigay sa inyo sa kabila ng inyong pa
 
 
 
-Kaya sinasabi ko sa inyo: Humingi kayo <i class="trans-change">sa Dios_, at bibigyan <i class="trans-change">niya_ kayo. Hanapin ninyo <i class="trans-change">sa kanya ang inyong hinahanap_, at makikita ninyo. Kumatok kayo <i class="trans-change">sa kanya_, at pagbubuksan kayo. 
+Kaya sinasabi ko sa inyo: Humingi kayo sa Dios_, at bibigyan niya_ kayo. Hanapin ninyo sa kanya ang inyong hinahanap_, at makikita ninyo. Kumatok kayo sa kanya_, at pagbubuksan kayo. 
 
 
 
@@ -535,7 +535,7 @@ Pero may ilan sa kanila ang nagsabi, "Si Satanas na pinuno ng masasamang espirit
 
 
 
-Ang iba naman ay gustong subukin si Jesus, kaya hiniling nilang magpakita siya ng himala mula sa Dios bilang patunay <i class="trans-change">na sugo siya ng Dios_. 
+Ang iba naman ay gustong subukin si Jesus, kaya hiniling nilang magpakita siya ng himala mula sa Dios bilang patunay na sugo siya ng Dios_. 
 
 
 
@@ -568,7 +568,7 @@ Ang iba naman ay gustong subukin si Jesus, kaya hiniling nilang magpakita siya n
 
 
 
-Pero alam niya ang kanilang iniisip, kaya sinabi niya sa kanila, "Kung ang <i class="trans-change">mga mamamayan ng_ isang kaharian ay nagkakawatak-watak at nag-aaway-away, mawawasak ang kahariang iyon. Ganoon din ang mangyayari sa isang tahanang <i class="trans-change">ang nakatira ay_ nag-aaway-away. 
+Pero alam niya ang kanilang iniisip, kaya sinabi niya sa kanila, "Kung ang mga mamamayan ng_ isang kaharian ay nagkakawatak-watak at nag-aaway-away, mawawasak ang kahariang iyon. Ganoon din ang mangyayari sa isang tahanang ang nakatira ay_ nag-aaway-away. 
 
 
 
@@ -601,7 +601,7 @@ Pero alam niya ang kanilang iniisip, kaya sinabi niya sa kanila, "Kung ang <i cl
 
 
 
-Kaya kung si Satanas at ang mga kampon niya ay nagkakahati-hati at nag-aaway-away, paano mananatili ang kaharian niya? <i class="trans-change">Tinatanong ko ito sa inyo_ dahil sinasabi ninyo na nagpapalayas ako ng masasamang espiritu sa pamamagitan ng kapangyarihan ni Satanas. 
+Kaya kung si Satanas at ang mga kampon niya ay nagkakahati-hati at nag-aaway-away, paano mananatili ang kaharian niya? Tinatanong ko ito sa inyo_ dahil sinasabi ninyo na nagpapalayas ako ng masasamang espiritu sa pamamagitan ng kapangyarihan ni Satanas. 
 
 
 
@@ -634,7 +634,7 @@ Kaya kung si Satanas at ang mga kampon niya ay nagkakahati-hati at nag-aaway-awa
 
 
 
-Kung si Satanas nga ang nagbigay sa akin ng kapangyarihang magpalayas ng masasamang espiritu, sino naman ang nagbigay sa mga tagasunod ninyo ng kapangyarihang makapagpalayas <i class="trans-change">din_ ng masasamang espiritu? Sila na rin ang makakapagpatunay na mali kayo. 
+Kung si Satanas nga ang nagbigay sa akin ng kapangyarihang magpalayas ng masasamang espiritu, sino naman ang nagbigay sa mga tagasunod ninyo ng kapangyarihang makapagpalayas din_ ng masasamang espiritu? Sila na rin ang makakapagpatunay na mali kayo. 
 
 
 
@@ -997,7 +997,7 @@ Nang lalo pang dumarami ang mga tao, sinabi ni Jesus, "Napakasama ng henerasyong
 
 
 
-Kung paanong naging palatandaan si Jonas sa mga taga-Nineve, ganoon din <i class="trans-change">ako na_ Anak ng Tao sa henerasyong ito. 
+Kung paanong naging palatandaan si Jonas sa mga taga-Nineve, ganoon din ako na_ Anak ng Tao sa henerasyong ito. 
 
 
 
@@ -1030,7 +1030,7 @@ Kung paanong naging palatandaan si Jonas sa mga taga-Nineve, ganoon din <i class
 
 
 
-Sa Araw ng Paghuhukom, tatayo ang Reyna ng Timog at ipapamukha sa henerasyong ito ang kanilang kasalanan. Sapagkat nanggaling pa siya sa napakalayong lugar upang makinig sa karunungan ni Solomon. At ngayon, narito ang isang nakahihigit pa kay Solomon, <i class="trans-change">pero ayaw ninyong makinig sa kanya._ 
+Sa Araw ng Paghuhukom, tatayo ang Reyna ng Timog at ipapamukha sa henerasyong ito ang kanilang kasalanan. Sapagkat nanggaling pa siya sa napakalayong lugar upang makinig sa karunungan ni Solomon. At ngayon, narito ang isang nakahihigit pa kay Solomon, pero ayaw ninyong makinig sa kanya._ 
 
 
 
@@ -1063,7 +1063,7 @@ Sa Araw ng Paghuhukom, tatayo ang Reyna ng Timog at ipapamukha sa henerasyong it
 
 
 
-Maging ang mga taga-Nineve ay tatayo rin at hahatulan ang henerasyong ito, dahil nagsisi sila nang mangaral sa kanila si Jonas. At ngayon, narito ang isang nakahihigit pa kay Jonas, <i class="trans-change">na nangangaral sa inyo, pero ayaw ninyong magsisi_." ## Ang Ilaw ng Katawan 
+Maging ang mga taga-Nineve ay tatayo rin at hahatulan ang henerasyong ito, dahil nagsisi sila nang mangaral sa kanila si Jonas. At ngayon, narito ang isang nakahihigit pa kay Jonas, na nangangaral sa inyo, pero ayaw ninyong magsisi_." ## Ang Ilaw ng Katawan 
 
 
 
@@ -1096,7 +1096,7 @@ Maging ang mga taga-Nineve ay tatayo rin at hahatulan ang henerasyong ito, dahil
 
 
 
-"Walang taong nagsisindi ng ilaw at pagkatapos ay itatago o tatakpan ng takalan. Sa halip, inilalagay ang ilaw sa patungan upang magbigay-liwanag sa lahat ng pumapasok <i class="trans-change">sa bahay_. 
+"Walang taong nagsisindi ng ilaw at pagkatapos ay itatago o tatakpan ng takalan. Sa halip, inilalagay ang ilaw sa patungan upang magbigay-liwanag sa lahat ng pumapasok sa bahay_. 
 
 
 
@@ -1129,7 +1129,7 @@ Maging ang mga taga-Nineve ay tatayo rin at hahatulan ang henerasyong ito, dahil
 
 
 
-Ang mata ang <i class="trans-change">nagsisilbing_ ilaw ng katawan. Kung malinaw ang mata mo, maliliwanagan ang buo mong katawan. Pero kung malabo ang mata mo, madidiliman ang buo mong katawan. 
+Ang mata ang nagsisilbing_ ilaw ng katawan. Kung malinaw ang mata mo, maliliwanagan ang buo mong katawan. Pero kung malabo ang mata mo, madidiliman ang buo mong katawan. 
 
 
 
@@ -1261,7 +1261,7 @@ Pagkatapos magsalita ni Jesus, inanyayahan siya ng isang Pariseo na kumain sa ka
 
 
 
-Nagtaka ang Pariseo nang makita niyang hindi muna naghugas ng kamay si Jesus bago kumain <i class="trans-change">ayon sa seremonya ng mga Judio_. 
+Nagtaka ang Pariseo nang makita niyang hindi muna naghugas ng kamay si Jesus bago kumain ayon sa seremonya ng mga Judio_. 
 
 
 
@@ -1393,7 +1393,7 @@ Para maging malinis kayo, kaawaan ninyo ang mga mahihirap at tulungan nʼyo sila
 
 
 
-"Nakakaawa kayong mga Pariseo! Ibinibigay nga ninyo ang ikapu ng mga pampalasa at mga gulay ninyo, pero kinakaligtaan naman ninyo ang makatarungan <i class="trans-change">na pakikitungo sa kapwa_ at ang pag-ibig sa Dios. Magbigay kayo ng mga ikapu ninyo, pero huwag naman ninyong kaligtaang gawin ang mas mahalagang bagay. 
+"Nakakaawa kayong mga Pariseo! Ibinibigay nga ninyo ang ikapu ng mga pampalasa at mga gulay ninyo, pero kinakaligtaan naman ninyo ang makatarungan na pakikitungo sa kapwa_ at ang pag-ibig sa Dios. Magbigay kayo ng mga ikapu ninyo, pero huwag naman ninyong kaligtaang gawin ang mas mahalagang bagay. 
 
 
 

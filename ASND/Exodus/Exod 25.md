@@ -139,7 +139,7 @@ Ito ang mga handog na tatanggapin mo mula sa kanila: ginto, pilak, tanso,
 
 
 
-lanang kulay asul, ube at pula, manipis na <i class="trans-change">telang_ linen, tela na <i class="trans-change">gawa sa_ balahibo ng kambing, 
+lanang kulay asul, ube at pula, manipis na telang_ linen, tela na gawa sa_ balahibo ng kambing, 
 
 
 
@@ -238,7 +238,7 @@ langis ng olibo para sa ilaw, mga sangkap sa langis na pamahid at pabango sa ins
 
 
 
-batong onix at iba pang mamahaling bato na ilalagay sa espesyal na damit <i class="trans-change">ng punong pari_ at sa bulsa sa dibdib nito. 
+batong onix at iba pang mamahaling bato na ilalagay sa espesyal na damit ng punong pari_ at sa bulsa sa dibdib nito. 
 
 
 
@@ -537,7 +537,7 @@ Huwag ninyong tatanggalin ang argolyang ginto sa tukod ng Kahon.
 
 
 
-Pagkatapos, ipasok mo sa Kahon ang <i class="trans-change">malapad na bato na ibinigay ko sa iyo, kung saan_ nakasulat ang aking mga utos. 
+Pagkatapos, ipasok mo sa Kahon ang malapad na bato na ibinigay ko sa iyo, kung saan_ nakasulat ang aking mga utos. 
 
 
 
@@ -570,7 +570,7 @@ Pagkatapos, ipasok mo sa Kahon ang <i class="trans-change">malapad na bato na ib
 
 
 
-"Pagawan mo ng takip na purong ginto ang Kahon, na 45 pulgada ang haba at 27 pulgada ang lapad. <sup class="versenum">18-19</sup>Magpagawa ka rin ng dalawang gintong kerubin, ilalagay ito sa dalawang dulo ng takip ng Kahon. 
+"Pagawan mo ng takip na purong ginto ang Kahon, na 45 pulgada ang haba at 27 pulgada ang lapad. 18-19Magpagawa ka rin ng dalawang gintong kerubin, ilalagay ito sa dalawang dulo ng takip ng Kahon. 
 
 
 

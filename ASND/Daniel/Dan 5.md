@@ -7,7 +7,7 @@ next: ['Dan 6']
 # Daniel 5
 
 ***
-###### 1-3 Noong si Belshazar ang hari <i class="trans-change">ng Babilonia_, naghanda siya ng malaking piging para sa kanyang 1,000 marangal na mga bisita. Habang nag-iinuman sila, ipinakuha ni Belshazar ang mga tasang ginto at pilak na kinuha ng ama niyang si Nebucadnezar sa templo ng Dios sa Jerusalem. Ipinakuha niya ang mga ito para gamitin nila ng kanyang mga marangal na mga bisita, ng kanyang mga asawa, at ng iba pa niyang mga asawang alipin. Nang madala na sa kanya ang mga tasa, ginamit nila ito para inuman. 
+###### 1-3 Noong si Belshazar ang hari ng Babilonia_, naghanda siya ng malaking piging para sa kanyang 1,000 marangal na mga bisita. Habang nag-iinuman sila, ipinakuha ni Belshazar ang mga tasang ginto at pilak na kinuha ng ama niyang si Nebucadnezar sa templo ng Dios sa Jerusalem. Ipinakuha niya ang mga ito para gamitin nila ng kanyang mga marangal na mga bisita, ng kanyang mga asawa, at ng iba pa niyang mga asawang alipin. Nang madala na sa kanya ang mga tasa, ginamit nila ito para inuman. 
 
 
 
@@ -139,7 +139,7 @@ Dahil dito, nanginig at namutla ang hari sa tindi ng takot.
 
 
 
-Kaya sumigaw siya na ipatawag ang marurunong sa Babilonia: ang mga salamangkero, mga astrologo, at mga manghuhula. <i class="trans-change">Nang dumating sila,_ sinabi niya sa kanila, "Ang sinumang makabasa ng nakasulat na iyan at makapagpaliwanag ng kahulugan ay bibihisan ko ng maharlikang damit at pasusuotan ko ng gintong kwintas. At siyaʼy magiging pangatlong pinakamataas na pinuno sa aking kaharian." 
+Kaya sumigaw siya na ipatawag ang marurunong sa Babilonia: ang mga salamangkero, mga astrologo, at mga manghuhula. Nang dumating sila,_ sinabi niya sa kanila, "Ang sinumang makabasa ng nakasulat na iyan at makapagpaliwanag ng kahulugan ay bibihisan ko ng maharlikang damit at pasusuotan ko ng gintong kwintas. At siyaʼy magiging pangatlong pinakamataas na pinuno sa aking kaharian." 
 
 
 
@@ -403,7 +403,7 @@ Nabalitaan kong ang espiritu ng mga dios ay nasa iyo at mayroon kang pambihirang
 
 
 
-Ipinatawag ko na ang marurunong, pati na ang mga engkantador, para ipabasa at ipaliwanag ang kahulugan ng nakasulat <i class="trans-change">na iyon sa pader_, pero hindi nila ito nagawa. 
+Ipinatawag ko na ang marurunong, pati na ang mga engkantador, para ipabasa at ipaliwanag ang kahulugan ng nakasulat na iyon sa pader_, pero hindi nila ito nagawa. 
 
 
 
@@ -601,7 +601,7 @@ Pero siya ay naging mayabang at nagmataas, kaya pinaalis siya sa kanyang tungkul
 
 
 
-at itinaboy mula sa mga tao. Naging isip-hayop siya. Tumira siya kasama ng mga asnong-gubat at kumain ng damo na parang baka. <i class="trans-change">Palaging_ basa ng hamog ang kanyang katawan. Ganoon ang kanyang kalagayan hanggang kilalanin niya na ang Kataas-taasang Dios ang siyang may kapangyarihan sa mga kaharian ng mga tao at maaari niyang ipasakop ang mga ito kahit kanino niya gustuhin. 
+at itinaboy mula sa mga tao. Naging isip-hayop siya. Tumira siya kasama ng mga asnong-gubat at kumain ng damo na parang baka. Palaging_ basa ng hamog ang kanyang katawan. Ganoon ang kanyang kalagayan hanggang kilalanin niya na ang Kataas-taasang Dios ang siyang may kapangyarihan sa mga kaharian ng mga tao at maaari niyang ipasakop ang mga ito kahit kanino niya gustuhin. 
 
 
 
@@ -634,7 +634,7 @@ at itinaboy mula sa mga tao. Naging isip-hayop siya. Tumira siya kasama ng mga a
 
 
 
-"At ikaw, <i class="trans-change">Haring_ Belshazar na anak niya, kahit na alam mo ang lahat ng ito, hindi ka pa rin nagpakumbaba, 
+"At ikaw, Haring_ Belshazar na anak niya, kahit na alam mo ang lahat ng ito, hindi ka pa rin nagpakumbaba, 
 
 
 
@@ -667,7 +667,7 @@ at itinaboy mula sa mga tao. Naging isip-hayop siya. Tumira siya kasama ng mga a
 
 
 
-sa halip itinuring mong mas mataas ka kaysa sa Panginoon. Ipinakuha mo ang mga tasang mula sa templo ng Dios at ginamit ninyong inuman ng iyong marangal na mga bisita, mga asawa, at iba pang mga asawang alipin. Maliban diyan, sumamba ka pa sa mga dios-diosang gawa sa pilak, ginto, tanso, bakal, kahoy, at bato. Itoʼy mga dios na hindi nakakakita, hindi nakakarinig, at hindi nakakaunawa. Ngunit hindi mo man lang pinuri ang Dios na siyang may hawak ng iyong buhay at nakakaalam ng iyong landas na dadaanan. <sup class="versenum">24-25</sup>Kaya ipinadala niya ang kamay na iyon para isulat ang mga katagang ito: "Mene, Mene, Tekel, Parsin. 
+sa halip itinuring mong mas mataas ka kaysa sa Panginoon. Ipinakuha mo ang mga tasang mula sa templo ng Dios at ginamit ninyong inuman ng iyong marangal na mga bisita, mga asawa, at iba pang mga asawang alipin. Maliban diyan, sumamba ka pa sa mga dios-diosang gawa sa pilak, ginto, tanso, bakal, kahoy, at bato. Itoʼy mga dios na hindi nakakakita, hindi nakakarinig, at hindi nakakaunawa. Ngunit hindi mo man lang pinuri ang Dios na siyang may hawak ng iyong buhay at nakakaalam ng iyong landas na dadaanan. 24-25Kaya ipinadala niya ang kamay na iyon para isulat ang mga katagang ito: "Mene, Mene, Tekel, Parsin. 
 
 
 
@@ -733,7 +733,7 @@ Ang ibig sabihin nito: Ang Mene ay nangangahulugan na bilang na ng Dios ang nati
 
 
 
-Ang Tekel ay nangangahulugan na tinimbang ka <i class="trans-change">ng Dios_ at napatunayang ikaw ay nagkulang. 
+Ang Tekel ay nangangahulugan na tinimbang ka ng Dios_ at napatunayang ikaw ay nagkulang. 
 
 
 
@@ -799,7 +799,7 @@ Ang Parsin ay nangangahulugan na ang kaharian moʼy mahahati at ibibigay sa Medi
 
 
 
-<i class="trans-change">Pagkatapos magsalita ni Daniel,_ iniutos ni <i class="trans-change">Haring_ Belshazar na bihisan si Daniel ng maharlikang damit at suotan ng gintong kwintas. At ipinahayag ng hari na siya ay magiging pangatlong pinakamataas na pinuno sa kaharian <i class="trans-change">ng Babilonia_. 
+Pagkatapos magsalita ni Daniel,_ iniutos ni Haring_ Belshazar na bihisan si Daniel ng maharlikang damit at suotan ng gintong kwintas. At ipinahayag ng hari na siya ay magiging pangatlong pinakamataas na pinuno sa kaharian ng Babilonia_. 
 
 
 

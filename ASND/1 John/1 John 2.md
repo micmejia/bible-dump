@@ -238,7 +238,7 @@ ang sinumang nagsasabing siya ay sa Dios, dapat siyang mamuhay nang tulad ni Jes
 
 
 
-Mga minamahal, hindi bago ang ibinibigay kong utos <i class="trans-change">na magmahalan kayo,_ kundi dati na. Ang utos na ito ay walang iba kundi ang mensaheng narinig at tinanggap ninyo mula nang sumampalataya kayo. 
+Mga minamahal, hindi bago ang ibinibigay kong utos na magmahalan kayo,_ kundi dati na. Ang utos na ito ay walang iba kundi ang mensaheng narinig at tinanggap ninyo mula nang sumampalataya kayo. 
 
 
 
@@ -403,7 +403,7 @@ Ngunit ang sinumang napopoot sa kanyang kapatid ay nasa kadiliman. Lumalakad siy
 
 
 
-Sumusulat ako sa inyo, mga anak, dahil pinatawad na <i class="trans-change">ng Dios_ ang mga kasalanan ninyo dahil kay Cristo. 
+Sumusulat ako sa inyo, mga anak, dahil pinatawad na ng Dios_ ang mga kasalanan ninyo dahil kay Cristo. 
 
 
 
@@ -469,7 +469,7 @@ Sumusulat ako sa inyo, mga ama, dahil nakilala nʼyo na siya na mula pa sa simul
 
 
 
-Sumusulat ako sa inyo, mga anak, dahil nakilala nʼyo na ang Ama. Sumusulat ako sa inyo, mga ama, dahil nakilala nʼyo na siya na mula pa sa simula ay nariyan na. Sumusulat ako sa inyo, mga kabataan, dahil matatag ang <i class="trans-change">inyong pananampalataya_. Sinusunod ninyo ang salita ng Dios, at nalupig na ninyo si Satanas.
+Sumusulat ako sa inyo, mga anak, dahil nakilala nʼyo na ang Ama. Sumusulat ako sa inyo, mga ama, dahil nakilala nʼyo na siya na mula pa sa simula ay nariyan na. Sumusulat ako sa inyo, mga kabataan, dahil matatag ang inyong pananampalataya_. Sinusunod ninyo ang salita ng Dios, at nalupig na ninyo si Satanas.
 
 ## Huwag Ibigin ang Mundo 
 
@@ -671,7 +671,7 @@ Kahit naging kasama natin sila noong una, hindi sila tunay na kabilang sa atin. 
 
 
 
-Ngunit ipinagkaloob sa inyo ang Banal na Espiritu, kaya alam ninyong lahat <i class="trans-change">ang katotohanan_. 
+Ngunit ipinagkaloob sa inyo ang Banal na Espiritu, kaya alam ninyong lahat ang katotohanan_. 
 
 
 
@@ -902,7 +902,7 @@ Isinusulat ko sa inyo ang tungkol sa mga taong nanlilinlang sa inyo.
 
 
 
-Kung tungkol naman sa inyo, ang <i class="trans-change">Banal na_ Espiritu na tinanggap ninyo kay Cristo ay nananatili sa inyo, kaya hindi na kailangang turuan pa kayo ng iba. Sapagkat ang <i class="trans-change">Banal na_ Espiritu ang magtuturo sa inyo sa lahat ng bagay. At ang mga itinuturo niya ay katotohanan at hindi kasinungalingan. At gaya ng itinuro niya sa inyo, manatili kayo kay Cristo. 
+Kung tungkol naman sa inyo, ang Banal na_ Espiritu na tinanggap ninyo kay Cristo ay nananatili sa inyo, kaya hindi na kailangang turuan pa kayo ng iba. Sapagkat ang Banal na_ Espiritu ang magtuturo sa inyo sa lahat ng bagay. At ang mga itinuturo niya ay katotohanan at hindi kasinungalingan. At gaya ng itinuro niya sa inyo, manatili kayo kay Cristo. 
 
 
 

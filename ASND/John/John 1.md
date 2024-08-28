@@ -39,7 +39,7 @@ next: ['John 2']
 
 
 
-Nang pasimula, naroon na ang <i class="trans-change">tinatawag na_ Salita. Ang Salita ay kasama ng Dios at ang Salita ay Dios. 
+Nang pasimula, naroon na ang tinatawag na_ Salita. Ang Salita ay kasama ng Dios at ang Salita ay Dios. 
 
 
 
@@ -369,7 +369,7 @@ Naparito siya sa mundo. At kahit na nilikha ang mundo sa pamamagitan niya, hindi
 
 
 
-Pumunta siya sa sarili niyang <i class="trans-change">mga kababayan_, pero tinanggihan siya ng karamihan. 
+Pumunta siya sa sarili niyang mga kababayan_, pero tinanggihan siya ng karamihan. 
 
 
 
@@ -600,9 +600,9 @@ Ibinigay sa atin ng Dios ang Kautusan sa pamamagitan ni Moises, ngunit ang biyay
 
 
 
-Wala pang nakakita sa Dios <i class="trans-change">Ama_ kahit kailan, ngunit ipinakilala siya sa atin ng kanyang Bugtong na Anak, na Dios din nga at kapiling ng Ama.
+Wala pang nakakita sa Dios Ama_ kahit kailan, ngunit ipinakilala siya sa atin ng kanyang Bugtong na Anak, na Dios din nga at kapiling ng Ama.
 
-## Ang Patotoo ni Juan tungkol kay Jesus <sup class="versenum">19-20</sup>Pinapunta <i class="trans-change">ng mga pinuno_ ng mga Judio sa Jerusalem ang ilang mga pari at Levita upang tanungin si Juan kung sino talaga siya. Tinapat sila ni Juan. Sinabi niya, "Hindi ako ang Cristo." 
+## Ang Patotoo ni Juan tungkol kay Jesus 19-20Pinapunta ng mga pinuno_ ng mga Judio sa Jerusalem ang ilang mga pari at Levita upang tanungin si Juan kung sino talaga siya. Tinapat sila ni Juan. Sinabi niya, "Hindi ako ang Cristo." 
 
 
 
@@ -635,7 +635,7 @@ Wala pang nakakita sa Dios <i class="trans-change">Ama_ kahit kailan, ngunit ipi
 
 
 
-Nagtanong sila, "Kung ganoon, sino ka? Ikaw ba si <i class="trans-change">Propeta_ Elias?" Sumagot siya, "Hindi." <i class="trans-change">Tinanong pa nila si Juan,_ "Ikaw ba ang Propeta na <i class="trans-change">ipinangakong darating_?" "Hindi rin," sagot ni Juan. 
+Nagtanong sila, "Kung ganoon, sino ka? Ikaw ba si Propeta_ Elias?" Sumagot siya, "Hindi." Tinanong pa nila si Juan,_ "Ikaw ba ang Propeta na ipinangakong darating_?" "Hindi rin," sagot ni Juan. 
 
 
 
@@ -668,7 +668,7 @@ Nagtanong sila, "Kung ganoon, sino ka? Ikaw ba si <i class="trans-change">Propet
 
 
 
-"Kung ganoon, sino ka talaga? <i class="trans-change">Sabihin mo sa amin_ para may maisagot kami sa mga nagsugo sa amin. Ano ang masasabi mo tungkol sa sarili mo?" 
+"Kung ganoon, sino ka talaga? Sabihin mo sa amin_ para may maisagot kami sa mga nagsugo sa amin. Ano ang masasabi mo tungkol sa sarili mo?" 
 
 
 
@@ -701,7 +701,7 @@ Nagtanong sila, "Kung ganoon, sino ka? Ikaw ba si <i class="trans-change">Propet
 
 
 
-Sumagot si Juan, "Ako ang taong binanggit ni Propeta Isaias nang sabihin niya, 'Maririnig ang sigaw ng isang tao sa ilang <i class="trans-change">na nagsasabi_, Tuwirin ninyo ang dadaanan ng Panginoon.' " 
+Sumagot si Juan, "Ako ang taong binanggit ni Propeta Isaias nang sabihin niya, 'Maririnig ang sigaw ng isang tao sa ilang na nagsasabi_, Tuwirin ninyo ang dadaanan ng Panginoon.' " 
 
 
 
@@ -833,7 +833,7 @@ Sumagot si Juan, "Nagbabautismo ako sa tubig, ngunit may nakatayong kasama ninyo
 
 
 
-Siya ang <i class="trans-change">sinasabi kong_ darating na kasunod ko, at ni hindi man lang ako karapat-dapat na maging alipin niya." 
+Siya ang sinasabi kong_ darating na kasunod ko, at ni hindi man lang ako karapat-dapat na maging alipin niya." 
 
 
 
@@ -866,7 +866,7 @@ Siya ang <i class="trans-change">sinasabi kong_ darating na kasunod ko, at ni hi
 
 
 
-Nangyari ito sa Betania, sa kabila ng <i class="trans-change">Ilog ng_ Jordan, kung saan nagbabautismo si Juan.
+Nangyari ito sa Betania, sa kabila ng Ilog ng_ Jordan, kung saan nagbabautismo si Juan.
 
 ## Si Jesus ang Tupa ng Dios 
 
@@ -901,7 +901,7 @@ Nangyari ito sa Betania, sa kabila ng <i class="trans-change">Ilog ng_ Jordan, k
 
 
 
-Kinabukasan, nakita ni Juan si Jesus na papalapit sa kanya. Sinabi niya <i class="trans-change">sa mga tao_, "Narito na ang Tupa ng Dios na <i class="trans-change">ihahandog upang_ mag-alis ng kasalanan ng <i class="trans-change">mga tao sa_ mundo! 
+Kinabukasan, nakita ni Juan si Jesus na papalapit sa kanya. Sinabi niya sa mga tao_, "Narito na ang Tupa ng Dios na ihahandog upang_ mag-alis ng kasalanan ng mga tao sa_ mundo! 
 
 
 
@@ -1000,7 +1000,7 @@ Noong unaʼy hindi ko rin kilala kung sino siya. Ngunit naparito akong nagbabaut
 
 
 
-Pagkatapos, nagpatotoo si Juan, "Nakita ko ang <i class="trans-change">Banal na_ Espiritu na bumaba mula sa langit tulad ng isang kalapati at nanatili sa kanya. 
+Pagkatapos, nagpatotoo si Juan, "Nakita ko ang Banal na_ Espiritu na bumaba mula sa langit tulad ng isang kalapati at nanatili sa kanya. 
 
 
 
@@ -1033,7 +1033,7 @@ Pagkatapos, nagpatotoo si Juan, "Nakita ko ang <i class="trans-change">Banal na_
 
 
 
-Noong unaʼy hindi ko rin kilala kung sino siya, ngunit ang Dios na nag-utos sa akin na magbautismo sa tubig ang nagsabi sa akin, 'Kapag nakita mong bumaba ang <i class="trans-change">Banal na_ Espiritu at nanatili sa isang tao, ang taong iyon ang magbabautismo sa Banal na Espiritu.' 
+Noong unaʼy hindi ko rin kilala kung sino siya, ngunit ang Dios na nag-utos sa akin na magbautismo sa tubig ang nagsabi sa akin, 'Kapag nakita mong bumaba ang Banal na_ Espiritu at nanatili sa isang tao, ang taong iyon ang magbabautismo sa Banal na Espiritu.' 
 
 
 
@@ -1297,7 +1297,7 @@ Ang isa sa dalawang nakarinig ng sinabi ni Juan at sumunod kay Jesus ay si Andre
 
 
 
-<i class="trans-change">Kinaumagahan,_ hinanap kaagad ni Andres ang kapatid niyang si Simon at sinabi sa kanya, "Natagpuan na namin ang Mesias." (Ang ibig sabihin ng Mesias ay "Cristo".) 
+Kinaumagahan,_ hinanap kaagad ni Andres ang kapatid niyang si Simon at sinabi sa kanya, "Natagpuan na namin ang Mesias." (Ang ibig sabihin ng Mesias ay "Cristo".) 
 
 
 
@@ -1363,7 +1363,7 @@ Isinama niya si Simon kay Jesus. At nang makarating sila kay Jesus, tiningnan ni
 
 
 
-Kinabukasan, nagpasya si Jesus na pumunta sa Galilea. <i class="trans-change">Pagdating niya roon,_ nakita niya si Felipe at sinabi niya rito, "Sumunod ka sa akin." 
+Kinabukasan, nagpasya si Jesus na pumunta sa Galilea. Pagdating niya roon,_ nakita niya si Felipe at sinabi niya rito, "Sumunod ka sa akin." 
 
 
 
@@ -1429,7 +1429,7 @@ Kinabukasan, nagpasya si Jesus na pumunta sa Galilea. <i class="trans-change">Pa
 
 
 
-Hinanap ni Felipe si Natanael at sinabi niya rito, "Natagpuan na namin ang taong tinutukoy ni Moises sa Kautusan, at <i class="trans-change">maging sa mga isinulat_ ng mga propeta. Siya si Jesus na taga-Nazaret na anak ni Jose." 
+Hinanap ni Felipe si Natanael at sinabi niya rito, "Natagpuan na namin ang taong tinutukoy ni Moises sa Kautusan, at maging sa mga isinulat_ ng mga propeta. Siya si Jesus na taga-Nazaret na anak ni Jose." 
 
 
 
@@ -1627,4 +1627,4 @@ Sinabi sa kanya ni Jesus, "Sumampalataya ka ba sa akin dahil sinabi kong nakita 
 
 
 
-Sinabi pa sa kanya ni Jesus, "Sinasabi ko sa inyo ang totoo, makikita ninyo na bubukas ang langit, at makikita rin ninyo ang mga anghel ng Dios na umaakyat at bumababa sa <i class="trans-change">akin na_ Anak ng Tao."
+Sinabi pa sa kanya ni Jesus, "Sinasabi ko sa inyo ang totoo, makikita ninyo na bubukas ang langit, at makikita rin ninyo ang mga anghel ng Dios na umaakyat at bumababa sa akin na_ Anak ng Tao."

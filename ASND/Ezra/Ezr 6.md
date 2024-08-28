@@ -205,7 +205,7 @@ Ang mga kagamitang ginto at pilak sa templo ng Dios na dinala ni Haring Nebucadn
 
 
 
-<i class="trans-change">Kaya nagpadala si Haring Darius ng mensahe_ kay Tatenai, na gobernador ng <i class="trans-change">lalawigan sa_ kanluran ng Eufrates, kay Shetar Bozenai, at sa mga kapwa nila opisyal sa lalawigang iyon: 
+Kaya nagpadala si Haring Darius ng mensahe_ kay Tatenai, na gobernador ng lalawigan sa_ kanluran ng Eufrates, kay Shetar Bozenai, at sa mga kapwa nila opisyal sa lalawigang iyon: 
 
 
 
@@ -469,7 +469,7 @@ Tinupad nila Tatenai na gobernador, Shetar Bozenai, at ng mga kasama nila ang ut
 
 
 
-Kaya patuloy na nagtrabaho ang mga tagapamahala ng mga Judio habang pinapalakas sila ng mga mensahe ng mga propeta na sina Hageo at Zacarias na anak ni Iddo. Natapos nila ang templo ayon sa utos ng Dios ng Israel na ipinatupad nina Cyrus, Darius, at Artaserses, <i class="trans-change">na magkakasunod_ na mga hari ng Persia. 
+Kaya patuloy na nagtrabaho ang mga tagapamahala ng mga Judio habang pinapalakas sila ng mga mensahe ng mga propeta na sina Hageo at Zacarias na anak ni Iddo. Natapos nila ang templo ayon sa utos ng Dios ng Israel na ipinatupad nina Cyrus, Darius, at Artaserses, na magkakasunod_ na mga hari ng Persia. 
 
 
 
@@ -502,7 +502,7 @@ Kaya patuloy na nagtrabaho ang mga tagapamahala ng mga Judio habang pinapalakas 
 
 
 
-Natapos ang templo nang ikatlong araw ng <i class="trans-change">ika-12 buwan, na siyang_ buwan ng Adar, nang ikaanim na taon ng paghahari ni Darius. 
+Natapos ang templo nang ikatlong araw ng ika-12 buwan, na siyang_ buwan ng Adar, nang ikaanim na taon ng paghahari ni Darius. 
 
 
 
@@ -636,7 +636,7 @@ Itinalaga nila ang mga pari at mga Levita sa kani-kanilang tungkulin sa templo n
 
 
 
-Nang ika-14 na araw ng unang buwan, <i class="trans-change">nang sumunod na taon,_ ipinagdiwang ng mga bumalik galing sa pagkabihag ang Pista ng Paglampas ng Anghel. 
+Nang ika-14 na araw ng unang buwan, nang sumunod na taon,_ ipinagdiwang ng mga bumalik galing sa pagkabihag ang Pista ng Paglampas ng Anghel. 
 
 
 
@@ -669,7 +669,7 @@ Nang ika-14 na araw ng unang buwan, <i class="trans-change">nang sumunod na taon
 
 
 
-Nilinis ng mga pari at mga Levita ang kanilang sarili para maging karapat-dapat sila sa pangunguna nila sa mga seremonya. Pagkatapos, kinatay ng mga Levita ang mga tupang handog sa pagdiriwang ng Pista ng Paglampas ng Anghel. <i class="trans-change">Ginawa nila ito_ para sa lahat ng bumalik galing sa pagkabihag, para sa mga paring kamag-anak nila, at para sa sarili nila. 
+Nilinis ng mga pari at mga Levita ang kanilang sarili para maging karapat-dapat sila sa pangunguna nila sa mga seremonya. Pagkatapos, kinatay ng mga Levita ang mga tupang handog sa pagdiriwang ng Pista ng Paglampas ng Anghel. Ginawa nila ito_ para sa lahat ng bumalik galing sa pagkabihag, para sa mga paring kamag-anak nila, at para sa sarili nila. 
 
 
 
@@ -702,7 +702,7 @@ Nilinis ng mga pari at mga Levita ang kanilang sarili para maging karapat-dapat 
 
 
 
-Ang mga handog na ito ay kinain ng mga Israelitang bumalik galing sa pagkabihag at ng ibang mga taong nakatira roon na tumalikod na sa mga ginagawa ng mga taong hindi kumikilala sa Dios. <i class="trans-change">Tumalikod sila sa mga bagay na ito_ para sambahin ang Panginoon, ang Dios ng Israel. 
+Ang mga handog na ito ay kinain ng mga Israelitang bumalik galing sa pagkabihag at ng ibang mga taong nakatira roon na tumalikod na sa mga ginagawa ng mga taong hindi kumikilala sa Dios. Tumalikod sila sa mga bagay na ito_ para sambahin ang Panginoon, ang Dios ng Israel. 
 
 
 

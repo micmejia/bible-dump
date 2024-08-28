@@ -40,7 +40,7 @@ next: ['Gen 20']
 
 
 
-Magdidilim na nang dumating ang dalawang anghel sa Sodom. Nakaupo noon si Lot sa pintuan ng lungsod. Pagkakita ni Lot sa kanila, tumayo siya at sinalubong sila. Pagkatapos, yumukod siya sa harapan nila <i class="trans-change">bilang paggalang_ at nagsabing, 
+Magdidilim na nang dumating ang dalawang anghel sa Sodom. Nakaupo noon si Lot sa pintuan ng lungsod. Pagkakita ni Lot sa kanila, tumayo siya at sinalubong sila. Pagkatapos, yumukod siya sa harapan nila bilang paggalang_ at nagsabing, 
 
 
 
@@ -438,7 +438,7 @@ Sinabi ng dalawang anghel kay Lot, "Kung may mga anak ka pa, o mga manugang na l
 
 
 
-dahil lilipulin namin ang lungsod na ito. Narinig ng Panginoon ang mga daing laban sa mga taong ito <i class="trans-change">na puro kasamaan ang ginagawa_. Kaya ipinadala niya kami para lipulin ang lungsod na ito." 
+dahil lilipulin namin ang lungsod na ito. Narinig ng Panginoon ang mga daing laban sa mga taong ito na puro kasamaan ang ginagawa_. Kaya ipinadala niya kami para lipulin ang lungsod na ito." 
 
 
 

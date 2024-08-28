@@ -205,7 +205,7 @@ Tinanong sila ni Jesus, "Ilan ang tinapay ninyo riyan?" Sinabi nila, "Pito po."
 
 
 
-Pinaupo ni Jesus ang mga tao. Kinuha niya ang pitong tinapay at nagpasalamat <i class="trans-change">sa Dios_. Pagkatapos, hinati-hati niya ito at ibinigay sa mga tagasunod niya para ipamigay sa mga tao. 
+Pinaupo ni Jesus ang mga tao. Kinuha niya ang pitong tinapay at nagpasalamat sa Dios_. Pagkatapos, hinati-hati niya ito at ibinigay sa mga tagasunod niya para ipamigay sa mga tao. 
 
 
 
@@ -372,7 +372,7 @@ at agad siyang sumakay sa bangka kasama ang mga tagasunod niya, at pumunta sila 
 
 
 
-Pagdating nila roon, may dumating na mga Pariseo at nakipagtalo kay Jesus. Gusto nilang subukin siya kaya hiniling nilang magpakita siya ng himala mula sa Dios bilang patunay <i class="trans-change">na sugo nga siya ng Dios_. 
+Pagdating nila roon, may dumating na mga Pariseo at nakipagtalo kay Jesus. Gusto nilang subukin siya kaya hiniling nilang magpakita siya ng himala mula sa Dios bilang patunay na sugo nga siya ng Dios_. 
 
 
 
@@ -438,7 +438,7 @@ Pero napabuntong-hininga si Jesus at sinabi, "Bakit nga ba humihingi ng himala a
 
 
 
-Pagkatapos, iniwan niya sila. Sumakay ulit siya sa bangka at tumawid sa kabila <i class="trans-change">ng lawa_.
+Pagkatapos, iniwan niya sila. Sumakay ulit siya sa bangka at tumawid sa kabila ng lawa_.
 
 ## Ang Pampaalsa ng mga Pariseo at ni Haring Herodes 
 
@@ -506,7 +506,7 @@ Nakalimutan ng mga tagasunod ni Jesus na magdala ng tinapay. Iisa lang ang baon 
 
 
 
-Sinabi ni Jesus sa kanila, "Mag-ingat kayo sa pampaalsa ng mga Pariseo at ni <i class="trans-change">Haring_ Herodes." 
+Sinabi ni Jesus sa kanila, "Mag-ingat kayo sa pampaalsa ng mga Pariseo at ni Haring_ Herodes." 
 
 
 
@@ -572,7 +572,7 @@ Nag-usap-usap ang mga tagasunod ni Jesus. Akala nila, kaya niya sinabi iyon ay d
 
 
 
-Alam ni Jesus kung ano ang pinag-uusapan nila kaya sinabi niya sa kanila, "Bakit kayo nagtatalo-talo na wala kayong dalang tinapay? Hindi pa ba kayo nakakaunawa? Hindi ba ninyo ito naiintindihan? Matigas pa rin ba ang mga puso ninyo? <sup class="versenum">18-19</sup>May mga mata kayo, pero hindi kayo makakita. May mga tainga kayo, pero hindi kayo makarinig. Nakalimutan nʼyo na ba nang paghahati-hatiin ko ang limang tinapay para sa 5,000 tao? Ilang basket ang natira?" Sumagot sila, "Labindalawa po!" 
+Alam ni Jesus kung ano ang pinag-uusapan nila kaya sinabi niya sa kanila, "Bakit kayo nagtatalo-talo na wala kayong dalang tinapay? Hindi pa ba kayo nakakaunawa? Hindi ba ninyo ito naiintindihan? Matigas pa rin ba ang mga puso ninyo? 18-19May mga mata kayo, pero hindi kayo makakita. May mga tainga kayo, pero hindi kayo makarinig. Nakalimutan nʼyo na ba nang paghahati-hatiin ko ang limang tinapay para sa 5,000 tao? Ilang basket ang natira?" Sumagot sila, "Labindalawa po!" 
 
 
 
@@ -605,7 +605,7 @@ Alam ni Jesus kung ano ang pinag-uusapan nila kaya sinabi niya sa kanila, "Bakit
 
 
 
-<i class="trans-change">Nagtanong pa si Jesus,_ "At nang paghahati-hatiin ko ang pitong tinapay para sa 4,000 tao ilang basket ang natira?" Sumagot sila, "Pito po!" 
+Nagtanong pa si Jesus,_ "At nang paghahati-hatiin ko ang pitong tinapay para sa 4,000 tao ilang basket ang natira?" Sumagot sila, "Pito po!" 
 
 
 
@@ -638,7 +638,7 @@ Alam ni Jesus kung ano ang pinag-uusapan nila kaya sinabi niya sa kanila, "Bakit
 
 
 
-At sinabi ni Jesus sa kanila, "Hindi nʼyo pa rin ba naiintindihan <i class="trans-change">ang sinabi ko tungkol sa pampaalsa_?" ## Pinagaling ni Jesus ang Lalaking Bulag sa Betsaida 
+At sinabi ni Jesus sa kanila, "Hindi nʼyo pa rin ba naiintindihan ang sinabi ko tungkol sa pampaalsa_?" ## Pinagaling ni Jesus ang Lalaking Bulag sa Betsaida 
 
 
 
@@ -671,7 +671,7 @@ At sinabi ni Jesus sa kanila, "Hindi nʼyo pa rin ba naiintindihan <i class="tra
 
 
 
-Pagdating nila sa Betsaida, may mga taong nagdala ng isang lalaking bulag kay Jesus. Nagmakaawa sila na kung maaari ay hipuin niya ang bulag <i class="trans-change">upang makakita_. 
+Pagdating nila sa Betsaida, may mga taong nagdala ng isang lalaking bulag kay Jesus. Nagmakaawa sila na kung maaari ay hipuin niya ang bulag upang makakita_. 
 
 
 
@@ -869,7 +869,7 @@ Pagkatapos, pumunta si Jesus at ang mga tagasunod niya sa mga nayon na sakop ng 
 
 
 
-Sumagot sila, "<i class="trans-change">May mga nagsasabing kayo_ po si Juan na tagapagbautismo. May nagsasabi ring kayo si Elias. At ang iba namaʼy <i class="trans-change">nagsasabing_ isa po <i class="trans-change">kayo_ sa mga propeta." 
+Sumagot sila, "May mga nagsasabing kayo_ po si Juan na tagapagbautismo. May nagsasabi ring kayo si Elias. At ang iba namaʼy nagsasabing_ isa po kayo_ sa mga propeta." 
 
 
 
@@ -970,7 +970,7 @@ Sinabihan sila ni Jesus na huwag nilang ipaalam kahit kanino na siya ang Cristo.
 
 
 
-Nagsimulang mangaral si Jesus sa mga tagasunod niya na <i class="trans-change">siya na_ Anak ng Tao ay kailangang dumanas ng maraming paghihirap. Itatakwil siya ng mga pinuno ng mga Judio, ng mga namamahalang pari at ng mga tagapagturo ng Kautusan. Ipapapatay nila siya, pero sa ikatlong araw ay muling mabubuhay. 
+Nagsimulang mangaral si Jesus sa mga tagasunod niya na siya na_ Anak ng Tao ay kailangang dumanas ng maraming paghihirap. Itatakwil siya ng mga pinuno ng mga Judio, ng mga namamahalang pari at ng mga tagapagturo ng Kautusan. Ipapapatay nila siya, pero sa ikatlong araw ay muling mabubuhay. 
 
 
 
@@ -1003,7 +1003,7 @@ Nagsimulang mangaral si Jesus sa mga tagasunod niya na <i class="trans-change">s
 
 
 
-Ipinaliwanag niya ang lahat ng ito sa kanila. <i class="trans-change">Nang marinig iyon ni_ Pedro, dinala niya si Jesus sa isang tabi at sinabihan. 
+Ipinaliwanag niya ang lahat ng ito sa kanila. Nang marinig iyon ni_ Pedro, dinala niya si Jesus sa isang tabi at sinabihan. 
 
 
 
@@ -1201,4 +1201,4 @@ May maibabayad ba siya para mabawi niya ang kanyang buhay?
 
 
 
-Kung ako at ang mga aral ko ay ikakahiya ninuman sa panahong ito, na ang mga taoʼy makasalanan at hindi tapat sa Dios, ikakahiya ko rin siya kapag <i class="trans-change">ako na_ Anak ng Tao ay pumarito na taglay ang kapangyarihan ng aking Ama, at kasama ang mga banal na anghel."
+Kung ako at ang mga aral ko ay ikakahiya ninuman sa panahong ito, na ang mga taoʼy makasalanan at hindi tapat sa Dios, ikakahiya ko rin siya kapag ako na_ Anak ng Tao ay pumarito na taglay ang kapangyarihan ng aking Ama, at kasama ang mga banal na anghel."

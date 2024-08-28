@@ -468,7 +468,7 @@ Ang aming mga kabataang lalaki ay parang aliping sapilitang pinagtrabaho sa mga 
 
 
 
-Ang matatanda ay hindi na umuupo sa mga pintuan ng lungsod <i class="trans-change">para magbigay ng payo_ at ang mga kabataang lalaki ay hindi na tumutugtog ng musika. 
+Ang matatanda ay hindi na umuupo sa mga pintuan ng lungsod para magbigay ng payo_ at ang mga kabataang lalaki ay hindi na tumutugtog ng musika. 
 
 
 

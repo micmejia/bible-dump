@@ -106,7 +106,7 @@ Nagpatuloy pa si Elihu,
 
 
 
-Marami akong nalalaman at papatunayan ko sa iyo na ang <i class="trans-change">Dios na_ lumikha sa akin ay tama. 
+Marami akong nalalaman at papatunayan ko sa iyo na ang Dios na_ lumikha sa akin ay tama. 
 
 
 
@@ -898,7 +898,7 @@ Tunay na makapangyarihan ang Dios at hinding-hindi natin kayang unawain ang kany
 
 
 
-"<i class="trans-change">Ang Dios_ ang nagpapaakyat ng tubig mula sa lupa at ginagawa niyang ulan. 
+"Ang Dios_ ang nagpapaakyat ng tubig mula sa lupa at ginagawa niyang ulan. 
 
 
 
@@ -1030,7 +1030,7 @@ Masdan mo kung paano niya pinakikidlat sa kanyang paligid, at kung paano nito pi
 
 
 
-Sa pamamagitan <i class="trans-change">ng kapangyarihan ng Dios,_ pinamumunuan niya ang mga bansa at binibigyan ng saganang pagkain <i class="trans-change">ang mga tao_. 
+Sa pamamagitan ng kapangyarihan ng Dios,_ pinamumunuan niya ang mga bansa at binibigyan ng saganang pagkain ang mga tao_. 
 
 
 

@@ -277,7 +277,7 @@ Sa unang araw ng pistang ito, huwag kayong magtatrabaho, sa halip ay magtipon ka
 
 Sa loob ng pitong araw, mag-aalay kayo sa Panginoon ng handog sa pamamagitan ng apoy. At sa ikapitong araw, huwag kayong magtatrabaho sa halip ay magtipon nga kayo at sumamba sa Panginoon.
 
-## Ang Pista ng Pag-aani <sup class="versenum">9-11</sup>Kapag naroon na kayo sa lupaing ibibigay sa inyo ng Panginoon, ihandog ninyo sa kanya ang unang bigkis ng bawat ani. Dalhin ninyo ito sa pari sa susunod na araw pagkatapos ng Araw ng Pamamahinga. Itataas ito ng pari sa Panginoon para tanggapin kayo ng Panginoon sa pamamagitan nito. 
+## Ang Pista ng Pag-aani 9-11Kapag naroon na kayo sa lupaing ibibigay sa inyo ng Panginoon, ihandog ninyo sa kanya ang unang bigkis ng bawat ani. Dalhin ninyo ito sa pari sa susunod na araw pagkatapos ng Araw ng Pamamahinga. Itataas ito ng pari sa Panginoon para tanggapin kayo ng Panginoon sa pamamagitan nito. 
 
 
 
@@ -376,7 +376,7 @@ Kasama nito, maghandog din kayo ng apat na kilo ng magandang klaseng harina na h
 
 
 
-Kung hindi pa kayo nakapaghahandog nito, huwag kayong kakain ng kahit anong klase ng pagkain mula sa inyong bagong ani, ito may sariwa o binusa o nilutong tinapay. Dapat ninyong sundin ang tuntuning ito kahit saan kayo tumira, kayo at ng susunod pang mga henerasyon. <sup class="versenum">15-17</sup>Pagkatapos ng pitong linggo mula sa araw na kayoʼy naghandog ng mga ibinigkis na ani, muli kayong magtipon at mag-alay ng handog ng pagpaparangal mula sa mga ibinigkis ng unang ani ninyo. Itoʼy sa ika-50 araw, ang araw pagkatapos ng ikapitong Araw ng Pamamahinga. Ang inyong ihahandog ay dalawang tinapay na bawat isa ay gawa sa apat na kilo ng magandang klaseng harina na may pampaalsa. Ihandog ninyo ito bilang handog na itinataas, mula sa inyong unang ani. 
+Kung hindi pa kayo nakapaghahandog nito, huwag kayong kakain ng kahit anong klase ng pagkain mula sa inyong bagong ani, ito may sariwa o binusa o nilutong tinapay. Dapat ninyong sundin ang tuntuning ito kahit saan kayo tumira, kayo at ng susunod pang mga henerasyon. 15-17Pagkatapos ng pitong linggo mula sa araw na kayoʼy naghandog ng mga ibinigkis na ani, muli kayong magtipon at mag-alay ng handog ng pagpaparangal mula sa mga ibinigkis ng unang ani ninyo. Itoʼy sa ika-50 araw, ang araw pagkatapos ng ikapitong Araw ng Pamamahinga. Ang inyong ihahandog ay dalawang tinapay na bawat isa ay gawa sa apat na kilo ng magandang klaseng harina na may pampaalsa. Ihandog ninyo ito bilang handog na itinataas, mula sa inyong unang ani. 
 
 
 
@@ -543,7 +543,7 @@ Huwag kayong magtatrabaho sa araw ding iyon, kundi magtipon kayo at sumamba sa P
 
 Kung aani kayo, huwag ninyong uubusin ang mga nasa gilid ng inyong mga bukid, at huwag na ninyong balikan para ipunin ang mga naiwan. Ipaubaya na lang ninyo iyon sa mga dukha at sa mga dayuhan. Ito ang utos ng Panginoon na inyong Dios.
 
-## Ang Pista ng Pagpapatunog ng mga Trumpeta <sup class="versenum">23-24</sup>Sa unang araw ng ikapitong buwan, magpahinga kayo para alalahanin ang Panginoon. Kung marinig ninyo ang tunog ng trumpeta, magtipon kayo para sumamba sa kanya. 
+## Ang Pista ng Pagpapatunog ng mga Trumpeta 23-24Sa unang araw ng ikapitong buwan, magpahinga kayo para alalahanin ang Panginoon. Kung marinig ninyo ang tunog ng trumpeta, magtipon kayo para sumamba sa kanya. 
 
 
 
@@ -578,7 +578,7 @@ Kung aani kayo, huwag ninyong uubusin ang mga nasa gilid ng inyong mga bukid, at
 
 Huwag kayong magtrabaho sa araw na iyon, sa halip mag-alay kayo ng handog sa pamamagitan ng apoy para sa Panginoon.
 
-## Ang Araw ng Pagtubos <sup class="versenum">26-28</sup>Ang ikasampung araw ng ikapitong buwan ding iyon ay Araw ng Pagtubos. Huwag kayong magtatrabaho sa araw na iyon kundi magtipon kayo sa pagsamba sa Panginoon na may pag-aayuno at pag-aalay ng handog sa pamamagitan ng apoy. Sapagkat sa araw na iyon gagawin ang seremonya ng pagtubos sa inyong mga kasalanan sa Panginoon na inyong Dios. 
+## Ang Araw ng Pagtubos 26-28Ang ikasampung araw ng ikapitong buwan ding iyon ay Araw ng Pagtubos. Huwag kayong magtatrabaho sa araw na iyon kundi magtipon kayo sa pagsamba sa Panginoon na may pag-aayuno at pag-aalay ng handog sa pamamagitan ng apoy. Sapagkat sa araw na iyon gagawin ang seremonya ng pagtubos sa inyong mga kasalanan sa Panginoon na inyong Dios. 
 
 
 
@@ -644,9 +644,9 @@ Ang ayaw mag-ayuno sa araw na iyon ay huwag na ninyong ituring na kababayan.
 
 
 
-Papatayin ng Panginoon ang sinumang magtatrabaho sa araw na iyon. <sup class="versenum">31-32</sup>Kaya magpahinga kayo at mag-ayuno mula sa paglubog ng araw nang ikasiyam na araw ng buwang iyon hanggang sa susunod na paglubog ng araw. Dapat ninyong sundin ang tuntuning ito kahit saan kayo tumira, kayo at ng susunod pang mga henerasyon.
+Papatayin ng Panginoon ang sinumang magtatrabaho sa araw na iyon. 31-32Kaya magpahinga kayo at mag-ayuno mula sa paglubog ng araw nang ikasiyam na araw ng buwang iyon hanggang sa susunod na paglubog ng araw. Dapat ninyong sundin ang tuntuning ito kahit saan kayo tumira, kayo at ng susunod pang mga henerasyon.
 
-## Ang Pista ng Pagtatayo ng mga Kubol <sup class="versenum">33-34</sup>Inutusan ng Panginoon si Moises na sabihin ito sa mga Israelita: Sa ika-15 araw ng ikapitong buwan, magsisimula ang Pista ng Pagtatayo ng mga Kubol at itoʼy ipagdiriwang ninyo sa loob ng pitong araw. 
+## Ang Pista ng Pagtatayo ng mga Kubol 33-34Inutusan ng Panginoon si Moises na sabihin ito sa mga Israelita: Sa ika-15 araw ng ikapitong buwan, magsisimula ang Pista ng Pagtatayo ng mga Kubol at itoʼy ipagdiriwang ninyo sa loob ng pitong araw. 
 
 
 
@@ -745,7 +745,7 @@ Sa loob ng pitong araw, mag-aalay kayo ng handog sa pamamagitan ng apoy para sa 
 
 
 
-Iyon ang itinakdang espesyal na mga araw na magtitipon kayo para sumamba sa Panginoon at para mag-alay ng mga handog sa pamamagitan ng apoy para sa Panginoon. <i class="trans-change">Dapat magdala kayo ng_ mga handog na sinusunog, handog ng pagpaparangal sa Panginoon, at mga handog na inumin. Ang mga handog na ito ay kinakailangang ihandog ninyo sa itinakdang araw ng paghahandog nito. 
+Iyon ang itinakdang espesyal na mga araw na magtitipon kayo para sumamba sa Panginoon at para mag-alay ng mga handog sa pamamagitan ng apoy para sa Panginoon. Dapat magdala kayo ng_ mga handog na sinusunog, handog ng pagpaparangal sa Panginoon, at mga handog na inumin. Ang mga handog na ito ay kinakailangang ihandog ninyo sa itinakdang araw ng paghahandog nito. 
 
 
 
@@ -844,7 +844,7 @@ Tungkol naman sa Pista ng Pagtatayo ng mga Kubol, ipagdiriwang ninyo ito para pa
 
 
 
-Sa unang araw, kumuha kayo ng pinakamagandang bunga ng mga punongkahoy, mga dahon ng palma, mga mayayabong na sanga ng puno sa lambak, at kayoʼy masayang magdiwang sa presensya ng Panginoon na inyong Dios sa loob ng pitong araw. <sup class="versenum">41-43</sup>Ipagdiwang ninyo ang pistang ito sa ikapitong buwan bawat taon para parangalan ang Panginoon. Sa loob ng pitong araw, lahat kayong mga Israelita ay dapat tumira sa mga kubol para malaman ng inyong mga anak na pinatira ng Panginoon na inyong Dios ang inyong mga ninuno sa mga kubol nang sila ay inilabas sa Egipto. Dapat ninyong sundin ang mga tuntuning ito hanggang sa susunod pang mga henerasyon. 
+Sa unang araw, kumuha kayo ng pinakamagandang bunga ng mga punongkahoy, mga dahon ng palma, mga mayayabong na sanga ng puno sa lambak, at kayoʼy masayang magdiwang sa presensya ng Panginoon na inyong Dios sa loob ng pitong araw. 41-43Ipagdiwang ninyo ang pistang ito sa ikapitong buwan bawat taon para parangalan ang Panginoon. Sa loob ng pitong araw, lahat kayong mga Israelita ay dapat tumira sa mga kubol para malaman ng inyong mga anak na pinatira ng Panginoon na inyong Dios ang inyong mga ninuno sa mga kubol nang sila ay inilabas sa Egipto. Dapat ninyong sundin ang mga tuntuning ito hanggang sa susunod pang mga henerasyon. 
 
 
 

@@ -139,7 +139,7 @@ si Felipe, si Bartolome, si Tomas, si Mateo na maniningil ng buwis, si Santiago 
 
 
 
-si Simon na makabayan, at si Judas Iscariote na siyang nagtraydor kay Jesus <i class="trans-change">nang bandang huli_.
+si Simon na makabayan, at si Judas Iscariote na siyang nagtraydor kay Jesus nang bandang huli_.
 
 ## Sinugo ni Jesus ang Labindalawang Apostol 
 
@@ -174,7 +174,7 @@ si Simon na makabayan, at si Judas Iscariote na siyang nagtraydor kay Jesus <i c
 
 
 
-Sinugo ni Jesus ang 12 <i class="trans-change">tagasunod niya at_ pinagbilinan, "Huwag kayong pumunta sa mga lugar ng mga hindi Judio o sa alin mang bayan ng mga Samaritano. 
+Sinugo ni Jesus ang 12 tagasunod niya at_ pinagbilinan, "Huwag kayong pumunta sa mga lugar ng mga hindi Judio o sa alin mang bayan ng mga Samaritano. 
 
 
 
@@ -273,7 +273,7 @@ Ipahayag ninyo sa kanila na malapit na ang paghahari ng Dios.
 
 
 
-Pagalingin nʼyo ang mga may sakit, buhayin ang mga patay, pagalingin ang mga may malubhang sakit sa balat para maituring silang malinis, at palayasin ang masasamang espiritu. Tinanggap ninyo <i class="trans-change">ang kapangyarihang ito_ nang walang bayad, kaya ipamahagi rin ninyo nang walang bayad. 
+Pagalingin nʼyo ang mga may sakit, buhayin ang mga patay, pagalingin ang mga may malubhang sakit sa balat para maituring silang malinis, at palayasin ang masasamang espiritu. Tinanggap ninyo ang kapangyarihang ito_ nang walang bayad, kaya ipamahagi rin ninyo nang walang bayad. 
 
 
 
@@ -471,7 +471,7 @@ Kung talagang tinatanggap nila kayo, pagpalain ninyo sila. Ngunit kung hindi, hu
 
 
 
-Kung ayaw kayong tanggapin o pakinggan sa isang tahanan o bayan, umalis kayo roon at ipagpag ninyo ang alikabok sa inyong mga paa <i class="trans-change">bilang babala laban sa kanila_. 
+Kung ayaw kayong tanggapin o pakinggan sa isang tahanan o bayan, umalis kayo roon at ipagpag ninyo ang alikabok sa inyong mga paa bilang babala laban sa kanila_. 
 
 
 
@@ -636,7 +636,7 @@ Iimbestigahan kayo sa harap ng mga gobernador at mga hari dahil sa pagsunod niny
 
 
 
-At kapag dinala kayo <i class="trans-change">sa hukuman_, huwag kayong mag-alala kung ano ang sasabihin ninyo o kung paano kayo sasagot, dahil ibibigay <i class="trans-change">ng Dios_ sa inyo sa sandaling iyon ang sasabihin ninyo. 
+At kapag dinala kayo sa hukuman_, huwag kayong mag-alala kung ano ang sasabihin ninyo o kung paano kayo sasagot, dahil ibibigay ng Dios_ sa inyo sa sandaling iyon ang sasabihin ninyo. 
 
 
 
@@ -702,7 +702,7 @@ Sapagkat hindi kayo ang magsasalita kundi ang Espiritu ng inyong Ama. Siya ang m
 
 
 
-"<i class="trans-change">Sa panahong iyon,_ may mga taong ipagkakanulo ang kanilang kapatid para patayin. Ganoon din ang mga ama sa kanilang mga anak, at ang mga anak sa kanilang mga magulang. 
+"Sa panahong iyon,_ may mga taong ipagkakanulo ang kanilang kapatid para patayin. Ganoon din ang mga ama sa kanilang mga anak, at ang mga anak sa kanilang mga magulang. 
 
 
 
@@ -768,7 +768,7 @@ Kapopootan kayo ng lahat dahil sa pagsunod ninyo sa akin. Ngunit ang mananatilin
 
 
 
-Kapag inuusig kayo sa isang bayan, pumunta kayo sa ibang bayan. Dahil ang totoo, hindi pa man ninyo nalilibot ang lahat ng bayan ng Israel, <i class="trans-change">ako na_ Anak ng Tao ay babalik na. 
+Kapag inuusig kayo sa isang bayan, pumunta kayo sa ibang bayan. Dahil ang totoo, hindi pa man ninyo nalilibot ang lahat ng bayan ng Israel, ako na_ Anak ng Tao ay babalik na. 
 
 
 
@@ -999,7 +999,7 @@ Hindi baʼt napakamura ng halaga ng dalawang maya? Pero wala ni isa man sa kanil
 
 
 
-<i class="trans-change">Mas lalo na kayo,_ maging ang bilang ng inyong mga buhok ay alam niya. 
+Mas lalo na kayo,_ maging ang bilang ng inyong mga buhok ay alam niya. 
 
 
 
@@ -1065,7 +1065,7 @@ Kaya huwag kayong matakot, dahil mas mahalaga kayo kaysa sa maraming maya." ## A
 
 
 
-"Ang sinumang kumikilala sa akin <i class="trans-change">bilang Panginoon_ sa harap ng mga tao ay kikilalanin ko rin sa harap ng aking Amang nasa langit. 
+"Ang sinumang kumikilala sa akin bilang Panginoon_ sa harap ng mga tao ay kikilalanin ko rin sa harap ng aking Amang nasa langit. 
 
 
 
@@ -1296,7 +1296,7 @@ Ang sinumang ayaw sumunod sa akin dahil natatakot siyang mamatay para sa akin ay
 
 
 
-Ang taong naghahangad magligtas ng kanyang buhay ay mawawalan nito. Ngunit ang taong nagnanais mag-alay ng kanyang buhay alang-alang sa akin ay magkakaroon ng buhay <i class="trans-change">na walang hanggan_." ## Mga Gantimpala 
+Ang taong naghahangad magligtas ng kanyang buhay ay mawawalan nito. Ngunit ang taong nagnanais mag-alay ng kanyang buhay alang-alang sa akin ay magkakaroon ng buhay na walang hanggan_." ## Mga Gantimpala 
 
 
 

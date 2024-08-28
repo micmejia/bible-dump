@@ -172,7 +172,7 @@ Kung kayo ang nasa kalagayan ko, masasabi ko rin ang katulad ng mga sinasabi nin
 
 
 
-<i class="trans-change">Pero hindi ko gagawin iyon. Sa halip,_ magsasalita ako ng mga salitang makapagpapalakas at makapagpapaaliw sa inyo. 
+Pero hindi ko gagawin iyon. Sa halip,_ magsasalita ako ng mga salitang makapagpapalakas at makapagpapaaliw sa inyo. 
 
 
 
@@ -238,7 +238,7 @@ Ngunit sa ngayon, patuloy pa rin ang paghihirap ko kahit ano pa ang sabihin ko. 
 
 
 
-"<i class="trans-change">O Dios,_ pinanghina nʼyo ako at winasak ang buong sambahayan ko. 
+"O Dios,_ pinanghina nʼyo ako at winasak ang buong sambahayan ko. 
 
 
 
@@ -304,7 +304,7 @@ Pinapayat nʼyo ako; butoʼt balat na lang ako, at ayon sa iba ito ang katunayan
 
 
 
-Sa galit nʼyo, <i class="trans-change">O Dios,_ sinalakay nʼyo ako. <i class="trans-change">Para kayong mabangis na hayop_ na lumuray ng aking laman. Nagngangalit ang inyong ngipin at tinititigan nʼyo ako na parang akoʼy inyong kaaway. 
+Sa galit nʼyo, O Dios,_ sinalakay nʼyo ako. Para kayong mabangis na hayop_ na lumuray ng aking laman. Nagngangalit ang inyong ngipin at tinititigan nʼyo ako na parang akoʼy inyong kaaway. 
 
 
 
@@ -502,7 +502,7 @@ Paulit-ulit niya akong sinusugatan. Sinasalakay niya akong parang mandirigma.
 
 
 
-Nagdamit ako ng sako at naupo sa lupa <i class="trans-change">para magluksa_. 
+Nagdamit ako ng sako at naupo sa lupa para magluksa_. 
 
 
 

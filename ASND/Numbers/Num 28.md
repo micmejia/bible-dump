@@ -803,7 +803,7 @@ Ialay ninyo ang mga handog na ito bukod pa sa inyong pang-araw-araw na handog na
 
 
 
-Sa ganitong paraan ninyo ialay itong mga handog sa pamamagitan ng apoy bilang pagkain <i class="trans-change">para sa Panginoon_. Gawin ninyo ito bawat araw sa loob ng pitong araw. Ang mabangong samyo ng mga handog na ito ay makalulugod sa Panginoon. Ihandog ninyo ito bukod pa sa pang-araw-araw na handog na sinusunog at sa handog na inumin. 
+Sa ganitong paraan ninyo ialay itong mga handog sa pamamagitan ng apoy bilang pagkain para sa Panginoon_. Gawin ninyo ito bawat araw sa loob ng pitong araw. Ang mabangong samyo ng mga handog na ito ay makalulugod sa Panginoon. Ihandog ninyo ito bukod pa sa pang-araw-araw na handog na sinusunog at sa handog na inumin. 
 
 
 

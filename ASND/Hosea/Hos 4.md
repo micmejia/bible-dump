@@ -40,7 +40,7 @@ next: ['Hos 5']
 
 
 
-Kayong mga Israelitang naninirahan sa lupain <i class="trans-change">ng Israel_, pakinggan ninyo ang paratang ng Panginoon laban sa inyo: "Wala ni isa man sa inyong lupain ang tapat, nagmamahal, at kumikilala sa akin. 
+Kayong mga Israelitang naninirahan sa lupain ng Israel_, pakinggan ninyo ang paratang ng Panginoon laban sa inyo: "Wala ni isa man sa inyong lupain ang tapat, nagmamahal, at kumikilala sa akin. 
 
 
 
@@ -205,7 +205,7 @@ Kayo at ang mga propeta ay mapapahamak sa araw man o sa gabi pati ang inyong mga
 
 
 
-"Napapahamak ang aking mga mamamayan dahil kulang ang kaalaman nila <i class="trans-change">tungkol sa akin_. Sapagkat kayo mismong mga pari ay tinanggihan ang kaalamang ito, kaya tinatanggihan ko rin kayo bilang mga pari ko. Kinalimutan ninyo ang Kautusan ko kaya kalilimutan ko rin ang mga anak ninyo. 
+"Napapahamak ang aking mga mamamayan dahil kulang ang kaalaman nila tungkol sa akin_. Sapagkat kayo mismong mga pari ay tinanggihan ang kaalamang ito, kaya tinatanggihan ko rin kayo bilang mga pari ko. Kinalimutan ninyo ang Kautusan ko kaya kalilimutan ko rin ang mga anak ninyo. 
 
 
 
@@ -471,7 +471,7 @@ Naghahandog kayo sa tuktok ng mga bundok at mga burol, sa ilalim ng matataas at 
 
 
 
-Pero hindi ko sila parurusahan sa kanilang ginagawang masama, dahil kayong mga lalaki ay nakikipagsiping din sa mga babaeng bayaran sa templo at kasama pa nilang naghahandog sa mga dios-diosan. Kaya dahil kayoʼy mga mangmang <i class="trans-change">sa katotohanan_, mapapahamak kayo. 
+Pero hindi ko sila parurusahan sa kanilang ginagawang masama, dahil kayong mga lalaki ay nakikipagsiping din sa mga babaeng bayaran sa templo at kasama pa nilang naghahandog sa mga dios-diosan. Kaya dahil kayoʼy mga mangmang sa katotohanan_, mapapahamak kayo. 
 
 
 
@@ -570,7 +570,7 @@ Sapagkat matigas ang ulo ng mga taga-Israel katulad ng dumalagang baka na ayaw s
 
 
 
-Sumamba sila sa mga dios-diosan kaya pabayaan <i class="trans-change">na lang_ sila. 
+Sumamba sila sa mga dios-diosan kaya pabayaan na lang_ sila. 
 
 
 

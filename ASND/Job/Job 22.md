@@ -106,7 +106,7 @@ Pagkatapos, sumagot si Elifaz na taga-Teman,
 
 
 
-Matutuwa kaya ang Makapangyarihang <i class="trans-change">Dios_ kung matuwid ka? May mapapala ba siya sa iyo kung walang kapintasan ang buhay mo? 
+Matutuwa kaya ang Makapangyarihang Dios_ kung matuwid ka? May mapapala ba siya sa iyo kung walang kapintasan ang buhay mo? 
 
 
 
@@ -700,7 +700,7 @@ Sasabihin nila, 'Napahamak na ang mga kaaway natin, at natupok sa apoy ang kayam
 
 
 
-"<i class="trans-change">Job,_ magpasakop ka sa Dios at makipagkasundo ka sa kanya upang pagpalain ka niya. 
+"Job,_ magpasakop ka sa Dios at makipagkasundo ka sa kanya upang pagpalain ka niya. 
 
 
 
@@ -766,7 +766,7 @@ Tanggapin mo ang kanyang mga itinuturo at ingatan mo sa iyong puso ang kanyang m
 
 
 
-Kung manunumbalik ka sa <i class="trans-change">Dios na_ Makapangyarihan, at aalisin ang kasamaan sa sambahayan mo, pagpapalain ka niyang muli. 
+Kung manunumbalik ka sa Dios na_ Makapangyarihan, at aalisin ang kasamaan sa sambahayan mo, pagpapalain ka niyang muli. 
 
 
 
@@ -799,7 +799,7 @@ Kung manunumbalik ka sa <i class="trans-change">Dios na_ Makapangyarihan, at aal
 
 
 
-<i class="trans-change">Huwag mong pahalagahan_ ang <i class="trans-change">iyong_ kayamanan; ituring mo <i class="trans-change">ito_ na parang buhangin o batong nasa ilog. 
+Huwag mong pahalagahan_ ang iyong_ kayamanan; ituring mo ito_ na parang buhangin o batong nasa ilog. 
 
 
 
@@ -832,7 +832,7 @@ Kung manunumbalik ka sa <i class="trans-change">Dios na_ Makapangyarihan, at aal
 
 
 
-At ang <i class="trans-change">Dios na_ Makapangyarihan ang ituring mong ginto at mamahaling pilak. 
+At ang Dios na_ Makapangyarihan ang ituring mong ginto at mamahaling pilak. 
 
 
 

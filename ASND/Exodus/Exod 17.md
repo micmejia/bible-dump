@@ -139,7 +139,7 @@ Pero uhaw na uhaw ang mga tao roon, kaya patuloy ang pagrereklamo nila kay Moise
 
 
 
-Kaya humingi ng tulong si Moises sa Panginoon, "<i class="trans-change">O Panginoon,_ ano po ba ang gagawin ko sa mga taong ito? Halos batuhin na nila ako!" 
+Kaya humingi ng tulong si Moises sa Panginoon, "O Panginoon,_ ano po ba ang gagawin ko sa mga taong ito? Halos batuhin na nila ako!" 
 
 
 
@@ -172,7 +172,7 @@ Kaya humingi ng tulong si Moises sa Panginoon, "<i class="trans-change">O Pangin
 
 
 
-Sumagot ang Panginoon kay Moises, "Kunin mo ang iyong baston na inihampas mo sa <i class="trans-change">Ilog ng_ Nilo, at pangunahan mo ang mga tao kasama ng ibang mga tagapamahala ng Israel. 
+Sumagot ang Panginoon kay Moises, "Kunin mo ang iyong baston na inihampas mo sa Ilog ng_ Nilo, at pangunahan mo ang mga tao kasama ng ibang mga tagapamahala ng Israel. 
 
 
 
@@ -205,7 +205,7 @@ Sumagot ang Panginoon kay Moises, "Kunin mo ang iyong baston na inihampas mo sa 
 
 
 
-Hihintayin kita roon sa may bato sa Horeb. <i class="trans-change">Kapag naroon ka na,_ paluin mo ang bato, at lalabas ang tubig na iinumin ng mga tao." Kaya ginawa ito ni Moises sa harap ng mga tagapamahala ng Israel. 
+Hihintayin kita roon sa may bato sa Horeb. Kapag naroon ka na,_ paluin mo ang bato, at lalabas ang tubig na iinumin ng mga tao." Kaya ginawa ito ni Moises sa harap ng mga tagapamahala ng Israel. 
 
 
 
@@ -304,7 +304,7 @@ Nang naroon pa ang mga Israelita sa Refidim, sinalakay sila ng mga Amalekita.
 
 
 
-Sinabi ni Moises kay Josue, "Pumili ka ng ilang tauhan natin at makipaglaban kayo sa mga Amalekita. Tatayo ako bukas sa ibabaw ng burol habang hawak ang baston <i class="trans-change">na iniutos_ ng Dios <i class="trans-change">na dalhin ko_." 
+Sinabi ni Moises kay Josue, "Pumili ka ng ilang tauhan natin at makipaglaban kayo sa mga Amalekita. Tatayo ako bukas sa ibabaw ng burol habang hawak ang baston na iniutos_ ng Dios na dalhin ko_." 
 
 
 

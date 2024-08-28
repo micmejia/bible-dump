@@ -238,7 +238,7 @@ Kaya ipinadala ni Moises ang utos na ito sa buong kampo: "Huwag na kayong maghah
 
 
 
-dahil sobra-sobra na ang ibinigay nila para sa lahat ng gawain <i class="trans-change">sa Tolda_.
+dahil sobra-sobra na ang ibinigay nila para sa lahat ng gawain sa Tolda_.
 
 ## Ang Pagpapatayo ng Toldang Sambahan 
 
@@ -273,7 +273,7 @@ dahil sobra-sobra na ang ibinigay nila para sa lahat ng gawain <i class="trans-c
 
 
 
-Ang lahat ng mahuhusay magtrabaho ang gagawa ng Toldang Sambahan. Ang mga gagamitin sa paggawa nito ay sampung piraso ng pinong <i class="trans-change">telang_ linen na may lanang kulay asul, ube at pula. At paburdahan ito ng kerubin sa mahuhusay na mambuburda. 
+Ang lahat ng mahuhusay magtrabaho ang gagawa ng Toldang Sambahan. Ang mga gagamitin sa paggawa nito ay sampung piraso ng pinong telang_ linen na may lanang kulay asul, ube at pula. At paburdahan ito ng kerubin sa mahuhusay na mambuburda. 
 
 
 
@@ -1164,7 +1164,7 @@ Binalutan nila ng ginto ang mga tabla at nilagyan ng argolyang ginto na siyang h
 
 
 
-Gumawa rin sila ng kurtina na mula sa pinong <i class="trans-change">telang_ linen na binurdahan gamit ang lanang kulay asul, ube at pula. At maayos na nabuburdahan ng larawan ng kerubin. 
+Gumawa rin sila ng kurtina na mula sa pinong telang_ linen na binurdahan gamit ang lanang kulay asul, ube at pula. At maayos na nabuburdahan ng larawan ng kerubin. 
 
 
 
@@ -1230,7 +1230,7 @@ Gumawa rin sila ng apat na haligi ng akasya na may mga kawit na ginto, at ikinab
 
 
 
-Gumawa sila ng isa pang kurtina para sa pintuan ng Toldang Sambahan. Pinong <i class="trans-change">telang_ linen rin ito na binurdahan gamit ang lanang kulay asul, ube at pula. At napakaganda ng pagkakaburda nito. 
+Gumawa sila ng isa pang kurtina para sa pintuan ng Toldang Sambahan. Pinong telang_ linen rin ito na binurdahan gamit ang lanang kulay asul, ube at pula. At napakaganda ng pagkakaburda nito. 
 
 
 

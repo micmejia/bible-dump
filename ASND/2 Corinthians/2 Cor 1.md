@@ -39,7 +39,7 @@ next: ['2 Cor 2']
 
 
 
-<i class="trans-change">Mula kay_ Pablo na apostol ni Cristo Jesus ayon sa kalooban ng Dios, <i class="trans-change">kasama si_ Timoteo na <i class="trans-change">ating_ kapatid. <i class="trans-change">Mahal kong mga kapatid_ sa iglesya ng Dios diyan sa Corinto, kasama ang lahat ng mga pinabanal <i class="trans-change">ng Dios_ sa Acaya: 
+Mula kay_ Pablo na apostol ni Cristo Jesus ayon sa kalooban ng Dios, kasama si_ Timoteo na ating_ kapatid. Mahal kong mga kapatid_ sa iglesya ng Dios diyan sa Corinto, kasama ang lahat ng mga pinabanal ng Dios_ sa Acaya: 
 
 
 
@@ -272,7 +272,7 @@ Kaya malaki ang aming pag-asa para sa inyo, dahil alam namin na kung naghihirap 
 
 
 
-Mga kapatid, gusto naming malaman ninyo ang mga paghihirap na dinanas namin sa <i class="trans-change">lalawigan ng_ Asia. Napakabigat ng mga dinanas namin doon, halos hindi na namin nakayanan at nawalan na kami ng pag-asang mabuhay pa. 
+Mga kapatid, gusto naming malaman ninyo ang mga paghihirap na dinanas namin sa lalawigan ng_ Asia. Napakabigat ng mga dinanas namin doon, halos hindi na namin nakayanan at nawalan na kami ng pag-asang mabuhay pa. 
 
 
 
@@ -406,7 +406,7 @@ sa tulong ng inyong mga panalangin. Sa ganoon, marami ang magpapasalamat sa Dios
 
 
 
-Isang bagay ang maipagmamalaki namin: Namumuhay kaming matuwid at tapat sa harap ng lahat ng tao, lalung-lalo na sa inyo. Nagawa namin ito hindi sa pamamagitan ng karunungan ng mundo kundi dahil sa biyaya ng Dios. At pinatutunayan ng aming konsensya na talagang totoo itong aming ipinagmamalaki. <sup class="versenum">13-14</sup>Sapagkat wala kaming isinusulat sa inyo na hindi ninyo mabasa o maintindihan. Kahit na hindi nʼyo pa kami kilalang mabuti, umaasa akong darating ang araw na makikilala nʼyo kami nang lubusan, para maipagmalaki ninyo kami sa araw ng pagdating ng Panginoong Jesus, at maipagmamalaki rin namin kayo. 
+Isang bagay ang maipagmamalaki namin: Namumuhay kaming matuwid at tapat sa harap ng lahat ng tao, lalung-lalo na sa inyo. Nagawa namin ito hindi sa pamamagitan ng karunungan ng mundo kundi dahil sa biyaya ng Dios. At pinatutunayan ng aming konsensya na talagang totoo itong aming ipinagmamalaki. 13-14Sapagkat wala kaming isinusulat sa inyo na hindi ninyo mabasa o maintindihan. Kahit na hindi nʼyo pa kami kilalang mabuti, umaasa akong darating ang araw na makikilala nʼyo kami nang lubusan, para maipagmalaki ninyo kami sa araw ng pagdating ng Panginoong Jesus, at maipagmamalaki rin namin kayo. 
 
 
 
@@ -439,7 +439,7 @@ Isang bagay ang maipagmamalaki namin: Namumuhay kaming matuwid at tapat sa harap
 
 
 
-Dahil sa tiwalang ito, binalak kong bisitahin kayo noong una, para makatanggap kayo ng dobleng pagpapala <i class="trans-change">sa pagbisita ko sa inyo ng dalawang beses_. 
+Dahil sa tiwalang ito, binalak kong bisitahin kayo noong una, para makatanggap kayo ng dobleng pagpapala sa pagbisita ko sa inyo ng dalawang beses_. 
 
 
 
@@ -505,7 +505,7 @@ Binalak kong dumaan muna sa inyo pagpunta ko sa Macedonia, at sa aking pagbalik 
 
 
 
-Iyon sana ang plano ko noon. <i class="trans-change">Ngunit dahil hindi ito natuloy,_ masasabi ba ninyong pabago-bago ang aking isip? Katulad din ba ako ng mga taong makamundo na "Oo" nang "Oo," pero "Hindi" naman pala ang ibig sabihin? 
+Iyon sana ang plano ko noon. Ngunit dahil hindi ito natuloy,_ masasabi ba ninyong pabago-bago ang aking isip? Katulad din ba ako ng mga taong makamundo na "Oo" nang "Oo," pero "Hindi" naman pala ang ibig sabihin? 
 
 
 
@@ -538,7 +538,7 @@ Iyon sana ang plano ko noon. <i class="trans-change">Ngunit dahil hindi ito natu
 
 
 
-<i class="trans-change">Aba, hindi!_ Kung paanong tapat ang Dios, ganoon din naman kami sa aming mga sinasabi. 
+Aba, hindi!_ Kung paanong tapat ang Dios, ganoon din naman kami sa aming mga sinasabi. 
 
 
 
@@ -637,7 +637,7 @@ Sapagkat kahit gaano man karami ang pangako ng Dios, tutuparin niyang lahat ito 
 
 
 
-Ang Dios ang nagpapatibay sa atin, at sa ating pakikipag-isa kay Cristo. Pinili niya tayo <i class="trans-change">para maglingkod sa kanya_. 
+Ang Dios ang nagpapatibay sa atin, at sa ating pakikipag-isa kay Cristo. Pinili niya tayo para maglingkod sa kanya_. 
 
 
 
@@ -670,7 +670,7 @@ Ang Dios ang nagpapatibay sa atin, at sa ating pakikipag-isa kay Cristo. Pinili 
 
 
 
-Tinatakan niya tayo <i class="trans-change">bilang tanda na tayoʼy nasa kanya na. Ginawa niya ito_ sa pamamagitan ng paglalagay ng kanyang <i class="trans-change">Banal na_ Espiritu sa ating mga puso. <i class="trans-change">Ang Banal na Espiritu_ ang nagsisilbing garantiya na matatanggap natin ang kanyang mga ipinangako. 
+Tinatakan niya tayo bilang tanda na tayoʼy nasa kanya na. Ginawa niya ito_ sa pamamagitan ng paglalagay ng kanyang Banal na_ Espiritu sa ating mga puso. Ang Banal na Espiritu_ ang nagsisilbing garantiya na matatanggap natin ang kanyang mga ipinangako. 
 
 
 

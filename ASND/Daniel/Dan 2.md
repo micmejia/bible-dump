@@ -139,7 +139,7 @@ Sinabi niya sa kanila, "Nanaginip ako at binabagabag ako nito, kaya ipinatawag k
 
 
 
-Sumagot ang mga astrologo sa hari sa wikang Aramico, "Mahal na Hari, sabihin nʼyo po sa <i class="trans-change">amin na_ inyong mga lingkod ang inyong panaginip at ipapaliwanag namin sa inyo ang kahulugan nito." 
+Sumagot ang mga astrologo sa hari sa wikang Aramico, "Mahal na Hari, sabihin nʼyo po sa amin na_ inyong mga lingkod ang inyong panaginip at ipapaliwanag namin sa inyo ang kahulugan nito." 
 
 
 
@@ -436,7 +436,7 @@ Dahil sa sagot nilang ito, galit na galit ang hari. At nag-utos siyang patayin a
 
 
 
-Nang inilabas na ang utos ng hari na patayin ang mga marurunong, hinanap si Daniel at ang kanyang mga kasama para patayin din. <sup class="versenum">14-15</sup>Kaya nakipag-usap si Daniel kay Arioc na kapitan ng mga tagapagbantay ng hari na siyang inutusan na patayin ang mga marurunong sa Babilonia. Maingat na nagtanong si Daniel sa kanya kung ano ang dahilan ng napakabigat na utos ng hari. Kaya sinabi sa kanya ni Arioc ang nangyari. 
+Nang inilabas na ang utos ng hari na patayin ang mga marurunong, hinanap si Daniel at ang kanyang mga kasama para patayin din. 14-15Kaya nakipag-usap si Daniel kay Arioc na kapitan ng mga tagapagbantay ng hari na siyang inutusan na patayin ang mga marurunong sa Babilonia. Maingat na nagtanong si Daniel sa kanya kung ano ang dahilan ng napakabigat na utos ng hari. Kaya sinabi sa kanya ni Arioc ang nangyari. 
 
 
 
@@ -502,7 +502,7 @@ Pagkatapos, pumunta si Daniel sa hari at hiniling niya na bigyan siya ng panahon
 
 
 
-<i class="trans-change">Pumayag naman ang hari,_ kaya umuwi si Daniel at ibinalita sa kanyang mga kasamahang sina Hanania, Mishael at Azaria ang tungkol sa nangyari. 
+Pumayag naman ang hari,_ kaya umuwi si Daniel at ibinalita sa kanyang mga kasamahang sina Hanania, Mishael at Azaria ang tungkol sa nangyari. 
 
 
 
@@ -766,7 +766,7 @@ Pagkatapos, bumalik si Daniel kay Arioc na inutusan ng hari para patayin ang mga
 
 
 
-Kaya dali-daling dinala ni Arioc si Daniel sa hari. Sinabi ni Arioc, "<i class="trans-change">Mahal na Hari,_ may nakita po akong bihag mula sa Juda na makapagpapaliwanag ng inyong panaginip." 
+Kaya dali-daling dinala ni Arioc si Daniel sa hari. Sinabi ni Arioc, "Mahal na Hari,_ may nakita po akong bihag mula sa Juda na makapagpapaliwanag ng inyong panaginip." 
 
 
 
@@ -832,7 +832,7 @@ Tinanong ng hari si Daniel na tinatawag ding Belteshazar, "Talaga bang mahuhulaa
 
 
 
-Sumagot si Daniel, "<i class="trans-change">Mahal na Hari,_ wala pong sinumang marunong katulad ng mga mangkukulam, engkantador, o manghuhula ang makakapagpaliwanag ng inyong panaginip. 
+Sumagot si Daniel, "Mahal na Hari,_ wala pong sinumang marunong katulad ng mga mangkukulam, engkantador, o manghuhula ang makakapagpaliwanag ng inyong panaginip. 
 
 
 
@@ -964,7 +964,7 @@ At inihayag sa akin ng Dios ang inyong panaginip hindi dahil mas matalino ako ka
 
 
 
-"<i class="trans-change">Ito po ang inyong panaginip:_ May nakita kayong malaking rebulto na nakakasilaw na nakatayo sa inyong harapan at nakakatakot tingnan. 
+"Ito po ang inyong panaginip:_ May nakita kayong malaking rebulto na nakakasilaw na nakatayo sa inyong harapan at nakakatakot tingnan. 
 
 
 
@@ -1096,7 +1096,7 @@ At habang tinitingnan nʼyo po ang rebulto, may batong natipak na hindi kagagawa
 
 
 
-Agad namang nadurog ang <i class="trans-change">buong rebulto na gawa sa_ bakal, luwad, tanso, pilak at ginto. At parang naging ipa sa giikan na ipinadpad ng hangin kung saan-saan. Pero ang batong bumagsak sa paa ng rebulto ay naging malaking bundok at pumuno sa buong mundo. 
+Agad namang nadurog ang buong rebulto na gawa sa_ bakal, luwad, tanso, pilak at ginto. At parang naging ipa sa giikan na ipinadpad ng hangin kung saan-saan. Pero ang batong bumagsak sa paa ng rebulto ay naging malaking bundok at pumuno sa buong mundo. 
 
 
 
@@ -1195,7 +1195,7 @@ Mahal na Hari, kayo ang hari ng mga hari. Ginawa kayong hari ng Dios sa langit a
 
 
 
-Ipinasakop niya sa inyo ang mga tao, mga hayop at mga ibon sa lahat ng dako. Kayo ang sumisimbolo sa gintong ulo <i class="trans-change">ng rebulto_. 
+Ipinasakop niya sa inyo ang mga tao, mga hayop at mga ibon sa lahat ng dako. Kayo ang sumisimbolo sa gintong ulo ng rebulto_. 
 
 
 
@@ -1360,7 +1360,7 @@ Ang mga daliring bakal at luwad na mga paa ay nangangahulugan na may bahagi ang 
 
 
 
-Ang pagsasama ng bakal at luwad ay nangangahulugang magkakaisa <i class="trans-change">ang mga pinuno ng mga kahariang ito_ sa pamamagitan ng pag-aasawa ng magkaibang lahi. Pero hindi rin magtatagal ang kanilang pagkakaisa, katulad ng bakal at luwad na hindi maaaring paghaluin. 
+Ang pagsasama ng bakal at luwad ay nangangahulugang magkakaisa ang mga pinuno ng mga kahariang ito_ sa pamamagitan ng pag-aasawa ng magkaibang lahi. Pero hindi rin magtatagal ang kanilang pagkakaisa, katulad ng bakal at luwad na hindi maaaring paghaluin. 
 
 
 
@@ -1492,7 +1492,7 @@ Nagpatirapa si Haring Nebucadnezar upang parangalan si Daniel. Pagkatapos, nag-u
 
 
 
-Sinabi niya kay Daniel, "Dahil sa ipinahayag mo ang panaginip ko at ang kahulugan nito, totoo na ang iyong Dios ang pinakamakapangyarihan sa lahat ng dios. Siya ang <i class="trans-change">dapat kilalaning_ Panginoon ng mga hari. At siya lamang ang nakakapagpahayag ng mga hiwaga." 
+Sinabi niya kay Daniel, "Dahil sa ipinahayag mo ang panaginip ko at ang kahulugan nito, totoo na ang iyong Dios ang pinakamakapangyarihan sa lahat ng dios. Siya ang dapat kilalaning_ Panginoon ng mga hari. At siya lamang ang nakakapagpahayag ng mga hiwaga." 
 
 
 

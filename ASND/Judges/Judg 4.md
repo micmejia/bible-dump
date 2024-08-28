@@ -106,7 +106,7 @@ Kaya hinayaan ng Panginoon na sakupin sila ni Haring Jabin ng Hazor, na isang ha
 
 
 
-May 900 karwaheng yari sa bakal si Jabin, at labis niyang pinagmalupitan ang mga Israelita sa loob ng 20 taon. Kaya <i class="trans-change">muling_ humingi ng tulong ang mga Israelita sa Panginoon. 
+May 900 karwaheng yari sa bakal si Jabin, at labis niyang pinagmalupitan ang mga Israelita sa loob ng 20 taon. Kaya muling_ humingi ng tulong ang mga Israelita sa Panginoon. 
 
 
 
@@ -139,7 +139,7 @@ May 900 karwaheng yari sa bakal si Jabin, at labis niyang pinagmalupitan ang mga
 
 
 
-Nang panahong iyon, ang pinuno ng Israel ay si Debora, na isang propeta <i class="trans-change">ng Dios_ at asawa ni Lapidot. 
+Nang panahong iyon, ang pinuno ng Israel ay si Debora, na isang propeta ng Dios_ at asawa ni Lapidot. 
 
 
 
@@ -205,7 +205,7 @@ Kapag gustong ayusin ng mga Israelita ang kanilang mga di-pagkakaunawaan, pumupu
 
 
 
-<i class="trans-change">Isang araw_, ipinatawag ni Debora si Barak na anak ni Abinoam na taga-Kedesh na sakop <i class="trans-change">ng lahi_ ni Naftali. <i class="trans-change">Pagdating ni Barak,_ sinabi ni Debora sa kanya, "Inuutusan ka ng Panginoon, ang Dios ng Israel, na kumuha ng 10,000 lalaki sa lahi ni Naftali at Zebulun, at dalhin sila sa Bundok ng Tabor. 
+Isang araw_, ipinatawag ni Debora si Barak na anak ni Abinoam na taga-Kedesh na sakop ng lahi_ ni Naftali. Pagdating ni Barak,_ sinabi ni Debora sa kanya, "Inuutusan ka ng Panginoon, ang Dios ng Israel, na kumuha ng 10,000 lalaki sa lahi ni Naftali at Zebulun, at dalhin sila sa Bundok ng Tabor. 
 
 
 
@@ -337,7 +337,7 @@ Sumagot si Debora, "Sige, sasama ako sa iyo, pero hindi mapupunta sa iyo ang kar
 
 
 
-<i class="trans-change">Doon,_ ipinatawag ni Barak ang mga lahi ni Naftali at ni Zebulun, at 10,000 tao ang sumama sa kanya. Sumama rin sa kanya si Debora. 
+Doon,_ ipinatawag ni Barak ang mga lahi ni Naftali at ni Zebulun, at 10,000 tao ang sumama sa kanya. Sumama rin sa kanya si Debora. 
 
 
 
@@ -601,7 +601,7 @@ Si Sisera naman ay tumakas papunta sa tolda ni Jael na asawa ni Heber, dahil mag
 
 
 
-Sinalubong ni Jael si Sisera at sinabi, "Tuloy po kayo sa aking tolda at huwag kayong matakot." Kaya pumasok si Sisera sa tolda, at tinakluban siya ni Jael ng kumot <i class="trans-change">para itago_. 
+Sinalubong ni Jael si Sisera at sinabi, "Tuloy po kayo sa aking tolda at huwag kayong matakot." Kaya pumasok si Sisera sa tolda, at tinakluban siya ni Jael ng kumot para itago_. 
 
 
 

@@ -73,7 +73,7 @@ Sumagot si Elifaz na taga-Teman,
 
 
 
-"<i class="trans-change">Job,_ ang taong marunong ay hindi nagsasalita ng walang kabuluhan. 
+"Job,_ ang taong marunong ay hindi nagsasalita ng walang kabuluhan. 
 
 
 
@@ -403,7 +403,7 @@ Sinabi namin sa iyo ang mga salitang mula sa Dios na makapagbibigay ng lakas at 
 
 
 
-Bakit nagpapadala ka sa iyong damdamin? Nabubulagan ka na ba <i class="trans-change">sa katotohanan_ 
+Bakit nagpapadala ka sa iyong damdamin? Nabubulagan ka na ba sa katotohanan_ 
 
 
 
@@ -568,7 +568,7 @@ ang tao pa kaya na ipinanganak na masama at makasalanan, at uhaw sa paggawa ng m
 
 
 
-"<i class="trans-change">Job,_ pakinggan mo ako. Sasabihin ko sa iyo at ipapaliwanag ang mga naranasan ko. 
+"Job,_ pakinggan mo ako. Sasabihin ko sa iyo at ipapaliwanag ang mga naranasan ko. 
 
 
 
@@ -799,7 +799,7 @@ Kung saan-saan siya naghahanap ng pagkain. Alam niyang malapit nang dumating ang
 
 
 
-Kaya labis ang kanyang pagkatakot, katulad ng hari na naghahanda sa pagsalakay <i class="trans-change">sa kanyang mga kaaway_. 
+Kaya labis ang kanyang pagkatakot, katulad ng hari na naghahanda sa pagsalakay sa kanyang mga kaaway_. 
 
 
 
@@ -832,7 +832,7 @@ Kaya labis ang kanyang pagkatakot, katulad ng hari na naghahanda sa pagsalakay <
 
 
 
-<i class="trans-change">Nangyayari ito sa kanya_ dahil nagrerebelde at sumusuway siya sa Makapangyarihang Dios. 
+Nangyayari ito sa kanya_ dahil nagrerebelde at sumusuway siya sa Makapangyarihang Dios. 
 
 
 

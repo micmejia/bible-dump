@@ -106,7 +106,7 @@ Hindi nagtagal, nagbuntis ang babae at nanganak ng isang lalaki. Nang makita niy
 
 
 
-Pero nang hindi na niya maitago ang sanggol, kumuha siya ng basket na gawa sa <i class="trans-change">halaman na_ papyrus at pinahiran ng alkitran. Pagkatapos, inilagay niya ang sanggol sa basket at pinalutang sa tubig sa tabi ng matataas na damo sa pampang ng Ilog <i class="trans-change">ng Nilo_. 
+Pero nang hindi na niya maitago ang sanggol, kumuha siya ng basket na gawa sa halaman na_ papyrus at pinahiran ng alkitran. Pagkatapos, inilagay niya ang sanggol sa basket at pinalutang sa tubig sa tabi ng matataas na damo sa pampang ng Ilog ng Nilo_. 
 
 
 
@@ -172,7 +172,7 @@ Nakatayo naman sa di-kalayuan ang kapatid na babae ng sanggol para tingnan kung 
 
 
 
-Ngayon, lumusong ang anak na babae ng Faraon sa <i class="trans-change">Ilog ng_ Nilo para maligo. Habang naliligo ang prinsesa, ang mga utusang babae naman niya ay naglalakad-lakad sa pampang. Nakita ng prinsesa ang basket sa matataas na damo kaya ipinakuha niya ito sa isa sa kanyang mga utusan. 
+Ngayon, lumusong ang anak na babae ng Faraon sa Ilog ng_ Nilo para maligo. Habang naliligo ang prinsesa, ang mga utusang babae naman niya ay naglalakad-lakad sa pampang. Nakita ng prinsesa ang basket sa matataas na damo kaya ipinakuha niya ito sa isa sa kanyang mga utusan. 
 
 
 
@@ -238,7 +238,7 @@ Binuksan niya ang basket at nakita ang umiiyak na sanggol, kaya naawa siya rito.
 
 
 
-Pagkatapos, lumapit ang kapatid na babae ng sanggol sa prinsesa at nagtanong, "Gusto nʼyo po bang ikuha ko kayo ng isang babaeng Hebreo na magpapasuso <i class="trans-change">at mag-aalaga_ sa sanggol para sa inyo?" 
+Pagkatapos, lumapit ang kapatid na babae ng sanggol sa prinsesa at nagtanong, "Gusto nʼyo po bang ikuha ko kayo ng isang babaeng Hebreo na magpapasuso at mag-aalaga_ sa sanggol para sa inyo?" 
 
 
 
@@ -304,7 +304,7 @@ Sumagot ang prinsesa, "Sige." Kaya umalis ang kapatid ng sanggol at pinuntahan a
 
 
 
-Sinabi ng prinsesa sa ina ng bata, "Dalhin mo ang sanggol na ito at pasusuhin para sa akin. <i class="trans-change">Alagaan mo siya_ at babayaran kita." Kaya kinuha niya ang sanggol at inalagaan. 
+Sinabi ng prinsesa sa ina ng bata, "Dalhin mo ang sanggol na ito at pasusuhin para sa akin. Alagaan mo siya_ at babayaran kita." Kaya kinuha niya ang sanggol at inalagaan. 
 
 
 
@@ -469,7 +469,7 @@ Kinabukasan, bumalik siya at may nakita siyang dalawang Hebreong nag-aaway. Tina
 
 
 
-Sumagot ang lalaki, "Sino ang naglagay sa iyo para maging pinuno at hukom namin? Papatayin mo rin ba ako katulad ng ginawa mo sa Egipcio <i class="trans-change">kahapon_?" Natakot si Moises at sinabi sa kanyang sarili, "May nakakaalam pala ng ginawa ko." 
+Sumagot ang lalaki, "Sino ang naglagay sa iyo para maging pinuno at hukom namin? Papatayin mo rin ba ako katulad ng ginawa mo sa Egipcio kahapon_?" Natakot si Moises at sinabi sa kanyang sarili, "May nakakaalam pala ng ginawa ko." 
 
 
 
@@ -700,7 +700,7 @@ Nagtanong ang kanilang ama, "Nasaan na siya? Bakit ninyo siya iniwan? Tawagin ni
 
 
 
-<i class="trans-change">Tinanggap ni_ Moises <i class="trans-change">ang paanyaya, at_ pumayag siyang doon na tumira sa bahay ni Reuel. <i class="trans-change">Nang magtagal,_ ipinakasal ni Reuel ang anak niyang si Zipora kay Moises 
+Tinanggap ni_ Moises ang paanyaya, at_ pumayag siyang doon na tumira sa bahay ni Reuel. Nang magtagal,_ ipinakasal ni Reuel ang anak niyang si Zipora kay Moises 
 
 
 
@@ -733,7 +733,7 @@ Nagtanong ang kanilang ama, "Nasaan na siya? Bakit ninyo siya iniwan? Tawagin ni
 
 
 
-<i class="trans-change">Nagbuntis_ si Zipora at nanganak ng isang lalaki, at pinangalanan ito ni Moises na Gershom, dahil sinabi niya, "Dayuhan ako sa lupaing ito." 
+Nagbuntis_ si Zipora at nanganak ng isang lalaki, at pinangalanan ito ni Moises na Gershom, dahil sinabi niya, "Dayuhan ako sa lupaing ito." 
 
 
 

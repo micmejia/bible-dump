@@ -40,7 +40,7 @@ next: ['Zeph 3']
 
 
 
-<i class="trans-change">Sinabi ni Zefanias sa mga taga-Juda:_ Bansang walang kahihiyan, magtipon kayo <i class="trans-change">at magsisi_ 
+Sinabi ni Zefanias sa mga taga-Juda:_ Bansang walang kahihiyan, magtipon kayo at magsisi_ 
 
 
 
@@ -73,7 +73,7 @@ next: ['Zeph 3']
 
 
 
-bago dumating ang itinakdang araw na kayoʼy palalayasin at ipapadpad na parang mga ipa. <i class="trans-change">Magsisi na kayo_ bago dumating ang araw ng pagbuhos ng Panginoon ng kanyang matinding galit. 
+bago dumating ang itinakdang araw na kayoʼy palalayasin at ipapadpad na parang mga ipa. Magsisi na kayo_ bago dumating ang araw ng pagbuhos ng Panginoon ng kanyang matinding galit. 
 
 
 
@@ -141,7 +141,7 @@ Kayo namang mga mapagpakumbaba at sumusunod sa mga utos ng Panginoon, lumapit ka
 
 
 
-Wala nang titira sa Gaza at Ashkelon. Ang <i class="trans-change">mga mamamayan ng_ Ashdod ay palalayasin sa loob lamang ng kalahating araw. Palalayasin din ang <i class="trans-change">mga mamamayan ng_ Ekron sa kanilang bayan. 
+Wala nang titira sa Gaza at Ashkelon. Ang mga mamamayan ng_ Ashdod ay palalayasin sa loob lamang ng kalahating araw. Palalayasin din ang mga mamamayan ng_ Ekron sa kanilang bayan. 
 
 
 
@@ -277,7 +277,7 @@ Sasakupin iyon ng natitirang mga taga-Juda. Doon sila magpapastol ng kanilang mg
 
 
 
-<i class="trans-change">Sinabi ni Zefanias:_ Iyan ang ganti sa pagyayabang ng mga taga-Moab at taga-Ammon. Sapagkat ipinapahiya nila at nilalait ang mga mamamayan ng Panginoong Makapangyarihan. 
+Sinabi ni Zefanias:_ Iyan ang ganti sa pagyayabang ng mga taga-Moab at taga-Ammon. Sapagkat ipinapahiya nila at nilalait ang mga mamamayan ng Panginoong Makapangyarihan. 
 
 
 
@@ -345,7 +345,7 @@ Sisindakin sila ng Panginoon dahil lilipulin niya ang lahat ng mga dios-diosan s
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Kayo ring mga taga-Etiopia ipapapatay ko kayo sa digmaan. 
+Sinabi ng Panginoon,_ "Kayo ring mga taga-Etiopia ipapapatay ko kayo sa digmaan. 
 
 
 

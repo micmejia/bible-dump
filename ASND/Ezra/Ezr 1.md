@@ -204,7 +204,7 @@ May mga Israelitang hinipo ng Panginoon para bumalik sa Jerusalem. Kaya naghanda
 
 
 
-Ang ibang mga tao ay tumulong sa kanila sa pamamagitan ng pagbibigay ng mga gamit na gawa sa pilak at ginto, mga kakailanganing bagay, mga hayop, iba pang mga mamahaling bagay, at pagtulong na kusang-loob <i class="trans-change">para sa templo_. 
+Ang ibang mga tao ay tumulong sa kanila sa pamamagitan ng pagbibigay ng mga gamit na gawa sa pilak at ginto, mga kakailanganing bagay, mga hayop, iba pang mga mamahaling bagay, at pagtulong na kusang-loob para sa templo_. 
 
 
 
@@ -270,7 +270,7 @@ Ibinalik din sa kanila ni Haring Cyrus ang mga gamit sa templo ng Panginoon na k
 
 
 
-Ipinagkatiwala ito ni Haring Cyrus kay Mitredat na ingat-yaman ng kaharian niya. Binilang ito ni Mitredat at ibinigay ang listahan kay Sheshbazar, ang gobernador ng Juda. <sup class="versenum">9-10</sup>Ito ang bilang ng mga gamit: 
+Ipinagkatiwala ito ni Haring Cyrus kay Mitredat na ingat-yaman ng kaharian niya. Binilang ito ni Mitredat at ibinigay ang listahan kay Sheshbazar, ang gobernador ng Juda. 9-10Ito ang bilang ng mga gamit: 
 
 
 

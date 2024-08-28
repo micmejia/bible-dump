@@ -73,7 +73,7 @@ Nang mabalitaan ni Sanbalat na itinatayo naming muli ang pader, nagalit siya ng 
 
 
 
-Sa harap ng mga kasama niya at ng mga sundalo ng Samaria, sinabi niya, "Ano ba ang ginagawa ng mga kawawang Judiong ito? Akala ba nila, maitatayo nila ulit ang pader ng Jerusalem sa <i class="trans-change">loob_ lang ng isang araw at makapaghahandog uliʼt sila? Akala siguro nila, magagamit pa nila ang mga nasunog at nadurog na mga bato <i class="trans-change">ng pader_!" 
+Sa harap ng mga kasama niya at ng mga sundalo ng Samaria, sinabi niya, "Ano ba ang ginagawa ng mga kawawang Judiong ito? Akala ba nila, maitatayo nila ulit ang pader ng Jerusalem sa loob_ lang ng isang araw at makapaghahandog uliʼt sila? Akala siguro nila, magagamit pa nila ang mga nasunog at nadurog na mga bato ng pader_!" 
 
 
 
@@ -139,7 +139,7 @@ Sinabi pa ng Ammonitang si Tobia na nasa tabi ni Sanbalat, "Kahit asong-gubat la
 
 
 
-<i class="trans-change">Agad akong nanalangin,_ "O aming Dios, pakinggan nʼyo po kami dahil hinahamak kami. Sa kanila po sana mangyari ang mga panunuya nilang ito sa amin. Madala sana sila sa ibang lugar bilang bihag. 
+Agad akong nanalangin,_ "O aming Dios, pakinggan nʼyo po kami dahil hinahamak kami. Sa kanila po sana mangyari ang mga panunuya nilang ito sa amin. Madala sana sila sa ibang lugar bilang bihag. 
 
 
 
@@ -172,7 +172,7 @@ Sinabi pa ng Ammonitang si Tobia na nasa tabi ni Sanbalat, "Kahit asong-gubat la
 
 
 
-Huwag nʼyo po silang patawarin dahil sa panghahamak nila sa inyo sa harap naming mga gumagawa <i class="trans-change">ng pader_." 
+Huwag nʼyo po silang patawarin dahil sa panghahamak nila sa inyo sa harap naming mga gumagawa ng pader_." 
 
 
 
@@ -634,7 +634,7 @@ at nakasukbit sa baywang nila ang espada. Ang tagapagpatunog ng trumpeta ay nasa
 
 
 
-Sinabi ko sa mga pinuno, mga opisyal, at sa mga mamamayan, "Malawak ang ginagawa nating pader at malalayo ang ating pagitan <i class="trans-change">habang nagtatrabaho,_ 
+Sinabi ko sa mga pinuno, mga opisyal, at sa mga mamamayan, "Malawak ang ginagawa nating pader at malalayo ang ating pagitan habang nagtatrabaho,_ 
 
 
 
@@ -766,4 +766,4 @@ Nang panahong iyon, sinabi ko rin sa mga taong naninirahan sa labas ng Jerusalem
 
 
 
-<i class="trans-change">Dahil palagi kaming nagbabantay,_ ako at ang mga kamag-anak ko, mga tauhan, at mga guwardya ay hindi na nakapagpalit ng damit. At kahit <i class="trans-change">pumunta_ sa tubig ay dala-dala namin ang aming mga sandata.
+Dahil palagi kaming nagbabantay,_ ako at ang mga kamag-anak ko, mga tauhan, at mga guwardya ay hindi na nakapagpalit ng damit. At kahit pumunta_ sa tubig ay dala-dala namin ang aming mga sandata.

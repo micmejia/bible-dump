@@ -40,7 +40,7 @@ next: ['Matt 16']
 
 
 
-Pagkatapos noon, lumapit kay Jesus ang ilang mga Pariseo at mga tagapagturo ng Kautusan galing sa Jerusalem. Tinanong nila <i class="trans-change">si Jesus_, 
+Pagkatapos noon, lumapit kay Jesus ang ilang mga Pariseo at mga tagapagturo ng Kautusan galing sa Jerusalem. Tinanong nila si Jesus_, 
 
 
 
@@ -238,7 +238,7 @@ hindi na niya kailangang tumulong sa kanila. Pinawawalang-halaga ninyo ang utos 
 
 
 
-Mga pakitang-tao! Tamang-tama ang sinabi <i class="trans-change">ng Dios_ tungkol sa inyo <i class="trans-change">sa pamamagitan_ ni Isaias: 
+Mga pakitang-tao! Tamang-tama ang sinabi ng Dios_ tungkol sa inyo sa pamamagitan_ ni Isaias: 
 
 
 
@@ -337,7 +337,7 @@ Walang kabuluhan ang pagsamba nila sa akin, sapagkat ang mga itinuturo nila ay m
 
 
 
-Tinawag ni Jesus ang mga tao at sinabi sa kanila, "Makinig kayo at unawain <i class="trans-change">ang sasabihin ko_. 
+Tinawag ni Jesus ang mga tao at sinabi sa kanila, "Makinig kayo at unawain ang sasabihin ko_. 
 
 
 
@@ -502,7 +502,7 @@ Hayaan ninyo sila. Mga bulag silang tagaakay. Kung ang bulag ang aakay sa kapwa 
 
 
 
-Sumagot si Pedro, "Pakipaliwanag nʼyo po sa amin ang paghahalintulad <i class="trans-change">na sinabi nʼyo kanina_." 
+Sumagot si Pedro, "Pakipaliwanag nʼyo po sa amin ang paghahalintulad na sinabi nʼyo kanina_." 
 
 
 
@@ -601,7 +601,7 @@ Hindi ba ninyo alam na anumang pumapasok sa bibig ay tumutuloy sa tiyan at idinu
 
 
 
-Ngunit ang lumalabas sa bibig ay nagmumula sa puso ng tao, at ito ang nagpaparumi sa kanya <i class="trans-change">sa paningin ng Dios_. 
+Ngunit ang lumalabas sa bibig ay nagmumula sa puso ng tao, at ito ang nagpaparumi sa kanya sa paningin ng Dios_. 
 
 
 
@@ -799,7 +799,7 @@ Pero hindi sumagot si Jesus. Kaya lumapit sa kanya ang mga tagasunod niya at sin
 
 
 
-Sinabi ni Jesus <i class="trans-change">sa babae_, "Sinugo ako para lang sa mga Israelita na <i class="trans-change">parang_ mga tupang naliligaw." 
+Sinabi ni Jesus sa babae_, "Sinugo ako para lang sa mga Israelita na parang_ mga tupang naliligaw." 
 
 
 
@@ -865,7 +865,7 @@ Pero lumapit pa ang babae kay Jesus at lumuhod sa harap niya, at sinabi, "Pangin
 
 
 
-Sinagot siya ni Jesus <i class="trans-change">sa pamamagitan ng isang kasabihan_, "Hindi tamang kunin ang pagkain ng mga anak at ihagis sa mga aso." 
+Sinagot siya ni Jesus sa pamamagitan ng isang kasabihan_, "Hindi tamang kunin ang pagkain ng mga anak at ihagis sa mga aso." 
 
 
 
@@ -1199,7 +1199,7 @@ Pinaupo ni Jesus ang mga tao.
 
 
 
-Kinuha niya ang pitong tinapay at ang mga isda at nagpasalamat <i class="trans-change">sa Dios_. Pagkatapos, hinati-hati niya ang pagkain at ibinigay sa mga tagasunod niya, at ipinamigay naman nila ito sa mga tao. 
+Kinuha niya ang pitong tinapay at ang mga isda at nagpasalamat sa Dios_. Pagkatapos, hinati-hati niya ang pagkain at ibinigay sa mga tagasunod niya, at ipinamigay naman nila ito sa mga tao. 
 
 
 

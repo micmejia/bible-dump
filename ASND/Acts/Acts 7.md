@@ -304,7 +304,7 @@ At bilang tanda ng kanyang pangako, nag-utos ang Dios kay Abraham na ang lahat n
 
 
 
-"Si Jose na isa sa mga 12 anak ni Jacob ay kinainggitan ng mga kapatid niya, kaya ipinagbili nila siya. Dinala siya sa Egipto <i class="trans-change">at naging alipin doon_. Pero dahil ang Dios ay kasama ni Jose, 
+"Si Jose na isa sa mga 12 anak ni Jacob ay kinainggitan ng mga kapatid niya, kaya ipinagbili nila siya. Dinala siya sa Egipto at naging alipin doon_. Pero dahil ang Dios ay kasama ni Jose, 
 
 
 
@@ -403,7 +403,7 @@ Dumating ang taggutom sa buong Egipto at Canaan. Hirap na hirap ang mga tao, at 
 
 
 
-Kaya nang mabalitaan ni Jacob na may pagkain sa Egipto, pinapunta niya roon ang <i class="trans-change">kanyang mga anak, na siyang_ ating mga ninuno. Iyon ang una nilang pagpunta sa Egipto. 
+Kaya nang mabalitaan ni Jacob na may pagkain sa Egipto, pinapunta niya roon ang kanyang mga anak, na siyang_ ating mga ninuno. Iyon ang una nilang pagpunta sa Egipto. 
 
 
 
@@ -502,7 +502,7 @@ Pagkatapos, ipinag-utos ni Jose na papuntahin ang ama niyang si Jacob sa Egipto 
 
 
 
-Kaya pumunta si Jacob at ang ating mga ninuno sa Egipto. <i class="trans-change">Doon sila nanirahan_ at doon na rin namatay. 
+Kaya pumunta si Jacob at ang ating mga ninuno sa Egipto. Doon sila nanirahan_ at doon na rin namatay. 
 
 
 
@@ -964,7 +964,7 @@ Ano, papatayin mo rin ba ako tulad ng ginawa mo roon sa Egipcio kahapon?'
 
 
 
-Nang marinig ito ni Moises, tumakas siya at pumunta sa Midian. Doon <i class="trans-change">siya nanirahan at nag-asawa, at doon_ din isinilang ang dalawa niyang anak na lalaki. 
+Nang marinig ito ni Moises, tumakas siya at pumunta sa Midian. Doon siya nanirahan at nag-asawa, at doon_ din isinilang ang dalawa niyang anak na lalaki. 
 
 
 
@@ -1162,7 +1162,7 @@ Nakikita ko ang mga paghihirap na tinitiis ng aking mga mamamayan sa Egipto, at 
 
 
 
-"Ito ang Moises na itinakwil noon ng kanyang mga kapwa Israelita na nagsabi, 'Sino ang nagtalaga sa iyo para maging pinuno at hukom <i class="trans-change">namin_?' Pero siya ang sinugo ng Dios na maging pinuno at tagapagligtas ng mga Israelita sa tulong ng anghel na kanyang nakita roon sa nagliliyab na mababang punongkahoy. 
+"Ito ang Moises na itinakwil noon ng kanyang mga kapwa Israelita na nagsabi, 'Sino ang nagtalaga sa iyo para maging pinuno at hukom namin_?' Pero siya ang sinugo ng Dios na maging pinuno at tagapagligtas ng mga Israelita sa tulong ng anghel na kanyang nakita roon sa nagliliyab na mababang punongkahoy. 
 
 
 
@@ -1294,7 +1294,7 @@ Nang naroon na ang ating mga ninuno sa disyerto, si Moises din ang namagitan sa 
 
 
 
-"<i class="trans-change">Pero nang hindi pa nakakabalik si Moises galing sa bundok,_ hindi tinupad ng ating mga ninuno ang ipinagawa sa kanila ni Moises. Itinakwil nila si Moises <i class="trans-change">bilang kanilang pinuno_, dahil gusto nilang bumalik sa Egipto. 
+"Pero nang hindi pa nakakabalik si Moises galing sa bundok,_ hindi tinupad ng ating mga ninuno ang ipinagawa sa kanila ni Moises. Itinakwil nila si Moises bilang kanilang pinuno_, dahil gusto nilang bumalik sa Egipto. 
 
 
 
@@ -1393,7 +1393,7 @@ Pagkatapos, gumawa sila ng dios-diosang kaanyo ng guya. Naghandog sila rito, at 
 
 
 
-<i class="trans-change">Sa ginawa nilang iyon,_ tinalikuran sila ng Dios at hinayaan na lang na sumamba sa mga bituin sa langit. Ganito ang isinulat ng mga propeta: 'Kayong mga Israelita, naghandog kayo ng ibaʼt ibang uri ng handog sa loob ng 40 taon doon sa disyerto. Ngunit hindi ako ang inyong pinaghandugan. 
+Sa ginawa nilang iyon,_ tinalikuran sila ng Dios at hinayaan na lang na sumamba sa mga bituin sa langit. Ganito ang isinulat ng mga propeta: 'Kayong mga Israelita, naghandog kayo ng ibaʼt ibang uri ng handog sa loob ng 40 taon doon sa disyerto. Ngunit hindi ako ang inyong pinaghandugan. 
 
 
 
@@ -1426,7 +1426,7 @@ Pagkatapos, gumawa sila ng dios-diosang kaanyo ng guya. Naghandog sila rito, at 
 
 
 
-Dala-dala pa ninyo ang tolda ng <i class="trans-change">inyong dios-diosan na si_ Molec, at ang bituing <i class="trans-change">imahen_ ng inyong dios-diosang si Refan. Ginawa ninyo ang mga iyon upang sambahin. Kaya itataboy ko kayo sa kabila pa ng Babilonia.' " 
+Dala-dala pa ninyo ang tolda ng inyong dios-diosan na si_ Molec, at ang bituing imahen_ ng inyong dios-diosang si Refan. Ginawa ninyo ang mga iyon upang sambahin. Kaya itataboy ko kayo sa kabila pa ng Babilonia.' " 
 
 
 
@@ -1459,7 +1459,7 @@ Dala-dala pa ninyo ang tolda ng <i class="trans-change">inyong dios-diosan na si
 
 
 
-<i class="trans-change">Sinabi pa ni Esteban,_ "Nang naroon pa ang ating mga ninuno sa disyerto, may tolda sila kung saan naroon ang presensya ng Dios. Ginawa ang Tolda ayon sa utos ng Dios kay Moises at sa planong ipinakita sa kanya. 
+Sinabi pa ni Esteban,_ "Nang naroon pa ang ating mga ninuno sa disyerto, may tolda sila kung saan naroon ang presensya ng Dios. Ginawa ang Tolda ayon sa utos ng Dios kay Moises at sa planong ipinakita sa kanya. 
 
 
 
@@ -1492,7 +1492,7 @@ Dala-dala pa ninyo ang tolda ng <i class="trans-change">inyong dios-diosan na si
 
 
 
-Nang namatay na ang ating mga ninuno, ang kanilang mga anak naman ang nagdala ng tolda. Ang kanilang pinuno ay si Josue. Napasakanila ang lupain <i class="trans-change">na ipinangako ng Dios_ matapos itaboy ng Dios ang mga nakatira roon. At nanatili roon ang tolda hanggang sa panahon ng paghahari ni David. 
+Nang namatay na ang ating mga ninuno, ang kanilang mga anak naman ang nagdala ng tolda. Ang kanilang pinuno ay si Josue. Napasakanila ang lupain na ipinangako ng Dios_ matapos itaboy ng Dios ang mga nakatira roon. At nanatili roon ang tolda hanggang sa panahon ng paghahari ni David. 
 
 
 
@@ -1525,7 +1525,7 @@ Nang namatay na ang ating mga ninuno, ang kanilang mga anak naman ang nagdala ng
 
 
 
-Hiniling ni David sa Dios na pahintulutan siyang magpatayo ng bahay para sa Dios para makasamba roon ang mga lahi ni Jacob. <i class="trans-change">Pero hindi siya pinayagan, kahit_ nalulugod ang Dios sa kanya. 
+Hiniling ni David sa Dios na pahintulutan siyang magpatayo ng bahay para sa Dios para makasamba roon ang mga lahi ni Jacob. Pero hindi siya pinayagan, kahit_ nalulugod ang Dios sa kanya. 
 
 
 
@@ -1591,7 +1591,7 @@ Sa halip, si Solomon ang nagtayo ng templo ng Dios.
 
 
 
-"Pero ang Kataas-taasang Dios ay hindi tumitira sa mga bahay na gawa ng tao. Katulad ng sinabi <i class="trans-change">ng Panginoon sa pamamagitan_ ng propeta, 
+"Pero ang Kataas-taasang Dios ay hindi tumitira sa mga bahay na gawa ng tao. Katulad ng sinabi ng Panginoon sa pamamagitan_ ng propeta, 
 
 
 
@@ -1624,7 +1624,7 @@ Sa halip, si Solomon ang nagtayo ng templo ng Dios.
 
 
 
-'Ang langit ang aking trono, at ang lupa ang tuntungan ng aking mga paa. <i class="trans-change">Kaya_ anong uri ng bahay ang gagawin nʼyo para sa akin? Saan ba ang lugar na aking mapagpapahingahan? <sup class="versenum mid-line">50</sup>Hindi baʼt ako ang gumawa ng lahat ng bagay?' " 
+'Ang langit ang aking trono, at ang lupa ang tuntungan ng aking mga paa. Kaya_ anong uri ng bahay ang gagawin nʼyo para sa akin? Saan ba ang lugar na aking mapagpapahingahan? 50Hindi baʼt ako ang gumawa ng lahat ng bagay?' " 
 
 
 
@@ -1657,7 +1657,7 @@ Sa halip, si Solomon ang nagtayo ng templo ng Dios.
 
 
 
-<i class="trans-change">Pagkatapos, sinabi ni Esteban,_ "Napakatigas ng ulo ninyo! Nagbibingi-bingihan kayo sa mga mensahe ng Dios, dahil ayaw ninyong sumunod sa mga sinasabi niya sa inyo. Palagi ninyong kinakalaban ang Banal na Espiritu. Manang-mana kayo sa ugali ng inyong mga ninuno. 
+Pagkatapos, sinabi ni Esteban,_ "Napakatigas ng ulo ninyo! Nagbibingi-bingihan kayo sa mga mensahe ng Dios, dahil ayaw ninyong sumunod sa mga sinasabi niya sa inyo. Palagi ninyong kinakalaban ang Banal na Espiritu. Manang-mana kayo sa ugali ng inyong mga ninuno. 
 
 
 
@@ -1690,7 +1690,7 @@ Sa halip, si Solomon ang nagtayo ng templo ng Dios.
 
 
 
-Walang propeta sa kanilang kapanahunan na hindi nila inusig. Ang mga nagpahayag tungkol sa pagdating ng Matuwid <i class="trans-change">na Lingkod_ ay pinatay nila. At pagdating dito ni Jesus, kayo ang siyang nagkanulo at pumatay sa kanya. 
+Walang propeta sa kanilang kapanahunan na hindi nila inusig. Ang mga nagpahayag tungkol sa pagdating ng Matuwid na Lingkod_ ay pinatay nila. At pagdating dito ni Jesus, kayo ang siyang nagkanulo at pumatay sa kanya. 
 
 
 
@@ -1723,7 +1723,7 @@ Walang propeta sa kanilang kapanahunan na hindi nila inusig. Ang mga nagpahayag 
 
 
 
-Tumanggap kayo ng Kautusan <i class="trans-change">na ibinigay ng Dios_ sa pamamagitan ng mga anghel, ngunit hindi ninyo sinunod." ## Ang Pagbato kay Esteban 
+Tumanggap kayo ng Kautusan na ibinigay ng Dios_ sa pamamagitan ng mga anghel, ngunit hindi ninyo sinunod." ## Ang Pagbato kay Esteban 
 
 
 
@@ -1855,7 +1855,7 @@ Sinabi ni Esteban, "Tingnan ninyo! Nakikita kong bukas ang langit at nakatayo si
 
 
 
-Sumigaw ang mga miyembro ng Korte at tinakpan nila ang kanilang mga tainga <i class="trans-change">para hindi nila marinig ang sinasabi ni Esteban_. At sabay-sabay silang sumugod sa kanya. 
+Sumigaw ang mga miyembro ng Korte at tinakpan nila ang kanilang mga tainga para hindi nila marinig ang sinasabi ni Esteban_. At sabay-sabay silang sumugod sa kanya. 
 
 
 

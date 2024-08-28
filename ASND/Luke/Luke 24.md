@@ -303,7 +303,7 @@ At naalala ng mga babae ang mga sinabi ni Jesus.
 
 
 
-Kaya umuwi sila at ibinalita ang lahat ng ito sa 11 <i class="trans-change">apostol_ at sa iba pa nilang kasamahan. 
+Kaya umuwi sila at ibinalita ang lahat ng ito sa 11 apostol_ at sa iba pa nilang kasamahan. 
 
 
 
@@ -402,7 +402,7 @@ pero hindi naniwala ang mga apostol dahil akala nila ay gawa-gawa lang iyon ng m
 
 
 
-Ganoon pa man, tumakbo si Pedro at pumunta sa libingan. Pagdating niya roon, sumilip siya sa loob pero wala siyang nakita kundi ang <i class="trans-change">telang_ linen na ipinambalot sa bangkay. Kaya umuwi siyang nagtataka sa pangyayari.
+Ganoon pa man, tumakbo si Pedro at pumunta sa libingan. Pagdating niya roon, sumilip siya sa loob pero wala siyang nakita kundi ang telang_ linen na ipinambalot sa bangkay. Kaya umuwi siyang nagtataka sa pangyayari.
 
 ## Ang Nangyari sa Daan na Patungong Emaus 
 
@@ -503,7 +503,7 @@ Pinag-uusapan ng dalawa ang mga pangyayaring naganap kamakailan lang.
 
 
 
-Habang nag-uusap sila at nagtatalo <i class="trans-change">tungkol sa mga bagay na iyon_, lumapit sa kanila si Jesus at nakisabay sa paglalakad. 
+Habang nag-uusap sila at nagtatalo tungkol sa mga bagay na iyon_, lumapit sa kanila si Jesus at nakisabay sa paglalakad. 
 
 
 
@@ -701,7 +701,7 @@ Inakusahan siya ng mga pinuno namin at ng mga namamahalang pari upang mahatulang
 
 
 
-Umasa pa naman kami na siya ang magpapalaya sa Israel <i class="trans-change">mula sa kamay ng mga taga-Roma_. Pero ikatlong araw na ngayon mula nang pinatay siya. <sup class="versenum">22-23</sup>Pero nagulat kami sa ibinalita sa amin ng ilang babaeng kasamahan namin na maagang pumunta kanina sa libingan. Hindi nila nakita ang bangkay ni Jesus, pero nakakita raw sila ng mga anghel na nagsabing buhay si Jesus. 
+Umasa pa naman kami na siya ang magpapalaya sa Israel mula sa kamay ng mga taga-Roma_. Pero ikatlong araw na ngayon mula nang pinatay siya. 22-23Pero nagulat kami sa ibinalita sa amin ng ilang babaeng kasamahan namin na maagang pumunta kanina sa libingan. Hindi nila nakita ang bangkay ni Jesus, pero nakakita raw sila ng mga anghel na nagsabing buhay si Jesus. 
 
 
 
@@ -767,7 +767,7 @@ Pumunta rin sa libingan ang ilan sa mga kasama naming lalaki at nakita nila na w
 
 
 
-Sinabi sa kanila ni Jesus, "Mga mangmang kayo! Ang hirap ninyong papaniwalain sa lahat ng sinabi ng mga propeta <i class="trans-change">sa Kasulatan_. 
+Sinabi sa kanila ni Jesus, "Mga mangmang kayo! Ang hirap ninyong papaniwalain sa lahat ng sinabi ng mga propeta sa Kasulatan_. 
 
 
 
@@ -833,7 +833,7 @@ Hindi baʼt ang Cristo ay kailangang magtiis ng lahat ng ito bago siya parangala
 
 
 
-At ipinaliwanag sa kanila ni Jesus ang lahat ng nakasulat sa Kasulatan tungkol sa kanya, mula sa <i class="trans-change">mga isinulat ni_ Moises hanggang sa <i class="trans-change">mga isinulat ng_ mga propeta. 
+At ipinaliwanag sa kanila ni Jesus ang lahat ng nakasulat sa Kasulatan tungkol sa kanya, mula sa mga isinulat ni_ Moises hanggang sa mga isinulat ng_ mga propeta. 
 
 
 
@@ -1031,7 +1031,7 @@ Sinabi nila, "Kaya pala ang ganda ng pakiramdam natin habang kinakausap niya tay
 
 
 
-Noon din ay bumalik sila sa Jerusalem. Nadatnan nilang nagtitipon ang 11 <i class="trans-change">apostol_ at ang iba pa nilang kasamahan. 
+Noon din ay bumalik sila sa Jerusalem. Nadatnan nilang nagtitipon ang 11 apostol_ at ang iba pa nilang kasamahan. 
 
 
 
@@ -1231,7 +1231,7 @@ Kaya sinabi ni Jesus sa kanila, "Bakit kayo natatakot? At bakit kayo nag-aalinla
 
 
 
-Ako talaga ito. Tingnan ninyo ang <i class="trans-change">mga bakas ng mga pako sa_ mga kamay at paa ko. Hawakan ninyo ako at pagmasdan. <i class="trans-change">Hindi ako multo._ Ang multo ay walang laman at buto pero ako ay mayroon." 
+Ako talaga ito. Tingnan ninyo ang mga bakas ng mga pako sa_ mga kamay at paa ko. Hawakan ninyo ako at pagmasdan. Hindi ako multo._ Ang multo ay walang laman at buto pero ako ay mayroon." 
 
 
 
@@ -1396,7 +1396,7 @@ Kinuha niya iyon at kinain sa harap nila.
 
 
 
-Pagkatapos, sinabi niya sa kanila, "Sinabi ko na sa inyo noong magkasama pa tayo na kailangang matupad ang lahat ng nasusulat tungkol sa akin sa Kautusan ni Moises, sa <i class="trans-change">mga isinulat ng_ mga propeta at sa mga Salmo." 
+Pagkatapos, sinabi niya sa kanila, "Sinabi ko na sa inyo noong magkasama pa tayo na kailangang matupad ang lahat ng nasusulat tungkol sa akin sa Kautusan ni Moises, sa mga isinulat ng_ mga propeta at sa mga Salmo." 
 
 
 
@@ -1561,7 +1561,7 @@ Kayo ang mga saksi sa mga bagay na ito.
 
 
 
-Isusugo ko sa inyo ang <i class="trans-change">Banal na Espiritung_ ipinangako ng Ama, kaya manatili muna kayo rito sa Jerusalem hanggang sa dumating sa inyo ang kapangyarihan mula sa langit." ## Ang Pag-akyat ni Jesus sa Langit 
+Isusugo ko sa inyo ang Banal na Espiritung_ ipinangako ng Ama, kaya manatili muna kayo rito sa Jerusalem hanggang sa dumating sa inyo ang kapangyarihan mula sa langit." ## Ang Pag-akyat ni Jesus sa Langit 
 
 
 

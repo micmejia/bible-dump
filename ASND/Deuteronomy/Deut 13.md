@@ -238,7 +238,7 @@ Dapat patayin ang propeta o ang tagapagpaliwanag ng panaginip dahil itinuturo ni
 
 
 
-<i class="trans-change">Kapag hinikayat ka niyang sambahin ang_ mga dios na sinasamba ng mga tao sa paligid ninyo o ng mga tao sa malalayong lugar), 
+Kapag hinikayat ka niyang sambahin ang_ mga dios na sinasamba ng mga tao sa paligid ninyo o ng mga tao sa malalayong lugar), 
 
 
 
@@ -568,7 +568,7 @@ Tipunin ninyo ang lahat ng masasamsam ninyo sa bayang iyon at tumpukin sa gitna 
 
 
 
-Huwag kayong magtatago ng anumang bagay mula sa bayang iyon na naitakda nang wasakin nang lubusan. <i class="trans-change">Kung susundin ninyo ito,_ aalisin ng Panginoon ang kanyang matinding galit, at kaaawaan niya kayo. At sa kanyang awa, pararamihin niya kayo ayon sa ipinangako niya sa inyong mga ninuno. 
+Huwag kayong magtatago ng anumang bagay mula sa bayang iyon na naitakda nang wasakin nang lubusan. Kung susundin ninyo ito,_ aalisin ng Panginoon ang kanyang matinding galit, at kaaawaan niya kayo. At sa kanyang awa, pararamihin niya kayo ayon sa ipinangako niya sa inyong mga ninuno. 
 
 
 

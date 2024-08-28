@@ -73,7 +73,7 @@ Ipinatawag ni Haring Solomon sa Jerusalem ang mga tagapamahala ng Israel at ang 
 
 
 
-Pumunta silang lahat kay Haring Solomon noong panahon ng Pista <i class="trans-change">ng Pagtatayo ng mga Kubol_, noong buwan ng Etanim, na siyang ikapitong buwan.
+Pumunta silang lahat kay Haring Solomon noong panahon ng Pista ng Pagtatayo ng mga Kubol_, noong buwan ng Etanim, na siyang ikapitong buwan.
 
 ###### 3-4 Nang magkatipon na ang lahat ng tagapamahala ng Israel, kinuha ng mga pari at ng mga Levita ang Kahon ng Panginoon, pati ang Toldang Tipanan at ang mga banal na gamit nito at dinala nila ang lahat ng ito sa templo. 
 
@@ -108,7 +108,7 @@ Pumunta silang lahat kay Haring Solomon noong panahon ng Pista <i class="trans-c
 
 
 
-Naghandog si Haring Solomon at ang buong mamamayan ng Israel sa harapan ng Kahon <i class="trans-change">ng Kasunduan_. Napakaraming tupa at baka ang kanilang inihandog, hindi ito mabilang dahil sa dami. 
+Naghandog si Haring Solomon at ang buong mamamayan ng Israel sa harapan ng Kahon ng Kasunduan_. Napakaraming tupa at baka ang kanilang inihandog, hindi ito mabilang dahil sa dami. 
 
 
 
@@ -306,7 +306,7 @@ Nang lumabas ang mga pari sa Banal na Lugar, may ulap na bumalot sa templo ng Pa
 
 
 
-Hindi na makagawa ang mga pari sa kanilang gawain <i class="trans-change">sa templo_ dahil sa ulap, dahil ang kapangyarihan ng Panginoon ay bumalot sa kanyang templo. 
+Hindi na makagawa ang mga pari sa kanilang gawain sa templo_ dahil sa ulap, dahil ang kapangyarihan ng Panginoon ay bumalot sa kanyang templo. 
 
 
 
@@ -405,7 +405,7 @@ Ngayon, nagpatayo po ako ng kahanga-hangang na templo para sa inyo, na matatahan
 
 
 
-Pagkatapos, humarap si Haring <i class="trans-change">Solomon_ sa buong mamamayan ng Israel na nakatayo roon at binasbasan niya sila. 
+Pagkatapos, humarap si Haring Solomon_ sa buong mamamayan ng Israel na nakatayo roon at binasbasan niya sila. 
 
 
 
@@ -471,7 +471,7 @@ Sinabi niya, "Purihin ang Panginoon, ang Dios ng Israel. Tinupad niya ang kanyan
 
 
 
-'Mula nang panahon na inilabas ko ang mga mamamayan kong Israelita sa Egipto, hindi ako pumili ng lungsod sa kahit anong lahi ng Israel para pagtayuan ng templo para sa <i class="trans-change">karangalan ng_ aking pangalan. Ngunit pinili ko si David upang mamahala sa mga mamamayan kong Israelita.' 
+'Mula nang panahon na inilabas ko ang mga mamamayan kong Israelita sa Egipto, hindi ako pumili ng lungsod sa kahit anong lahi ng Israel para pagtayuan ng templo para sa karangalan ng_ aking pangalan. Ngunit pinili ko si David upang mamahala sa mga mamamayan kong Israelita.' 
 
 
 
@@ -537,7 +537,7 @@ Sinabi niya, "Purihin ang Panginoon, ang Dios ng Israel. Tinupad niya ang kanyan
 
 
 
-Pero sinabi sa kanya ng Panginoon, 'Mabuti na naghahangad kang magpatayo ng templo para sa <i class="trans-change">karangalan ng_ aking pangalan. 
+Pero sinabi sa kanya ng Panginoon, 'Mabuti na naghahangad kang magpatayo ng templo para sa karangalan ng_ aking pangalan. 
 
 
 
@@ -570,7 +570,7 @@ Pero sinabi sa kanya ng Panginoon, 'Mabuti na naghahangad kang magpatayo ng temp
 
 
 
-Ngunit hindi ikaw ang magtatayo nito kundi ang sarili mong anak. Siya ang magtatayo ng templo para sa <i class="trans-change">karangalan ng_ aking pangalan.' 
+Ngunit hindi ikaw ang magtatayo nito kundi ang sarili mong anak. Siya ang magtatayo ng templo para sa karangalan ng_ aking pangalan.' 
 
 
 
@@ -900,7 +900,7 @@ Ngunit pakinggan ninyo ako na inyong lingkod sa aking pananalangin at pagsusumam
 
 
 
-Ingatan nʼyo po sana ang templong ito araw at gabi, ang lugar na sinabi nʼyong dito <i class="trans-change">pararangalan_ ang pangalan nʼyo. Pakinggan nʼyo po sana ako na inyong lingkod sa aking pananalangin na nakaharap sa lugar na ito. 
+Ingatan nʼyo po sana ang templong ito araw at gabi, ang lugar na sinabi nʼyong dito pararangalan_ ang pangalan nʼyo. Pakinggan nʼyo po sana ako na inyong lingkod sa aking pananalangin na nakaharap sa lugar na ito. 
 
 
 
@@ -966,7 +966,7 @@ Pakinggan nʼyo po ang kahilingan ko at ng mga mamamayan nʼyo kapag silaʼy nan
 
 
 
-"Kung ang isang tao ay pinagbintangang nagkasala sa kanyang kapwa, at pinapunta siya sa inyong altar sa templo na ito para sumumpa <i class="trans-change">na inosente siya_, 
+"Kung ang isang tao ay pinagbintangang nagkasala sa kanyang kapwa, at pinapunta siya sa inyong altar sa templo na ito para sumumpa na inosente siya_, 
 
 
 
@@ -999,7 +999,7 @@ Pakinggan nʼyo po ang kahilingan ko at ng mga mamamayan nʼyo kapag silaʼy nan
 
 
 
-dinggin nʼyo po ito riyan sa langit at hatulan ang inyong mga lingkod – <i class="trans-change">ang nagbintang at ang pinagbintangan_. Parusahan nʼyo po ang nagkasala ayon sa kanyang ginawa at palayain ang walang sala para mahayag na inosente siya. 
+dinggin nʼyo po ito riyan sa langit at hatulan ang inyong mga lingkod – ang nagbintang at ang pinagbintangan_. Parusahan nʼyo po ang nagkasala ayon sa kanyang ginawa at palayain ang walang sala para mahayag na inosente siya. 
 
 
 
@@ -1164,7 +1164,7 @@ dinggin nʼyo po sila riyan sa langit. Patawarin nʼyo po sila na inyong mga lin
 
 
 
-"Kung may dumating pong taggutom sa lupain <i class="trans-change">ng inyong mga mamamayan,_ o salot, o malanta ang mga tanim, <i class="trans-change">o peste sa mga tanim gaya ng_ mga balang at mga uod, o palibutan ng mga kalaban ang alinman sa kanilang mga lungsod, o sumapit man sa kanila ang kahit anong karamdaman, 
+"Kung may dumating pong taggutom sa lupain ng inyong mga mamamayan,_ o salot, o malanta ang mga tanim, o peste sa mga tanim gaya ng_ mga balang at mga uod, o palibutan ng mga kalaban ang alinman sa kanilang mga lungsod, o sumapit man sa kanila ang kahit anong karamdaman, 
 
 
 
@@ -1197,7 +1197,7 @@ dinggin nʼyo po sila riyan sa langit. Patawarin nʼyo po sila na inyong mga lin
 
 
 
-at kung mayroon po sa kanila na mananalangin o hihiling sa inyo <i class="trans-change">dinggin nʼyo po sila_, at kung kinikilala po nilang dahil sa kanilang mga kasalanan dumating ang mga pagtitiis at sakuna sa kanila, at manalangin po sila ng nakataas ang kanilang mga kamay, na nakaharap sa templong ito, 
+at kung mayroon po sa kanila na mananalangin o hihiling sa inyo dinggin nʼyo po sila_, at kung kinikilala po nilang dahil sa kanilang mga kasalanan dumating ang mga pagtitiis at sakuna sa kanila, at manalangin po sila ng nakataas ang kanilang mga kamay, na nakaharap sa templong ito, 
 
 
 
@@ -1263,7 +1263,7 @@ dinggin nʼyo po sila riyan sa inyong luklukan sa langit. Kumilos po kayo at pat
 
 
 
-<i class="trans-change">Gawin nʼyo po ito_ para gumalang sila sainyo habang nabubuhay sila sa lupaing ibinigay nʼyo sa aming mga ninuno. <sup class="versenum">41-42</sup>"Kung ang mga dayuhan na nakatira sa malayong lugar ay makarinig ng inyong kadakilaan at kapangyarihan, at pumunta sila rito para sumamba sa inyo at manalangin na nakaharap sa templong ito, 
+Gawin nʼyo po ito_ para gumalang sila sainyo habang nabubuhay sila sa lupaing ibinigay nʼyo sa aming mga ninuno. 41-42"Kung ang mga dayuhan na nakatira sa malayong lugar ay makarinig ng inyong kadakilaan at kapangyarihan, at pumunta sila rito para sumamba sa inyo at manalangin na nakaharap sa templong ito, 
 
 
 
@@ -1329,7 +1329,7 @@ dinggin nʼyo po sila riyan sa inyong luklukan sa langit. At gawin ang kahit ano
 
 
 
-"Kung ang inyo pong mga mamamayan ay makikipaglaban ayon sa inyong utos, at kung mananalangin po sila sa <i class="trans-change">inyo,_ Panginoon, na nakaharap sa lungsod na ito na pinili nʼyo at sa templo na aking ipinatayo para sa <i class="trans-change">karangalan ng_ inyong pangalan, 
+"Kung ang inyo pong mga mamamayan ay makikipaglaban ayon sa inyong utos, at kung mananalangin po sila sa inyo,_ Panginoon, na nakaharap sa lungsod na ito na pinili nʼyo at sa templo na aking ipinatayo para sa karangalan ng_ inyong pangalan, 
 
 
 
@@ -1461,7 +1461,7 @@ at kung sa huliʼy magbago ang kanilang mga puso roon sa lugar ng kanilang manan
 
 
 
-<i class="trans-change">pakinggan nʼyo po ang kanilang dalangin_. Kung babalik po sila sa inyo nang buong pusoʼt isipan, doon sa lugar ng mga kaaway na bumihag sa kanila, at manalangin sila sa inyo na nakaharap sa lupaing ito na ibinigay nʼyo sa kanilang mga ninuno, sa lungsod na ito na inyong hinirang at sa templo na aking ipinatayo para sa <i class="trans-change">karangalan ng_ inyong pangalan, 
+pakinggan nʼyo po ang kanilang dalangin_. Kung babalik po sila sa inyo nang buong pusoʼt isipan, doon sa lugar ng mga kaaway na bumihag sa kanila, at manalangin sila sa inyo na nakaharap sa lupaing ito na ibinigay nʼyo sa kanilang mga ninuno, sa lungsod na ito na inyong hinirang at sa templo na aking ipinatayo para sa karangalan ng_ inyong pangalan, 
 
 
 
@@ -1890,7 +1890,7 @@ para malaman ng lahat ng bayan sa buong mundo na ang Panginoon ay siyang Dios at
 
 
 
-At sana, kayong <i class="trans-change">mga Israelita_ ay maging tapat sa Panginoon na ating Dios. Tuparin ninyo ang kanyang mga tuntunin at mga utos katulad ng ginagawa ninyo ngayon." ## Ang Pagtatalaga ng Templo 
+At sana, kayong mga Israelita_ ay maging tapat sa Panginoon na ating Dios. Tuparin ninyo ang kanyang mga tuntunin at mga utos katulad ng ginagawa ninyo ngayon." ## Ang Pagtatalaga ng Templo 
 
 
 
@@ -2022,7 +2022,7 @@ Sa araw ding iyon, itinalaga ng hari ang bakuran na nasa harap ng templo ng Pang
 
 
 
-Ipinagdiwang ni Solomon at ng buong Israel ang Pista <i class="trans-change">ng Pagtatayo ng mga Kubol_. Napakaraming pumunta mula sa Lebo Hamat <i class="trans-change">sa bandang hilaga_ hanggang sa lambak ng Egipto <i class="trans-change">sa bandang timog_. Nagdiwang sila sa presensya ng Panginoon na kanilang Dios sa loob ng 14 na araw – pitong araw <i class="trans-change">para sa pagtatalaga ng templo_ at pitong araw <i class="trans-change">para sa Pista ng Pagtatayo ng mga Kubol_. 
+Ipinagdiwang ni Solomon at ng buong Israel ang Pista ng Pagtatayo ng mga Kubol_. Napakaraming pumunta mula sa Lebo Hamat sa bandang hilaga_ hanggang sa lambak ng Egipto sa bandang timog_. Nagdiwang sila sa presensya ng Panginoon na kanilang Dios sa loob ng 14 na araw – pitong araw para sa pagtatalaga ng templo_ at pitong araw para sa Pista ng Pagtatayo ng mga Kubol_. 
 
 
 
@@ -2055,4 +2055,4 @@ Ipinagdiwang ni Solomon at ng buong Israel ang Pista <i class="trans-change">ng 
 
 
 
-Pagkatapos ng Pista, pinauwi ni Solomon ang mga tao. Binasbasan ng mga tao si Haring <i class="trans-change">Solomon_, at umuwi sila na may galak dahil sa lahat ng kabutihang ginawa ng Panginoon sa kanyang lingkod na si David at sa mga mamamayan niyang Israelita.
+Pagkatapos ng Pista, pinauwi ni Solomon ang mga tao. Binasbasan ng mga tao si Haring Solomon_, at umuwi sila na may galak dahil sa lahat ng kabutihang ginawa ng Panginoon sa kanyang lingkod na si David at sa mga mamamayan niyang Israelita.

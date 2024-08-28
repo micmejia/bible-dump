@@ -40,7 +40,7 @@ next: ['Matt 17']
 
 
 
-May mga Pariseo at Saduceo na lumapit kay Jesus para subukin siya. Hiniling nilang magpakita siya ng himala mula sa Dios bilang patunay <i class="trans-change">na sugo siya ng Dios_. 
+May mga Pariseo at Saduceo na lumapit kay Jesus para subukin siya. Hiniling nilang magpakita siya ng himala mula sa Dios bilang patunay na sugo siya ng Dios_. 
 
 
 
@@ -73,7 +73,7 @@ May mga Pariseo at Saduceo na lumapit kay Jesus para subukin siya. Hiniling nila
 
 
 
-Pero sinabi ni Jesus sa kanila, "Kapag palubog na ang araw at mapula ang langit, sinasabi ninyo, 'Magiging maayos ang panahon <i class="trans-change">bukas_.' 
+Pero sinabi ni Jesus sa kanila, "Kapag palubog na ang araw at mapula ang langit, sinasabi ninyo, 'Magiging maayos ang panahon bukas_.' 
 
 
 
@@ -174,7 +174,7 @@ Kayong henerasyon ng masasama at hindi tapat sa Dios! Humihingi kayo ng himala, 
 
 
 
-Tumawid ng lawa <i class="trans-change">si Jesus at_ ang mga tagasunod <i class="trans-change">niya_, pero nakalimutan ng mga tagasunod na magbaon ng pagkain. 
+Tumawid ng lawa si Jesus at_ ang mga tagasunod niya_, pero nakalimutan ng mga tagasunod na magbaon ng pagkain. 
 
 
 
@@ -273,7 +273,7 @@ Nag-usap-usap ang mga tagasunod ni Jesus. Akala nila, kaya niya sinabi iyon ay d
 
 
 
-Pero alam ni Jesus <i class="trans-change">ang pinag-uusapan nila_, kaya sinabi niya, "Bakit ninyo pinag-uusapan ang hindi ninyo pagdadala ng tinapay? Kay liit ng pananampalataya ninyo! 
+Pero alam ni Jesus ang pinag-uusapan nila_, kaya sinabi niya, "Bakit ninyo pinag-uusapan ang hindi ninyo pagdadala ng tinapay? Kay liit ng pananampalataya ninyo! 
 
 
 
@@ -440,7 +440,7 @@ At saka lang nila naintindihan na hindi pala sila pinag-iingat sa pampaalsa kund
 
 
 
-Nang makarating si Jesus sa lupain ng Cesarea Filipos, tinanong niya ang kanyang mga tagasunod, "Ano ang sinasabi ng mga tao tungkol sa <i class="trans-change">akin na_ Anak ng Tao?" 
+Nang makarating si Jesus sa lupain ng Cesarea Filipos, tinanong niya ang kanyang mga tagasunod, "Ano ang sinasabi ng mga tao tungkol sa akin na_ Anak ng Tao?" 
 
 
 
@@ -572,7 +572,7 @@ Sumagot si Simon Pedro, "Kayo po ang Cristo, ang Anak ng Dios na buhay."
 
 
 
-Sinabi ni Jesus sa kanya, "Pinagpala ka <i class="trans-change">ng Dios_, Simon na anak ni Jonas. Sapagkat hindi tao ang nagpahayag sa iyo ng bagay na ito kundi ang aking Amang nasa langit. 
+Sinabi ni Jesus sa kanya, "Pinagpala ka ng Dios_, Simon na anak ni Jonas. Sapagkat hindi tao ang nagpahayag sa iyo ng bagay na ito kundi ang aking Amang nasa langit. 
 
 
 
@@ -739,7 +739,7 @@ Mula noon, ipinaalam na ni Jesus sa mga tagasunod niya na dapat siyang pumunta s
 
 
 
-<i class="trans-change">Nang marinig ito ni_ Pedro, dinala niya si Jesus sa isang tabi at sinabihan, "Panginoon, huwag po sanang ipahintulot ng Dios. Hindi ito dapat mangyari sa inyo." 
+Nang marinig ito ni_ Pedro, dinala niya si Jesus sa isang tabi at sinabihan, "Panginoon, huwag po sanang ipahintulot ng Dios. Hindi ito dapat mangyari sa inyo." 
 
 
 
@@ -904,7 +904,7 @@ Ano ba ang mapapala ng tao kung mapasakanya man ang lahat ng bagay sa mundo, per
 
 
 
-Sapagkat <i class="trans-change">ako na_ Anak ng Tao ay darating kasama ang mga anghel, at taglay ang kapangyarihan ng Ama. Sa araw na iyon, gagantimpalaan ko ang bawat isa ayon sa kanyang mga gawa. 
+Sapagkat ako na_ Anak ng Tao ay darating kasama ang mga anghel, at taglay ang kapangyarihan ng Ama. Sa araw na iyon, gagantimpalaan ko ang bawat isa ayon sa kanyang mga gawa. 
 
 
 

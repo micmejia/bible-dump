@@ -40,7 +40,7 @@ next: ['John 11']
 
 
 
-<i class="trans-change">Nagsalita si Jesus sa pamamagitan ng paghahalintulad. Sinabi niya,_ "Sinasabi ko sa inyo ang totoo, ang pumapasok sa kulungan ng mga tupa nang hindi dumadaan sa pintuan, kundi umaakyat sa pader ay magnanakaw at tulisan. 
+Nagsalita si Jesus sa pamamagitan ng paghahalintulad. Sinabi niya,_ "Sinasabi ko sa inyo ang totoo, ang pumapasok sa kulungan ng mga tupa nang hindi dumadaan sa pintuan, kundi umaakyat sa pader ay magnanakaw at tulisan. 
 
 
 
@@ -240,7 +240,7 @@ Sinabi ni Jesus sa mga tao ang paghahalintulad na ito, pero hindi nila naintindi
 
 
 
-Kaya muling sinabi ni Jesus, "Sinasabi ko sa inyo ang totoo, ako ang pintuan <i class="trans-change">na dinadaanan_ ng mga tupa. 
+Kaya muling sinabi ni Jesus, "Sinasabi ko sa inyo ang totoo, ako ang pintuan na dinadaanan_ ng mga tupa. 
 
 
 
@@ -273,7 +273,7 @@ Kaya muling sinabi ni Jesus, "Sinasabi ko sa inyo ang totoo, ako ang pintuan <i 
 
 
 
-May mga <i class="trans-change">tagapagturo na_ nauna sa akin, na <i class="trans-change">ang katulad ay_ mga magnanakaw at mga tulisan. Ngunit hindi sila pinakinggan ng <i class="trans-change">aking_ mga tupa. 
+May mga tagapagturo na_ nauna sa akin, na ang katulad ay_ mga magnanakaw at mga tulisan. Ngunit hindi sila pinakinggan ng aking_ mga tupa. 
 
 
 
@@ -438,7 +438,7 @@ Hindi siya katulad ng bayarang pastol ng mga tupa, sapagkat ang ganitong tagapag
 
 
 
-Tumatakas siya dahil bayaran lang siya at walang malasakit sa mga tupa. <sup class="versenum">14-15</sup>Ako ang mabuting pastol. Kung paano ako nakikilala ng aking Ama at kung paano ko siya nakikilala, ganyan din ang pagkakakilala ko sa aking mga tupa at ang pagkakakilala nila sa akin. At iniaalay ko ang aking buhay para sa kanila. 
+Tumatakas siya dahil bayaran lang siya at walang malasakit sa mga tupa. 14-15Ako ang mabuting pastol. Kung paano ako nakikilala ng aking Ama at kung paano ko siya nakikilala, ganyan din ang pagkakakilala ko sa aking mga tupa at ang pagkakakilala nila sa akin. At iniaalay ko ang aking buhay para sa kanila. 
 
 
 
@@ -471,7 +471,7 @@ Tumatakas siya dahil bayaran lang siya at walang malasakit sa mga tupa. <sup cla
 
 
 
-May iba pa akong mga tupa na wala sa kawan na ito <i class="trans-change">ng mga Judio_. Kinakailangan ko rin silang tipunin. Pakikinggan din nila ang mga salita ko, at ang lahat ng nakikinig sa akin ay magiging isang kawan na lang na may iisang pastol. 
+May iba pa akong mga tupa na wala sa kawan na ito ng mga Judio_. Kinakailangan ko rin silang tipunin. Pakikinggan din nila ang mga salita ko, at ang lahat ng nakikinig sa akin ay magiging isang kawan na lang na may iisang pastol. 
 
 
 
@@ -504,7 +504,7 @@ May iba pa akong mga tupa na wala sa kawan na ito <i class="trans-change">ng mga
 
 
 
-"Mahal ako ng Ama, dahil iniaalay ko ang aking buhay <i class="trans-change">para sa kanila_, at pagkatapos ay muli akong mabubuhay. 
+"Mahal ako ng Ama, dahil iniaalay ko ang aking buhay para sa kanila_, at pagkatapos ay muli akong mabubuhay. 
 
 
 
@@ -966,7 +966,7 @@ Ako at ang Ama ay iisa."
 
 
 
-<i class="trans-change">Nang marinig ito ng_ mga Judio, muli silang dumampot ng mga bato para batuhin siya. 
+Nang marinig ito ng_ mga Judio, muli silang dumampot ng mga bato para batuhin siya. 
 
 
 
@@ -1065,7 +1065,7 @@ Sumagot sila, "Hindi ka namin babatuhin dahil sa mabubuti mong gawa, kundi dahil
 
 
 
-Sumagot si Jesus, "Hindi baʼt nakasulat sa Kautusan na <i class="trans-change">sinabi ng Dios na_ kayoʼy mga dios? 
+Sumagot si Jesus, "Hindi baʼt nakasulat sa Kautusan na sinabi ng Dios na_ kayoʼy mga dios? 
 
 
 
@@ -1263,7 +1263,7 @@ Tinangka na naman nilang dakpin si Jesus, pero nakatakas siya.
 
 
 
-Bumalik si Jesus sa kabila ng <i class="trans-change">Ilog ng_ Jordan, sa lugar na pinagbautismuhan noon ni Juan. Nanatili siya roon 
+Bumalik si Jesus sa kabila ng Ilog ng_ Jordan, sa lugar na pinagbautismuhan noon ni Juan. Nanatili siya roon 
 
 
 

@@ -337,7 +337,7 @@ Iingatan ko kayo at pararamihin para matupad ko ang aking pangako sa inyo.
 
 
 
-<i class="trans-change">At dahil sa kasaganaan ng inyong ani,_ ang inyong kakainin ay mula pa sa dati ninyong inani, na hindi pa nauubos sa lalagyan hanggang sa dumating ang bagong ani na papalit dito. 
+At dahil sa kasaganaan ng inyong ani,_ ang inyong kakainin ay mula pa sa dati ninyong inani, na hindi pa nauubos sa lalagyan hanggang sa dumating ang bagong ani na papalit dito. 
 
 
 
@@ -438,7 +438,7 @@ Akoʼy magiging kasama ninyo, at patuloy akong magiging Dios ninyo, at patuloy k
 
 Ako ang Panginoon na inyong Dios na naglabas sa inyo sa Egipto para huwag na kayong maging mga alipin ng mga taga-Egipto. Pinalaya ko na kayo, kaya wala na kayong dapat ikahiya.
 
-## Ang Parusa sa mga Sumusuway <sup class="versenum">14-15</sup>Pero kung hindi kayo makikinig sa akin, at hindi ninyo susundin ang aking mga utos at tuntunin, nilalabag ninyo ang kasunduan ko sa inyo. 
+## Ang Parusa sa mga Sumusuway 14-15Pero kung hindi kayo makikinig sa akin, at hindi ninyo susundin ang aking mga utos at tuntunin, nilalabag ninyo ang kasunduan ko sa inyo. 
 
 
 
@@ -504,7 +504,7 @@ Kaya ganito ang gagawin ko sa inyo. Bigla kayong masisindak sa takot dahil padad
 
 
 
-Pababayaan ko kayong matalo ng inyong mga kalaban, at kayoʼy sasakupin nitong mga napopoot sa inyo. At <i class="trans-change">dahil sa takot sa kanila,_ tatakas kayo kahit na walang humahabol sa inyo. 
+Pababayaan ko kayong matalo ng inyong mga kalaban, at kayoʼy sasakupin nitong mga napopoot sa inyo. At dahil sa takot sa kanila,_ tatakas kayo kahit na walang humahabol sa inyo. 
 
 
 
@@ -900,7 +900,7 @@ magagalit na ako sa inyo at kakalabanin ko kayo, at parurusahan ko kayo ng piton
 
 
 
-<i class="trans-change">Gugutumin ko kayo,_ at mapipilitan kayong kumain ng sarili ninyong anak. 
+Gugutumin ko kayo,_ at mapipilitan kayong kumain ng sarili ninyong anak. 
 
 
 
@@ -1032,7 +1032,7 @@ Wawasakin ko ang inyong lupain at magtataka ang inyong mga kalaban na sasakop ni
 
 
 
-Pasasapitin ko sa inyo ang digmaan na gigiba ng inyong mga bayan at mga lungsod, at pangangalatin ko kayo sa mga bansa. <sup class="versenum">34-35</sup>Habang bihag kayo ng inyong mga kalaban sa ibang lugar, makakapagpahinga na ang inyong lupain. Sapagkat noong nakatira pa kayo sa inyong lupain, hindi ninyo ito pinagpahinga kahit na sa panahon ng pagpapahinga ng inyong lupain. Pero ngayon ay makakapagpahinga na ito habang nasa ibang lugar kayo. <sup class="versenum">36-37</sup>Kayong mga natitirang buhay na binihag at dinala ng inyong mga kalaban sa kanilang lugar ay padadalhan ko ng labis na pagkatakot. At kahit na kaluskos lang ng dahon sa ihip ng hangin ay katatakutan ninyo, tatakas kayong parang hinahabol upang patayin, kahit walang humahabol sa inyo. At habang tumatakas kayo, magbabanggaan kayo at magkakandarapa. Hindi kayo makakalaban sa inyong mga kalaban. 
+Pasasapitin ko sa inyo ang digmaan na gigiba ng inyong mga bayan at mga lungsod, at pangangalatin ko kayo sa mga bansa. 34-35Habang bihag kayo ng inyong mga kalaban sa ibang lugar, makakapagpahinga na ang inyong lupain. Sapagkat noong nakatira pa kayo sa inyong lupain, hindi ninyo ito pinagpahinga kahit na sa panahon ng pagpapahinga ng inyong lupain. Pero ngayon ay makakapagpahinga na ito habang nasa ibang lugar kayo. 36-37Kayong mga natitirang buhay na binihag at dinala ng inyong mga kalaban sa kanilang lugar ay padadalhan ko ng labis na pagkatakot. At kahit na kaluskos lang ng dahon sa ihip ng hangin ay katatakutan ninyo, tatakas kayong parang hinahabol upang patayin, kahit walang humahabol sa inyo. At habang tumatakas kayo, magbabanggaan kayo at magkakandarapa. Hindi kayo makakalaban sa inyong mga kalaban. 
 
 
 
@@ -1098,7 +1098,7 @@ Mamamatay kayo sa lugar ng inyong mga kalaban.
 
 
 
-At ang matitira sa inyoʼy unti-unting mamamatay dahil sa inyong mga kasalanan at sa kasalanan ng inyong mga ninuno. <sup class="versenum">40-41</sup>Dahil sa inyong pagtataksil at pagsuway sa akin, kinalaban ko kayo at ipinabihag sa inyong mga kalaban. Pero kung ipapahayag ninyo ang inyong mga kasalanan at ang kasalanan ng inyong mga ninuno, at titigilan na ang inyong pagmamatigas, at tatanggapin ang mga parusa para sa inyong mga kasalanan, 
+At ang matitira sa inyoʼy unti-unting mamamatay dahil sa inyong mga kasalanan at sa kasalanan ng inyong mga ninuno. 40-41Dahil sa inyong pagtataksil at pagsuway sa akin, kinalaban ko kayo at ipinabihag sa inyong mga kalaban. Pero kung ipapahayag ninyo ang inyong mga kasalanan at ang kasalanan ng inyong mga ninuno, at titigilan na ang inyong pagmamatigas, at tatanggapin ang mga parusa para sa inyong mga kasalanan, 
 
 
 
@@ -1230,7 +1230,7 @@ Ngunit kahit na pinarurusahan ko kayo, hindi ko kayo itatakwil habang kayoʼy na
 
 
 
-Tutuparin ko ang kasunduan ko sa inyong mga ninuno na inilabas ko sa Egipto para maipakita ko sa mga bansa ang aking kapangyarihan. <i class="trans-change">Ginawa ko ito sa inyong mga ninuno_ para maging Dios nila ako. Ako ang Panginoon. 
+Tutuparin ko ang kasunduan ko sa inyong mga ninuno na inilabas ko sa Egipto para maipakita ko sa mga bansa ang aking kapangyarihan. Ginawa ko ito sa inyong mga ninuno_ para maging Dios nila ako. Ako ang Panginoon. 
 
 
 

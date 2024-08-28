@@ -634,7 +634,7 @@ Pero kapag tumakbo na siya, tinatawanan niya ang kabayo at ang sakay nito.
 
 
 
-"<i class="trans-change">Job,_ ikaw ba ang nagbibigay ng lakas sa kabayo? Ikaw din ba ang naglagay ng kanyang kiling? 
+"Job,_ ikaw ba ang nagbibigay ng lakas sa kabayo? Ikaw din ba ang naglagay ng kanyang kiling? 
 
 
 

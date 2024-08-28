@@ -106,7 +106,7 @@ Ang bawat isa sa kanilaʼy magiging kanlungan sa malakas na hangin at bagyo. Ang
 
 
 
-Maghahanap at makikinig ang mga tao <i class="trans-change">sa Dios_. 
+Maghahanap at makikinig ang mga tao sa Dios_. 
 
 
 
@@ -271,7 +271,7 @@ Masama ang pamamaraan ng mandaraya. Ipinapahamak niya ang mga dukha sa pamamagit
 
 
 
-Pero ang taong marangal ay may hangarin na palaging gumawa ng mabuti, at itoʼy kanyang tinutupad. <sup class="versenum">9-10</sup>Kayong mga babaeng patambay-tambay lang at walang pakialam, pakinggan ninyo ang sasabihin ko sa inyo! Bago matapos ang taon, mababagabag kayo dahil hindi na mamumunga ang mga ubas at wala na kayong mapipitas. 
+Pero ang taong marangal ay may hangarin na palaging gumawa ng mabuti, at itoʼy kanyang tinutupad. 9-10Kayong mga babaeng patambay-tambay lang at walang pakialam, pakinggan ninyo ang sasabihin ko sa inyo! Bago matapos ang taon, mababagabag kayo dahil hindi na mamumunga ang mga ubas at wala na kayong mapipitas. 
 
 
 

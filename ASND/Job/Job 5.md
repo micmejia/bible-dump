@@ -40,7 +40,7 @@ next: ['Job 6']
 
 
 
-"<i class="trans-change">Job,_ kahit humingi ka ng tulong, walang tutulong sa iyo. Kahit ang mga anghel ay hindi ka tutulungan. 
+"Job,_ kahit humingi ka ng tulong, walang tutulong sa iyo. Kahit ang mga anghel ay hindi ka tutulungan. 
 
 
 
@@ -172,7 +172,7 @@ Ang mga anak niyaʼy walang malalapitan at wala ring magtatanggol sa kanila sa h
 
 
 
-Ang ani niyaʼy kakainin ng iba. At kahit ang mga bungang nasa tinikan ay kukunin ng mga taong gutom. Ang kayamanan niyaʼy aagawin ng mga taong uhaw <i class="trans-change">sa mga ari-arian_. 
+Ang ani niyaʼy kakainin ng iba. At kahit ang mga bungang nasa tinikan ay kukunin ng mga taong gutom. Ang kayamanan niyaʼy aagawin ng mga taong uhaw sa mga ari-arian_. 
 
 
 
@@ -238,7 +238,7 @@ Ang kahirapan at kaguluhan ay hindi tumutubo sa alikabok o lupa.
 
 
 
-Likas sa tao ang gumawa ng kahirapan at kaguluhan, tulad ng alipatong <i class="trans-change">mula sa apoy na_ lumilipad paitaas. 
+Likas sa tao ang gumawa ng kahirapan at kaguluhan, tulad ng alipatong mula sa apoy na_ lumilipad paitaas. 
 
 
 
@@ -304,7 +304,7 @@ Likas sa tao ang gumawa ng kahirapan at kaguluhan, tulad ng alipatong <i class="
 
 
 
-<i class="trans-change">Sapagkat_ gumagawa siya ng mga kahanga-hangang bagay at mga himalang hindi kayang unawain o bilangin. 
+Sapagkat_ gumagawa siya ng mga kahanga-hangang bagay at mga himalang hindi kayang unawain o bilangin. 
 
 
 

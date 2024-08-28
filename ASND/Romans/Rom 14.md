@@ -73,7 +73,7 @@ Tanggapin ninyo ang kapatid na mahina ang pananampalataya at huwag makipagtalo s
 
 
 
-Halimbawa, may kapatid na naniniwala na lahat ng pagkain ay maaaring kainin. Mayroon namang mahina <i class="trans-change">ang pananampalataya_ at para sa kanya, gulay lamang ang dapat kainin. 
+Halimbawa, may kapatid na naniniwala na lahat ng pagkain ay maaaring kainin. Mayroon namang mahina ang pananampalataya_ at para sa kanya, gulay lamang ang dapat kainin. 
 
 
 
@@ -172,7 +172,7 @@ at sa Dios lang din sila mananagot. Kaya, sino ka para humatol sa utusan ng iba?
 
 
 
-May mga taong naniniwala na mas mahalaga ang isang araw kaysa sa ibang mga araw. May tao namang pare-pareho lang para sa kanya ang lahat ng araw. Ang bawat tao ang bahalang magpasya para sa kanyang sarili <i class="trans-change">tungkol sa bagay na iyan_. 
+May mga taong naniniwala na mas mahalaga ang isang araw kaysa sa ibang mga araw. May tao namang pare-pareho lang para sa kanya ang lahat ng araw. Ang bawat tao ang bahalang magpasya para sa kanyang sarili tungkol sa bagay na iyan_. 
 
 
 
@@ -337,7 +337,7 @@ Ito ang dahilan kung bakit namatay at muling nabuhay si Cristo, para maging Pang
 
 
 
-Kaya huwag ninyong hahatulan o hahamakin ang inyong kapatid <i class="trans-change">kay Cristo_. Sapagkat tayong lahat ay haharap sa Dios, at siya ang hahatol <i class="trans-change">kung ang ginawa natin ay mabuti o masama_. 
+Kaya huwag ninyong hahatulan o hahamakin ang inyong kapatid kay Cristo_. Sapagkat tayong lahat ay haharap sa Dios, at siya ang hahatol kung ang ginawa natin ay mabuti o masama_. 
 
 
 

@@ -40,7 +40,7 @@ next: ['Ezek 30']
 
 
 
-Noong ika-12 araw ng ikasampung buwan, nang ikasampung taon <i class="trans-change">ng aming pagkabihag_, sinabi sa akin ng Panginoon, 
+Noong ika-12 araw ng ikasampung buwan, nang ikasampung taon ng aming pagkabihag_, sinabi sa akin ng Panginoon, 
 
 
 
@@ -106,7 +106,7 @@ Noong ika-12 araw ng ikasampung buwan, nang ikasampung taon <i class="trans-chan
 
 
 
-Sabihin mong ako, ang Panginoong Dios, ang nagsasabi nito: Kalaban kita, O Faraon, hari ng Egipto. Para kang malaking buwaya na nagbababad sa ilog. Sinasabi mong ikaw ang may-ari ng <i class="trans-change">ilog_ Nilo, at ginawa mo ito para sa sarili mo. 
+Sabihin mong ako, ang Panginoong Dios, ang nagsasabi nito: Kalaban kita, O Faraon, hari ng Egipto. Para kang malaking buwaya na nagbababad sa ilog. Sinasabi mong ikaw ang may-ari ng ilog_ Nilo, at ginawa mo ito para sa sarili mo. 
 
 
 
@@ -205,7 +205,7 @@ Itatapon kita sa ilang pati na ang mga isda, at hahandusay ka sa lupa at walang 
 
 
 
-Malalaman ng lahat ng nakatira sa Egipto na ako ang Panginoon. Sapagkat para kang isang <i class="trans-change">marupok na_ tambo na <i class="trans-change">inasahan_ ng mga mamamayan ng Israel. 
+Malalaman ng lahat ng nakatira sa Egipto na ako ang Panginoon. Sapagkat para kang isang marupok na_ tambo na inasahan_ ng mga mamamayan ng Israel. 
 
 
 
@@ -238,7 +238,7 @@ Malalaman ng lahat ng nakatira sa Egipto na ako ang Panginoon. Sapagkat para kan
 
 
 
-Nang humawak sila sa iyo, nabiyak ka at nasugatan ang mga bisig nila. Nang sumandal sila sa iyo, nabali ka <i class="trans-change">kaya nabuwal sila_ at napilayan. 
+Nang humawak sila sa iyo, nabiyak ka at nasugatan ang mga bisig nila. Nang sumandal sila sa iyo, nabali ka kaya nabuwal sila_ at napilayan. 
 
 
 
@@ -271,7 +271,7 @@ Nang humawak sila sa iyo, nabiyak ka at nasugatan ang mga bisig nila. Nang suman
 
 
 
-Kaya <i class="trans-change">ako,_ ang Panginoong Dios ay nagsasabing, ipapasalakay kita sa mga tao na papatay sa mga mamamayan at mga hayop mo. 
+Kaya ako,_ ang Panginoong Dios ay nagsasabing, ipapasalakay kita sa mga tao na papatay sa mga mamamayan at mga hayop mo. 
 
 
 
@@ -304,7 +304,7 @@ Kaya <i class="trans-change">ako,_ ang Panginoong Dios ay nagsasabing, ipapasala
 
 
 
-Magiging mapanglaw ang Egipto at malalaman ninyong ako ang Panginoon. "At dahil sinabi mong sa iyo ang Ilog <i class="trans-change">ng Nilo_ at ikaw ang gumawa nito, 
+Magiging mapanglaw ang Egipto at malalaman ninyong ako ang Panginoon. "At dahil sinabi mong sa iyo ang Ilog ng Nilo_ at ikaw ang gumawa nito, 
 
 
 
@@ -469,7 +469,7 @@ Pero sinabi rin ng Panginoong Dios, "Pagkalipas ng 40 taon, titipunin ko ang mga
 
 
 
-Muli ko silang ibabalik sa Patros <i class="trans-change">sa gawing timog ng Egipto_ na siyang lupain ng kanilang mga ninuno. Pero magiging mahinang kaharian lang sila. 
+Muli ko silang ibabalik sa Patros sa gawing timog ng Egipto_ na siyang lupain ng kanilang mga ninuno. Pero magiging mahinang kaharian lang sila. 
 
 
 
@@ -502,7 +502,7 @@ Muli ko silang ibabalik sa Patros <i class="trans-change">sa gawing timog ng Egi
 
 
 
-Sila ang magiging pinakamahina sa lahat ng kaharian at kahit kailan ay hindi na sila makakahigit sa ibang bansa dahil gagawin ko silang pinakamahinang <i class="trans-change">kaharian_. At hindi na sila makakapanakop ng ibang bansa. 
+Sila ang magiging pinakamahina sa lahat ng kaharian at kahit kailan ay hindi na sila makakahigit sa ibang bansa dahil gagawin ko silang pinakamahinang kaharian_. At hindi na sila makakapanakop ng ibang bansa. 
 
 
 
@@ -568,7 +568,7 @@ Hindi na muling aasa sa kanya ang mga mamamayan ng Israel. Ang nangyari sa Egipt
 
 
 
-Noong unang araw ng unang buwan, nang ika-27 taon <i class="trans-change">ng aming pagkabihag_, sinabi sa akin ng Panginoon, 
+Noong unang araw ng unang buwan, nang ika-27 taon ng aming pagkabihag_, sinabi sa akin ng Panginoon, 
 
 
 
@@ -634,7 +634,7 @@ Noong unang araw ng unang buwan, nang ika-27 taon <i class="trans-change">ng ami
 
 
 
-Pero <i class="trans-change">ako,_ ang Panginoong Dios ay nagsasabing, ipapasakop ko ang Egipto kay Nebucadnezar na hari ng Babilonia. Sasamsamin niya ang lahat ng kayamanan ng Egipto bilang bayad sa mga sundalo niya. 
+Pero ako,_ ang Panginoong Dios ay nagsasabing, ipapasakop ko ang Egipto kay Nebucadnezar na hari ng Babilonia. Sasamsamin niya ang lahat ng kayamanan ng Egipto bilang bayad sa mga sundalo niya. 
 
 
 
@@ -667,7 +667,7 @@ Pero <i class="trans-change">ako,_ ang Panginoong Dios ay nagsasabing, ipapasako
 
 
 
-Ibibigay ko sa kanya ang Egipto bilang gantimpala sa pagpapagal na ginawa niya at ng mga sundalo niya para sa akin. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Ibibigay ko sa kanya ang Egipto bilang gantimpala sa pagpapagal na ginawa niya at ng mga sundalo niya para sa akin. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -700,4 +700,4 @@ Ibibigay ko sa kanya ang Egipto bilang gantimpala sa pagpapagal na ginawa niya a
 
 
 
-"<i class="trans-change">Ezekiel,_ sa oras na mangyari ito, muli kong palalakasin ang Israel. At malalaman ng mga Israelita na totoo ang sinabi mo. At malalaman nila na ako ang Panginoon."
+"Ezekiel,_ sa oras na mangyari ito, muli kong palalakasin ang Israel. At malalaman ng mga Israelita na totoo ang sinabi mo. At malalaman nila na ako ang Panginoon."

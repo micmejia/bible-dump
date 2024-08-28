@@ -73,7 +73,7 @@ Sa araw na iyon, gagamitin ng Panginoon ang kanyang matalim at makapangyarihang 
 
 
 
-"Sa araw na iyon, aawit kayo tungkol sa ubasan na umaani nang sagana, <i class="trans-change">na larawan ng aking bayan_. 
+"Sa araw na iyon, aawit kayo tungkol sa ubasan na umaani nang sagana, na larawan ng aking bayan_. 
 
 
 
@@ -304,7 +304,7 @@ Ipinabihag ng Panginoon ang kanyang mga mamamayan bilang parusa sa kanila. Ipina
 
 
 
-Mapapatawad lang sila kung gigibain nila ang mga altar nilang bato at kung didikdikin ng pino at itatapon ang mga posteng <i class="trans-change">simbolo ng diosang si_ Ashera, at ang mga altar na sinusunugan nila ng insenso. 
+Mapapatawad lang sila kung gigibain nila ang mga altar nilang bato at kung didikdikin ng pino at itatapon ang mga posteng simbolo ng diosang si_ Ashera, at ang mga altar na sinusunugan nila ng insenso. 
 
 
 

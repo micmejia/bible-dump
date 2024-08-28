@@ -600,4 +600,4 @@ Mga minamahal, alam na ninyo ito kahit noon pa. Kaya mag-ingat kayo nang hindi k
 
 
 
-Sa halip, lumago kayo sa biyaya <i class="trans-change">ng Dios_ at sa pagkakakilala sa ating Panginoon at Tagapagligtas na si Jesu-Cristo. Purihin siya ngayon at magpakailanman! Amen.
+Sa halip, lumago kayo sa biyaya ng Dios_ at sa pagkakakilala sa ating Panginoon at Tagapagligtas na si Jesu-Cristo. Purihin siya ngayon at magpakailanman! Amen.

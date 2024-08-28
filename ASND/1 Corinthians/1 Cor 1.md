@@ -39,7 +39,7 @@ next: ['1 Cor 2']
 
 
 
-<i class="trans-change">Mula kay_ Pablo na tinawag upang maging apostol ni Cristo Jesus ayon sa kalooban ng Dios, <i class="trans-change">kasama si_ Sostenes na <i class="trans-change">ating_ kapatid. 
+Mula kay_ Pablo na tinawag upang maging apostol ni Cristo Jesus ayon sa kalooban ng Dios, kasama si_ Sostenes na ating_ kapatid. 
 
 
 
@@ -72,7 +72,7 @@ next: ['1 Cor 2']
 
 
 
-<i class="trans-change">Mahal kong mga kapatid_ sa iglesya ng Dios diyan sa Corinto. Kayoʼy naging kanya sa inyong pakikipag-isa kay Cristo Jesus. Tinawag niya kayo upang maging banal, kasama ng lahat ng kumikilala sa ating Panginoong Jesu-Cristo saan mang lugar. Siyaʼy Panginoon nating lahat. 
+Mahal kong mga kapatid_ sa iglesya ng Dios diyan sa Corinto. Kayoʼy naging kanya sa inyong pakikipag-isa kay Cristo Jesus. Tinawag niya kayo upang maging banal, kasama ng lahat ng kumikilala sa ating Panginoong Jesu-Cristo saan mang lugar. Siyaʼy Panginoon nating lahat. 
 
 
 
@@ -173,7 +173,7 @@ Lagi akong nagpapasalamat sa Dios dahil sa mga pagpapalang ibinigay niya sa inyo
 
 
 
-Sapagkat sa inyong pakikipag-isa sa kanya, pinalago kayo <i class="trans-change">ng Dios_ sa lahat ng bagay – sa pananalita at kaalaman. 
+Sapagkat sa inyong pakikipag-isa sa kanya, pinalago kayo ng Dios_ sa lahat ng bagay – sa pananalita at kaalaman. 
 
 
 
@@ -272,7 +272,7 @@ Kaya hindi kayo kinukulang sa anumang kaloob na espiritwal habang hinihintay nin
 
 
 
-Pananatilihin niya kayong matatag <i class="trans-change">sa pananampalataya_ hanggang sa katapusan, upang kayoʼy maging walang kapintasan sa araw ng kanyang pagdating. 
+Pananatilihin niya kayong matatag sa pananampalataya_ hanggang sa katapusan, upang kayoʼy maging walang kapintasan sa araw ng kanyang pagdating. 
 
 
 
@@ -606,7 +606,7 @@ Sapagkat hindi ako isinugo ni Cristo upang magbautismo, kundi upang mangaral ng 
 
 
 
-Ang mensahe ng <i class="trans-change">pagkamatay ni Cristo sa_ krus ay kamangmangan para sa mga napapahamak, ngunit sa mga naliligtas, itoʼy kapangyarihan ng Dios. 
+Ang mensahe ng pagkamatay ni Cristo sa_ krus ay kamangmangan para sa mga napapahamak, ngunit sa mga naliligtas, itoʼy kapangyarihan ng Dios. 
 
 
 
@@ -705,7 +705,7 @@ Ano ngayon ang kabuluhan ng marurunong, ng mga tagapagturo ng Kautusan, at ng ma
 
 
 
-Sapagkat sa karunungan ng Dios, hindi niya pinahintulot na makilala siya ng tao sa pamamagitan ng karunungan ng mundong ito. Mas minabuti ng Dios na iligtas ang mga tao sa pamamagitan ng kanilang pananampalataya sa ipinangangaral <i class="trans-change">na Magandang Balita_, na ayon sa iba ay kamangmangan lamang. 
+Sapagkat sa karunungan ng Dios, hindi niya pinahintulot na makilala siya ng tao sa pamamagitan ng karunungan ng mundong ito. Mas minabuti ng Dios na iligtas ang mga tao sa pamamagitan ng kanilang pananampalataya sa ipinangangaral na Magandang Balita_, na ayon sa iba ay kamangmangan lamang. 
 
 
 
@@ -738,7 +738,7 @@ Sapagkat sa karunungan ng Dios, hindi niya pinahintulot na makilala siya ng tao 
 
 
 
-Ang mga Judio ay ayaw maniwala hanggaʼt walang nakikitang himala, at ang mga Griego naman ay humahanap ng <i class="trans-change">sinasabi nilang_ karunungan. 
+Ang mga Judio ay ayaw maniwala hanggaʼt walang nakikitang himala, at ang mga Griego naman ay humahanap ng sinasabi nilang_ karunungan. 
 
 
 
@@ -804,7 +804,7 @@ Ngunit kami naman ay ipinapangaral ang Cristo na ipinako sa krus – bagay na hi
 
 
 
-Ngunit para sa mga tinawag <i class="trans-change">ng Dios_, Judio man o hindi, si Cristo ang siyang kapangyarihan at karunungan ng Dios. 
+Ngunit para sa mga tinawag ng Dios_, Judio man o hindi, si Cristo ang siyang kapangyarihan at karunungan ng Dios. 
 
 
 
@@ -837,7 +837,7 @@ Ngunit para sa mga tinawag <i class="trans-change">ng Dios_, Judio man o hindi, 
 
 
 
-Sapagkat ang <i class="trans-change">inaakala ng tao na_ kamangmangan ng Dios ay higit pa sa karunungan ng tao, at ang <i class="trans-change">inaakala nilang_ kahinaan ng Dios ay higit pa sa kalakasan ng tao. 
+Sapagkat ang inaakala ng tao na_ kamangmangan ng Dios ay higit pa sa karunungan ng tao, at ang inaakala nilang_ kahinaan ng Dios ay higit pa sa kalakasan ng tao. 
 
 
 

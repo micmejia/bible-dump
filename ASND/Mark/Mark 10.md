@@ -40,7 +40,7 @@ next: ['Mark 11']
 
 
 
-Umalis si Jesus sa Capernaum at pumunta sa lalawigan ng Judea, at saka tumawid sa <i class="trans-change">Ilog ng_ Jordan. Pinuntahan siya roon ng maraming tao, at tulad ng dati ay nangaral siya sa kanila. 
+Umalis si Jesus sa Capernaum at pumunta sa lalawigan ng Judea, at saka tumawid sa Ilog ng_ Jordan. Pinuntahan siya roon ng maraming tao, at tulad ng dati ay nangaral siya sa kanila. 
 
 
 
@@ -436,7 +436,7 @@ At kung hiwalayan ng isang babae ang kanyang asawa at mag-asawa ng iba ay nagkas
 
 
 
-Dinala ng mga tao ang kanilang maliliit na anak kay Jesus upang patungan niya ng kamay <i class="trans-change">at pagpalain_. Pero pinagbawalan sila ng mga tagasunod <i class="trans-change">ni Jesus_. 
+Dinala ng mga tao ang kanilang maliliit na anak kay Jesus upang patungan niya ng kamay at pagpalain_. Pero pinagbawalan sila ng mga tagasunod ni Jesus_. 
 
 
 
@@ -636,7 +636,7 @@ Sumagot si Jesus, "Bakit mo sinasabing mabuti ako? Ang Dios lang ang mabuti, wal
 
 
 
-<i class="trans-change">Tungkol sa tanong mo,_ alam mo ang sinasabi ng Kautusan: 'Huwag kang papatay, huwag kang mangangalunya, huwag kang magnanakaw, huwag kang sasaksi ng kasinungalingan, huwag kang mandadaya, at igalang mo ang iyong ama at ina.' " 
+Tungkol sa tanong mo,_ alam mo ang sinasabi ng Kautusan: 'Huwag kang papatay, huwag kang mangangalunya, huwag kang magnanakaw, huwag kang sasaksi ng kasinungalingan, huwag kang mandadaya, at igalang mo ang iyong ama at ina.' " 
 
 
 
@@ -1065,7 +1065,7 @@ Maraming dakila ngayon na magiging hamak, at maraming hamak ngayon na magiging d
 
 
 
-Habang naglalakad sila papuntang Jerusalem, nauna sa kanila si Jesus. Kinakabahan ang mga tagasunod niya at natatakot naman ang iba pang sumusunod sa kanila. Ibinukod ni Jesus ang 12 <i class="trans-change">apostol_ at muli niyang sinabi kung ano ang mangyayari sa kanya, 
+Habang naglalakad sila papuntang Jerusalem, nauna sa kanila si Jesus. Kinakabahan ang mga tagasunod niya at natatakot naman ang iba pang sumusunod sa kanila. Ibinukod ni Jesus ang 12 apostol_ at muli niyang sinabi kung ano ang mangyayari sa kanya, 
 
 
 
@@ -1098,7 +1098,7 @@ Habang naglalakad sila papuntang Jerusalem, nauna sa kanila si Jesus. Kinakabaha
 
 
 
-"Makinig kayo! Papunta na tayo sa Jerusalem, at <i class="trans-change">ako na_ Anak ng Tao ay ipagkakanulo sa mga namamahalang pari at mga tagapagturo ng Kautusan. Hahatulan nila ako ng kamatayan at ibibigay sa mga hindi Judio. 
+"Makinig kayo! Papunta na tayo sa Jerusalem, at ako na_ Anak ng Tao ay ipagkakanulo sa mga namamahalang pari at mga tagapagturo ng Kautusan. Hahatulan nila ako ng kamatayan at ibibigay sa mga hindi Judio. 
 
 
 
@@ -1230,7 +1230,7 @@ Lumapit kay Jesus sina Santiago at Juan na mga anak ni Zebedee at nagsabi, "Guro
 
 
 
-Sumagot sila, "Sana po, kapag naghahari na kayo ay paupuin nʼyo kami <i class="trans-change">sa inyong tabi_; isa sa kanan at isa sa kaliwa." 
+Sumagot sila, "Sana po, kapag naghahari na kayo ay paupuin nʼyo kami sa inyong tabi_; isa sa kanan at isa sa kaliwa." 
 
 
 
@@ -1329,7 +1329,7 @@ Sumagot sila, "Opo, kaya namin." Sinabi ni Jesus, "Maaaring kaya nga ninyong tii
 
 
 
-Ngunit hindi ako ang pumipili kung sino ang uupo sa kanan o kaliwa ko. Ang mga itoʼy para lang sa mga pinaglaanan <i class="trans-change">ng aking Ama_." 
+Ngunit hindi ako ang pumipili kung sino ang uupo sa kanan o kaliwa ko. Ang mga itoʼy para lang sa mga pinaglaanan ng aking Ama_." 
 
 
 
@@ -1494,7 +1494,7 @@ At ang sinuman sa inyo na gustong maging pinuno ay dapat maging alipin ng lahat.
 
 
 
-Sapagkat kahit <i class="trans-change">ako, na_ Anak ng Tao ay naparito <i class="trans-change">sa mundo_, hindi upang paglingkuran kundi upang maglingkod at magbigay ng aking buhay para matubos ang maraming tao!" ## Pinagaling ni Jesus ang Bulag na si Bartimeus 
+Sapagkat kahit ako, na_ Anak ng Tao ay naparito sa mundo_, hindi upang paglingkuran kundi upang maglingkod at magbigay ng aking buhay para matubos ang maraming tao!" ## Pinagaling ni Jesus ang Bulag na si Bartimeus 
 
 
 
@@ -1527,7 +1527,7 @@ Sapagkat kahit <i class="trans-change">ako, na_ Anak ng Tao ay naparito <i class
 
 
 
-Dumating sina Jesus sa Jerico. At nang paalis na siya roon kasama ang mga tagasunod niya at marami pang iba, <i class="trans-change">nadaanan nila ang_ isang bulag na nakaupo sa tabi ng daan at namamalimos. Siyaʼy si Bartimeus na anak ni Timeus. 
+Dumating sina Jesus sa Jerico. At nang paalis na siya roon kasama ang mga tagasunod niya at marami pang iba, nadaanan nila ang_ isang bulag na nakaupo sa tabi ng daan at namamalimos. Siyaʼy si Bartimeus na anak ni Timeus. 
 
 
 

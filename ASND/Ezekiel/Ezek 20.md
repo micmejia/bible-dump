@@ -40,7 +40,7 @@ next: ['Ezek 21']
 
 
 
-Nang ikasampung araw ng ikalimang buwan, nang ikapitong taon <i class="trans-change">ng aming pagkabihag_, may ilang tagapamahala ng Israel na lumapit sa akin para humingi ng payo mula sa Panginoon. 
+Nang ikasampung araw ng ikalimang buwan, nang ikapitong taon ng aming pagkabihag_, may ilang tagapamahala ng Israel na lumapit sa akin para humingi ng payo mula sa Panginoon. 
 
 
 
@@ -106,7 +106,7 @@ Sinabi sa akin ng Panginoon,
 
 
 
-"Anak ng tao, sabihin mo sa mga tagapamahala ng Israel na <i class="trans-change">ako,_ ang Panginoong Dios ay nagtatanong, 'Pumarito ba kayo para humingi ng payo sa akin?' Ako, ang Panginoong Dios na buhay, ay sumusumpang hindi ako magbibigay ng payo sa kanila. 
+"Anak ng tao, sabihin mo sa mga tagapamahala ng Israel na ako,_ ang Panginoong Dios ay nagtatanong, 'Pumarito ba kayo para humingi ng payo sa akin?' Ako, ang Panginoong Dios na buhay, ay sumusumpang hindi ako magbibigay ng payo sa kanila. 
 
 
 
@@ -370,7 +370,7 @@ Kaya pinalaya ko sila sa Egipto at dinala sa ilang.
 
 
 
-At <i class="trans-change">dooʼy_ ibinigay ko sa kanila ang mga utos at mga tuntunin ko na dapat nilang sundin para mabuhay sila. 
+At dooʼy_ ibinigay ko sa kanila ang mga utos at mga tuntunin ko na dapat nilang sundin para mabuhay sila. 
 
 
 
@@ -502,7 +502,7 @@ Ngunit hindi ko ito ginawa, dahil ayaw kong malagay sa kahihiyan ang pangalan ko
 
 
 
-Pero isinumpa ko sa kanila roon sa ilang na hindi ko sila dadalhin sa lupaing ibinigay ko <i class="trans-change">sa kanila_ – ang maganda at masaganang lupain, ang lupaing pinakamaganda sa lahat. 
+Pero isinumpa ko sa kanila roon sa ilang na hindi ko sila dadalhin sa lupaing ibinigay ko sa kanila_ – ang maganda at masaganang lupain, ang lupaing pinakamaganda sa lahat. 
 
 
 
@@ -898,7 +898,7 @@ Pinabayaan ko silang dungisan ang mga sarili nila sa pamamagitan ng paghahandog 
 
 
 
-"Kaya anak ng tao, sabihin mo sa mga mamamayan ng Israel, na <i class="trans-change">ako,_ ang Panginoong Dios ay nagsasabi: Ang inyong mga ninuno ay patuloy na lumapastangan at nagtakwil sa akin. 
+"Kaya anak ng tao, sabihin mo sa mga mamamayan ng Israel, na ako,_ ang Panginoong Dios ay nagsasabi: Ang inyong mga ninuno ay patuloy na lumapastangan at nagtakwil sa akin. 
 
 
 
@@ -1195,7 +1195,7 @@ at dadalhin sa ilang na lugar ng mga bansa. At doon, haharapin ko kayo at hahatu
 
 
 
-Kung hinatulan ko ang inyong mga ninuno sa ilang ng Egipto, hahatulan ko rin kayo. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Kung hinatulan ko ang inyong mga ninuno sa ilang ng Egipto, hahatulan ko rin kayo. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -1459,7 +1459,7 @@ At doon ninyo maaalala ang mga ginawa ninyong nagparumi sa inyong mga sarili at 
 
 
 
-O mga mamamayan ng Israel, malalaman ninyong ako ang Panginoon kapag pinakitunguhan ko kayo ng mabuti, sa kabila ng marumi at masama ninyong ginawa. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito." ## Ang Mensahe ng Dios Laban sa Timog ng Juda 
+O mga mamamayan ng Israel, malalaman ninyong ako ang Panginoon kapag pinakitunguhan ko kayo ng mabuti, sa kabila ng marumi at masama ninyong ginawa. Ako,_ ang Panginoong Dios, ang nagsasabi nito." ## Ang Mensahe ng Dios Laban sa Timog ng Juda 
 
 
 

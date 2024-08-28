@@ -40,7 +40,7 @@ next: ['Jer 4']
 
 
 
-"Kung ang isang babae ay hiniwalayan ng kanyang asawa at ang babaeng ito ay mag-asawang muli, hindi na siya dapat bawiin ng kanyang unang asawa, dahil magpaparumi ito nang lubos sa <i class="trans-change">inyong_ lupain. Kayong mga taga-Israel ay namumuhay na parang isang babaeng bayaran. Marami kayong minamahal <i class="trans-change">na mga dios-diosan_. Sa kabila ng lahat ng ito, tatawagin ko pa rin kayo na magbalik sa akin. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+"Kung ang isang babae ay hiniwalayan ng kanyang asawa at ang babaeng ito ay mag-asawang muli, hindi na siya dapat bawiin ng kanyang unang asawa, dahil magpaparumi ito nang lubos sa inyong_ lupain. Kayong mga taga-Israel ay namumuhay na parang isang babaeng bayaran. Marami kayong minamahal na mga dios-diosan_. Sa kabila ng lahat ng ito, tatawagin ko pa rin kayo na magbalik sa akin. Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -73,7 +73,7 @@ next: ['Jer 4']
 
 
 
-"Tingnan ninyo ang matataas na lugar <i class="trans-change">kung saan kayo sumasamba sa inyong mga dios-diosan_. May mga lugar pa ba roon na hindi ninyo dinungisan? Pinarumi ninyo ang lupain dahil sa kasamaan ninyo. Para kayong babaeng bayaran na nakaupo sa tabi ng daan at naghihintay ng lalaki. Tulad din kayo ng isang mapagsamantalang tao na naghihintay ng mabibiktima niya sa ilang. 
+"Tingnan ninyo ang matataas na lugar kung saan kayo sumasamba sa inyong mga dios-diosan_. May mga lugar pa ba roon na hindi ninyo dinungisan? Pinarumi ninyo ang lupain dahil sa kasamaan ninyo. Para kayong babaeng bayaran na nakaupo sa tabi ng daan at naghihintay ng lalaki. Tulad din kayo ng isang mapagsamantalang tao na naghihintay ng mabibiktima niya sa ilang. 
 
 
 
@@ -172,7 +172,7 @@ At ngayon sinasabi ninyo sa akin, 'Ama ko, kayo po ay kasama ko mula noong bata 
 
 
 
-Palagi na lang ba kayong galit <i class="trans-change">sa akin_? Hanggang kailan pa po ba kayo magagalit sa akin?' Ito ang sinasabi ninyo, pero ginagawa naman ninyo ang lahat ng masama na magagawa ninyo." ## Ginaya ng Juda ang Israel 
+Palagi na lang ba kayong galit sa akin_? Hanggang kailan pa po ba kayo magagalit sa akin?' Ito ang sinasabi ninyo, pero ginagawa naman ninyo ang lahat ng masama na magagawa ninyo." ## Ginaya ng Juda ang Israel 
 
 
 
@@ -205,7 +205,7 @@ Palagi na lang ba kayong galit <i class="trans-change">sa akin_? Hanggang kailan
 
 
 
-Noong panahon ng paghahari ni Josia, sinabi sa akin ng Panginoon, "Nakita mo ba ang ginawa ng taksil na Israel? Sumamba siya <i class="trans-change">sa mga dios-diosan_ sa bawat matataas na burol at sa ilalim ng bawat malalagong punongkahoy. Para siyang babaeng nangangalunya. 
+Noong panahon ng paghahari ni Josia, sinabi sa akin ng Panginoon, "Nakita mo ba ang ginawa ng taksil na Israel? Sumamba siya sa mga dios-diosan_ sa bawat matataas na burol at sa ilalim ng bawat malalagong punongkahoy. Para siyang babaeng nangangalunya. 
 
 
 
@@ -271,7 +271,7 @@ Akala ko, pagkatapos niyang magawa ang lahat ng ito, babalik na siya sa akin, pe
 
 
 
-Hiniwalayan ko ang Israel at pinalayas dahil sa pangangalunya <i class="trans-change">sa pamamagitan ng pagsamba sa mga dios-diosan_. Pero sa kabila nito, nakita ko ang taksil niyang kapatid na Juda ay hindi man lang natakot. Nangalunya rin siya 
+Hiniwalayan ko ang Israel at pinalayas dahil sa pangangalunya sa pamamagitan ng pagsamba sa mga dios-diosan_. Pero sa kabila nito, nakita ko ang taksil niyang kapatid na Juda ay hindi man lang natakot. Nangalunya rin siya 
 
 
 
@@ -304,7 +304,7 @@ Hiniwalayan ko ang Israel at pinalayas dahil sa pangangalunya <i class="trans-ch
 
 
 
-<i class="trans-change">sa pamamagitan ng pagsamba_ sa mga dios-diosang bato at kahoy, kaya dinungisan niya ang lupain. Hindi siya nababahala sa pagsamba sa mga dios-diosan. 
+sa pamamagitan ng pagsamba_ sa mga dios-diosang bato at kahoy, kaya dinungisan niya ang lupain. Hindi siya nababahala sa pagsamba sa mga dios-diosan. 
 
 
 
@@ -337,7 +337,7 @@ Hiniwalayan ko ang Israel at pinalayas dahil sa pangangalunya <i class="trans-ch
 
 
 
-At ang pinakamasama pa, hindi taos-pusong bumalik sa akin ang taksil na Juda. Pakunwari lang siya na bumalik sa akin. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito." 
+At ang pinakamasama pa, hindi taos-pusong bumalik sa akin ang taksil na Juda. Pakunwari lang siya na bumalik sa akin. Ako,_ ang Panginoon, ang nagsasabi nito." 
 
 
 
@@ -370,7 +370,7 @@ At ang pinakamasama pa, hindi taos-pusong bumalik sa akin ang taksil na Juda. Pa
 
 
 
-Pagkatapos, sinabi sa akin ng Panginoon, "Kahit hindi tapat <i class="trans-change">sa akin_ ang Israel mas mabuti pa rin siya kaysa sa taksil na Juda. 
+Pagkatapos, sinabi sa akin ng Panginoon, "Kahit hindi tapat sa akin_ ang Israel mas mabuti pa rin siya kaysa sa taksil na Juda. 
 
 
 
@@ -403,7 +403,7 @@ Pagkatapos, sinabi sa akin ng Panginoon, "Kahit hindi tapat <i class="trans-chan
 
 
 
-Lumakad ka <i class="trans-change">ngayon_ at sabihin mo ito sa Israel, '<i class="trans-change">Ako,_ ang Panginoon ay nagsasabi: Israel na taksil, manumbalik ka, dahil mahabagin ako. Hindi na ako magagalit sa iyo kailanman. 
+Lumakad ka ngayon_ at sabihin mo ito sa Israel, 'Ako,_ ang Panginoon ay nagsasabi: Israel na taksil, manumbalik ka, dahil mahabagin ako. Hindi na ako magagalit sa iyo kailanman. 
 
 
 
@@ -436,7 +436,7 @@ Lumakad ka <i class="trans-change">ngayon_ at sabihin mo ito sa Israel, '<i clas
 
 
 
-Aminin mo lang ang iyong kasalanan na naghimagsik ka sa akin, ang Panginoon na iyong Dios, at sumunod ka sa ibang mga dios sa pamamagitan ng pagsamba sa kanila sa ilalim ng bawat malalagong punongkahoy. <i class="trans-change">Aminin mo na_ hindi ka sumunod sa akin. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito.' " 
+Aminin mo lang ang iyong kasalanan na naghimagsik ka sa akin, ang Panginoon na iyong Dios, at sumunod ka sa ibang mga dios sa pamamagitan ng pagsamba sa kanila sa ilalim ng bawat malalagong punongkahoy. Aminin mo na_ hindi ka sumunod sa akin. Ako,_ ang Panginoon, ang nagsasabi nito.' " 
 
 
 
@@ -535,7 +535,7 @@ Pagkatapos, bibigyan ko kayo ng pinuno na gusto kong mamumuno sa inyo na may kaa
 
 
 
-<i class="trans-change">Ako,_ ang Panginoon ay nagsasabi na pagdating ng araw na marami na kayo sa lupaing iyon, hindi na ninyo hahanap-hanapin ang Kahon ng Kasunduan, ni iisipin o aalalahanin ito. At hindi na rin ninyo kailangang gumawa pa ng panibago nito. 
+Ako,_ ang Panginoon ay nagsasabi na pagdating ng araw na marami na kayo sa lupaing iyon, hindi na ninyo hahanap-hanapin ang Kahon ng Kasunduan, ni iisipin o aalalahanin ito. At hindi na rin ninyo kailangang gumawa pa ng panibago nito. 
 
 
 
@@ -601,7 +601,7 @@ Sa panahong iyon, tatawagin nʼyo ang Jerusalem na 'Trono ng Panginoon.' At ang 
 
 
 
-Sa panahong iyon, ang mga mamamayan ng Juda at ng Israel ay magkasamang babalik mula <i class="trans-change">sa pagkabihag_ sa hilaga pauwi sa lupaing ibinigay ko sa mga magulang nila bilang mana. 
+Sa panahong iyon, ang mga mamamayan ng Juda at ng Israel ay magkasamang babalik mula sa pagkabihag_ sa hilaga pauwi sa lupaing ibinigay ko sa mga magulang nila bilang mana. 
 
 
 
@@ -667,7 +667,7 @@ Ako mismo ang nagsasabi, 'Natutuwa ako na ituring kayong mga anak ko at bigyan n
 
 
 
-Pero kayong mga mamamayan ng Israel ay nagtaksil sa akin, tulad ng babaeng nagtaksil sa asawa niya. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+Pero kayong mga mamamayan ng Israel ay nagtaksil sa akin, tulad ng babaeng nagtaksil sa asawa niya. Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -700,7 +700,7 @@ Pero kayong mga mamamayan ng Israel ay nagtaksil sa akin, tulad ng babaeng nagta
 
 
 
-"May naririnig na mga ingay sa itaas ng bundok. Nag-iiyakan at nagmamakaawa ang mga mamamayan ng Israel dahil naging masama ang kanilang pamumuhay at kinalimutan nila <i class="trans-change">ako_, ang Panginoon na kanilang Dios. 
+"May naririnig na mga ingay sa itaas ng bundok. Nag-iiyakan at nagmamakaawa ang mga mamamayan ng Israel dahil naging masama ang kanilang pamumuhay at kinalimutan nila ako_, ang Panginoon na kanilang Dios. 
 
 
 
@@ -733,7 +733,7 @@ Pero kayong mga mamamayan ng Israel ay nagtaksil sa akin, tulad ng babaeng nagta
 
 
 
-Kayong mga naliligaw kong anak, manumbalik kayo sa akin at itutuwid ko ang inyong kataksilan. "<i class="trans-change">Sumagot sila,_ 'Opo, lalapit po kami sa inyo dahil kayo ang Panginoon naming Dios. 
+Kayong mga naliligaw kong anak, manumbalik kayo sa akin at itutuwid ko ang inyong kataksilan. "Sumagot sila,_ 'Opo, lalapit po kami sa inyo dahil kayo ang Panginoon naming Dios. 
 
 
 

@@ -73,7 +73,7 @@ Ngayon, mga kapatid, magalak kayo sa Panginoon. Hindi ako magsasawang sabihin it
 
 
 
-Mag-ingat kayo sa mga <i class="trans-change">Judio na_ namimilit na tuliin <i class="trans-change">ang mga hindi Judio_. Mga asal-hayop sila at gumagawa ng masama. 
+Mag-ingat kayo sa mga Judio na_ namimilit na tuliin ang mga hindi Judio_. Mga asal-hayop sila at gumagawa ng masama. 
 
 
 
@@ -106,7 +106,7 @@ Mag-ingat kayo sa mga <i class="trans-change">Judio na_ namimilit na tuliin <i c
 
 
 
-Ngunit tayo ang totoong tuli, dahil sumasamba tayo sa Dios sa tulong ng <i class="trans-change">Banal na_ Espiritu, at ipinagmamalaki ang ginawa ni Cristo Jesus. Hindi tayo nagtitiwala sa mga panlabas na seremonya o panuntunan <i class="trans-change">para maligtas tayo_. 
+Ngunit tayo ang totoong tuli, dahil sumasamba tayo sa Dios sa tulong ng Banal na_ Espiritu, at ipinagmamalaki ang ginawa ni Cristo Jesus. Hindi tayo nagtitiwala sa mga panlabas na seremonya o panuntunan para maligtas tayo_. 
 
 
 
@@ -172,7 +172,7 @@ Kung sabagay, mayroon akong maipagmamalaki kung ang pagsunod sa mga seremonya an
 
 
 
-<i class="trans-change">Sapagkat_ noong walong araw pa lamang ako ay tinuli na ako. Isa akong Israelita na mula sa lahi ni Benjamin. <i class="trans-change">Kaya kung pagiging tunay na Judio ang pag-uusapan,_ talagang tunay <i class="trans-change">akong_ Judio. At kung pagsunod sa Kautusan <i class="trans-change">ng mga Judio naman ang pag-uusapan_, talagang sinusunod ko ito dahil Pariseo ako. 
+Sapagkat_ noong walong araw pa lamang ako ay tinuli na ako. Isa akong Israelita na mula sa lahi ni Benjamin. Kaya kung pagiging tunay na Judio ang pag-uusapan,_ talagang tunay akong_ Judio. At kung pagsunod sa Kautusan ng mga Judio naman ang pag-uusapan_, talagang sinusunod ko ito dahil Pariseo ako. 
 
 
 
@@ -205,7 +205,7 @@ Kung sabagay, mayroon akong maipagmamalaki kung ang pagsunod sa mga seremonya an
 
 
 
-Kung tungkol naman sa sigasig <i class="trans-change">ng pagsunod ko sa relihiyon ng mga Judio_, inusig ko ang iglesya. Walang maipipintas sa akin pagdating sa pagsunod sa Kautusan. 
+Kung tungkol naman sa sigasig ng pagsunod ko sa relihiyon ng mga Judio_, inusig ko ang iglesya. Walang maipipintas sa akin pagdating sa pagsunod sa Kautusan. 
 
 
 
@@ -304,7 +304,7 @@ At hindi lang iyan, para sa akin, ang lahat ng bagay ay walang halaga kung ihaha
 
 
 
-at ako namaʼy maging kanya. Hindi na ako nagtitiwala na akoʼy magiging matuwid sa pamamagitan ng pagsunod sa Kautusan kundi sa pananampalataya kay Cristo. Ang pagiging matuwid ko ay kaloob sa akin ng Dios nang sumampalataya ako <i class="trans-change">kay Cristo_. 
+at ako namaʼy maging kanya. Hindi na ako nagtitiwala na akoʼy magiging matuwid sa pamamagitan ng pagsunod sa Kautusan kundi sa pananampalataya kay Cristo. Ang pagiging matuwid ko ay kaloob sa akin ng Dios nang sumampalataya ako kay Cristo_. 
 
 
 
@@ -471,7 +471,7 @@ Mga kapatid, hindi ko sinasabing naabot ko na ang ganap na buhay. Ngunit ito ang
 
 
 
-<i class="trans-change">Tulad ng isang manlalaro,_ nagpapatuloy ako hanggang makamtan ko ang gantimpala na walang iba kundi ang pagtawag sa akin ng Dios na makapamuhay sa langit sa pamamagitan ni Cristo Jesus. 
+Tulad ng isang manlalaro,_ nagpapatuloy ako hanggang makamtan ko ang gantimpala na walang iba kundi ang pagtawag sa akin ng Dios na makapamuhay sa langit sa pamamagitan ni Cristo Jesus. 
 
 
 

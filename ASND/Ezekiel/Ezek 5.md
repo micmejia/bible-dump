@@ -40,7 +40,7 @@ next: ['Ezek 6']
 
 
 
-<i class="trans-change">Sinabi ng Panginoon sa akin,_ "Anak ng tao, kumuha ka ng matalim na espada at gamitin mong pang-ahit ng iyong buhok at balbas. Pagkatapos, timbangin mo ang buhok moʼt balbas at hatiin ito sa tatlong bahagi. 
+Sinabi ng Panginoon sa akin,_ "Anak ng tao, kumuha ka ng matalim na espada at gamitin mong pang-ahit ng iyong buhok at balbas. Pagkatapos, timbangin mo ang buhok moʼt balbas at hatiin ito sa tatlong bahagi. 
 
 
 
@@ -73,7 +73,7 @@ next: ['Ezek 6']
 
 
 
-Ang unang bahagi ay ilagay mo sa <i class="trans-change">tisa na ginuhitan mo ng_ lungsod <i class="trans-change">ng Jerusalem_. Sunugin mo ito sa gitna ng lungsod matapos mong maipakita ang pagkubkob nito. Ang ikalawang bahagi ay ilagay mo sa palibot ng lungsod at pagputol-putulin sa pamamagitan ng espada mo. At ang natirang bahagi ay isaboy mo sa hangin dahil ikakalat ko ang mga mamamayan ko sa pamamagitan ng espada. 
+Ang unang bahagi ay ilagay mo sa tisa na ginuhitan mo ng_ lungsod ng Jerusalem_. Sunugin mo ito sa gitna ng lungsod matapos mong maipakita ang pagkubkob nito. Ang ikalawang bahagi ay ilagay mo sa palibot ng lungsod at pagputol-putulin sa pamamagitan ng espada mo. At ang natirang bahagi ay isaboy mo sa hangin dahil ikakalat ko ang mga mamamayan ko sa pamamagitan ng espada. 
 
 
 
@@ -172,7 +172,7 @@ Kumuha ka ng iilan at sunugin mo sa apoy. Mula rito, kakalat ang apoy at masusun
 
 
 
-"<i class="trans-change">Ako,_ ang Panginoong Dios, ay nagsasabi na ito ang kahihinatnan ng Jerusalem, ang lungsod na ginawa kong pinakasentro sa buong daigdig. 
+"Ako,_ ang Panginoong Dios, ay nagsasabi na ito ang kahihinatnan ng Jerusalem, ang lungsod na ginawa kong pinakasentro sa buong daigdig. 
 
 
 
@@ -238,7 +238,7 @@ Nilabag niya ang mga utos ko at naging mas masama pa kaysa sa ibang mga bansang 
 
 
 
-<i class="trans-change">Ako,_ ang Panginoong Dios, ay nagsasabi: <i class="trans-change">Kayong mga taga-Jerusalem,_ mas masama pa kayo kaysa sa mga bansang nasa palibot ninyo. Hindi ninyo sinunod ang mga utos at mga tuntunin ko, o sinunod man ang mga tuntunin ng mga bansang nasa palibot ninyo. 
+Ako,_ ang Panginoong Dios, ay nagsasabi: Kayong mga taga-Jerusalem,_ mas masama pa kayo kaysa sa mga bansang nasa palibot ninyo. Hindi ninyo sinunod ang mga utos at mga tuntunin ko, o sinunod man ang mga tuntunin ng mga bansang nasa palibot ninyo. 
 
 
 
@@ -271,7 +271,7 @@ Nilabag niya ang mga utos ko at naging mas masama pa kaysa sa ibang mga bansang 
 
 
 
-Kaya <i class="trans-change">ako,_ ang Panginoong Dios, ay laban sa inyo. Parurusahan ko kayo sa harap ng mga bansa. 
+Kaya ako,_ ang Panginoong Dios, ay laban sa inyo. Parurusahan ko kayo sa harap ng mga bansa. 
 
 
 

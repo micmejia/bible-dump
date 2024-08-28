@@ -7,7 +7,7 @@ next: ['Zech 9']
 # Zechariah 8
 
 ***
-###### 1-2 Sinabing <i class="trans-change">muli_ ng Panginoong Makapangyarihan kay Zacarias, "Labis ang aking pagmamalasakit sa Zion. At dahil sa labis kong pagmamalasakit, matindi ang galit ko <i class="trans-change">sa mga kaaway nito_. 
+###### 1-2 Sinabing muli_ ng Panginoong Makapangyarihan kay Zacarias, "Labis ang aking pagmamalasakit sa Zion. At dahil sa labis kong pagmamalasakit, matindi ang galit ko sa mga kaaway nito_. 
 
 
 
@@ -40,7 +40,7 @@ next: ['Zech 9']
 
 
 
-Babalik ako sa Zion, ang <i class="trans-change">lungsod ng_ Jerusalem, at maninirahan doon. Ang Jerusalem ay tatawaging Tapat na Lungsod at ang aking bundok ay tatawaging Banal na Bundok. 
+Babalik ako sa Zion, ang lungsod ng_ Jerusalem, at maninirahan doon. Ang Jerusalem ay tatawaging Tapat na Lungsod at ang aking bundok ay tatawaging Banal na Bundok. 
 
 
 
@@ -205,7 +205,7 @@ Ililigtas ko ang aking mga mamamayang binihag at dinala sa mga lupain sa silanga
 
 
 
-Dadalhin ko sila pabalik sa Jerusalem at patitirahin doon. <i class="trans-change">At minsan pang_ magiging mga mamamayan ko sila at ako ang kanilang magiging tapat at makatarungang Dios." 
+Dadalhin ko sila pabalik sa Jerusalem at patitirahin doon. At minsan pang_ magiging mga mamamayan ko sila at ako ang kanilang magiging tapat at makatarungang Dios." 
 
 
 
@@ -238,7 +238,7 @@ Dadalhin ko sila pabalik sa Jerusalem at patitirahin doon. <i class="trans-chang
 
 
 
-Sinabi pa ng Makapangyarihang Panginoon, "Ang mga mensaheng ito ay sinabi rin ng mga propeta noong itinayong <i class="trans-change">muli_ ang pundasyon ng aking templo. At ngayong napakinggan ninyo itong muli, magpakatatag kayo upang matapos ninyo ang pagpapatayo ng templo. 
+Sinabi pa ng Makapangyarihang Panginoon, "Ang mga mensaheng ito ay sinabi rin ng mga propeta noong itinayong muli_ ang pundasyon ng aking templo. At ngayong napakinggan ninyo itong muli, magpakatatag kayo upang matapos ninyo ang pagpapatayo ng templo. 
 
 
 
@@ -304,7 +304,7 @@ Noong hindi pa sinisimulan ang muling pagpapatayo ng templo, walang pambayad sa 
 
 
 
-Ngunit ngayon, <i class="trans-change">ako,_ ang Panginoong Makapangyarihan, ay nagsasabi na hindi ko na gagawin iyan sa inyong mga natitira. 
+Ngunit ngayon, ako,_ ang Panginoong Makapangyarihan, ay nagsasabi na hindi ko na gagawin iyan sa inyong mga natitira. 
 
 
 
@@ -370,7 +370,7 @@ Mapayapa kayong magtatanim. Magbubunga ang inyong mga tanim na ubas, aani ang in
 
 
 
-Mga taga-Juda at taga-Israel, isinusumpa kayo ng ibang mga bansa. Ngunit ililigtas ko kayo at magiging pagpapala kayo <i class="trans-change">sa kanila_. Kaya huwag kayong matakot, sa halip magpakatatag kayo." 
+Mga taga-Juda at taga-Israel, isinusumpa kayo ng ibang mga bansa. Ngunit ililigtas ko kayo at magiging pagpapala kayo sa kanila_. Kaya huwag kayong matakot, sa halip magpakatatag kayo." 
 
 
 
@@ -502,7 +502,7 @@ Ito ang dapat ninyong gawin: Magsabi kayo ng totoo sa isaʼt isa. Humatol kayo n
 
 
 
-Huwag kayong magbalak ng masama laban sa inyong kapwa, at huwag kayong susumpa ng kasinungalingan dahil ang lahat ng iyan ay aking kinapopootan." <sup class="versenum">18-19</sup><i class="trans-change">Muling_ sinabi ng Panginoong Makapangyarihan kay Zacarias, "Ang pag-aayuno sa ikaapat, ikalima, ikapito at ikasampung buwan ay magiging masayang araw ng pagdiriwang para sa mga taga-Juda. Kaya pahalagahan ninyo ang katotohanan at kapayapaan. 
+Huwag kayong magbalak ng masama laban sa inyong kapwa, at huwag kayong susumpa ng kasinungalingan dahil ang lahat ng iyan ay aking kinapopootan." 18-19Muling_ sinabi ng Panginoong Makapangyarihan kay Zacarias, "Ang pag-aayuno sa ikaapat, ikalima, ikapito at ikasampung buwan ay magiging masayang araw ng pagdiriwang para sa mga taga-Juda. Kaya pahalagahan ninyo ang katotohanan at kapayapaan. 
 
 
 
@@ -535,7 +535,7 @@ Huwag kayong magbalak ng masama laban sa inyong kapwa, at huwag kayong susumpa n
 
 
 
-Maraming tao ang darating <i class="trans-change">sa Jerusalem_ mula sa ibaʼt ibang lungsod. 
+Maraming tao ang darating sa Jerusalem_ mula sa ibaʼt ibang lungsod. 
 
 
 

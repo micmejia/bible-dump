@@ -106,7 +106,7 @@ Kaya naghanda sila roon ng hapunan para kay Jesus. Si Lazarus ay isa sa kasalo n
 
 
 
-Kumuha si Maria ng kalahating litro ng purong <i class="trans-change">pabango na gawa sa halamang_ nardo na mamahaling pabango. Ibinuhos niya ito sa paa ni Jesus at pinunasan ng kanyang buhok. At humalimuyak ang pabango sa buong bahay. 
+Kumuha si Maria ng kalahating litro ng purong pabango na gawa sa halamang_ nardo na mamahaling pabango. Ibinuhos niya ito sa paa ni Jesus at pinunasan ng kanyang buhok. At humalimuyak ang pabango sa buong bahay. 
 
 
 
@@ -669,7 +669,7 @@ Dahil dito, nag-usap-usap ang mga Pariseo, "Tingnan ninyo, sumusunod na sa kanya
 
 
 
-May mga Griego ring pumunta <i class="trans-change">sa Jerusalem_ upang sumamba <i class="trans-change">sa Dios_ sa kapistahan. 
+May mga Griego ring pumunta sa Jerusalem_ upang sumamba sa Dios_ sa kapistahan. 
 
 
 
@@ -702,7 +702,7 @@ May mga Griego ring pumunta <i class="trans-change">sa Jerusalem_ upang sumamba 
 
 
 
-Lumapit sila kay Felipe na taga-Betsaida <i class="trans-change">sa probinsya_ ng Galilea. Sinabi nila sa kanya, "Gusto po sana naming makita si Jesus." 
+Lumapit sila kay Felipe na taga-Betsaida sa probinsya_ ng Galilea. Sinabi nila sa kanya, "Gusto po sana naming makita si Jesus." 
 
 
 
@@ -768,7 +768,7 @@ Pinuntahan ni Felipe si Andres at sinabi sa kanya ang kahilingan ng mga Griego. 
 
 
 
-Sinabi ni Jesus sa kanila, "Dumating na ang oras upang dakilain <i class="trans-change">ako na_ Anak ng Tao. 
+Sinabi ni Jesus sa kanila, "Dumating na ang oras upang dakilain ako na_ Anak ng Tao. 
 
 
 
@@ -801,7 +801,7 @@ Sinabi ni Jesus sa kanila, "Dumating na ang oras upang dakilain <i class="trans-
 
 
 
-Sinasabi ko sa inyo ang totoo, malibang mamatay ang isang butil ng trigong itinanim sa lupa, mananatili itong nag-iisa. Ngunit kung mamatay, <i class="trans-change">tutubo ito at_ mamumunga nang marami. 
+Sinasabi ko sa inyo ang totoo, malibang mamatay ang isang butil ng trigong itinanim sa lupa, mananatili itong nag-iisa. Ngunit kung mamatay, tutubo ito at_ mamumunga nang marami. 
 
 
 
@@ -834,7 +834,7 @@ Sinasabi ko sa inyo ang totoo, malibang mamatay ang isang butil ng trigong itina
 
 
 
-Ang taong labis na nagpapahalaga sa kanyang buhay ay mawawalan nito, ngunit ang hindi nanghihinayang sa buhay niya sa mundong ito <i class="trans-change">alang-alang sa akin_ ay magkakaroon ng buhay na walang hanggan. 
+Ang taong labis na nagpapahalaga sa kanyang buhay ay mawawalan nito, ngunit ang hindi nanghihinayang sa buhay niya sa mundong ito alang-alang sa akin_ ay magkakaroon ng buhay na walang hanggan. 
 
 
 
@@ -900,7 +900,7 @@ Ang sinumang gustong maglingkod sa akin ay dapat sumunod sa akin, at kung nasaan
 
 
 
-<i class="trans-change">Sinabi pa ni Jesus,_ "Nababagabag ako ngayon. Sasabihin ko ba sa Ama na iligtas niya ako sa nalalapit na paghihirap? Hindi, dahil ito ang dahilan ng pagpunta ko rito." 
+Sinabi pa ni Jesus,_ "Nababagabag ako ngayon. Sasabihin ko ba sa Ama na iligtas niya ako sa nalalapit na paghihirap? Hindi, dahil ito ang dahilan ng pagpunta ko rito." 
 
 
 
@@ -933,7 +933,7 @@ Ang sinumang gustong maglingkod sa akin ay dapat sumunod sa akin, at kung nasaan
 
 
 
-<i class="trans-change">Pagkatapos, sinabi ni Jesus sa Ama,_ "Ama, ipakita nʼyo ang inyong kadakilaan." Isang tinig mula sa langit ang sumagot, "Ipinakita ko na <i class="trans-change">sa pamamagitan mo_, at muli ko itong ipapakita." 
+Pagkatapos, sinabi ni Jesus sa Ama,_ "Ama, ipakita nʼyo ang inyong kadakilaan." Isang tinig mula sa langit ang sumagot, "Ipinakita ko na sa pamamagitan mo_, at muli ko itong ipapakita." 
 
 
 
@@ -1032,7 +1032,7 @@ Sinabi ni Jesus sa kanila, "Ang tinig na iyon ay ipinarinig hindi para sa akin k
 
 
 
-Dumating na ang paghatol <i class="trans-change">sa mga tao_ sa mundo. Malulupig na <i class="trans-change">si Satanas na_ siyang naghahari sa mundong ito. 
+Dumating na ang paghatol sa mga tao_ sa mundo. Malulupig na si Satanas na_ siyang naghahari sa mundong ito. 
 
 
 
@@ -1197,7 +1197,7 @@ Sumagot si Jesus, "Maikling panahon na lang ninyong makakasama ang ilaw. Kaya ma
 
 
 
-Kaya sumampalataya kayo sa <i class="trans-change">akin na siyang_ ilaw <i class="trans-change">ninyo_ habang narito pa <i class="trans-change">ako_, para maliwanagan ang isipan ninyo." Pagkasabi ni Jesus nito, umalis siya at nagtago sa kanila.
+Kaya sumampalataya kayo sa akin na siyang_ ilaw ninyo_ habang narito pa ako_, para maliwanagan ang isipan ninyo." Pagkasabi ni Jesus nito, umalis siya at nagtago sa kanila.
 
 ## Ayaw Manampalataya ng mga Judio kay Jesus 
 
@@ -1397,7 +1397,7 @@ Sinabi ito ni Isaias dahil nakita niya ang kadakilaan ni Jesus, at nagsalita siy
 
 
 
-Ganoon pa man, maraming pinuno <i class="trans-change">ng mga Judio_ ang sumampalataya kay Jesus. Pero inilihim nila ang kanilang pananampalataya dahil takot silang hindi na tanggapin ng mga Pariseo sa mga sambahan. 
+Ganoon pa man, maraming pinuno ng mga Judio_ ang sumampalataya kay Jesus. Pero inilihim nila ang kanilang pananampalataya dahil takot silang hindi na tanggapin ng mga Pariseo sa mga sambahan. 
 
 
 
@@ -1564,7 +1564,7 @@ Naparito ako bilang ilaw ng mundo, upang ang sinumang sumampalataya sa akin ay h
 
 
 
-Ang sinumang nakarinig ng aking mga aral pero hindi sumunod ay <i class="trans-change">hahatulan, ngunit_ hindi ako ang hahatol sa kanya. Sapagkat hindi ako naparito sa mundo para hatulan ang mga tao kundi iligtas sila. 
+Ang sinumang nakarinig ng aking mga aral pero hindi sumunod ay hahatulan, ngunit_ hindi ako ang hahatol sa kanya. Sapagkat hindi ako naparito sa mundo para hatulan ang mga tao kundi iligtas sila. 
 
 
 

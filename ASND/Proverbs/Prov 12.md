@@ -403,7 +403,7 @@ Ang magsasakang masipag ay laging sagana sa pagkain, ngunit ang walang sapat na 
 
 
 
-Ang taong masama ay laging kasamaan ang ginagawa, <i class="trans-change">kaya hindi matatag ang kanyang kalagayan_; ngunit ang taong matuwid ay matatag gaya ng punongkahoy na malalim ang ugat. 
+Ang taong masama ay laging kasamaan ang ginagawa, kaya hindi matatag ang kanyang kalagayan_; ngunit ang taong matuwid ay matatag gaya ng punongkahoy na malalim ang ugat. 
 
 
 
@@ -535,7 +535,7 @@ Ang akala ng hangal ay palagi siyang tama, ngunit ang taong marunong ay nakikini
 
 
 
-Ang hangal ay madaling magalit <i class="trans-change">kapag iniinsulto_, ngunit ang taong may karunungan ay hindi pinapansin ang pang-iinsulto sa kanya. 
+Ang hangal ay madaling magalit kapag iniinsulto_, ngunit ang taong may karunungan ay hindi pinapansin ang pang-iinsulto sa kanya. 
 
 
 
@@ -667,7 +667,7 @@ Ang katotohanan ay mananatili kailanman, ngunit hindi magtatagal ang kasinungali
 
 
 
-Pandaraya ang nasa puso ng mga taong nagbabalak ng masama, ngunit kagalakan ang nasa <i class="trans-change">puso ng mga_ taong nagbabalak ng mabuti. 
+Pandaraya ang nasa puso ng mga taong nagbabalak ng masama, ngunit kagalakan ang nasa puso ng mga_ taong nagbabalak ng mabuti. 
 
 
 

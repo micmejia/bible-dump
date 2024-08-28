@@ -106,7 +106,7 @@ Bumalik ako dahil nangusap sa akin ang Dios na dapat akong pumunta roon. Nakipag
 
 
 
-<i class="trans-change">Nalaman kong sang-ayon sila sa ipinangangaral ko_ dahil hindi nila pinilit na magpatuli ang kasama kong si Tito kahit na hindi siya Judio. 
+Nalaman kong sang-ayon sila sa ipinangangaral ko_ dahil hindi nila pinilit na magpatuli ang kasama kong si Tito kahit na hindi siya Judio. 
 
 
 
@@ -139,7 +139,7 @@ Bumalik ako dahil nangusap sa akin ang Dios na dapat akong pumunta roon. Nakipag
 
 
 
-<i class="trans-change">Lumabas ang usapin tungkol sa pagtutuli_ dahil sa ilang mga nagpapanggap na mga kapatid na nakisalamuha sa atin para sirain ang kalayaang natamo natin kay Cristo Jesus, at gawin ulit tayong alipin <i class="trans-change">ng Kautusan ni Moises_. 
+Lumabas ang usapin tungkol sa pagtutuli_ dahil sa ilang mga nagpapanggap na mga kapatid na nakisalamuha sa atin para sirain ang kalayaang natamo natin kay Cristo Jesus, at gawin ulit tayong alipin ng Kautusan ni Moises_. 
 
 
 
@@ -205,7 +205,7 @@ Ngunit kahit minsan, hindi kami sumang-ayon sa gusto nila, upang maingatan namin
 
 
 
-Ang mga namumuno sa mga mananampalataya <i class="trans-change">sa Jerusalem_ ay wala namang idinagdag sa mga itinuturo ko. (Kung sabagay hindi mahalaga sa akin kung sinuman sila, dahil walang itinatangi ang Dios.) 
+Ang mga namumuno sa mga mananampalataya sa Jerusalem_ ay wala namang idinagdag sa mga itinuturo ko. (Kung sabagay hindi mahalaga sa akin kung sinuman sila, dahil walang itinatangi ang Dios.) 
 
 
 
@@ -238,7 +238,7 @@ Ang mga namumuno sa mga mananampalataya <i class="trans-change">sa Jerusalem_ ay
 
 
 
-Sa halip <i class="trans-change">na dagdagan nila ang mga itinuturo ko_, kinilala nilang pinagkatiwalaan ako ng Dios sa pagpapahayag ng Magandang Balita sa mga hindi Judio, tulad ni Pedro na pinagkatiwalaan sa pagpapahayag ng Magandang Balita sa mga Judio. 
+Sa halip na dagdagan nila ang mga itinuturo ko_, kinilala nilang pinagkatiwalaan ako ng Dios sa pagpapahayag ng Magandang Balita sa mga hindi Judio, tulad ni Pedro na pinagkatiwalaan sa pagpapahayag ng Magandang Balita sa mga Judio. 
 
 
 
@@ -271,7 +271,7 @@ Sa halip <i class="trans-change">na dagdagan nila ang mga itinuturo ko_, kinilal
 
 
 
-Sapagkat ang Dios na kumikilos sa gawain ni Pedro bilang apostol sa mga Judio ang siya ring kumikilos sa gawain ko <i class="trans-change">bilang apostol_ sa mga hindi Judio. 
+Sapagkat ang Dios na kumikilos sa gawain ni Pedro bilang apostol sa mga Judio ang siya ring kumikilos sa gawain ko bilang apostol_ sa mga hindi Judio. 
 
 
 
@@ -304,7 +304,7 @@ Sapagkat ang Dios na kumikilos sa gawain ni Pedro bilang apostol sa mga Judio an
 
 
 
-Kaya nang malaman ng mga kinikilalang pinuno ng iglesya, na sina Santiago, Pedro at Juan, na ipinagkaloob sa akin ng Dios ang gawaing ito, tinanggap nila kami ni Bernabe bilang mga kamanggagawa <i class="trans-change">sa pangangaral ng Magandang Balita_. Napagkasunduan namin na kami <i class="trans-change">ang mangangaral_ sa mga hindi Judio, at sila naman <i class="trans-change">ang mangangaral_ sa mga Judio. 
+Kaya nang malaman ng mga kinikilalang pinuno ng iglesya, na sina Santiago, Pedro at Juan, na ipinagkaloob sa akin ng Dios ang gawaing ito, tinanggap nila kami ni Bernabe bilang mga kamanggagawa sa pangangaral ng Magandang Balita_. Napagkasunduan namin na kami ang mangangaral_ sa mga hindi Judio, at sila naman ang mangangaral_ sa mga Judio. 
 
 
 
@@ -405,7 +405,7 @@ Noong dumating si Pedro sa Antioc, pinagsabihan ko siya nang harapan dahil mali 
 
 
 
-Sapagkat bago dumating ang ilang tao mula kay Santiago, kumakain si Pedro kasama ng mga hindi Judio. Pero nang dumating ang mga iyon, nagsimula na siyang umiwas at ayaw nang kumaing kasama ng mga hindi Judio. Natakot siya sa maaaring sabihin ng mga Judiong nagpupumilit na magpatuli ang mga hindi Judio <i class="trans-change">para maligtas_. 
+Sapagkat bago dumating ang ilang tao mula kay Santiago, kumakain si Pedro kasama ng mga hindi Judio. Pero nang dumating ang mga iyon, nagsimula na siyang umiwas at ayaw nang kumaing kasama ng mga hindi Judio. Natakot siya sa maaaring sabihin ng mga Judiong nagpupumilit na magpatuli ang mga hindi Judio para maligtas_. 
 
 
 
@@ -438,7 +438,7 @@ Sapagkat bago dumating ang ilang tao mula kay Santiago, kumakain si Pedro kasama
 
 
 
-Pati tuloy ang ibang mga <i class="trans-change">kapatid na_ Judio ay nakigaya sa pagkukunwari niya, at maging si Bernabe ay napagaya na rin. 
+Pati tuloy ang ibang mga kapatid na_ Judio ay nakigaya sa pagkukunwari niya, at maging si Bernabe ay napagaya na rin. 
 
 
 
@@ -504,7 +504,7 @@ Nang makita kong hindi na ayon sa katotohanan ng Magandang Balita ang ginagawa n
 
 
 
-Kaming mga ipinanganak na Judio ay iba sa mga hindi Judio na itinuturing <i class="trans-change">ng mga kapwa naming Judio_ na makasalanan. 
+Kaming mga ipinanganak na Judio ay iba sa mga hindi Judio na itinuturing ng mga kapwa naming Judio_ na makasalanan. 
 
 
 
@@ -537,7 +537,7 @@ Kaming mga ipinanganak na Judio ay iba sa mga hindi Judio na itinuturing <i clas
 
 
 
-Ngunit alam namin na ang tao ay itinuturing na matuwid <i class="trans-change">ng Dios_ sa pamamagitan ng pananampalataya kay Jesu-Cristo at hindi sa pagsunod sa Kautusan. Kaya nga kaming mga Judio ay sumampalataya rin kay Cristo Jesus para maituring na matuwid sa pamamagitan ng pananampalataya, at hindi dahil sa pagsunod sa Kautusan. Sapagkat walang sinumang maituturing na matuwid sa pamamagitan ng pagsunod sa Kautusan. 
+Ngunit alam namin na ang tao ay itinuturing na matuwid ng Dios_ sa pamamagitan ng pananampalataya kay Jesu-Cristo at hindi sa pagsunod sa Kautusan. Kaya nga kaming mga Judio ay sumampalataya rin kay Cristo Jesus para maituring na matuwid sa pamamagitan ng pananampalataya, at hindi dahil sa pagsunod sa Kautusan. Sapagkat walang sinumang maituturing na matuwid sa pamamagitan ng pagsunod sa Kautusan. 
 
 
 
@@ -603,7 +603,7 @@ Ngayon, kung lumalabas na makasalanan pa rin kami sa kagustuhan naming maituring
 
 
 
-Ngunit kung babalikan ko naman ang <i class="trans-change">pagsunod sa Kautusang_ iniwan ko na, ako na rin ang nagpapatunay na makasalanan ako. 
+Ngunit kung babalikan ko naman ang pagsunod sa Kautusang_ iniwan ko na, ako na rin ang nagpapatunay na makasalanan ako. 
 
 
 

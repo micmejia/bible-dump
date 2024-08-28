@@ -39,7 +39,7 @@ up: ['Ezra']
 
 
 
-Habang nakaluhod si Ezra na nananalangin sa harapan ng templo ng Dios, umiiyak siya at nagpapahayag <i class="trans-change">ng mga kasalanan ng mga mamamayan ng Israel_. Maraming Israelitang lalaki, babae, at mga kabataan ang nakapaligid sa kanya na umiiyak din nang malakas. 
+Habang nakaluhod si Ezra na nananalangin sa harapan ng templo ng Dios, umiiyak siya at nagpapahayag ng mga kasalanan ng mga mamamayan ng Israel_. Maraming Israelitang lalaki, babae, at mga kabataan ang nakapaligid sa kanya na umiiyak din nang malakas. 
 
 
 
@@ -72,7 +72,7 @@ Habang nakaluhod si Ezra na nananalangin sa harapan ng templo ng Dios, umiiyak s
 
 
 
-Pagkatapos, sinabi sa kanya ni Shecania na anak ni Jehiel, na angkan ni Elam, "Hindi kami naging tapat sa Dios natin dahil nagsipag-asawa kami ng mga dayuhang babae na galing sa mga sambayanang nasa paligid natin. Pero sa kabila nito, may pag-asa pa rin ang <i class="trans-change">mga mamamayan ng_ Israel. 
+Pagkatapos, sinabi sa kanya ni Shecania na anak ni Jehiel, na angkan ni Elam, "Hindi kami naging tapat sa Dios natin dahil nagsipag-asawa kami ng mga dayuhang babae na galing sa mga sambayanang nasa paligid natin. Pero sa kabila nito, may pag-asa pa rin ang mga mamamayan ng_ Israel. 
 
 
 
@@ -437,9 +437,9 @@ Ang mga opisyal na lang natin ang magpaiwan dito at mag-asikaso nito para sa buo
 
 
 
-Walang sumuway sa planong ito maliban kina Jonatan na anak ni Asahel at Jazea na anak ni Tikva. Sinuportahan din sila nina Meshulam at Shabetai na Levita. <sup class="versenum">16-17</sup>Tinupad ng mga bumalik sa pagkabihag ang planong iyon. Kaya pumili si Ezra na pari ng mga lalaking pinuno ng mga pamilya, at inilista ang pangalan nila. At nang unang araw ng ikasampung buwan, naupo sila at sinimulan nila ang pagsisiyasat tungkol sa pag-aasawa ng mga Israelita ng mga dayuhang babae. Natapos nila ang pagsisiyasat ng lahat ng kaso nang unang araw ng unang buwan, <i class="trans-change">ng sumunod na taon._
+Walang sumuway sa planong ito maliban kina Jonatan na anak ni Asahel at Jazea na anak ni Tikva. Sinuportahan din sila nina Meshulam at Shabetai na Levita. 16-17Tinupad ng mga bumalik sa pagkabihag ang planong iyon. Kaya pumili si Ezra na pari ng mga lalaking pinuno ng mga pamilya, at inilista ang pangalan nila. At nang unang araw ng ikasampung buwan, naupo sila at sinimulan nila ang pagsisiyasat tungkol sa pag-aasawa ng mga Israelita ng mga dayuhang babae. Natapos nila ang pagsisiyasat ng lahat ng kaso nang unang araw ng unang buwan, ng sumunod na taon._
 
-## Ang mga Lalaki na Nagsipag-asawa ng mga Dayuhan <sup class="versenum">18-19</sup>Ito ang mga lalaking nagsipag-asawa ng mga dayuhan, at nangakong hihiwalayan nila ang mga asawa nila: (Naghandog sila ng mga lalaking tupa bilang pambayad sa mga kasalanan nila.) Sa mga pari: sina Maaseya, Eliezer, Jarib, at Gedalia, na galing sa pamilya ni Jeshua na anak ni Jozadak at ang mga kapatid niya; 
+## Ang mga Lalaki na Nagsipag-asawa ng mga Dayuhan 18-19Ito ang mga lalaking nagsipag-asawa ng mga dayuhan, at nangakong hihiwalayan nila ang mga asawa nila: (Naghandog sila ng mga lalaking tupa bilang pambayad sa mga kasalanan nila.) Sa mga pari: sina Maaseya, Eliezer, Jarib, at Gedalia, na galing sa pamilya ni Jeshua na anak ni Jozadak at ang mga kapatid niya; 
 
 
 
@@ -802,7 +802,7 @@ sina Meshulam, Maluc, Adaya, Jashub, Sheal, at Jeremot, na galing sa pamilya ni 
 
 
 
-sina Adna, Kelal, Benaya, Maaseya, Matania, Bezalel, Binui, at Manase, na galing sa pamilya ni Pahat Moab; <sup class="versenum">31-32</sup>sina Eliezer, Ishya, Malkia, Shemaya, Simeon, Benjamin, Maluc at Shemaria, na galing sa pamilya ni Harim; 
+sina Adna, Kelal, Benaya, Maaseya, Matania, Bezalel, Binui, at Manase, na galing sa pamilya ni Pahat Moab; 31-32sina Eliezer, Ishya, Malkia, Shemaya, Simeon, Benjamin, Maluc at Shemaria, na galing sa pamilya ni Harim; 
 
 
 
@@ -835,7 +835,7 @@ sina Adna, Kelal, Benaya, Maaseya, Matania, Bezalel, Binui, at Manase, na galing
 
 
 
-sina Matenai, Matata, Zabad, Elifelet, Jeremai, Manase at Shimei, na galing sa pamilya ni Hashum; <sup class="versenum">34-37</sup>sina Maadai, Amram, Uel, Benaya, Bedia, Keluhi, Vania, Meremot, Eliashib, Matania, Matenai at Jaasu, na galing sa pamilya ni Bani; <sup class="versenum">38-42</sup>sina Shimei, Shelemia, Natan, Adaya, Macnadebai, Shasai, Sharai, Azarel, Shelemia, Shemaria, Shalum, Amaria at Jose, na galing sa pamilya ni Binui; 
+sina Matenai, Matata, Zabad, Elifelet, Jeremai, Manase at Shimei, na galing sa pamilya ni Hashum; 34-37sina Maadai, Amram, Uel, Benaya, Bedia, Keluhi, Vania, Meremot, Eliashib, Matania, Matenai at Jaasu, na galing sa pamilya ni Bani; 38-42sina Shimei, Shelemia, Natan, Adaya, Macnadebai, Shasai, Sharai, Azarel, Shelemia, Shemaria, Shalum, Amaria at Jose, na galing sa pamilya ni Binui; 
 
 
 

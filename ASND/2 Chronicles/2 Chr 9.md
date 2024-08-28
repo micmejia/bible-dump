@@ -40,7 +40,7 @@ next: ['2 Chr 10']
 
 
 
-Nang mabalitaan ng reyna ng Sheba ang katanyagan ni Solomon, pumunta siya sa Jerusalem para subukin ang karunungan ni Solomon sa pamamagitan ng mahihirap na katanungan. Dumating siya sa kasama ang marami niyang tauhan, at may dala siyang mga kamelyo na kargado ng mga <i class="trans-change">regalo na_ mga pampalasa, napakaraming ginto at mamahaling mga bato. Nang makita niya si Solomon, itinanong niya rito ang lahat ng nasa kanyang isipan. 
+Nang mabalitaan ng reyna ng Sheba ang katanyagan ni Solomon, pumunta siya sa Jerusalem para subukin ang karunungan ni Solomon sa pamamagitan ng mahihirap na katanungan. Dumating siya sa kasama ang marami niyang tauhan, at may dala siyang mga kamelyo na kargado ng mga regalo na_ mga pampalasa, napakaraming ginto at mamahaling mga bato. Nang makita niya si Solomon, itinanong niya rito ang lahat ng nasa kanyang isipan. 
 
 
 
@@ -867,7 +867,7 @@ May 4,000 kwadra si Solomon para sa kanyang mga kabayo at mga karwahe. Siyaʼy m
 
 
 
-Sinakop niya ang lahat ng hari mula sa Ilog <i class="trans-change">ng Eufrates_ hanggang sa lupain ng mga Filisteo at sa hangganan ng Egipto. 
+Sinakop niya ang lahat ng hari mula sa Ilog ng Eufrates_ hanggang sa lupain ng mga Filisteo at sa hangganan ng Egipto. 
 
 
 
@@ -900,7 +900,7 @@ Sinakop niya ang lahat ng hari mula sa Ilog <i class="trans-change">ng Eufrates_
 
 
 
-Noong panahon na siya ang hari, ang pilak sa Jerusalem ay gaya lang ng ordinaryong mga bato, at ang kahoy na sedro ay <i class="trans-change">kasindami_ ng mga ordinaryong kahoy na sikomoro sa mga kaburulan sa kanluran. 
+Noong panahon na siya ang hari, ang pilak sa Jerusalem ay gaya lang ng ordinaryong mga bato, at ang kahoy na sedro ay kasindami_ ng mga ordinaryong kahoy na sikomoro sa mga kaburulan sa kanluran. 
 
 
 

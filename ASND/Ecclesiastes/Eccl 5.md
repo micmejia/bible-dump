@@ -139,7 +139,7 @@ Kung papaanong madaling managinip kapag maraming alalahanin, madali ring makapag
 
 
 
-Kapag nangako ka sa Dios, tuparin mo agad ito. Tuparin mo ang ipinangako mo sa kanya dahil hindi siya natutuwa sa mga hangal <i class="trans-change">na hindi tumutupad sa mga pangako_. 
+Kapag nangako ka sa Dios, tuparin mo agad ito. Tuparin mo ang ipinangako mo sa kanya dahil hindi siya natutuwa sa mga hangal na hindi tumutupad sa mga pangako_. 
 
 
 
@@ -273,7 +273,7 @@ Ang sobrang pananaginip at pagsasalita ay walang kabuluhan. Sa halip, matakot ka
 
 
 
-Huwag kang magtaka kung makita mo sa inyong lugar na ang mga mahihirap ay inaapi at pinagkakaitan ng katarungan at karapatan. Dahil ang mga pinunong <i class="trans-change">gumigipit sa kanila_ ay inaalagaan ng mas nakatataas na pinuno, at ang dalawang ito ay inaalagaan ng mas mataas pang pinuno. 
+Huwag kang magtaka kung makita mo sa inyong lugar na ang mga mahihirap ay inaapi at pinagkakaitan ng katarungan at karapatan. Dahil ang mga pinunong gumigipit sa kanila_ ay inaalagaan ng mas nakatataas na pinuno, at ang dalawang ito ay inaalagaan ng mas mataas pang pinuno. 
 
 
 
@@ -306,7 +306,7 @@ Huwag kang magtaka kung makita mo sa inyong lugar na ang mga mahihirap ay inaapi
 
 
 
-Pero mas lamang pa rin ang nakukuha ng hari sa kita ng lupain <i class="trans-change">ng mahihirap_, kaysa sa lahat <i class="trans-change">ng mga pinuno_. 
+Pero mas lamang pa rin ang nakukuha ng hari sa kita ng lupain ng mahihirap_, kaysa sa lahat ng mga pinuno_. 
 
 
 
@@ -537,7 +537,7 @@ Kung paanong hubad tayong ipinanganak mula sa sinapupunan ng ating ina, hubad di
 
 
 
-Napakalungkot isipin! Ipinanganak tayong walang dala, mamamatay tayong walang dala. Kaya ano pa ang saysay ng mga pagpapakahirap natin? <i class="trans-change">Para lang tayong_ humahabol sa hangin <i class="trans-change">na walang napapala_. 
+Napakalungkot isipin! Ipinanganak tayong walang dala, mamamatay tayong walang dala. Kaya ano pa ang saysay ng mga pagpapakahirap natin? Para lang tayong_ humahabol sa hangin na walang napapala_. 
 
 
 

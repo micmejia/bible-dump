@@ -369,7 +369,7 @@ Kung babawiin ng may-ari ang kanyang bahay, kinakailangang bayaran niya ang hala
 
 
 
-Kung ang inihandog naman sa Panginoon ay bahagi ng lupaing minana sa kanyang mga magulang, itoʼy bibigyan ng halaga <i class="trans-change">ng pari_ ayon sa dami ng binhing maaaring ihasik sa lupaing iyon: Sa bawat kalahating sako ng binhing maihahasik, ang halaga ng lupa ay 20 pirasong pilak. 
+Kung ang inihandog naman sa Panginoon ay bahagi ng lupaing minana sa kanyang mga magulang, itoʼy bibigyan ng halaga ng pari_ ayon sa dami ng binhing maaaring ihasik sa lupaing iyon: Sa bawat kalahating sako ng binhing maihahasik, ang halaga ng lupa ay 20 pirasong pilak. 
 
 
 
@@ -666,7 +666,7 @@ Sa Taon ng Pagpapalaya at Pagsasauli, ang nasabing lupain ay isasauli sa may-ari
 
 
 
-Ang lahat ng halaga <i class="trans-change">ng mga ito na inihandog sa Panginoon_ ay kinakailangang ayon sa bigat ng pilak sa timbangang ginagamit ng mga pari. 
+Ang lahat ng halaga ng mga ito na inihandog sa Panginoon_ ay kinakailangang ayon sa bigat ng pilak sa timbangang ginagamit ng mga pari. 
 
 
 
@@ -732,7 +732,7 @@ Ang panganay na anak ng hayop ay sa Panginoon na, kaya itoʼy hindi na maaaring 
 
 
 
-Pero kung ang hayop ay itinuturing na marumi, iyon ay maaaring tubusin ng may-ari. Babayaran niya ang halaga ng hayop at dadagdagan pa niya ng 20 porsiyento ng halaga nito. Pero kung iyon ay hindi tutubusin ng may-ari, ipagbibili iyon <i class="trans-change">ng pari_ ayon sa itinakdang halaga. 
+Pero kung ang hayop ay itinuturing na marumi, iyon ay maaaring tubusin ng may-ari. Babayaran niya ang halaga ng hayop at dadagdagan pa niya ng 20 porsiyento ng halaga nito. Pero kung iyon ay hindi tutubusin ng may-ari, ipagbibili iyon ng pari_ ayon sa itinakdang halaga. 
 
 
 
@@ -864,7 +864,7 @@ Ang ikasampung bahagi ng lahat ng ani ay sa Panginoon.
 
 
 
-Kung tutubusin ng sinuman ang ikasampung bahagi <i class="trans-change">ng kanyang ani_, kinakailangan niyang bayaran ang halaga at dadagdagan pa ng 20 porsiyento ng halaga nito. 
+Kung tutubusin ng sinuman ang ikasampung bahagi ng kanyang ani_, kinakailangan niyang bayaran ang halaga at dadagdagan pa ng 20 porsiyento ng halaga nito. 
 
 
 

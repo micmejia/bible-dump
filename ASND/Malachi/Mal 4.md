@@ -39,7 +39,7 @@ up: ['Malachi']
 
 
 
-Sinabi ng Panginoong Makapangyarihan, "Tiyak na darating ang araw <i class="trans-change">ng aking pagpaparusa_. Magiging tulad ito ng nagliliyab na pugon. Parurusahan kong gaya ng pagsunog sa dayami ang lahat ng mayayabang at ang gumagawa ng masama. Magiging tulad sila ng sinunog na kahoy na walang natirang sanga o ugat. 
+Sinabi ng Panginoong Makapangyarihan, "Tiyak na darating ang araw ng aking pagpaparusa_. Magiging tulad ito ng nagliliyab na pugon. Parurusahan kong gaya ng pagsunog sa dayami ang lahat ng mayayabang at ang gumagawa ng masama. Magiging tulad sila ng sinunog na kahoy na walang natirang sanga o ugat. 
 
 
 

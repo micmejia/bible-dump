@@ -40,7 +40,7 @@ next: ['2 Sam 8']
 
 
 
-Nang manirahan si Haring <i class="trans-change">David_ sa kanyang palasyo, binigyan ng kapayapaan ng Panginoon ang kaharian niya; hindi siya sinasalakay ng mga kalaban niya. 
+Nang manirahan si Haring David_ sa kanyang palasyo, binigyan ng kapayapaan ng Panginoon ang kaharian niya; hindi siya sinasalakay ng mga kalaban niya. 
 
 
 
@@ -73,7 +73,7 @@ Nang manirahan si Haring <i class="trans-change">David_ sa kanyang palasyo, bini
 
 
 
-Isang araw, sinabi ni David kay Propeta Natan, "Tingnan mo, nakatira ako sa <i class="trans-change">magandang_ palasyo na gawa sa <i class="trans-change">kahoy na_ sedro, pero ang Kahon ng Dios ay nasa tolda lang." 
+Isang araw, sinabi ni David kay Propeta Natan, "Tingnan mo, nakatira ako sa magandang_ palasyo na gawa sa kahoy na_ sedro, pero ang Kahon ng Dios ay nasa tolda lang." 
 
 
 
@@ -271,7 +271,7 @@ Sa paglipat-lipat ko kasama ang lahat ng mamamayan kong Israelita, hindi ako nag
 
 
 
-"Sabihin mo pa kay David na <i class="trans-change">ako,_ ang Panginoong Makapangyarihan ay nagsasabi, 'Tagapagbantay ka noon ng mga tupa, pero pinili kita para mamuno sa mga mamamayan kong Israelita. 
+"Sabihin mo pa kay David na ako,_ ang Panginoong Makapangyarihan ay nagsasabi, 'Tagapagbantay ka noon ng mga tupa, pero pinili kita para mamuno sa mga mamamayan kong Israelita. 
 
 
 
@@ -436,7 +436,7 @@ Kapag namatay ka at ilibing kasama ng mga ninuno mo, ipapalit ko sa iyo ang isa 
 
 
 
-Siya ang magpapatayo ng templo para sa <i class="trans-change">karangalan ng_ aking pangalan, at titiyakin ko na ang kanyang angkan ang maghahari magpakailanman. 
+Siya ang magpapatayo ng templo para sa karangalan ng_ aking pangalan, at titiyakin ko na ang kanyang angkan ang maghahari magpakailanman. 
 
 
 
@@ -603,7 +603,7 @@ Isinalaysay ni Natan kay David ang lahat ng ipinahayag ng Dios sa kanya.
 
 
 
-Pagkatapos, pumasok si David <i class="trans-change">sa tolda kung saan naroon ang Kahon ng Kasunduan_. Umupo siya roon sa presensya ng Panginoon, at nanalangin, "O Panginoong Dios, sino po ako at ang pamilya ko at pinagpala nʼyo nang ganito? 
+Pagkatapos, pumasok si David sa tolda kung saan naroon ang Kahon ng Kasunduan_. Umupo siya roon sa presensya ng Panginoon, at nanalangin, "O Panginoong Dios, sino po ako at ang pamilya ko at pinagpala nʼyo nang ganito? 
 
 
 
@@ -702,7 +702,7 @@ Ano pa po ba ang masasabi ko sa inyo, Panginoong Dios? Sapagkat nakikilala nʼyo
 
 
 
-Ayon sa pangako nʼyo at kalooban, ginawa nʼyo po ang mga dakilang bagay na ito at inihayag nʼyo sa <i class="trans-change">akin na_ inyong lingkod. 
+Ayon sa pangako nʼyo at kalooban, ginawa nʼyo po ang mga dakilang bagay na ito at inihayag nʼyo sa akin na_ inyong lingkod. 
 
 
 
@@ -768,7 +768,7 @@ Ayon sa pangako nʼyo at kalooban, ginawa nʼyo po ang mga dakilang bagay na ito
 
 
 
-At wala ring katulad ang inyong mga mamamayang Israelita. Ito lamang ang bansa sa mundo na inyong pinalaya <i class="trans-change">mula sa pagkaalipin_ para maging mga mamamayan ninyo. Naging tanyag ang pangalan nʼyo dahil sa dakila at kamangha-manghang ginawa ninyo. Itinaboy nʼyo ang mga bansa at ang mga dios nila sa pamamagitan ng mga mamamayan nʼyo nang inilabas nʼyo sila sa Egipto. 
+At wala ring katulad ang inyong mga mamamayang Israelita. Ito lamang ang bansa sa mundo na inyong pinalaya mula sa pagkaalipin_ para maging mga mamamayan ninyo. Naging tanyag ang pangalan nʼyo dahil sa dakila at kamangha-manghang ginawa ninyo. Itinaboy nʼyo ang mga bansa at ang mga dios nila sa pamamagitan ng mga mamamayan nʼyo nang inilabas nʼyo sila sa Egipto. 
 
 
 
@@ -801,7 +801,7 @@ At wala ring katulad ang inyong mga mamamayang Israelita. Ito lamang ang bansa s
 
 
 
-Itinatag nʼyo ang Israel bilang sarili nʼyong mga mamamayan magpakailanman, at kayo Panginoon, ang kanilang naging Dios. <sup class="versenum">25-26</sup>"At ngayon, Panginoong Dios, tuparin po ninyo ang ipinangako nʼyo sa akin na inyong lingkod at sa angkan ko, para maging tanyag kayo magpakailanman. At sasabihin <i class="trans-change">ng mga tao_, 'Ang Panginoong Makapangyarihan ang Dios ng Israel!' At ang sambahayan ko ay patuloy na maglilingkod sa inyo magpakailanman. 
+Itinatag nʼyo ang Israel bilang sarili nʼyong mga mamamayan magpakailanman, at kayo Panginoon, ang kanilang naging Dios. 25-26"At ngayon, Panginoong Dios, tuparin po ninyo ang ipinangako nʼyo sa akin na inyong lingkod at sa angkan ko, para maging tanyag kayo magpakailanman. At sasabihin ng mga tao_, 'Ang Panginoong Makapangyarihan ang Dios ng Israel!' At ang sambahayan ko ay patuloy na maglilingkod sa inyo magpakailanman. 
 
 
 
@@ -834,7 +834,7 @@ Itinatag nʼyo ang Israel bilang sarili nʼyong mga mamamayan magpakailanman, at
 
 
 
-Panginoong Makapangyarihan, Dios ng Israel, malakas po ang loob ko na manalangin sa inyo nang ganito dahil ipinahayag nʼyo sa <i class="trans-change">akin na_ inyong lingkod, na patuloy na manggagaling sa aking angkan ang magiging hari <i class="trans-change">ng Israel_. 
+Panginoong Makapangyarihan, Dios ng Israel, malakas po ang loob ko na manalangin sa inyo nang ganito dahil ipinahayag nʼyo sa akin na_ inyong lingkod, na patuloy na manggagaling sa aking angkan ang magiging hari ng Israel_. 
 
 
 
@@ -867,7 +867,7 @@ Panginoong Makapangyarihan, Dios ng Israel, malakas po ang loob ko na manalangin
 
 
 
-Panginoong Dios, tunay ngang kayo ang Dios! Ipinangako nʼyo sa <i class="trans-change">akin na_ inyong lingkod ang mabubuting bagay na ito, at tapat kayo sa mga pangako ninyo. 
+Panginoong Dios, tunay ngang kayo ang Dios! Ipinangako nʼyo sa akin na_ inyong lingkod ang mabubuting bagay na ito, at tapat kayo sa mga pangako ninyo. 
 
 
 

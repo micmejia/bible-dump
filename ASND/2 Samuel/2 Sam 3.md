@@ -702,7 +702,7 @@ Nang dumating si Abner sa Hebron kasama ang 20 niyang tauhan, nagdaos si David n
 
 
 
-Sinabi ni Abner kay David, "Mahal na Hari, payagan nʼyo po akong umalis para kumbinsihin ang lahat na mamamayan ng Israel na suportahan kayo bilang hari. <i class="trans-change">Sa ganitong paraan,_ makikipagkasundo sila inyo na tatanggapin nila kayo bilang hari. Pagkatapos, makakapamuno na po kayo sa buong Israel, sa paraang gusto ninyo." At hinayaan ni David si Abner na umalis ng matiwasay.
+Sinabi ni Abner kay David, "Mahal na Hari, payagan nʼyo po akong umalis para kumbinsihin ang lahat na mamamayan ng Israel na suportahan kayo bilang hari. Sa ganitong paraan,_ makikipagkasundo sila inyo na tatanggapin nila kayo bilang hari. Pagkatapos, makakapamuno na po kayo sa buong Israel, sa paraang gusto ninyo." At hinayaan ni David si Abner na umalis ng matiwasay.
 
 ## Pinatay ni Joab si Abner 
 
@@ -1298,4 +1298,4 @@ Pagkatapos, sinabi ni David sa mga tauhan niya, "Hindi nʼyo ba naiisip na napat
 
 
 
-At kahit ako ang piniling hari ngayon, hindi ko kaya <i class="trans-change">sina Joab at Abishai na_ mga anak ni Zeruya. Mas malakas sila sa akin. Kaya ang Panginoon na lang ang maghihiganti sa masasamang taong ito dahil sa kasamaang ginawa nila."
+At kahit ako ang piniling hari ngayon, hindi ko kaya sina Joab at Abishai na_ mga anak ni Zeruya. Mas malakas sila sa akin. Kaya ang Panginoon na lang ang maghihiganti sa masasamang taong ito dahil sa kasamaang ginawa nila."

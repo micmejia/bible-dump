@@ -139,7 +139,7 @@ Makinig kayo habang nagsasalita ako at kapag akoʼy tapos na, tuyain ninyo ako k
 
 
 
-"Ang hinaing koʼy hindi laban sa tao <i class="trans-change">kundi sa Dios_. Ito ang dahilan kung bakit maikli ang pasensya ko. 
+"Ang hinaing koʼy hindi laban sa tao kundi sa Dios_. Ito ang dahilan kung bakit maikli ang pasensya ko. 
 
 
 
@@ -667,7 +667,7 @@ Sinasabi ninyo na kapag hindi sila parurusahan ng Dios ang mga anak nila ang par
 
 
 
-at makita ang kanilang kapahamakan. Matikman sana nila ang galit ng Makapangyarihang <i class="trans-change">Dios_. 
+at makita ang kanilang kapahamakan. Matikman sana nila ang galit ng Makapangyarihang Dios_. 
 
 
 
@@ -964,7 +964,7 @@ Sasabihin ninyo sa akin ang tungkol sa mga taong mayaman na nawasak ang tahanan 
 
 
 
-Pero tanungin mo ang mga dumadaan at pakinggan ang sinasabi nila. <i class="trans-change">Sapagkat sasabihin nila sa inyo na_ 
+Pero tanungin mo ang mga dumadaan at pakinggan ang sinasabi nila. Sapagkat sasabihin nila sa inyo na_ 
 
 
 
@@ -997,7 +997,7 @@ Pero tanungin mo ang mga dumadaan at pakinggan ang sinasabi nila. <i class="tran
 
 
 
-<i class="trans-change">palaging_ naliligtas ang masasamang tao sa araw ng pagpaparusa ng Dios. 
+palaging_ naliligtas ang masasamang tao sa araw ng pagpaparusa ng Dios. 
 
 
 
@@ -1030,7 +1030,7 @@ Pero tanungin mo ang mga dumadaan at pakinggan ang sinasabi nila. <i class="tran
 
 
 
-Walang hayagang sumasaway sa taong masama. Walang gumaganti sa masama niyang ginawa. <sup class="versenum">32-33</sup>At kapag namatay siya at inihatid sa kanyang huling hantungan, marami ang nakikipaglibing. Tinatanggap ng lupa ang katawan niya at binibigyan ng kapahingahan. Binabantayan pa ang kanyang libingan. 
+Walang hayagang sumasaway sa taong masama. Walang gumaganti sa masama niyang ginawa. 32-33At kapag namatay siya at inihatid sa kanyang huling hantungan, marami ang nakikipaglibing. Tinatanggap ng lupa ang katawan niya at binibigyan ng kapahingahan. Binabantayan pa ang kanyang libingan. 
 
 
 

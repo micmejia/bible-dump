@@ -40,7 +40,7 @@ next: ['Jer 18']
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Mga taga-Juda, nakaukit sa matigas ninyong mga puso ang mga kasalanan nʼyo na parang mga salitang nakaukit sa bato o sa sungay na nasa sulok ng mga altar ninyo. 
+Sinabi ng Panginoon,_ "Mga taga-Juda, nakaukit sa matigas ninyong mga puso ang mga kasalanan nʼyo na parang mga salitang nakaukit sa bato o sa sungay na nasa sulok ng mga altar ninyo. 
 
 
 
@@ -73,7 +73,7 @@ next: ['Jer 18']
 
 
 
-Kahit ang mga anak ninyoʼy sumasamba sa mga altar nʼyo at sa mga posteng <i class="trans-change">simbolo ng diosang si_ Ashera sa ilalim ng mayayabong na puno at sa itaas ng mga bundok. 
+Kahit ang mga anak ninyoʼy sumasamba sa mga altar nʼyo at sa mga posteng simbolo ng diosang si_ Ashera sa ilalim ng mayayabong na puno at sa itaas ng mga bundok. 
 
 
 
@@ -238,7 +238,7 @@ Matutulad siya sa isang maliit na punongkahoy sa ilang na walang magandang kinab
 
 
 
-<i class="trans-change">Pero_ mapalad ang taong nagtitiwala at lubos na umaasa lamang sa akin. 
+Pero_ mapalad ang taong nagtitiwala at lubos na umaasa lamang sa akin. 
 
 
 
@@ -304,7 +304,7 @@ Matutulad siya sa punongkahoy na itinanim sa tabi ng ilog na ang mga ugat ay uma
 
 
 
-"Ang puso ng tao ay mandaraya higit sa lahat, at lubos na masama. Sino ang nakakaalam <i class="trans-change">kung gaano ito kasama_? 
+"Ang puso ng tao ay mandaraya higit sa lahat, at lubos na masama. Sino ang nakakaalam kung gaano ito kasama_? 
 
 
 
@@ -403,7 +403,7 @@ Ang taong yumaman sa masamang paraan ay parang ibon na nililimliman ang hindi ni
 
 
 
-<i class="trans-change">O Panginoon_, ang templo nʼyo po ang inyong magandang trono mula pa noon. 
+O Panginoon_, ang templo nʼyo po ang inyong magandang trono mula pa noon. 
 
 
 
@@ -834,7 +834,7 @@ Pero kung susunod lang kayo sa akin na hindi kayo magtatrabaho o magdadala ng mg
 
 
 
-<i class="trans-change">ay pagpapalain ko kayo_. Palaging magkakaroon ng haring maghahari rito sa Jerusalem na mula sa angkan ni David. Sila at ang mga tagapamahala nila ay paparada na nakasakay sa mga karwahe at mga kabayo papasok sa pintuan ng lungsod kasama ng mga taga-Juda at taga-Jerusalem. At ang lungsod na ito <i class="trans-change">ng Jerusalem_ ay mananatiling lungsod magpakailanman. 
+ay pagpapalain ko kayo_. Palaging magkakaroon ng haring maghahari rito sa Jerusalem na mula sa angkan ni David. Sila at ang mga tagapamahala nila ay paparada na nakasakay sa mga karwahe at mga kabayo papasok sa pintuan ng lungsod kasama ng mga taga-Juda at taga-Jerusalem. At ang lungsod na ito ng Jerusalem_ ay mananatiling lungsod magpakailanman. 
 
 
 

@@ -73,7 +73,7 @@ Sinabi pa ng Panginoong Dios, "Ang daanan papunta sa bakuran sa loob na nakahara
 
 
 
-Ang pinuno ay dadaan sa balkonahe ng daanang <i class="trans-change">nakaharap sa silangan_ at tatayo siya sa may pintuan habang ang pari ay nag-aalay ng kanyang handog na sinusunog at handog para sa mabuting relasyon. Ang pinuno ay sasamba sa akin doon sa may pintuan at pagkatapos ay lalabas siya, ngunit hindi isasara ang pintuan hanggang sa gumabi. 
+Ang pinuno ay dadaan sa balkonahe ng daanang nakaharap sa silangan_ at tatayo siya sa may pintuan habang ang pari ay nag-aalay ng kanyang handog na sinusunog at handog para sa mabuting relasyon. Ang pinuno ay sasamba sa akin doon sa may pintuan at pagkatapos ay lalabas siya, ngunit hindi isasara ang pintuan hanggang sa gumabi. 
 
 
 
@@ -172,7 +172,7 @@ Sa bawat Araw ng Pamamahinga, maghahandog ang pinuno ng isang barakong tupa at a
 
 
 
-Ang handog ng pagpaparangal sa akin na kasama ng barakong tupa ay kalahating sako <i class="trans-change">ng harina_, pero nasa pinuno na kung gaano karami ang <i class="trans-change">harinang_ isasama niya sa bawat batang tupa. Sa bawat kalahating sako <i class="trans-change">ng harina na isasama niya sa handog na tupa_ ay maghahandog din siya ng isang galong langis <i class="trans-change">ng olibo_. 
+Ang handog ng pagpaparangal sa akin na kasama ng barakong tupa ay kalahating sako ng harina_, pero nasa pinuno na kung gaano karami ang harinang_ isasama niya sa bawat batang tupa. Sa bawat kalahating sako ng harina na isasama niya sa handog na tupa_ ay maghahandog din siya ng isang galong langis ng olibo_. 
 
 
 
@@ -238,7 +238,7 @@ Ang handog ng pagpaparangal sa akin na kasama ng barakong tupa ay kalahating sak
 
 
 
-Ang handog ng pagpaparangal sa akin ay isasama ng pinuno sa batang toro at barakong tupa, depende sa kanya kung gaano karami ang isasama <i class="trans-change">niyang harina_ sa bawat batang tupa. Sa bawat kalahating sakong <i class="trans-change">harinang_ kanyang ihahandog, maghahandog din siya ng isang galong langis <i class="trans-change">ng olibo_. 
+Ang handog ng pagpaparangal sa akin ay isasama ng pinuno sa batang toro at barakong tupa, depende sa kanya kung gaano karami ang isasama niyang harina_ sa bawat batang tupa. Sa bawat kalahating sakong harinang_ kanyang ihahandog, maghahandog din siya ng isang galong langis ng olibo_. 
 
 
 
@@ -304,7 +304,7 @@ Kapag ang pinuno ay pumasok upang maghandog, doon siya dadaan sa balkonahe ng da
 
 
 
-"Kapag sumamba sa akin ang mga mamamayan <i class="trans-change">sa templo_ ng Israel sa panahon ng mga pista, ang mga papasok sa pintuan sa hilaga ay lalabas sa pintuan sa timog, at ang mga papasok naman sa pintuan sa timog ay lalabas sa pintuan sa hilaga. Dapat walang lumabas sa pintuang pinasukan niya. Kinakailangang sa ibang pintuan siya lumabas kung pumasok siya sa kabila. 
+"Kapag sumamba sa akin ang mga mamamayan sa templo_ ng Israel sa panahon ng mga pista, ang mga papasok sa pintuan sa hilaga ay lalabas sa pintuan sa timog, at ang mga papasok naman sa pintuan sa timog ay lalabas sa pintuan sa hilaga. Dapat walang lumabas sa pintuang pinasukan niya. Kinakailangang sa ibang pintuan siya lumabas kung pumasok siya sa kabila. 
 
 
 
@@ -370,7 +370,7 @@ Sasabay ang pinuno sa pagpasok at paglabas nila.
 
 
 
-"Sa panahon ng ibaʼt ibang pista, ang handog ng pagpaparangal sa akin na isasama sa batang toro at sa barakong tupa ay tig-kakalahating sako <i class="trans-change">ng harina_, pero depende sa naghahandog kung gaano karami ang isasama niya sa bawat batang tupa. At sa bawat kalahating sako <i class="trans-change">ng harina_ na isasama niya sa handog na hayop, maghahandog din siya ng isang galong langis <i class="trans-change">ng olibo_. 
+"Sa panahon ng ibaʼt ibang pista, ang handog ng pagpaparangal sa akin na isasama sa batang toro at sa barakong tupa ay tig-kakalahating sako ng harina_, pero depende sa naghahandog kung gaano karami ang isasama niya sa bawat batang tupa. At sa bawat kalahating sako ng harina_ na isasama niya sa handog na hayop, maghahandog din siya ng isang galong langis ng olibo_. 
 
 
 
@@ -469,7 +469,7 @@ Kapag ang pinuno ay mag-aalay ng handog na sinusunog o handog para sa mabuting r
 
 
 
-Sasamahan ito ng handog ng pagpaparangal sa akin na tatlong kilong <i class="trans-change">harina_, at kalahating galong langis <i class="trans-change">ng olibo_ na pangmasa sa <i class="trans-change">harina_. Ang tuntuning ito tungkol sa handog ng pagpaparangal sa akin ay dapat sundin magpakailanman. 
+Sasamahan ito ng handog ng pagpaparangal sa akin na tatlong kilong harina_, at kalahating galong langis ng olibo_ na pangmasa sa harina_. Ang tuntuning ito tungkol sa handog ng pagpaparangal sa akin ay dapat sundin magpakailanman. 
 
 
 
@@ -502,7 +502,7 @@ Sasamahan ito ng handog ng pagpaparangal sa akin na tatlong kilong <i class="tra
 
 
 
-Kaya tuwing umaga ay kailangang may inihahandog sa akin na tupa, harina, at langis <i class="trans-change">ng olibo_ na pang-araw-araw na handog na sinunsunog." 
+Kaya tuwing umaga ay kailangang may inihahandog sa akin na tupa, harina, at langis ng olibo_ na pang-araw-araw na handog na sinunsunog." 
 
 
 
@@ -667,7 +667,7 @@ Pagkatapos, dinala ako ng tao sa banal na mga silid ng mga pari sa gawing timog.
 
 
 
-Sinabi niya sa akin, "Dito sa lugar na ito nagluluto ang mga pari ng handog na pambayad ng kasalanan, handog sa paglilinis, at handog ng pagpaparangal sa Panginoon. Dito sila magluluto para maiwasan nila ang pagdadala ng mga handog sa labas ng bulwagan. Sa ganitong paraan hindi maapektuhan ang mga tao sa kabanalan nito." <sup class="versenum">21-22</sup>Pagkatapos, dinala niya ako sa bulwagan sa labas, at ipinakita sa akin ang apat na sulok nito. Sa bawat sulok nito ay may maliliit na bakuran na 68 talampakan ang haba at 50 talampakan ang luwang, at pare-pareho ang laki nito. 
+Sinabi niya sa akin, "Dito sa lugar na ito nagluluto ang mga pari ng handog na pambayad ng kasalanan, handog sa paglilinis, at handog ng pagpaparangal sa Panginoon. Dito sila magluluto para maiwasan nila ang pagdadala ng mga handog sa labas ng bulwagan. Sa ganitong paraan hindi maapektuhan ang mga tao sa kabanalan nito." 21-22Pagkatapos, dinala niya ako sa bulwagan sa labas, at ipinakita sa akin ang apat na sulok nito. Sa bawat sulok nito ay may maliliit na bakuran na 68 talampakan ang haba at 50 talampakan ang luwang, at pare-pareho ang laki nito. 
 
 
 

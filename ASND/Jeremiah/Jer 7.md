@@ -238,7 +238,7 @@ at huwag na ninyong apihin ang mga dayuhan, ulila, at mga biyuda. Huwag ninyong 
 
 
 
-<i class="trans-change">Kapag ginawa nʼyo ito,_ patuloy ko kayong patitirahin sa lupaing ito na ibinigay ko sa mga magulang nʼyo magpakailanman. 
+Kapag ginawa nʼyo ito,_ patuloy ko kayong patitirahin sa lupaing ito na ibinigay ko sa mga magulang nʼyo magpakailanman. 
 
 
 
@@ -271,7 +271,7 @@ at huwag na ninyong apihin ang mga dayuhan, ulila, at mga biyuda. Huwag ninyong 
 
 
 
-" 'Pero tingnan ninyo <i class="trans-change">kung ano ang inyong ginagawa_! Naniniwala kayo sa mga kasinungalingan na walang kabuluhan. 
+" 'Pero tingnan ninyo kung ano ang inyong ginagawa_! Naniniwala kayo sa mga kasinungalingan na walang kabuluhan. 
 
 
 
@@ -370,7 +370,7 @@ Pagkatapos, lumalapit at tumatayo kayo sa harap ko rito sa templo, kung saan pin
 
 
 
-Bakit, ano ang akala ninyo sa templong ito na pinili ko para parangalan ako, taguan ng mga magnanakaw? Nakikita ko ang mga ginagawa sa templo. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+Bakit, ano ang akala ninyo sa templong ito na pinili ko para parangalan ako, taguan ng mga magnanakaw? Nakikita ko ang mga ginagawa sa templo. Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -436,7 +436,7 @@ Bakit, ano ang akala ninyo sa templong ito na pinili ko para parangalan ako, tag
 
 
 
-Habang ginagawa ninyo ang <i class="trans-change">masasamang_ bagay na ito, paulit-ulit ko kayong binibigyan ng babala, pero hindi kayo nakinig. Tinawag ko kayo, pero hindi kayo sumagot. 
+Habang ginagawa ninyo ang masasamang_ bagay na ito, paulit-ulit ko kayong binibigyan ng babala, pero hindi kayo nakinig. Tinawag ko kayo, pero hindi kayo sumagot. 
 
 
 
@@ -535,7 +535,7 @@ Palalayasin ko kayo mula sa aking harapan katulad ng ginawa ko sa mga kamag-anak
 
 
 
-"Kaya <i class="trans-change">Jeremias,_ huwag kang mananalangin para sa mga taong ito. Huwag kang magmamakaawa o humiling sa akin para sa kanila, dahil hindi kita pakikinggan. 
+"Kaya Jeremias,_ huwag kang mananalangin para sa mga taong ito. Huwag kang magmamakaawa o humiling sa akin para sa kanila, dahil hindi kita pakikinggan. 
 
 
 
@@ -667,7 +667,7 @@ Pero ako nga ba ang sinasaktan nila? Hindi! Ang sarili nila ang sinasaktan at in
 
 
 
-Kaya <i class="trans-change">ako,_ ang Panginoong Dios, ay nagsasabi, 'Ipapadama ko sa lugar na ito ang matinding galit ko – sa mga tao, mga hayop, mga puno, at mga halaman. Ang galit koʼy parang apoy na hindi mapapatay ng kahit sino.' 
+Kaya ako,_ ang Panginoong Dios, ay nagsasabi, 'Ipapadama ko sa lugar na ito ang matinding galit ko – sa mga tao, mga hayop, mga puno, at mga halaman. Ang galit koʼy parang apoy na hindi mapapatay ng kahit sino.' 
 
 
 
@@ -700,7 +700,7 @@ Kaya <i class="trans-change">ako,_ ang Panginoong Dios, ay nagsasabi, 'Ipapadama
 
 
 
-"Sige, kunin na lang ninyo ang inyong mga handog na sinusunog at iba pang mga handog, at kainin na lang ninyo ang karne. <i class="trans-change">Ako_, ang Panginoong Makapangyarihan, ang Dios ng Israel, ang nagsasabi nito. 
+"Sige, kunin na lang ninyo ang inyong mga handog na sinusunog at iba pang mga handog, at kainin na lang ninyo ang karne. Ako_, ang Panginoong Makapangyarihan, ang Dios ng Israel, ang nagsasabi nito. 
 
 
 
@@ -898,7 +898,7 @@ Pero hindi nʼyo sila pinakinggan o pinansin. Mas matigas pa ang mga ulo nʼyo a
 
 
 
-"<i class="trans-change">Jeremias,_ kung sasabihin mo sa kanila ang lahat ng ito, hindi sila makikinig sa iyo. Kapag tatawagin mo sila na lumapit sa akin, hindi sila sasagot. 
+"Jeremias,_ kung sasabihin mo sa kanila ang lahat ng ito, hindi sila makikinig sa iyo. Kapag tatawagin mo sila na lumapit sa akin, hindi sila sasagot. 
 
 
 
@@ -964,7 +964,7 @@ Kaya ito ang sabihin mo sa kanila: Ito ang bansa na ang mga mamamayan ay ayaw su
 
 
 
-<i class="trans-change">Mga taga-Jerusalem,_ kalbuhin nʼyo ang buhok nʼyo at itapon ito <i class="trans-change">para ipakitang nagdadalamhati kayo_. Umiyak kayo roon sa kabundukan, dahil itinakwil at pinabayaan na ng Panginoon ang lahi nʼyo na nagpagalit sa kanya." ## Ang Lambak ng Patayan 
+Mga taga-Jerusalem,_ kalbuhin nʼyo ang buhok nʼyo at itapon ito para ipakitang nagdadalamhati kayo_. Umiyak kayo roon sa kabundukan, dahil itinakwil at pinabayaan na ng Panginoon ang lahi nʼyo na nagpagalit sa kanya." ## Ang Lambak ng Patayan 
 
 
 
@@ -1063,7 +1063,7 @@ Nagtayo rin sila ng sambahan sa matataas na lugar sa Tofet, sa Lambak ng Ben Hin
 
 
 
-Kaya mag-ingat kayo, dahil <i class="trans-change">ako,_ ang Panginoon ay nagsasabing, darating ang araw na ang lugar na iyon ay hindi na tatawaging Tofet o Lambak ng Ben Hinom kundi Lambak ng Patayan. Sapagkat doon ililibing ang <i class="trans-change">maraming_ bangkay hanggang sa wala nang lugar na mapaglibingan. 
+Kaya mag-ingat kayo, dahil ako,_ ang Panginoon ay nagsasabing, darating ang araw na ang lugar na iyon ay hindi na tatawaging Tofet o Lambak ng Ben Hinom kundi Lambak ng Patayan. Sapagkat doon ililibing ang maraming_ bangkay hanggang sa wala nang lugar na mapaglibingan. 
 
 
 

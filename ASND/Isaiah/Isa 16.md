@@ -106,7 +106,7 @@ Ang mga babaeng taga-Moab na nasa tawiran ng Arnon ay parang mga ibong binulabog
 
 
 
-<i class="trans-change">Sinabi ng mga taga-Moab sa mga taga-Juda,_ "Payuhan ninyo kami kung ano ang dapat naming gawin. Kalingain ninyo kami, tulad ng lilim na ibinibigay ng punongkahoy sa tanghaling-tapat. Nagsitakas kami mula sa aming bayan, at ngayon ay wala nang sariling tahanan. Kupkupin nʼyo sana kami at huwag pababayaan. 
+Sinabi ng mga taga-Moab sa mga taga-Juda,_ "Payuhan ninyo kami kung ano ang dapat naming gawin. Kalingain ninyo kami, tulad ng lilim na ibinibigay ng punongkahoy sa tanghaling-tapat. Nagsitakas kami mula sa aming bayan, at ngayon ay wala nang sariling tahanan. Kupkupin nʼyo sana kami at huwag pababayaan. 
 
 
 
@@ -139,7 +139,7 @@ Ang mga babaeng taga-Moab na nasa tawiran ng Arnon ay parang mga ibong binulabog
 
 
 
-Patirahin nʼyo sana kaming mga taga-Moab sa inyong lupain. Ipagtanggol nʼyo kami sa mga gustong pumatay sa amin." Matitigil ang mga pang-aapi at pamumuksa. At mawawala na ang pang-aapi sa lupain <i class="trans-change">ng Israel_. 
+Patirahin nʼyo sana kaming mga taga-Moab sa inyong lupain. Ipagtanggol nʼyo kami sa mga gustong pumatay sa amin." Matitigil ang mga pang-aapi at pamumuksa. At mawawala na ang pang-aapi sa lupain ng Israel_. 
 
 
 
@@ -271,7 +271,7 @@ Kaya iiyakan ng mga taga-Moab ang kanilang bansa. Iiyak silang lahat dahil sa pa
 
 
 
-Nasira ang mga bukid sa Heshbon pati na ang mga ubasan sa Sibma. Winasak ng mga pinuno ng mga bansa ang mga ubasan hanggang sa Jazer patungo sa disyerto at umabot pa hanggang sa Dagat <i class="trans-change">na Patay_. 
+Nasira ang mga bukid sa Heshbon pati na ang mga ubasan sa Sibma. Winasak ng mga pinuno ng mga bansa ang mga ubasan hanggang sa Jazer patungo sa disyerto at umabot pa hanggang sa Dagat na Patay_. 
 
 
 
@@ -370,7 +370,7 @@ Naglaho ang kagalakan nila at kasayahan sa kanilang mga ubasan. Wala nang umaawi
 
 
 
-Kaya nalulungkot ako sa sinapit ng Moab na katulad ng <i class="trans-change">malungkot na tugtugin ng_ alpa. Nalulungkot din ako sa sinapit ng Kir Hareset. 
+Kaya nalulungkot ako sa sinapit ng Moab na katulad ng malungkot na tugtugin ng_ alpa. Nalulungkot din ako sa sinapit ng Kir Hareset. 
 
 
 

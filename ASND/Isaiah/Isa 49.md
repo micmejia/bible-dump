@@ -238,7 +238,7 @@ Sinabi niya, "Ikaw na lingkod ko, marami pang mga gawain ang ipapagawa ko sa iyo
 
 
 
-Ang Panginoon, ang Tagapagligtas at Banal na Dios ng Israel ay nagsabi sa taong hinahamak at kinasusuklaman ng mga bansa at ng lingkod ng mga pinuno, "Makikita ng mga hari kung sino kang talaga at tatayo sila para magbigay galang sa iyo. Ang mga pinuno ay yuyuko sa iyo. Mangyayari ito dahil sa <i class="trans-change">akin, ang_ Panginoong tapat, ang Banal na Dios ng Israel. Ako ang pumili sa iyo." ## Muling Itatayo ang Jerusalem 
+Ang Panginoon, ang Tagapagligtas at Banal na Dios ng Israel ay nagsabi sa taong hinahamak at kinasusuklaman ng mga bansa at ng lingkod ng mga pinuno, "Makikita ng mga hari kung sino kang talaga at tatayo sila para magbigay galang sa iyo. Ang mga pinuno ay yuyuko sa iyo. Mangyayari ito dahil sa akin, ang_ Panginoong tapat, ang Banal na Dios ng Israel. Ako ang pumili sa iyo." ## Muling Itatayo ang Jerusalem 
 
 
 
@@ -304,7 +304,7 @@ Ito ang sinabi ng Panginoon, "Sa tamang panahon ay tutugunin kita, sa araw ng pa
 
 
 
-Sasabihin mo sa mga <i class="trans-change">Israelitang_ binihag at piniit sa kadiliman, 'Lumabas kayo! Malaya na kayo!' "Matutulad sila sa mga tupang nanginginain sa tabi ng mga daan at mga burol. 
+Sasabihin mo sa mga Israelitang_ binihag at piniit sa kadiliman, 'Lumabas kayo! Malaya na kayo!' "Matutulad sila sa mga tupang nanginginain sa tabi ng mga daan at mga burol. 
 
 
 
@@ -502,7 +502,7 @@ Pero sinabi ng mga taga-Jerusalem, "Pinabayaan na kami ng Panginoon; nakalimutan
 
 
 
-<i class="trans-change">Pero sumagot ang Panginoon,_ "Makakalimutan ba ng isang ina ang kanyang anak? Hindi ba niya pagmamalasakitan ang isinilang niyang sanggol? Maaaring makalimot ang isang ina, pero ako, hindi makalilimot sa inyo! 
+Pero sumagot ang Panginoon,_ "Makakalimutan ba ng isang ina ang kanyang anak? Hindi ba niya pagmamalasakitan ang isinilang niyang sanggol? Maaaring makalimot ang isang ina, pero ako, hindi makalilimot sa inyo! 
 
 
 
@@ -535,7 +535,7 @@ Pero sinabi ng mga taga-Jerusalem, "Pinabayaan na kami ng Panginoon; nakalimutan
 
 
 
-"O <i class="trans-change">Jerusalem, hinding-hindi kita malilimutan_. Isinulat ko ang pangalan mo sa aking mga palad. Palagi kong iniisip na maitayong muli ang iyong mga pader. 
+"O Jerusalem, hinding-hindi kita malilimutan_. Isinulat ko ang pangalan mo sa aking mga palad. Palagi kong iniisip na maitayong muli ang iyong mga pader. 
 
 
 
@@ -766,7 +766,7 @@ Ito ang sinabi ng Panginoong Dios: "Sesenyasan ko ang mga bansa at ibabalik nila
 
 
 
-Maglilingkod sa iyo ang mga hari at mga reyna. Sila ang mag-aalaga sa iyo. Luluhod sila sa iyo <i class="trans-change">bilang paggalang,_ at magpapasakop sa iyo. Sa ganoon malalaman mong ako ang Panginoon, at ang mga nagtitiwala sa akin ay hindi mabibigo." 
+Maglilingkod sa iyo ang mga hari at mga reyna. Sila ang mag-aalaga sa iyo. Luluhod sila sa iyo bilang paggalang,_ at magpapasakop sa iyo. Sa ganoon malalaman mong ako ang Panginoon, at ang mga nagtitiwala sa akin ay hindi mabibigo." 
 
 
 

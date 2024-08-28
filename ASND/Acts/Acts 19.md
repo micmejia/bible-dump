@@ -304,7 +304,7 @@ Sa loob ng tatlong buwan, patuloy ang pagpunta ni Pablo sa sambahan ng mga Judio
 
 
 
-Pero ang iba sa kanilaʼy matigas talaga ang ulo at ayaw maniwala, at siniraan nila sa publiko ang pamamaraan <i class="trans-change">ni Jesus_. Kaya umalis si Pablo sa kanilang sambahan kasama ang mga tagasunod <i class="trans-change">ni Jesus_, at araw-araw <i class="trans-change">ay pumupunta_ siya sa paaralan ni Tyranus para ipagpatuloy ang pakikipagdiskusyon sa harap ng madla. 
+Pero ang iba sa kanilaʼy matigas talaga ang ulo at ayaw maniwala, at siniraan nila sa publiko ang pamamaraan ni Jesus_. Kaya umalis si Pablo sa kanilang sambahan kasama ang mga tagasunod ni Jesus_, at araw-araw ay pumupunta_ siya sa paaralan ni Tyranus para ipagpatuloy ang pakikipagdiskusyon sa harap ng madla. 
 
 
 
@@ -337,7 +337,7 @@ Pero ang iba sa kanilaʼy matigas talaga ang ulo at ayaw maniwala, at siniraan n
 
 
 
-Sa loob ng dalawang taon, ganoon ang kanyang ginagawa, kaya ang lahat ng nakatira sa <i class="trans-change">lalawigan ng_ Asia, Judio at hindi Judio ay nakarinig ng salita ng Dios. 
+Sa loob ng dalawang taon, ganoon ang kanyang ginagawa, kaya ang lahat ng nakatira sa lalawigan ng_ Asia, Judio at hindi Judio ay nakarinig ng salita ng Dios. 
 
 
 
@@ -502,7 +502,7 @@ Ganito rin ang ginagawa ng pitong anak na lalaki ni Esceva. Si Esceva ay isa sa 
 
 
 
-<i class="trans-change">Sinusubukan nilang palabasin ang masamang espiritu sa pangalan ni Jesus_. Pero sinagot sila ng masamang espiritu, "Kilala ko si Jesus, ganoon din si Pablo, pero sino naman kayo?" 
+Sinusubukan nilang palabasin ang masamang espiritu sa pangalan ni Jesus_. Pero sinagot sila ng masamang espiritu, "Kilala ko si Jesus, ganoon din si Pablo, pero sino naman kayo?" 
 
 
 
@@ -735,7 +735,7 @@ Pagkatapos ng mga pangyayaring iyon, nagpasya si Pablo na dumaan muna sa Macedon
 
 
 
-Pinauna niya sa Macedonia ang dalawang tumutulong sa kanya <i class="trans-change">sa gawain ng Dios_ na sina Timoteo at Erastus, at siyaʼy nagpaiwan muna sa <i class="trans-change">lalawigan ng_ Asia. 
+Pinauna niya sa Macedonia ang dalawang tumutulong sa kanya sa gawain ng Dios_ na sina Timoteo at Erastus, at siyaʼy nagpaiwan muna sa lalawigan ng_ Asia. 
 
 
 
@@ -768,7 +768,7 @@ Pinauna niya sa Macedonia ang dalawang tumutulong sa kanya <i class="trans-chang
 
 
 
-Nang panahon ding iyon, nagkaroon ng malaking kaguluhan <i class="trans-change">sa Efeso dahil ayaw pumayag ng iba na magturo ang mga mananampalataya_ tungkol sa pamamaraan <i class="trans-change">ni Jesus_. 
+Nang panahon ding iyon, nagkaroon ng malaking kaguluhan sa Efeso dahil ayaw pumayag ng iba na magturo ang mga mananampalataya_ tungkol sa pamamaraan ni Jesus_. 
 
 
 
@@ -801,7 +801,7 @@ Nang panahon ding iyon, nagkaroon ng malaking kaguluhan <i class="trans-change">
 
 
 
-May isang platero roon na nagngangalang Demetrius. Gumagawa siya at ang kanyang mga tauhan ng maliliit na templong yari sa pilak na iginaya sa templo ni Artemis <i class="trans-change">na kanilang diosa_, at itoʼy pinagkakakitaan nila nang malaki. 
+May isang platero roon na nagngangalang Demetrius. Gumagawa siya at ang kanyang mga tauhan ng maliliit na templong yari sa pilak na iginaya sa templo ni Artemis na kanilang diosa_, at itoʼy pinagkakakitaan nila nang malaki. 
 
 
 
@@ -867,7 +867,7 @@ Kaya ipinatawag niya ang kanyang mga manggagawa at ang iba pang mga platero. At 
 
 
 
-Nakita ninyo at narinig ang ginagawa ng taong si Pablo. Sinasabi niya na ang mga dios na ginagawa ng tao ay hindi totoong mga dios. Marami ang naniwala sa kanya rito sa Efeso at sa buong <i class="trans-change">lalawigan ng_ Asia. 
+Nakita ninyo at narinig ang ginagawa ng taong si Pablo. Sinasabi niya na ang mga dios na ginagawa ng tao ay hindi totoong mga dios. Marami ang naniwala sa kanya rito sa Efeso at sa buong lalawigan ng_ Asia. 
 
 
 
@@ -999,7 +999,7 @@ At ang kaguluhan ay kumalat sa buong lungsod. Hinuli nila ang mga kasama ni Pabl
 
 
 
-Nais sana ni Pablo na magsalita sa mga tao, pero pinigilan siya ng mga tagasunod <i class="trans-change">ni Jesus_. 
+Nais sana ni Pablo na magsalita sa mga tao, pero pinigilan siya ng mga tagasunod ni Jesus_. 
 
 
 
@@ -1164,7 +1164,7 @@ Nang malaman ng mga tao na isa siyang Judio, sumigaw silang lahat, "Makapangyari
 
 
 
-Nang bandang huli, napatahimik din sila ng namumuno sa lungsod. Sinabi niya sa kanila, "<i class="trans-change">Mga kababayang_ taga-Efeso, alam ng lahat ng tao na tayong mga taga-Efeso ang siyang tagapag-ingat ng templo ni Artemis na makapangyarihan at ng sagradong bato na nahulog mula sa langit. 
+Nang bandang huli, napatahimik din sila ng namumuno sa lungsod. Sinabi niya sa kanila, "Mga kababayang_ taga-Efeso, alam ng lahat ng tao na tayong mga taga-Efeso ang siyang tagapag-ingat ng templo ni Artemis na makapangyarihan at ng sagradong bato na nahulog mula sa langit. 
 
 
 
@@ -1329,7 +1329,7 @@ Pero kung may iba pa kayong reklamo, iyan ay kinakailangang ayusin sa opisyal na
 
 
 
-Sa ginagawa nating ito, nanganganib tayong maakusahan <i class="trans-change">ng mga opisyal ng Roma_ ng panggugulo. Wala tayong maibibigay na dahilan kung bakit natin ginagawa ito." 
+Sa ginagawa nating ito, nanganganib tayong maakusahan ng mga opisyal ng Roma_ ng panggugulo. Wala tayong maibibigay na dahilan kung bakit natin ginagawa ito." 
 
 
 

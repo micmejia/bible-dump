@@ -40,7 +40,7 @@ next: ['2 Cor 4']
 
 
 
-Baka sabihin ninyong pinupuri na naman namin ang aming mga sarili. Hindi kami katulad ng iba riyan na kailangan ang rekomendasyon para tanggapin ninyo, at <i class="trans-change">pagkatapos hihingi naman ng_ rekomendasyon mula sa inyo <i class="trans-change">para tanggapin din sa ibang lugar_. 
+Baka sabihin ninyong pinupuri na naman namin ang aming mga sarili. Hindi kami katulad ng iba riyan na kailangan ang rekomendasyon para tanggapin ninyo, at pagkatapos hihingi naman ng_ rekomendasyon mula sa inyo para tanggapin din sa ibang lugar_. 
 
 
 
@@ -73,7 +73,7 @@ Baka sabihin ninyong pinupuri na naman namin ang aming mga sarili. Hindi kami ka
 
 
 
-<i class="trans-change">Hindi na namin kailangan ito_ dahil kayo na mismo ang aming rekomendasyon na nakasulat sa aming puso. Sapagkat ang pamumuhay ninyo ay parang sulat na nakikita at nababasa ng lahat. 
+Hindi na namin kailangan ito_ dahil kayo na mismo ang aming rekomendasyon na nakasulat sa aming puso. Sapagkat ang pamumuhay ninyo ay parang sulat na nakikita at nababasa ng lahat. 
 
 
 
@@ -205,7 +205,7 @@ Kung sa aming sarili lamang, wala kaming sapat na kakayahang gawin ito. Lahat ng
 
 
 
-Siya ang nagbigay sa amin ng kakayahan para maipahayag namin ang kanyang bagong pamamaraan <i class="trans-change">para mailapit ang mga tao sa kanya_. At ang bagong pamamaraan na ito ay hindi ayon sa isinulat <i class="trans-change">na Kautusan_ kundi sa pamamagitan ng Espiritu. Sapagkat ang Kautusan ay nagdudulot ng kamatayan, ngunit ang Espiritu ay nagbibigay-buhay. 
+Siya ang nagbigay sa amin ng kakayahan para maipahayag namin ang kanyang bagong pamamaraan para mailapit ang mga tao sa kanya_. At ang bagong pamamaraan na ito ay hindi ayon sa isinulat na Kautusan_ kundi sa pamamagitan ng Espiritu. Sapagkat ang Kautusan ay nagdudulot ng kamatayan, ngunit ang Espiritu ay nagbibigay-buhay. 
 
 
 
@@ -238,7 +238,7 @@ Siya ang nagbigay sa amin ng kakayahan para maipahayag namin ang kanyang bagong 
 
 
 
-Noong ibinigay <i class="trans-change">ng Dios kay Moises_ ang Kautusan na nakasulat sa <i class="trans-change">malapad na_ mga bato, hindi matingnan ng mga Israelita ang mukha ni Moises dahil nasisilaw sila. Ngunit <i class="trans-change">ang ningning na iyon sa kanyang mukha ay_ unti-unti ring nawala. Ngayon, kung nagpakita ang Dios ng kanyang kapangyarihan sa Kautusan na nagdudulot ng kamatayan, 
+Noong ibinigay ng Dios kay Moises_ ang Kautusan na nakasulat sa malapad na_ mga bato, hindi matingnan ng mga Israelita ang mukha ni Moises dahil nasisilaw sila. Ngunit ang ningning na iyon sa kanyang mukha ay_ unti-unti ring nawala. Ngayon, kung nagpakita ang Dios ng kanyang kapangyarihan sa Kautusan na nagdudulot ng kamatayan, 
 
 
 
@@ -337,7 +337,7 @@ Kung nagpakita ang Dios ng kapangyarihan niya sa pamamagitan ng Kautusan na nagd
 
 
 
-Ang totoo, balewala ang kapangyarihan ng Kautusan kung ihahambing sa kapangyarihan ng bagong pamamaraan <i class="trans-change">ng Dios_. 
+Ang totoo, balewala ang kapangyarihan ng Kautusan kung ihahambing sa kapangyarihan ng bagong pamamaraan ng Dios_. 
 
 
 
@@ -370,7 +370,7 @@ Ang totoo, balewala ang kapangyarihan ng Kautusan kung ihahambing sa kapangyarih
 
 
 
-Kung may kapangyarihang ipinakita ang <i class="trans-change">Dios sa pamamagitan ng_ Kautusan na lumilipas, higit pa ang kapangyarihang <i class="trans-change">ipinapakita niya_ sa bagong pamamaraang ito na nananatili magpakailanman. 
+Kung may kapangyarihang ipinakita ang Dios sa pamamagitan ng_ Kautusan na lumilipas, higit pa ang kapangyarihang ipinapakita niya_ sa bagong pamamaraang ito na nananatili magpakailanman. 
 
 
 
@@ -568,7 +568,7 @@ Ngunit kung lalapit ang tao sa Panginoon, maaalis ang takip sa kanyang isipan.
 
 
 
-Ngayon, ang binabanggit ditong Panginoon ay ang <i class="trans-change">Banal na_ Espiritu, at kung ang Espiritu ng Panginoon ay nasa isang tao, malaya na siya. 
+Ngayon, ang binabanggit ditong Panginoon ay ang Banal na_ Espiritu, at kung ang Espiritu ng Panginoon ay nasa isang tao, malaya na siya. 
 
 
 
@@ -601,4 +601,4 @@ Ngayon, ang binabanggit ditong Panginoon ay ang <i class="trans-change">Banal na
 
 
 
-At dahil naalis na ang takip sa ating isipan, nakikita na natin ang kapangyarihan ng Panginoon. At ang kapangyarihang ito ay mula sa Panginoon, na siyang <i class="trans-change">Banal na_ Espiritu, ang siyang unti-unting bumabago sa atin hanggang tayoʼy maging katulad niya.
+At dahil naalis na ang takip sa ating isipan, nakikita na natin ang kapangyarihan ng Panginoon. At ang kapangyarihang ito ay mula sa Panginoon, na siyang Banal na_ Espiritu, ang siyang unti-unting bumabago sa atin hanggang tayoʼy maging katulad niya.

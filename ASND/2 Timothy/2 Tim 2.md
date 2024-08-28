@@ -40,7 +40,7 @@ next: ['2 Tim 3']
 
 
 
-Kaya ikaw <i class="trans-change">Timoteo_, bilang anak ko <i class="trans-change">sa pananampalataya_, magpakatatag ka sa tulong ni Cristo Jesus. 
+Kaya ikaw Timoteo_, bilang anak ko sa pananampalataya_, magpakatatag ka sa tulong ni Cristo Jesus. 
 
 
 
@@ -139,7 +139,7 @@ Makibahagi ka sa mga paghihirap bilang isang mabuting sundalo ni Cristo Jesus.
 
 
 
-<i class="trans-change">Dapat_ katulad <i class="trans-change">ka_ ng isang sundalong nasa serbisyo; hindi siya nakikisangkot sa iba pang gawain para mabigyan niya ng kasiyahan ang kanyang opisyal. 
+Dapat_ katulad ka_ ng isang sundalong nasa serbisyo; hindi siya nakikisangkot sa iba pang gawain para mabigyan niya ng kasiyahan ang kanyang opisyal. 
 
 
 
@@ -172,7 +172,7 @@ Makibahagi ka sa mga paghihirap bilang isang mabuting sundalo ni Cristo Jesus.
 
 
 
-Ganoon din naman, <i class="trans-change">dapat_ katulad <i class="trans-change">ka_ ng manlalaro; hindi siya makakakuha ng premyo kung hindi siya sumusunod sa tuntunin ng laro. 
+Ganoon din naman, dapat_ katulad ka_ ng manlalaro; hindi siya makakakuha ng premyo kung hindi siya sumusunod sa tuntunin ng laro. 
 
 
 
@@ -205,7 +205,7 @@ Ganoon din naman, <i class="trans-change">dapat_ katulad <i class="trans-change"
 
 
 
-At <i class="trans-change">dapat_ katulad <i class="trans-change">ka rin_ ng masipag na magsasaka; hindi baʼt siya ang unang karapat-dapat na tumanggap ng bahagi sa ani? 
+At dapat_ katulad ka rin_ ng masipag na magsasaka; hindi baʼt siya ang unang karapat-dapat na tumanggap ng bahagi sa ani? 
 
 
 
@@ -271,7 +271,7 @@ Pag-isipan mong mabuti ang sinasabi ko sa iyo, at ipapaunawa sa iyo ng Dios ang 
 
 
 
-Alalahanin mo ang <i class="trans-change">Magandang Balita tungkol kay_ Jesu-Cristo, na nabuhay mula sa mga patay at nagmula sa angkan ni David. Ito ang ipinapangaral ko 
+Alalahanin mo ang Magandang Balita tungkol kay_ Jesu-Cristo, na nabuhay mula sa mga patay at nagmula sa angkan ni David. Ito ang ipinapangaral ko 
 
 
 
@@ -337,7 +337,7 @@ na siyang dahilan ng paghihirap ko hanggang sa ikadena ako na parang isang krimi
 
 
 
-Dahil dito, tinitiis ko ang lahat ng paghihirap alang-alang sa mga pinili <i class="trans-change">ng Dios_, para makamtan din nila ang kaligtasang nakay Cristo Jesus at ang buhay na walang hanggan. 
+Dahil dito, tinitiis ko ang lahat ng paghihirap alang-alang sa mga pinili ng Dios_, para makamtan din nila ang kaligtasang nakay Cristo Jesus at ang buhay na walang hanggan. 
 
 
 
@@ -568,7 +568,7 @@ Iwasan mo ang makamundo at walang kwentang usap-usapan, dahil lalo lang napapala
 
 
 
-Ang mga aral nilaʼy parang kanser na kumakalat <i class="trans-change">sa katawan_. Kabilang na sina Hymeneus at Filetus sa mga taong ito. 
+Ang mga aral nilaʼy parang kanser na kumakalat sa katawan_. Kabilang na sina Hymeneus at Filetus sa mga taong ito. 
 
 
 
@@ -667,7 +667,7 @@ Ganoon pa man, nananatiling matibay ang saligang itinatag ng Dios, at may nakasu
 
 
 
-Sa isang malaking bahay, may mga kasangkapang yari sa ginto at pilak, at mayroon ding yari sa kahoy at putik. Ginagamit sa mahahalagang okasyon ang mga kasangkapang yari sa ginto at pilak, at ang mga kasangkapang yari naman sa kahoy at putik ay sa pang-araw-araw <i class="trans-change">na gamit_. 
+Sa isang malaking bahay, may mga kasangkapang yari sa ginto at pilak, at mayroon ding yari sa kahoy at putik. Ginagamit sa mahahalagang okasyon ang mga kasangkapang yari sa ginto at pilak, at ang mga kasangkapang yari naman sa kahoy at putik ay sa pang-araw-araw na gamit_. 
 
 
 

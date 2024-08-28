@@ -73,7 +73,7 @@ Ang mensaheng itoʼy tungkol sa Egipto: Makinig kayo! Ang Panginoon ay nakasakay
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Pag-aawayin ko ang mga taga-Egipto: Kapatid laban sa kapatid, kapitbahay laban sa kapitbahay, lungsod laban sa lungsod, at kaharian laban sa kaharian. 
+Sinabi ng Panginoon,_ "Pag-aawayin ko ang mga taga-Egipto: Kapatid laban sa kapatid, kapitbahay laban sa kapitbahay, lungsod laban sa lungsod, at kaharian laban sa kaharian. 
 
 
 
@@ -304,7 +304,7 @@ Iiyak, maghihinagpis, at manghihina ang mga mangingisda sa Ilog ng Nilo,
 
 
 
-at malulungkot ang mga gumagawa ng mga <i class="trans-change">telang_ linen. 
+at malulungkot ang mga gumagawa ng mga telang_ linen. 
 
 
 

@@ -106,7 +106,7 @@ Kung paanong nasira ang inyong mga magaganda at mayayabong na mga puno ng sedro,
 
 
 
-Umiiyak ang mga pastol dahil nasira ang kanilang berdeng pastulan. Pati ang mga leon ay umaatungal dahil nasira ang kagubatan ng Jordan <i class="trans-change">na kanilang tinitirhan_.
+Umiiyak ang mga pastol dahil nasira ang kanilang berdeng pastulan. Pati ang mga leon ay umaatungal dahil nasira ang kagubatan ng Jordan na kanilang tinitirhan_.
 
 ## Ang Dalawang Pastol 
 
@@ -207,7 +207,7 @@ Ang mga bumibili at kumakatay sa kanila ay hindi pinarurusahan. Ang mga nagtitin
 
 
 
-"<i class="trans-change">Alagaan mo ang aking mga mamamayan,_ dahil <i class="trans-change">ako,_ ang Panginoon, ay nagsasabing hindi ko na kahahabagan ang mga tao sa mundo. Ako mismo ang uudyok sa bawat tao na magpasakop sa kanyang kapwa at sa kanyang hari. At silang mga namamahala ay magdadala ng kapahamakan sa buong mundo, at hindi ko ililigtas ang mga tao mula sa kanilang mga kamay." 
+"Alagaan mo ang aking mga mamamayan,_ dahil ako,_ ang Panginoon, ay nagsasabing hindi ko na kahahabagan ang mga tao sa mundo. Ako mismo ang uudyok sa bawat tao na magpasakop sa kanyang kapwa at sa kanyang hari. At silang mga namamahala ay magdadala ng kapahamakan sa buong mundo, at hindi ko ililigtas ang mga tao mula sa kanilang mga kamay." 
 
 
 
@@ -306,7 +306,7 @@ Pinaalis ko ang tatlong pastol sa loob lamang ng isang buwan. Naubos na ang pase
 
 
 
-Pagkatapos, sinabi ko <i class="trans-change">sa mga tupa_, "Hindi na ako ang inyong pastol. Hayaang mamatay ang mga naghihingalo at mapahamak ang mga mapapahamak. At ang mga matitira ay hayaang kainin ang laman ng isaʼt isa." 
+Pagkatapos, sinabi ko sa mga tupa_, "Hindi na ako ang inyong pastol. Hayaang mamatay ang mga naghihingalo at mapahamak ang mga mapapahamak. At ang mga matitira ay hayaang kainin ang laman ng isaʼt isa." 
 
 
 
@@ -438,7 +438,7 @@ Sinabi ko sa kanila, "Kung sa palagay ninyo ay dapat akong bigyan ng sahod, ibig
 
 
 
-Sinabi ng Panginoon sa akin, "Ilagay mo ang pilak na iyan sa kabang-yaman <i class="trans-change">ng templo_." Kaya kinuha ko ang 30 pirasong pilak, na inaakala nilang sapat na bilang aking sahod, at inilagay ko iyon sa kabang-yaman ng templo ng Panginoon. 
+Sinabi ng Panginoon sa akin, "Ilagay mo ang pilak na iyan sa kabang-yaman ng templo_." Kaya kinuha ko ang 30 pirasong pilak, na inaakala nilang sapat na bilang aking sahod, at inilagay ko iyon sa kabang-yaman ng templo ng Panginoon. 
 
 
 
@@ -537,7 +537,7 @@ Sinabing muli ng Panginoon sa akin, "Magkunwari kang isang walang kwentang pasto
 
 
 
-Sapagkat may ilalagay akong pinuno sa Israel na ang katulad ay isang <i class="trans-change">walang kwentang_ pastol. Hindi niya tutulungan ang mga tupang halos mamamatay na, o hahanapin ang mga nawawala, o gagamutin ang mga sugatan, o pakakainin ang mga payat. Ngunit kakainin niya ang karne ng matatabang tupa at aalisin ang mga kuko nito. 
+Sapagkat may ilalagay akong pinuno sa Israel na ang katulad ay isang walang kwentang_ pastol. Hindi niya tutulungan ang mga tupang halos mamamatay na, o hahanapin ang mga nawawala, o gagamutin ang mga sugatan, o pakakainin ang mga payat. Ngunit kakainin niya ang karne ng matatabang tupa at aalisin ang mga kuko nito. 
 
 
 

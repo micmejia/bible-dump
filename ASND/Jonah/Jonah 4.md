@@ -39,7 +39,7 @@ up: ['Jonah']
 
 
 
-Sumama ang loob ni Jonas <i class="trans-change">dahil sa pagpapatawad ng Panginoon sa Nineve_, at galit na galit siya. 
+Sumama ang loob ni Jonas dahil sa pagpapatawad ng Panginoon sa Nineve_, at galit na galit siya. 
 
 
 
@@ -72,7 +72,7 @@ Sumama ang loob ni Jonas <i class="trans-change">dahil sa pagpapatawad ng Pangin
 
 
 
-Sinabi niya sa Panginoon nang siya ay manalangin, "O Panginoon, talagang hindi ako nagkamali nang sabihin ko noong naroon pa ako sa aming lugar <i class="trans-change">na kaaawaan mo ang mga taga-Nineve kung magsisisi sila_, dahil alam ko na mahabagin kang Dios at mapagmalasakit. Mapagmahal ka at hindi madaling magalit. At handa kang magbago ng isip na hindi na magpadala ng parusa. Iyan ang dahilan kung bakit tumakas ako papuntang Tarshish. 
+Sinabi niya sa Panginoon nang siya ay manalangin, "O Panginoon, talagang hindi ako nagkamali nang sabihin ko noong naroon pa ako sa aming lugar na kaaawaan mo ang mga taga-Nineve kung magsisisi sila_, dahil alam ko na mahabagin kang Dios at mapagmalasakit. Mapagmahal ka at hindi madaling magalit. At handa kang magbago ng isip na hindi na magpadala ng parusa. Iyan ang dahilan kung bakit tumakas ako papuntang Tarshish. 
 
 
 

@@ -205,7 +205,7 @@ Pagkatapos, nagpatirapa sina Moises at Aaron sa harapan ng lahat ng mamamayan ng
 
 
 
-Pinunit ni Josue na anak ni Nun at ni Caleb na anak ni Jefune ang kanilang mga damit <i class="trans-change">sa kalungkutan_. Ang dalawang ito ay kasama sa pag-espiya sa lupain. 
+Pinunit ni Josue na anak ni Nun at ni Caleb na anak ni Jefune ang kanilang mga damit sa kalungkutan_. Ang dalawang ito ay kasama sa pag-espiya sa lupain. 
 
 
 
@@ -469,7 +469,7 @@ Sinabi ni Moises sa Panginoon, "Ano na lang po ang sasabihin ng mga Egipcio kung
 
 
 
-<i class="trans-change">Kapag pinatay po ninyo ang inyong mamamayan_, sasabihin nila ito sa mga naninirahan sa Canaan. Narinig ng mga Cananeo na kayo, Panginoon ay sumasama sa mga Israelita, at nagpapakita sa kanila sa pamamagitan ng ulap na gumagabay sa kanila. Pinangungunahan nʼyo sila kapag gabi sa pamamagitan ng apoy na parang haligi, at kapag araw sa pamamagitan ng ulap na parang haligi rin. 
+Kapag pinatay po ninyo ang inyong mamamayan_, sasabihin nila ito sa mga naninirahan sa Canaan. Narinig ng mga Cananeo na kayo, Panginoon ay sumasama sa mga Israelita, at nagpapakita sa kanila sa pamamagitan ng ulap na gumagabay sa kanila. Pinangungunahan nʼyo sila kapag gabi sa pamamagitan ng apoy na parang haligi, at kapag araw sa pamamagitan ng ulap na parang haligi rin. 
 
 
 
@@ -700,7 +700,7 @@ Sumagot ang Panginoon, "Patatawarin ko sila ayon sa iyong hiniling.
 
 
 
-Ngunit sumusumpa ako, ang Panginoong nabubuhay, habang ang buong mundo ay napupuno ng aking dakilang presensya, <sup class="versenum">22-23</sup>walang sinuman sa kanila ang makakapasok sa lupaing ipinangako ko sa kanilang mga ninuno. Dahil kahit nakita nila ang aking makapangyarihang presensya at ang mga himala na ginawa ko sa Egipto at sa disyerto, palagi pa rin nila akong sinusubok at hindi sila sumusunod sa akin. Kaya hindi makakapasok sa lupaing iyon ang mga nagtatakwil sa akin. 
+Ngunit sumusumpa ako, ang Panginoong nabubuhay, habang ang buong mundo ay napupuno ng aking dakilang presensya, 22-23walang sinuman sa kanila ang makakapasok sa lupaing ipinangako ko sa kanilang mga ninuno. Dahil kahit nakita nila ang aking makapangyarihang presensya at ang mga himala na ginawa ko sa Egipto at sa disyerto, palagi pa rin nila akong sinusubok at hindi sila sumusunod sa akin. Kaya hindi makakapasok sa lupaing iyon ang mga nagtatakwil sa akin. 
 
 
 
@@ -1096,7 +1096,7 @@ Dahil ang mga espiya sa lupain ay tumira roon ng 40 araw, magdurusa rin kayo ng 
 
 
 
-Ako, ang Panginoon, ang nagsasabi nito at siguradong gagawin ko ang mga bagay na ito sa masasamang mamamayang ito na nagkaisang kumalaban sa akin. Mamamatay silang lahat sa disyerto." <sup class="versenum">36-37</sup>Ang mga taong inutusan ni Moises para sa pag-espiya, na nagbalita ng masama tungkol sa lupain na siyang naging dahilan ng pagrereklamo ng mga Israelita ay namatay sa karamdaman sa presensya ng Panginoon. 
+Ako, ang Panginoon, ang nagsasabi nito at siguradong gagawin ko ang mga bagay na ito sa masasamang mamamayang ito na nagkaisang kumalaban sa akin. Mamamatay silang lahat sa disyerto." 36-37Ang mga taong inutusan ni Moises para sa pag-espiya, na nagbalita ng masama tungkol sa lupain na siyang naging dahilan ng pagrereklamo ng mga Israelita ay namatay sa karamdaman sa presensya ng Panginoon. 
 
 
 
@@ -1197,7 +1197,7 @@ Nang sinabi ito ni Moises sa lahat ng mga Israelita, nagluksa sila.
 
 
 
-At kinabukasan, maaga silang bumangon para umakyat sa kabundukan <i class="trans-change">ng Canaan_. Sinabi nila, "Napag-isip-isip namin na nagkasala kami, at ngayoʼy handa na kami sa pagpunta sa lugar na ipinangako ng Panginoon." 
+At kinabukasan, maaga silang bumangon para umakyat sa kabundukan ng Canaan_. Sinabi nila, "Napag-isip-isip namin na nagkasala kami, at ngayoʼy handa na kami sa pagpunta sa lugar na ipinangako ng Panginoon." 
 
 
 
@@ -1230,7 +1230,7 @@ At kinabukasan, maaga silang bumangon para umakyat sa kabundukan <i class="trans
 
 
 
-Pero sinabi ni Moises, "Bakit sinuway ninyo ang utos ng Panginoon <i class="trans-change">na magbalik kayo sa disyerto_? Hindi kayo magtatagumpay! 
+Pero sinabi ni Moises, "Bakit sinuway ninyo ang utos ng Panginoon na magbalik kayo sa disyerto_? Hindi kayo magtatagumpay! 
 
 
 
@@ -1329,7 +1329,7 @@ Sa oras na makipaglaban sa inyo ang mga Cananeo at mga Amalekita, mamamatay kayo
 
 
 
-Pero naglakbay sila sa kabundukan <i class="trans-change">ng Canaan_ kahit hindi sumama sa kanila si Moises at ang Kahon ng Kasunduan. 
+Pero naglakbay sila sa kabundukan ng Canaan_ kahit hindi sumama sa kanila si Moises at ang Kahon ng Kasunduan. 
 
 
 

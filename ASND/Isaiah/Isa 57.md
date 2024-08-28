@@ -370,7 +370,7 @@ At kahit pagod na kayo sa kakahanap ng mga dios-diosan, hindi pa rin kayo nawawa
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Sino ba itong mga dios-diosan na kinatatakutan nʼyo at nagsinungaling kayo sa akin? Kinalimutan nʼyo ako at hindi pinansin. Ano ba ang dahilan, bakit hindi nʼyo na ako iginagalang? Dahil ba sa nanahimik ako sa loob ng mahabang panahon? 
+Sinabi ng Panginoon,_ "Sino ba itong mga dios-diosan na kinatatakutan nʼyo at nagsinungaling kayo sa akin? Kinalimutan nʼyo ako at hindi pinansin. Ano ba ang dahilan, bakit hindi nʼyo na ako iginagalang? Dahil ba sa nanahimik ako sa loob ng mahabang panahon? 
 
 
 
@@ -634,7 +634,7 @@ Nakita ko ang kanilang pag-uugali, pero pagagalingin ko sila. Papatnubayan ko si
 
 
 
-At dahil dito, magpupuri sila sa akin. Ilalagay ko sila sa magandang kalagayan, sa malayo man o nasa malapit. Pagagalingin ko sila. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+At dahil dito, magpupuri sila sa akin. Ilalagay ko sila sa magandang kalagayan, sa malayo man o nasa malapit. Pagagalingin ko sila. Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 

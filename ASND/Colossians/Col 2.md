@@ -207,7 +207,7 @@ Kahit wala ako riyan sa inyo, lagi kayong nasa isipan ko. At masaya ako dahil ma
 
 
 
-Dahil tinanggap nʼyo na si Cristo Jesus bilang Panginoon, mamuhay kayo <i class="trans-change">nang karapat-dapat_ sa kanya. 
+Dahil tinanggap nʼyo na si Cristo Jesus bilang Panginoon, mamuhay kayo nang karapat-dapat_ sa kanya. 
 
 
 
@@ -306,7 +306,7 @@ Mag-ingat kayo nang hindi kayo madala ng walang kabuluhan at mapandayang pilosop
 
 
 
-<i class="trans-change">Kaya huwag kayong padadala,_ dahil ang kapuspusan ng Dios ay nananahan sa katawan ni Cristo. 
+Kaya huwag kayong padadala,_ dahil ang kapuspusan ng Dios ay nananahan sa katawan ni Cristo. 
 
 
 
@@ -339,7 +339,7 @@ Mag-ingat kayo nang hindi kayo madala ng walang kabuluhan at mapandayang pilosop
 
 
 
-At naging ganap kayo sa pakikipag-isa nʼyo sa kanya, na siyang pangulo ng lahat ng <i class="trans-change">espiritung_ namumuno at may kapangyarihan. 
+At naging ganap kayo sa pakikipag-isa nʼyo sa kanya, na siyang pangulo ng lahat ng espiritung_ namumuno at may kapangyarihan. 
 
 
 
@@ -438,7 +438,7 @@ Inilibing kayong kasama ni Cristo nang bautismuhan kayo. At dahil nakay Cristo n
 
 
 
-Noong una, itinuring kayong mga patay <i class="trans-change">ng Dios_ dahil sa mga kasalanan ninyo. Pero ngayon, binuhay kayo ng Dios kasama ni Cristo. Pinatawad niya ang lahat ng kasalanan natin. 
+Noong una, itinuring kayong mga patay ng Dios_ dahil sa mga kasalanan ninyo. Pero ngayon, binuhay kayo ng Dios kasama ni Cristo. Pinatawad niya ang lahat ng kasalanan natin. 
 
 
 
@@ -504,7 +504,7 @@ May pananagutan dapat tayo sa Dios dahil hindi natin matupad ang Kautusan. Pero 
 
 
 
-Doon din sa krus nilupig ng Dios ang mga <i class="trans-change">espiritung_ namumuno at may kapangyarihan, at ipinakita sa lahat na ang mga ito ay bihag na niya. 
+Doon din sa krus nilupig ng Dios ang mga espiritung_ namumuno at may kapangyarihan, at ipinakita sa lahat na ang mga ito ay bihag na niya. 
 
 
 
@@ -636,7 +636,7 @@ Huwag kayong padadaya sa mga taong humihikayat na kailangan ninyong pagkaitan an
 
 
 
-Wala silang kaugnayan kay Cristo na siyang ulo <i class="trans-change">natin_. Siya ang nag-uugnay-ugnay at nag-aalaga sa <i class="trans-change">atin na kanyang_ katawan sa pamamagitan ng mga magkakaugnay na bahagi nito. Sa ganoon, lumalago tayo nang naaayon sa Dios.
+Wala silang kaugnayan kay Cristo na siyang ulo natin_. Siya ang nag-uugnay-ugnay at nag-aalaga sa atin na kanyang_ katawan sa pamamagitan ng mga magkakaugnay na bahagi nito. Sa ganoon, lumalago tayo nang naaayon sa Dios.
 
 ## Ang Bagong Buhay Kay Cristo 
 
@@ -671,7 +671,7 @@ Wala silang kaugnayan kay Cristo na siyang ulo <i class="trans-change">natin_. S
 
 
 
-Namatay kayong kasama ni Cristo, at pinalaya sa mga <i class="trans-change">walang kabuluhang_ pamamaraan ng mundo, kaya bakit namumuhay pa rin kayo na parang mga makamundo? Bakit sumusunod pa rin kayo sa mga tuntuning tulad ng, 
+Namatay kayong kasama ni Cristo, at pinalaya sa mga walang kabuluhang_ pamamaraan ng mundo, kaya bakit namumuhay pa rin kayo na parang mga makamundo? Bakit sumusunod pa rin kayo sa mga tuntuning tulad ng, 
 
 
 

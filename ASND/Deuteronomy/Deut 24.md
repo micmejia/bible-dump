@@ -139,7 +139,7 @@ at hiwalayan na naman siya ng ikalawa niyang asawa o mamatay ito,
 
 
 
-hindi na siya maaaring mapangasawang muli ng nauna niyang asawa dahil narumihan na siya. <i class="trans-change">Kung muli siyang mapapangasawa ng nauna niyang asawa_, kasuklam-suklam ito sa paningin ng Panginoon. Hindi ninyo dapat gawin ang mga kasalanang ito sa lupaing ibinibigay sa inyo ng Panginoon na inyong Dios bilang inyong mana. 
+hindi na siya maaaring mapangasawang muli ng nauna niyang asawa dahil narumihan na siya. Kung muli siyang mapapangasawa ng nauna niyang asawa_, kasuklam-suklam ito sa paningin ng Panginoon. Hindi ninyo dapat gawin ang mga kasalanang ito sa lupaing ibinibigay sa inyo ng Panginoon na inyong Dios bilang inyong mana. 
 
 
 
@@ -172,7 +172,7 @@ hindi na siya maaaring mapangasawang muli ng nauna niyang asawa dahil narumihan 
 
 
 
-"Kung bagong kasal ang isang lalaki, huwag ninyo siyang isasama sa labanan o bibigyan ng anumang responsibilidad sa bayan sa loob ng isang taon, para manatili <i class="trans-change">muna_ siya sa kanyang bahay at mabigyan ng kasiyahan ang kanyang asawa. 
+"Kung bagong kasal ang isang lalaki, huwag ninyo siyang isasama sa labanan o bibigyan ng anumang responsibilidad sa bayan sa loob ng isang taon, para manatili muna_ siya sa kanyang bahay at mabigyan ng kasiyahan ang kanyang asawa. 
 
 
 
@@ -370,7 +370,7 @@ Alalahanin ninyo kung ano ang ginawa ng Panginoon na inyong Dios kay Miriam nang
 
 
 
-Maghintay lang kayo sa labas at dadalhin niya ito sa inyo. <sup class="versenum">12-13</sup>Kung mahirap ang tao, at pangbalabal ang isinanla niya sa inyo, huwag ninyong palilipasin ang gabi na nasa inyo ito. Isauli ito sa kanya habang hindi pa lumulubog ang araw para magamit niya ito sa kanyang pagtulog, at pasasalamatan ka pa niya. Ituturing ito ng Panginoon na inyong Dios na gawang matuwid. 
+Maghintay lang kayo sa labas at dadalhin niya ito sa inyo. 12-13Kung mahirap ang tao, at pangbalabal ang isinanla niya sa inyo, huwag ninyong palilipasin ang gabi na nasa inyo ito. Isauli ito sa kanya habang hindi pa lumulubog ang araw para magamit niya ito sa kanyang pagtulog, at pasasalamatan ka pa niya. Ituturing ito ng Panginoon na inyong Dios na gawang matuwid. 
 
 
 

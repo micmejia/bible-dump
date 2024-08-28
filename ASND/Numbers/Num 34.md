@@ -172,7 +172,7 @@ At liliko ito patimog papunta sa Daang Paahon ng Akrabim, hanggang sa ilang ng Z
 
 
 
-at liliko papunta sa Lambak ng Egipto at magtatapos sa Dagat <i class="trans-change">ng Mediteraneo_. 
+at liliko papunta sa Lambak ng Egipto at magtatapos sa Dagat ng Mediteraneo_. 
 
 
 
@@ -436,7 +436,7 @@ Pagkatapos, bababa ito sa Jordan at magtatapos sa Dagat na Patay. "Ito ang inyon
 
 
 
-Pagkatapos, sinabi ni Moises sa mga Israelita, "Hatiin ninyo ang mga lupaing ito bilang inyong mana sa pamamagitan ng palabunutan. Sinabi ng Panginoon na ibigay ito sa siyam at kalahating lahi, <sup class="versenum">14-15</sup>Dahil ang lahi nina Reuben, Gad, at ng kalahating lahi ni Manase ay nakatanggap na ng kanilang mana sa bandang silangan ng Jordan malapit sa Jerico." 
+Pagkatapos, sinabi ni Moises sa mga Israelita, "Hatiin ninyo ang mga lupaing ito bilang inyong mana sa pamamagitan ng palabunutan. Sinabi ng Panginoon na ibigay ito sa siyam at kalahating lahi, 14-15Dahil ang lahi nina Reuben, Gad, at ng kalahating lahi ni Manase ay nakatanggap na ng kanilang mana sa bandang silangan ng Jordan malapit sa Jerico." 
 
 
 
@@ -535,7 +535,7 @@ Sinabi ng Panginoon kay Moises,
 
 
 
-At pumili ka ng isang pinuno sa bawat lahi para tulungan sila sa paghahati ng lupain." <sup class="versenum">19-28</sup>Ito ang pangalan ng mga pinili: 
+At pumili ka ng isang pinuno sa bawat lahi para tulungan sila sa paghahati ng lupain." 19-28Ito ang pangalan ng mga pinili: 
 
 
 

@@ -568,7 +568,7 @@ Hindi baʼt ang Dios na lumikha sa akin ang siya ring Dios na lumikha sa aking m
 
 
 
-at <i class="trans-change">kung_ naging madamot ako sa mga ulila, <i class="trans-change">parusahan nawa ako ng Dios_. 
+at kung_ naging madamot ako sa mga ulila, parusahan nawa ako ng Dios_. 
 
 
 
@@ -1162,7 +1162,7 @@ Hindi ako tumahimik o nagtago dahil takot ako sa anumang sasabihin ng mga tao.
 
 
 
-"Kung mayroon lang sanang makikinig ng panig ko, nakahanda akong lumagda para patunayan na wala akong kasalanan. Kung may reklamo ang <i class="trans-change">Dios na_ Makapangyarihan laban sa akin, ipapakiusap ko sa kanyang sabihin niya ito sa akin o kayaʼy isulat na lang. 
+"Kung mayroon lang sanang makikinig ng panig ko, nakahanda akong lumagda para patunayan na wala akong kasalanan. Kung may reklamo ang Dios na_ Makapangyarihan laban sa akin, ipapakiusap ko sa kanyang sabihin niya ito sa akin o kayaʼy isulat na lang. 
 
 
 
@@ -1195,7 +1195,7 @@ Hindi ako tumahimik o nagtago dahil takot ako sa anumang sasabihin ng mga tao.
 
 
 
-At ikakabit ko ito sa aking balikat o sa ulo ko na parang korona <i class="trans-change">para ipakita sa lahat na nakahanda akong humarap sa mga usapin_. 
+At ikakabit ko ito sa aking balikat o sa ulo ko na parang korona para ipakita sa lahat na nakahanda akong humarap sa mga usapin_. 
 
 
 
@@ -1228,7 +1228,7 @@ At ikakabit ko ito sa aking balikat o sa ulo ko na parang korona <i class="trans
 
 
 
-Sasabihin ko sa Dios ang lahat ng aking ginawa. Haharap ako sa kanya katulad ng pinuno <i class="trans-change">na hindi nahihiya_. 
+Sasabihin ko sa Dios ang lahat ng aking ginawa. Haharap ako sa kanya katulad ng pinuno na hindi nahihiya_. 
 
 
 

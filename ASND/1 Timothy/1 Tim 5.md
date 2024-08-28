@@ -40,7 +40,7 @@ next: ['1 Tim 6']
 
 
 
-Huwag mong pagsasabihan nang marahas ang matatandang lalaki, sa halip kausapin mo sila na parang <i class="trans-change">iyong_ ama. Ituring mo ang mga kabataang lalaki na parang mga kapatid, 
+Huwag mong pagsasabihan nang marahas ang matatandang lalaki, sa halip kausapin mo sila na parang iyong_ ama. Ituring mo ang mga kabataang lalaki na parang mga kapatid, 
 
 
 
@@ -205,7 +205,7 @@ Ang biyudang nag-iisa na lang sa buhay ay umaasa na lang sa Dios. Araw-gabi siya
 
 
 
-Ngunit ang biyudang mahilig sa kalayawan ay patay na <i class="trans-change">sa paningin ng Dios_ kahit na buhay pa siya. 
+Ngunit ang biyudang mahilig sa kalayawan ay patay na sa paningin ng Dios_ kahit na buhay pa siya. 
 
 
 
@@ -337,7 +337,7 @@ Ang isama mo lang sa listahan ng mga biyuda na tutulungan ay ang mga hindi babab
 
 
 
-kilala sa paggawa ng mabuti gaya ng maayos na pagpapalaki ng mga anak, bukas ang tahanan sa mga nakikituloy, naglilingkod sa mga pinabanal <i class="trans-change">ng Dios_, tumutulong sa mga nangangailangan, at inilalaan ang sarili sa mabubuting gawa. 
+kilala sa paggawa ng mabuti gaya ng maayos na pagpapalaki ng mga anak, bukas ang tahanan sa mga nakikituloy, naglilingkod sa mga pinabanal ng Dios_, tumutulong sa mga nangangailangan, at inilalaan ang sarili sa mabubuting gawa. 
 
 
 
@@ -403,7 +403,7 @@ Ngunit huwag mong isama sa listahan ang mga biyuda na bata pa; dahil kung dumati
 
 
 
-At dahil dito, magkakasala sila dahil magiging walang saysay ang pangako nila <i class="trans-change">na maglingkod na lang kay Cristo_. 
+At dahil dito, magkakasala sila dahil magiging walang saysay ang pangako nila na maglingkod na lang kay Cristo_. 
 
 
 
@@ -502,7 +502,7 @@ Kaya para sa akin, kung ganito lang ang mangyayari, mas mabuti pang muli na lang
 
 
 
-<i class="trans-change">Sinasabi ko ito_ dahil may ilang biyuda na ang tumalikod <i class="trans-change">sa pananampalataya_ at sumusunod na kay Satanas. 
+Sinasabi ko ito_ dahil may ilang biyuda na ang tumalikod sa pananampalataya_ at sumusunod na kay Satanas. 
 
 
 
@@ -568,7 +568,7 @@ Kung ang isang mananampalatayang babae ay may kamag-anak na biyuda, dapat niya i
 
 
 
-Ang mga namumuno sa iglesya na naglilingkod nang mabuti ay dapat bigyan ng nararapat na sahod, lalo na ang mga naglilingkod sa pangangaral at pagtuturo <i class="trans-change">ng salita ng Dios_. 
+Ang mga namumuno sa iglesya na naglilingkod nang mabuti ay dapat bigyan ng nararapat na sahod, lalo na ang mga naglilingkod sa pangangaral at pagtuturo ng salita ng Dios_. 
 
 
 
@@ -733,7 +733,7 @@ Sa presensya ng Dios at ni Cristo Jesus at ng kanyang mga anghel, iniuutos ko sa
 
 
 
-Huwag kang padalos-dalos sa pagpapatong ng kamay mo sa kahit sino <i class="trans-change">para bigyan ng kapangyarihang mamuno sa iglesya_. Ingatan mong huwag masangkot sa kasalanan ng iba. Manatili kang walang bahid ng kasalanan. 
+Huwag kang padalos-dalos sa pagpapatong ng kamay mo sa kahit sino para bigyan ng kapangyarihang mamuno sa iglesya_. Ingatan mong huwag masangkot sa kasalanan ng iba. Manatili kang walang bahid ng kasalanan. 
 
 
 

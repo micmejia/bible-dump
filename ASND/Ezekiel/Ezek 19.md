@@ -40,7 +40,7 @@ next: ['Ezek 20']
 
 
 
-<i class="trans-change">Sinabi sa akin ng Panginoon_, "Awitin mo ang panaghoy na ito para sa mga pinuno ng Israel: 
+Sinabi sa akin ng Panginoon_, "Awitin mo ang panaghoy na ito para sa mga pinuno ng Israel: 
 
 
 
@@ -403,7 +403,7 @@ Matitibay ang sanga nito at maaaring gawing setro ng hari. Mas tumaas pa ang uba
 
 
 
-Pero dahil sa galit, binunot ito at itinapon sa lupa. Ang mga bunga nitoʼy natuyo dahil sa <i class="trans-change">mainit_ na hangin mula sa silangan. Natuyo rin ang matatayog na sanga, nalaglag at pagkatapos ay nasunog 
+Pero dahil sa galit, binunot ito at itinapon sa lupa. Ang mga bunga nitoʼy natuyo dahil sa mainit_ na hangin mula sa silangan. Natuyo rin ang matatayog na sanga, nalaglag at pagkatapos ay nasunog 
 
 
 
@@ -436,7 +436,7 @@ Pero dahil sa galit, binunot ito at itinapon sa lupa. Ang mga bunga nitoʼy natu
 
 
 
-Ngayon, <i class="trans-change">muli_ itong itinanim sa ilang, sa lugar na tuyo at walang tubig. 
+Ngayon, muli_ itong itinanim sa ilang, sa lugar na tuyo at walang tubig. 
 
 
 

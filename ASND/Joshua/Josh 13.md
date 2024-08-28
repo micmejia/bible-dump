@@ -106,7 +106,7 @@ Ito pa ang mga naiwan: ang lahat ng lupain ng mga Filisteo at Geshureo
 
 
 
-na bahagi ng teritoryo ng mga Cananeo. Ito ay mula sa <i class="trans-change">ilog ng_ Shihor sa silangan ng Egipto, hanggang sa hilagang hangganan ng Ekron kasama ang limang bayan ng mga Filisteo: Gaza, Ashdod, Ashkelon, Gat at Ekron, at ang lupain ng mga Aveo 
+na bahagi ng teritoryo ng mga Cananeo. Ito ay mula sa ilog ng_ Shihor sa silangan ng Egipto, hanggang sa hilagang hangganan ng Ekron kasama ang limang bayan ng mga Filisteo: Gaza, Ashdod, Ashkelon, Gat at Ekron, at ang lupain ng mga Aveo 
 
 
 
@@ -370,7 +370,7 @@ Umabot ito sa lahat ng bayan na pinamahalaan ni Sihon na Amoreo na naghari sa He
 
 
 
-Nakasama rin ang Gilead at ang mga lupaing tinirhan ng mga Geshureo at mga Maacateo at ang buong lugar na <i class="trans-change">tinatawag na_ Bundok ng Hermon, at ang buong Bashan hanggang Saleca. 
+Nakasama rin ang Gilead at ang mga lupaing tinirhan ng mga Geshureo at mga Maacateo at ang buong lugar na tinatawag na_ Bundok ng Hermon, at ang buong Bashan hanggang Saleca. 
 
 
 
@@ -766,7 +766,7 @@ Kasama sa mga pinatay ng mga Israelita si Balaam na manghuhula na anak ni Beor.
 
 
 
-Ang <i class="trans-change">Ilog ng_ Jordan ay ang hangganan ng lahi ni Reuben. Ito nga ang mga bayan at baryo na ibinigay sa lahi ni Reuben na hinati sa bawat sambahayan. 
+Ang Ilog ng_ Jordan ay ang hangganan ng lahi ni Reuben. Ito nga ang mga bayan at baryo na ibinigay sa lahi ni Reuben na hinati sa bawat sambahayan. 
 
 
 
@@ -898,7 +898,7 @@ Nakasama rin ang mga lupain mula sa Heshbon hanggang sa Ramat Mizpa at Betomin, 
 
 
 
-Ang lupaing natanggap nila sa Lambak ng Jordan ay ang Bet Haram, Bet Nimra, Sucot, Zafon at ang nalalabi sa kaharian ni Haring Sihon ng Heshbon. Ang hangganan sa kanluran ay ang <i class="trans-change">Ilog ng_ Jordan hanggang sa Lawa ng Galilea. 
+Ang lupaing natanggap nila sa Lambak ng Jordan ay ang Bet Haram, Bet Nimra, Sucot, Zafon at ang nalalabi sa kaharian ni Haring Sihon ng Heshbon. Ang hangganan sa kanluran ay ang Ilog ng_ Jordan hanggang sa Lawa ng Galilea. 
 
 
 

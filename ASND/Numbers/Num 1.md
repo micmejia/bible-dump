@@ -138,7 +138,7 @@ na may edad 20 taong gulang pataas na may kakayahan sa paglilingkod bilang sunda
 
 
 
-Tutulong sa inyo ang pinuno ng bawat lahi." <sup class="versenum">5-15</sup>Ito ang pangalan ng mga taong tutulong sa inyo: 
+Tutulong sa inyo ang pinuno ng bawat lahi." 5-15Ito ang pangalan ng mga taong tutulong sa inyo: 
 
 
 
@@ -171,7 +171,7 @@ Tutulong sa inyo ang pinuno ng bawat lahi." <sup class="versenum">5-15</sup>Ito 
 
 
 
-Sila ang mga pinuno ng mga lahing pinili mula sa mga mamamayan <i class="trans-change">ng Israel_. <sup class="versenum">17-18</sup>Kasama ng mga pinunong ito, tinipon nina Moises at Aaron ang lahat ng mga Israelita nang araw ding iyon. Inilista nila ang lahat ng lalaking may edad na 20 taong gulang pataas, ayon sa kanilang lahi at pamilya. 
+Sila ang mga pinuno ng mga lahing pinili mula sa mga mamamayan ng Israel_. 17-18Kasama ng mga pinunong ito, tinipon nina Moises at Aaron ang lahat ng mga Israelita nang araw ding iyon. Inilista nila ang lahat ng lalaking may edad na 20 taong gulang pataas, ayon sa kanilang lahi at pamilya. 
 
 
 
@@ -204,7 +204,7 @@ Sila ang mga pinuno ng mga lahing pinili mula sa mga mamamayan <i class="trans-c
 
 
 
-Inilista sila ni Moises doon sa disyerto ng Sinai, ayon sa iniutos sa kanya ng Panginoon. <sup class="versenum">20-43</sup>Ito ang bilang ng mga lalaking may edad 20 pataas na may kakayahan sa paglilingkod bilang sundalo, na nailista ayon sa kanilang lahi at pamilya: <sup class="versenum">44-45</sup>Sila ang mga lalaking nabilang nina Moises at Aaron at ng 12 pinuno ng Israel. Ang bawat isa sa kanila ay kumakatawan sa kani-kanilang pamilya. Sila ay 20 taong gulang pataas at may kakayahang maging sundalo ng Israel. 
+Inilista sila ni Moises doon sa disyerto ng Sinai, ayon sa iniutos sa kanya ng Panginoon. 20-43Ito ang bilang ng mga lalaking may edad 20 pataas na may kakayahan sa paglilingkod bilang sundalo, na nailista ayon sa kanilang lahi at pamilya: 44-45Sila ang mga lalaking nabilang nina Moises at Aaron at ng 12 pinuno ng Israel. Ang bawat isa sa kanila ay kumakatawan sa kani-kanilang pamilya. Sila ay 20 taong gulang pataas at may kakayahang maging sundalo ng Israel. 
 
 
 
@@ -336,7 +336,7 @@ Sapagkat sinabi ng Panginoon kay Moises,
 
 
 
-"Huwag ninyong isama ang lahi ni Levi sa sensus kasama ng ibang mga Israelita, <i class="trans-change">na magsisilbi sa panahon ng labanan_. 
+"Huwag ninyong isama ang lahi ni Levi sa sensus kasama ng ibang mga Israelita, na magsisilbi sa panahon ng labanan_. 
 
 
 

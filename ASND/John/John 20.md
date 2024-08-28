@@ -73,7 +73,7 @@ Kinaumagahan ng Linggo, habang madilim pa, pumunta si Maria na taga-Magdala sa l
 
 
 
-Kaya tumakbo siya at pumunta kay Simon Pedro at sa tagasunod na mahal ni Jesus. <i class="trans-change">Pagdating niya sa kinaroroonan nila,_ sinabi niya sa kanila, "Kinuha nila sa libingan ang Panginoon at hindi namin alam kung saan dinala." 
+Kaya tumakbo siya at pumunta kay Simon Pedro at sa tagasunod na mahal ni Jesus. Pagdating niya sa kinaroroonan nila,_ sinabi niya sa kanila, "Kinuha nila sa libingan ang Panginoon at hindi namin alam kung saan dinala." 
 
 
 
@@ -172,7 +172,7 @@ Pareho silang tumakbo, pero mas mabilis ang isa kaysa kay Pedro, kaya nauna iton
 
 
 
-Yumuko siya at sumilip sa loob ng libingan. Nakita niya ang mga <i class="trans-change">telang_ linen na <i class="trans-change">ipinambalot kay Jesus_, pero hindi siya pumasok. 
+Yumuko siya at sumilip sa loob ng libingan. Nakita niya ang mga telang_ linen na ipinambalot kay Jesus_, pero hindi siya pumasok. 
 
 
 
@@ -240,7 +240,7 @@ Kasunod naman niyang dumating si Simon Pedro, at pumasok siya sa loob ng libinga
 
 maging ang ipinambalot sa ulo ni Jesus. Nakatiklop ito sa mismong lugar nito, at nakahiwalay sa ibang pang mga tela.
 
-###### 8-9 Pumasok na rin ang tagasunod na naunang nakarating, at nakita rin niya <i class="trans-change">ang mga ito_. Kahit na hindi pa nila nauunawaan ang tungkol sa sinasabi ng Kasulatan na si Jesus ay muling mabubuhay, naniwala siya <i class="trans-change">na muling nabuhay si Jesus_. 
+###### 8-9 Pumasok na rin ang tagasunod na naunang nakarating, at nakita rin niya ang mga ito_. Kahit na hindi pa nila nauunawaan ang tungkol sa sinasabi ng Kasulatan na si Jesus ay muling mabubuhay, naniwala siya na muling nabuhay si Jesus_. 
 
 
 
@@ -473,7 +473,7 @@ Tinanong siya ni Jesus, "Babae, bakit ka umiiyak? Sino ba ang hinahanap mo?" Sa 
 
 
 
-Sinabi ni Jesus sa kanya, "Maria!" Humarap si Maria kay Jesus at sinabi sa <i class="trans-change">wikang_ Hebreo, "Rabboni!" (Ang ibig sabihin ay "Guro".) 
+Sinabi ni Jesus sa kanya, "Maria!" Humarap si Maria kay Jesus at sinabi sa wikang_ Hebreo, "Rabboni!" (Ang ibig sabihin ay "Guro".) 
 
 
 
@@ -539,7 +539,7 @@ Sinabi ni Jesus, "Huwag mo akong hawakan, dahil hindi pa ako nakakabalik sa akin
 
 
 
-Kaya pinuntahan ni Maria na taga-Magdala ang mga tagasunod <i class="trans-change">ni Jesus_ at ibinalita sa kanila na nakita niya ang Panginoon. At sinabi niya sa kanila ang mga ipinapasabi ni Jesus.
+Kaya pinuntahan ni Maria na taga-Magdala ang mga tagasunod ni Jesus_ at ibinalita sa kanila na nakita niya ang Panginoon. At sinabi niya sa kanila ang mga ipinapasabi ni Jesus.
 
 ## Nagpakita si Jesus sa mga Tagasunod Niya 
 
@@ -574,7 +574,7 @@ Kaya pinuntahan ni Maria na taga-Magdala ang mga tagasunod <i class="trans-chang
 
 
 
-Nang takip-silim na ng araw na iyon, nagsama-sama ang mga tagasunod <i class="trans-change">ni Jesus_. Ikinandado nila ang mga pinto dahil sa takot sa mga <i class="trans-change">pinuno ng mga_ Judio. Dumating si Jesus at tumayo sa gitna nila, at sinabi, "Sumainyo ang kapayapaan." 
+Nang takip-silim na ng araw na iyon, nagsama-sama ang mga tagasunod ni Jesus_. Ikinandado nila ang mga pinto dahil sa takot sa mga pinuno ng mga_ Judio. Dumating si Jesus at tumayo sa gitna nila, at sinabi, "Sumainyo ang kapayapaan." 
 
 
 
@@ -607,7 +607,7 @@ Nang takip-silim na ng araw na iyon, nagsama-sama ang mga tagasunod <i class="tr
 
 
 
-Pagkasabi niya nito, ipinakita niya ang <i class="trans-change">sugat sa_ mga kamay at tagiliran niya. Labis na natuwa ang mga tagasunod nang makita ang Panginoon. 
+Pagkasabi niya nito, ipinakita niya ang sugat sa_ mga kamay at tagiliran niya. Labis na natuwa ang mga tagasunod nang makita ang Panginoon. 
 
 
 
@@ -706,7 +706,7 @@ Pagkasabi niya nito, hiningahan niya sila at sinabi, "Tanggapin nʼyo ang Banal 
 
 
 
-Kung patatawarin nʼyo ang kasalanan ng isang tao, pinatawad na siya <i class="trans-change">ng Dios_. At kung hindi nʼyo patatawarin ang kanyang kasalanan, hindi rin siya pinatawad <i class="trans-change">ng Dios_." ## Ang Pagdududa ni Tomas 
+Kung patatawarin nʼyo ang kasalanan ng isang tao, pinatawad na siya ng Dios_. At kung hindi nʼyo patatawarin ang kanyang kasalanan, hindi rin siya pinatawad ng Dios_." ## Ang Pagdududa ni Tomas 
 
 
 
@@ -739,7 +739,7 @@ Kung patatawarin nʼyo ang kasalanan ng isang tao, pinatawad na siya <i class="t
 
 
 
-Si Tomas na tinatawag na Kambal, na isa rin sa 12 <i class="trans-change">apostol_ ay hindi nila kasama noong nagpakita si Jesus. 
+Si Tomas na tinatawag na Kambal, na isa rin sa 12 apostol_ ay hindi nila kasama noong nagpakita si Jesus. 
 
 
 
@@ -772,7 +772,7 @@ Si Tomas na tinatawag na Kambal, na isa rin sa 12 <i class="trans-change">aposto
 
 
 
-Kaya ibinalita nila sa kanya na nakita nila ang Panginoon. Pero sinabi niya sa kanila, "Hindi ako maniniwala hanggaʼt hindi ko nakikita ang mga sugat ng pagkakapako sa mga kamay niya at mahipo ang mga ito, pati na ang <i class="trans-change">sugat sa_ kanyang tagiliran." 
+Kaya ibinalita nila sa kanya na nakita nila ang Panginoon. Pero sinabi niya sa kanila, "Hindi ako maniniwala hanggaʼt hindi ko nakikita ang mga sugat ng pagkakapako sa mga kamay niya at mahipo ang mga ito, pati na ang sugat sa_ kanyang tagiliran." 
 
 
 
@@ -904,7 +904,7 @@ Sinabi ni Tomas sa kanya, "Panginoon ko at Dios ko!"
 
 
 
-Sinabi ni Jesus sa kanya, "Naniniwala ka na ba dahil nakita mo ako? Mapalad ang mga naniniwala kahit hindi nila <i class="trans-change">ako_ nakita." ## Ang Layunin ng Aklat na Ito 
+Sinabi ni Jesus sa kanya, "Naniniwala ka na ba dahil nakita mo ako? Mapalad ang mga naniniwala kahit hindi nila ako_ nakita." ## Ang Layunin ng Aklat na Ito 
 
 
 
@@ -970,4 +970,4 @@ Marami pang himalang ginawa si Jesus na nasaksihan ng mga tagasunod niya ang hin
 
 
 
-Pero ang nasa aklat na itoʼy isinulat upang sumampalataya kayo na si Jesus nga ang Cristo, ang Anak ng Dios. At kung sasampalataya kayo sa kanya, magkakaroon kayo ng buhay <i class="trans-change">na walang hanggan_.
+Pero ang nasa aklat na itoʼy isinulat upang sumampalataya kayo na si Jesus nga ang Cristo, ang Anak ng Dios. At kung sasampalataya kayo sa kanya, magkakaroon kayo ng buhay na walang hanggan_.

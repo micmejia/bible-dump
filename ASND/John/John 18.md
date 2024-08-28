@@ -106,7 +106,7 @@ Alam ng traydor na si Judas ang lugar na iyon, dahil madalas magtipon doon si Je
 
 
 
-Kaya pumunta roon si Judas kasama ang isang pangkat ng mga <i class="trans-change">Romanong_ sundalo at ilang mga guwardya sa templo na isinugo ng mga namamahalang pari at ng mga Pariseo. May dala-dala silang mga sulo at mga sandata. 
+Kaya pumunta roon si Judas kasama ang isang pangkat ng mga Romanong_ sundalo at ilang mga guwardya sa templo na isinugo ng mga namamahalang pari at ng mga Pariseo. May dala-dala silang mga sulo at mga sandata. 
 
 
 
@@ -403,7 +403,7 @@ Pero sinaway ni Jesus si Pedro, "Ibalik mo ang espada mo sa lalagyan nito. Sa pa
 
 
 
-Dinakip si Jesus ng mga <i class="trans-change">Romanong_ sundalo sa pangunguna ng kanilang kapitan, kasama ng mga guwardyang Judio. Siyaʼy iginapos nila at 
+Dinakip si Jesus ng mga Romanong_ sundalo sa pangunguna ng kanilang kapitan, kasama ng mga guwardyang Judio. Siyaʼy iginapos nila at 
 
 
 
@@ -469,7 +469,7 @@ dinala muna kay Anas na biyenan ni Caifas. Si Caifas ang punong pari nang taon n
 
 
 
-at siya ang nagpayo sa mga <i class="trans-change">pinuno ng mga_ Judio na mabuting mamatay ang isang tao kaysa sa mapahamak ang buong bansa.
+at siya ang nagpayo sa mga pinuno ng mga_ Judio na mabuting mamatay ang isang tao kaysa sa mapahamak ang buong bansa.
 
 ## Ipinagkaila ni Pedro na Kilala Niya si Jesus 
 
@@ -838,7 +838,7 @@ Habang nakagapos pa si Jesus, ipinadala siya ni Anas kay Caifas na punong pari.
 
 
 
-Samantala, nakatayo pa rin si Simon Pedro <i class="trans-change">malapit sa siga_ at nagpapainit. Tinanong siya ng mga naroon, "Hindi baʼt isa ka sa mga tagasunod niya?" "Hindi!" Tanggi ni Pedro. 
+Samantala, nakatayo pa rin si Simon Pedro malapit sa siga_ at nagpapainit. Tinanong siya ng mga naroon, "Hindi baʼt isa ka sa mga tagasunod niya?" "Hindi!" Tanggi ni Pedro. 
 
 
 
@@ -1203,7 +1203,7 @@ Sumagot si Pilato, "Judio ba ako? Dinala ka rito sa akin ng mga kababayan mo at 
 
 
 
-Sinabi ni Jesus sa kanya, "Ang kaharian ko ay wala rito sa mundo. Kung nandito ang kaharian ko, makikipaglaban sana ang mga tagasunod ko upang hindi ako madakip ng mga Judio. Pero <i class="trans-change">tulad nga ng sinabi ko,_ ang kaharian ko ay wala rito." 
+Sinabi ni Jesus sa kanya, "Ang kaharian ko ay wala rito sa mundo. Kung nandito ang kaharian ko, makikipaglaban sana ang mga tagasunod ko upang hindi ako madakip ng mga Judio. Pero tulad nga ng sinabi ko,_ ang kaharian ko ay wala rito." 
 
 
 

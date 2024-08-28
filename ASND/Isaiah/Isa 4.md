@@ -106,7 +106,7 @@ Darating ang araw na pasasaganain at pagagandahin ng Panginoon ang mga pananim s
 
 
 
-Tatawaging banal ang mga natirang buhay sa Zion, ang <i class="trans-change">lungsod ng_ Jerusalem. 
+Tatawaging banal ang mga natirang buhay sa Zion, ang lungsod ng_ Jerusalem. 
 
 
 

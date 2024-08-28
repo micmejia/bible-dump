@@ -40,7 +40,7 @@ next: ['Ezek 25']
 
 
 
-Noong ikasampung araw ng ikasampung buwan, nang ikasiyam na taon <i class="trans-change">ng aming pagkabihag_, sinabi sa akin ng Panginoon, 
+Noong ikasampung araw ng ikasampung buwan, nang ikasiyam na taon ng aming pagkabihag_, sinabi sa akin ng Panginoon, 
 
 
 
@@ -106,7 +106,7 @@ Noong ikasampung araw ng ikasampung buwan, nang ikasiyam na taon <i class="trans
 
 
 
-Pagkatapos, sabihin mo ang talinghagang ito sa mga rebeldeng mamamayan <i class="trans-change">ng Israel_ at ipaalam sa kanila na ako, ang Panginoong Dios, ang nagsasabi nito: "Maglagay ka ng tubig sa kaldero, 
+Pagkatapos, sabihin mo ang talinghagang ito sa mga rebeldeng mamamayan ng Israel_ at ipaalam sa kanila na ako, ang Panginoong Dios, ang nagsasabi nito: "Maglagay ka ng tubig sa kaldero, 
 
 
 
@@ -205,7 +205,7 @@ Ang pinakamagandang karne lang ng tupa ang gamitin mo. Pagkatapos, pakuluan mo i
 
 
 
-Sapagkat <i class="trans-change">ako,_ ang Panginoong Dios, ang nagsasabi: Nakakaawa ang lungsod <i class="trans-change">ng Jerusalem_ na ang mga mamamayan ay mamamatay-tao. Ang lungsod na itoʼy tulad ng kalderong kinakalawang at hindi nililinis. Kaya isa-isa mong kunin ang laman nito. Huwag kang mamimili. 
+Sapagkat ako,_ ang Panginoong Dios, ang nagsasabi: Nakakaawa ang lungsod ng Jerusalem_ na ang mga mamamayan ay mamamatay-tao. Ang lungsod na itoʼy tulad ng kalderong kinakalawang at hindi nililinis. Kaya isa-isa mong kunin ang laman nito. Huwag kang mamimili. 
 
 
 
@@ -304,7 +304,7 @@ Nakita ko iyon at hinayaan kong makita iyon ng lahat. Ang mga dugong iyon ay par
 
 
 
-"Kaya <i class="trans-change">ako,_ ang Panginoong Dios ay nagsasabi: 'Nakakaawa ang lungsod <i class="trans-change">ng Jerusalem_ na ang mga mamamayan ay mamamatay-tao. Mag-iipon ako ng mga panggatong <i class="trans-change">para sunugin sila_. 
+"Kaya ako,_ ang Panginoong Dios ay nagsasabi: 'Nakakaawa ang lungsod ng Jerusalem_ na ang mga mamamayan ay mamamatay-tao. Mag-iipon ako ng mga panggatong para sunugin sila_. 
 
 
 
@@ -436,7 +436,7 @@ Pero kahit ganito ang gawin mo, hindi pa rin maaalis ng apoy ang kalawang.'
 
 
 
-"<i class="trans-change">O Jerusalem_, ang kahalayan mo ang dumungis sa iyo. Pinagsikapan kong linisin ka, ngunit ayaw mong magpalinis. Kaya mananatili kang marumi hanggaʼt hindi ko naibubuhos ang matinding galit ko sa iyo. 
+"O Jerusalem_, ang kahalayan mo ang dumungis sa iyo. Pinagsikapan kong linisin ka, ngunit ayaw mong magpalinis. Kaya mananatili kang marumi hanggaʼt hindi ko naibubuhos ang matinding galit ko sa iyo. 
 
 
 
@@ -469,7 +469,7 @@ Pero kahit ganito ang gawin mo, hindi pa rin maaalis ng apoy ang kalawang.'
 
 
 
-Ako, ang Panginoon, ay nagsasabing, dumating na ang panahon ng aking pagpaparusa at walang makapipigil sa akin. Hindi na kita kahahabagan at hindi na magbabago ang isip ko. Hahatulan kita ayon sa iyong pamumuhay at mga ginawa. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito." ## Ang Pagpatay sa Asawa ni Ezekiel 
+Ako, ang Panginoon, ay nagsasabing, dumating na ang panahon ng aking pagpaparusa at walang makapipigil sa akin. Hindi na kita kahahabagan at hindi na magbabago ang isip ko. Hahatulan kita ayon sa iyong pamumuhay at mga ginawa. Ako,_ ang Panginoong Dios, ang nagsasabi nito." ## Ang Pagpatay sa Asawa ni Ezekiel 
 
 
 
@@ -568,7 +568,7 @@ Sinabi sa akin ng Panginoon,
 
 
 
-Maaari kang magbuntong-hininga pero huwag mong ipapakita ang kalungkutan mo. Huwag mong alisin ang turban mo at sandalyas. Huwag mong tatakpan ang mukha mo <i class="trans-change">para ipakitang nagluluksa ka_. Huwag ka ring kumain ng pagkaing ibinibigay para sa namatayan." 
+Maaari kang magbuntong-hininga pero huwag mong ipapakita ang kalungkutan mo. Huwag mong alisin ang turban mo at sandalyas. Huwag mong tatakpan ang mukha mo para ipakitang nagluluksa ka_. Huwag ka ring kumain ng pagkaing ibinibigay para sa namatayan." 
 
 
 
@@ -634,7 +634,7 @@ Kinaumagahan, sinabi ko ito sa mga tao, at kinagabihan din ay namatay ang asawa 
 
 
 
-Tinanong ako ng mga tao, "Ano ang gusto mong sabihin sa ginagawa mong iyan?" <sup class="versenum">20-21</sup>Sinabi ko sa kanila, "Sinabi sa akin ng Panginoong Dios na sabihin ko ito sa mga mamamayan ng Israel: Nakahanda na akong dungisan ang aking templo na siyang sagisag ng ipinagmamalaki ninyong kapangyarihan, ang inyong kaligayahan at pinakamamahal. Mamamatay sa digmaan ang mga anak ninyong naiwan <i class="trans-change">sa Jerusalem_. 
+Tinanong ako ng mga tao, "Ano ang gusto mong sabihin sa ginagawa mong iyan?" 20-21Sinabi ko sa kanila, "Sinabi sa akin ng Panginoong Dios na sabihin ko ito sa mga mamamayan ng Israel: Nakahanda na akong dungisan ang aking templo na siyang sagisag ng ipinagmamalaki ninyong kapangyarihan, ang inyong kaligayahan at pinakamamahal. Mamamatay sa digmaan ang mga anak ninyong naiwan sa Jerusalem_. 
 
 
 
@@ -766,7 +766,7 @@ Magiging halimbawa sa inyo si Ezekiel. Ang mga ginawa niya ay gagawin nʼyo rin.
 
 
 
-<i class="trans-change">Sinabi pa ng Panginoon_, "Anak ng tao, sa oras na gibain ko na ang templo na siyang kanilang kanlungan, ipinagmamalaki, kaligayahan at pinakamamahal, at kapag pinatay ko na ang kanilang mga anak, 
+Sinabi pa ng Panginoon_, "Anak ng tao, sa oras na gibain ko na ang templo na siyang kanilang kanlungan, ipinagmamalaki, kaligayahan at pinakamamahal, at kapag pinatay ko na ang kanilang mga anak, 
 
 
 
@@ -799,7 +799,7 @@ Magiging halimbawa sa inyo si Ezekiel. Ang mga ginawa niya ay gagawin nʼyo rin.
 
 
 
-may makakatakas <i class="trans-change">mula sa Jerusalem_ na siyang magbabalita sa iyo ng mga pangyayari. 
+may makakatakas mula sa Jerusalem_ na siyang magbabalita sa iyo ng mga pangyayari. 
 
 
 

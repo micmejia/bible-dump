@@ -106,7 +106,7 @@ Kaya bumangon akoʼt nilibot ang lungsod, mga lansangan, at mga liwasan. Hinanap
 
 
 
-Nakita ako ng mga guwardya na naglilibot sa lungsod. <i class="trans-change">Tinanong ko sila_, "Nakita ba ninyo ang mahal ko?" 
+Nakita ako ng mga guwardya na naglilibot sa lungsod. Tinanong ko sila_, "Nakita ba ninyo ang mahal ko?" 
 
 
 

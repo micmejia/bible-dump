@@ -22,7 +22,7 @@ O Lord my God, if I have done this: If there is iniquity in my hands,
 If I have repaid evil to him who was at peace with me, Or have plundered my enemy without cause, 
 
 ###### 5 
-Let the enemy pursue me and overtake _me;_ Yes, let him trample my life to the earth, And lay my honor in the dust. <i class="selah">Selah_ 
+Let the enemy pursue me and overtake _me;_ Yes, let him trample my life to the earth, And lay my honor in the dust. Selah_ 
 
 ###### 6 
 Arise, O Lord, in Your anger; Lift Yourself up because of the rage of my enemies; Rise up for me _to_ the judgment You have commanded! 

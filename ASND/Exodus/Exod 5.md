@@ -205,7 +205,7 @@ Tingnan ninyo kung gaano kadami ang mga taong patitigilin ninyo sa pagtatrabaho.
 
 
 
-Nang araw na iyon, nag-utos ang Faraon sa mga <i class="trans-change">Egipciong_ namamahala sa mga Israelita sa trabaho at sa mga kapatas na Israelita. <i class="trans-change">Sinabi niya,_ 
+Nang araw na iyon, nag-utos ang Faraon sa mga Egipciong_ namamahala sa mga Israelita sa trabaho at sa mga kapatas na Israelita. Sinabi niya,_ 
 
 
 
@@ -733,7 +733,7 @@ Sinabi nila kina Moises at Aaron, "Parusahan sana kayo ng Panginoon. Dahil sa in
 
 
 
-Bumalik si Moises sa Panginoon at nanalangin, "O Panginoon, bakit nʼyo po pinahihirapan ang inyong mga mamamayan? Bakit pa ninyo ako isinugo <i class="trans-change">sa kanila_? 
+Bumalik si Moises sa Panginoon at nanalangin, "O Panginoon, bakit nʼyo po pinahihirapan ang inyong mga mamamayan? Bakit pa ninyo ako isinugo sa kanila_? 
 
 
 

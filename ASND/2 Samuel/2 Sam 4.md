@@ -139,7 +139,7 @@ dahil tumakas ang mga unang naninirahan dito papuntang Gittaim. Hanggang ngayon,
 
 
 
-(Ang <i class="trans-change">isa pang_ anak ni Saul na si Jonatan ay may anak na nalumpo, si Mefiboset. Limang taong gulang ito nang dumating ang balitang napatay sina Saul at Jonatan sa labanan sa Jezreel. Nang marinig ng tagapag-alaga ni Mefiboset ang balita, binuhat niya ito at tumakas. Pero dahil sa pagmamadali, nabitawan niya ang bata at nalumpo.) 
+(Ang isa pang_ anak ni Saul na si Jonatan ay may anak na nalumpo, si Mefiboset. Limang taong gulang ito nang dumating ang balitang napatay sina Saul at Jonatan sa labanan sa Jezreel. Nang marinig ng tagapag-alaga ni Mefiboset ang balita, binuhat niya ito at tumakas. Pero dahil sa pagmamadali, nabitawan niya ang bata at nalumpo.) 
 
 
 

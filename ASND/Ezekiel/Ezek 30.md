@@ -73,7 +73,7 @@ Sinabi ng Panginoon sa akin,
 
 
 
-"Anak ng tao, sabihin mo ang ipinapasabi ko <i class="trans-change">sa mga taga-Egipto_. Sabihin mong <i class="trans-change">ako,_ ang Panginoong Dios, ay nagsasabi: Umiyak kayo nang malakas dahil sa kapahamakang darating sa inyo. 
+"Anak ng tao, sabihin mo ang ipinapasabi ko sa mga taga-Egipto_. Sabihin mong ako,_ ang Panginoong Dios, ay nagsasabi: Umiyak kayo nang malakas dahil sa kapahamakang darating sa inyo. 
 
 
 
@@ -205,7 +205,7 @@ Sa digmaang iyon, mapapatay ang maraming taga-Etiopia, Put, Lydia, Arabia, Libya
 
 
 
-<i class="trans-change">Ako,_ ang Panginoong Dios ay nagsasabing, mapapahamak ang mga kakampi ng Egipto at mababalewala ang ipinagmamalaki niyang kapangyarihan. Mamamatay ang mga mamamayan niya mula sa Migdol hanggang sa Aswan. 
+Ako,_ ang Panginoong Dios ay nagsasabing, mapapahamak ang mga kakampi ng Egipto at mababalewala ang ipinagmamalaki niyang kapangyarihan. Mamamatay ang mga mamamayan niya mula sa Migdol hanggang sa Aswan. 
 
 
 
@@ -403,7 +403,7 @@ Siya at ang mga sundalo niya, na siyang pinakamalulupit na sundalo sa lahat ng b
 
 
 
-Patutuyuin ko ang <i class="trans-change">Ilog ng_ Nilo at ipapasakop ko ang Egipto sa masasamang tao. Wawasakin ko ang buong bansa <i class="trans-change">ng Egipto_ at ang lahat ng naroon sa pamamagitan ng mga dayuhan. Ako, ang Panginoon, ang nagsasabi nito." 
+Patutuyuin ko ang Ilog ng_ Nilo at ipapasakop ko ang Egipto sa masasamang tao. Wawasakin ko ang buong bansa ng Egipto_ at ang lahat ng naroon sa pamamagitan ng mga dayuhan. Ako, ang Panginoon, ang nagsasabi nito." 
 
 
 
@@ -667,7 +667,7 @@ Ganyan ang magiging parusa ko sa Egipto at malalaman ng mga mamamayan niya na ak
 
 
 
-At noong ikapitong araw ng unang buwan, nang ika-11 taon <i class="trans-change">ng aming pagkabihag_, sinabi ng Panginoon sa akin, 
+At noong ikapitong araw ng unang buwan, nang ika-11 taon ng aming pagkabihag_, sinabi ng Panginoon sa akin, 
 
 
 
@@ -733,7 +733,7 @@ At noong ikapitong araw ng unang buwan, nang ika-11 taon <i class="trans-change"
 
 
 
-Kaya sabihin mo sa kanya na <i class="trans-change">ako,_ ang Panginoong Dios ay nagsasabing laban ako sa kanya. Babaliin ko ang isa pa niyang braso para mabitawan niya ang <i class="trans-change">kanyang_ espada. 
+Kaya sabihin mo sa kanya na ako,_ ang Panginoong Dios ay nagsasabing laban ako sa kanya. Babaliin ko ang isa pa niyang braso para mabitawan niya ang kanyang_ espada. 
 
 
 

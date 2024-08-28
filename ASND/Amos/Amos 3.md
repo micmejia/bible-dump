@@ -40,7 +40,7 @@ next: ['Amos 4']
 
 
 
-Kayong mga taga-Israel, na <i class="trans-change">ang mga ninuno ay_ inilabas ng Panginoon sa Egipto, pakinggan ninyo ang sasabihin niya laban sa inyo: 
+Kayong mga taga-Israel, na ang mga ninuno ay_ inilabas ng Panginoon sa Egipto, pakinggan ninyo ang sasabihin niya laban sa inyo: 
 
 
 
@@ -207,7 +207,7 @@ Mahuhuli ba ang ibon kung walang pain na inilagay sa bitag? At iigkas ba ang bit
 
 
 
-Hindi baʼt nanginginig sa takot ang mga tao sa tuwing patutunugin ang trumpeta <i class="trans-change">na nagpapahiwatig na may paparating na kaaway_? Mangyayari ba ang kapahamakan sa isang lungsod kung hindi ito pinahintulutan ng Panginoon? 
+Hindi baʼt nanginginig sa takot ang mga tao sa tuwing patutunugin ang trumpeta na nagpapahiwatig na may paparating na kaaway_? Mangyayari ba ang kapahamakan sa isang lungsod kung hindi ito pinahintulutan ng Panginoon? 
 
 
 
@@ -306,7 +306,7 @@ Sino ang hindi matatakot kung umaatungal na ang leon? Sino kaya ang hindi magpap
 
 
 
-Sabihin ninyo sa <i class="trans-change">mga pinunong nakatira sa_ matitibay na bahagi ng Ashdod at Egipto na magtipon sila sa mga burol <i class="trans-change">sa paligid_ ng Samaria at tingnan nila ang kaguluhang nangyayari sa lungsod na ito at ang panggigipit sa mga mamamayan nito. <sup class="versenum">10-11</sup>Sapagkat ito ang sinasabi ng Panginoong Dios <i class="trans-change">laban sa Samaria_: "Hindi sila marunong gumawa ng matuwid. Ang matitibay na bahagi ng kanilang lungsod ay puno ng mga bagay na ninakaw at sinamsam. Kaya lulusubin sila ng mga kaaway at gigibain ang kanilang mga kampo. Sasamsamin ng mga kaaway ang mga ari-arian sa matitibay na bahagi ng kanilang lungsod." 
+Sabihin ninyo sa mga pinunong nakatira sa_ matitibay na bahagi ng Ashdod at Egipto na magtipon sila sa mga burol sa paligid_ ng Samaria at tingnan nila ang kaguluhang nangyayari sa lungsod na ito at ang panggigipit sa mga mamamayan nito. 10-11Sapagkat ito ang sinasabi ng Panginoong Dios laban sa Samaria_: "Hindi sila marunong gumawa ng matuwid. Ang matitibay na bahagi ng kanilang lungsod ay puno ng mga bagay na ninakaw at sinamsam. Kaya lulusubin sila ng mga kaaway at gigibain ang kanilang mga kampo. Sasamsamin ng mga kaaway ang mga ari-arian sa matitibay na bahagi ng kanilang lungsod." 
 
 
 
@@ -438,4 +438,4 @@ Sa araw na parusahan ko ang mga taga-Israel dahil sa kanilang mga kasalanan, waw
 
 
 
-Wawasakin ko ang kanilang mga bahay na pangtaglamig at ang mga bahay na pangtag-init. Wawasakin ko rin ang kanilang mamahalin at malalaking bahay. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito."
+Wawasakin ko ang kanilang mga bahay na pangtaglamig at ang mga bahay na pangtag-init. Wawasakin ko rin ang kanilang mamahalin at malalaking bahay. Ako,_ ang Panginoon, ang nagsasabi nito."

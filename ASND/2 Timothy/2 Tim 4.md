@@ -72,7 +72,7 @@ Inaatasan kita sa presensya ng Dios at ni Cristo Jesus, na siyang hahatol sa mga
 
 
 
-Maging handa ka sa pangangaral ng Salita ng Dios sa anumang panahon. Ilantad mo ang mga maling aral; pagsabihan ang mga tao <i class="trans-change">sa mga mali nilang gawain_, at patatagin <i class="trans-change">ang pananampalataya nila_ sa pamamagitan ng matiyagang pagtuturo. 
+Maging handa ka sa pangangaral ng Salita ng Dios sa anumang panahon. Ilantad mo ang mga maling aral; pagsabihan ang mga tao sa mga mali nilang gawain_, at patatagin ang pananampalataya nila_ sa pamamagitan ng matiyagang pagtuturo. 
 
 
 
@@ -138,7 +138,7 @@ Sapagkat darating ang panahon na ayaw nang makinig ng mga tao sa tamang aral. Sa
 
 
 
-Hindi na nila pakikinggan ang katotohanan at babaling sila sa mga <i class="trans-change">aral na_ gawa-gawa lang ng tao. 
+Hindi na nila pakikinggan ang katotohanan at babaling sila sa mga aral na_ gawa-gawa lang ng tao. 
 
 
 
@@ -270,7 +270,7 @@ Puspusan akong nakipaglaban sa paligsahan. Natapos ko ang dapat kong takbuhin. N
 
 
 
-At ngayon, may inilaan <i class="trans-change">ang Dios_ sa akin na korona ng katuwiran. Ibibigay ito sa akin ng makatarungang Panginoon sa araw ng paghuhukom niya. At hindi lang ako ang bibigyan, kundi maging ang lahat ng nananabik sa pagbabalik niya.
+At ngayon, may inilaan ang Dios_ sa akin na korona ng katuwiran. Ibibigay ito sa akin ng makatarungang Panginoon sa araw ng paghuhukom niya. At hindi lang ako ang bibigyan, kundi maging ang lahat ng nananabik sa pagbabalik niya.
 
 ## Mga Personal na Bilin 
 
@@ -536,7 +536,7 @@ Mag-ingat ka rin sa kanya dahil sinasalungat niya nang husto ang mga ipinanganga
 
 
 
-Walang sumama sa akin sa unang paglilitis sa akin; iniwan ako ng lahat. Patawarin sana sila <i class="trans-change">ng Dios_. 
+Walang sumama sa akin sa unang paglilitis sa akin; iniwan ako ng lahat. Patawarin sana sila ng Dios_. 
 
 
 
@@ -701,7 +701,7 @@ Si Erastus ay nanatili sa Corinto, at si Trofimus namaʼy iniwan ko sa Miletus d
 
 
 
-Sikapin mong makarating dito bago magtaglamig. Kinukumusta ka nina Eubulus, Pudens, Linus, Claudia at ng lahat ng mga kapatid <i class="trans-change">dito_. 
+Sikapin mong makarating dito bago magtaglamig. Kinukumusta ka nina Eubulus, Pudens, Linus, Claudia at ng lahat ng mga kapatid dito_. 
 
 
 

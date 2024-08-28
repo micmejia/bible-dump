@@ -40,7 +40,7 @@ next: ['Amos 5']
 
 
 
-Kayong mga kilalang babae sa Samaria, para kayong mga baka ng Bashan <i class="trans-change">na inaalagaan nang mabuti_. Ginigipit ninyo at pinagmamalupitan ang mga mahihirap, at inuutusan pa ninyo ang inyong asawa ng ganito, "Kumuha ka ng alak at mag-inom tayo!" Kaya pakinggan ninyo itong 
+Kayong mga kilalang babae sa Samaria, para kayong mga baka ng Bashan na inaalagaan nang mabuti_. Ginigipit ninyo at pinagmamalupitan ang mga mahihirap, at inuutusan pa ninyo ang inyong asawa ng ganito, "Kumuha ka ng alak at mag-inom tayo!" Kaya pakinggan ninyo itong 
 
 
 
@@ -106,7 +106,7 @@ sinasabi ng Panginoong Dios: "Sa aking kabanalan, isinusumpa ko na darating ang 
 
 
 
-Palalabasin nila kayo <i class="trans-change">sa inyong lungsod_ sa pamamagitan ng mga siwang ng inyong gumuhong pader, at dadalhin nila kayo sa <i class="trans-change">lupain ng_ Harmon. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+Palalabasin nila kayo sa inyong lungsod_ sa pamamagitan ng mga siwang ng inyong gumuhong pader, at dadalhin nila kayo sa lupain ng_ Harmon. Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -139,7 +139,7 @@ Palalabasin nila kayo <i class="trans-change">sa inyong lungsod_ sa pamamagitan 
 
 
 
-"Kayong mga Israelita, pumunta kayo <i class="trans-change">sa inyong sinasambahan_ sa Betel at sa Gilgal at dagdagan pa ninyo ang inyong kasalanan. Magdala kayo ng inyong mga handog bawat umaga at magdala kayo ng inyong mga ikapu tuwing ikatlong araw. 
+"Kayong mga Israelita, pumunta kayo sa inyong sinasambahan_ sa Betel at sa Gilgal at dagdagan pa ninyo ang inyong kasalanan. Magdala kayo ng inyong mga handog bawat umaga at magdala kayo ng inyong mga ikapu tuwing ikatlong araw. 
 
 
 
@@ -172,7 +172,7 @@ Palalabasin nila kayo <i class="trans-change">sa inyong lungsod_ sa pamamagitan 
 
 
 
-<i class="trans-change">Sige,_ magsunog kayo ng tinapay na may pampaalsa bilang handog ng pasasalamat. Ipagmalaki ninyo iyan pati ang inyong mga handog na kusang-loob, dahil iyan ang gusto ninyong gawin. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Sige,_ magsunog kayo ng tinapay na may pampaalsa bilang handog ng pasasalamat. Ipagmalaki ninyo iyan pati ang inyong mga handog na kusang-loob, dahil iyan ang gusto ninyong gawin. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -205,7 +205,7 @@ Palalabasin nila kayo <i class="trans-change">sa inyong lungsod_ sa pamamagitan 
 
 
 
-"Ako ang nagpadala sa inyo ng taggutom sa lahat ng inyong mga lungsod at bayan; pero hindi pa rin kayo nanumbalik sa akin. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+"Ako ang nagpadala sa inyo ng taggutom sa lahat ng inyong mga lungsod at bayan; pero hindi pa rin kayo nanumbalik sa akin. Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -271,7 +271,7 @@ Palalabasin nila kayo <i class="trans-change">sa inyong lungsod_ sa pamamagitan 
 
 
 
-Dahil sa panghihina, pasuray-suray kayong naghahanap ng maiinom. Palipat-lipat kayo sa mga bayan sa paghahanap ng tubig, pero walang makuhang sapat. Pero hindi pa rin kayo nanumbalik sa akin. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+Dahil sa panghihina, pasuray-suray kayong naghahanap ng maiinom. Palipat-lipat kayo sa mga bayan sa paghahanap ng tubig, pero walang makuhang sapat. Pero hindi pa rin kayo nanumbalik sa akin. Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -304,7 +304,7 @@ Dahil sa panghihina, pasuray-suray kayong naghahanap ng maiinom. Palipat-lipat k
 
 
 
-"Sinira ko nang maraming beses ang inyong mga pananim sa pamamagitan ng mainit na hangin at ng mga peste. Sinalakay ng mga balang ang inyong mga puno ng igos at olibo. Pero hindi pa rin kayo nanumbalik sa akin. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+"Sinira ko nang maraming beses ang inyong mga pananim sa pamamagitan ng mainit na hangin at ng mga peste. Sinalakay ng mga balang ang inyong mga puno ng igos at olibo. Pero hindi pa rin kayo nanumbalik sa akin. Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -337,7 +337,7 @@ Dahil sa panghihina, pasuray-suray kayong naghahanap ng maiinom. Palipat-lipat k
 
 
 
-"Pinadalhan ko rin kayo ng mga salot katulad ng mga ipinadala ko sa Egipto noon. Ipinapatay ko ang inyong mga binata sa digmaan at ipinabihag ang inyong mga kabayo. Pinahirapan ko rin kayo sa baho ng mga patay sa inyong mga kampo. Pero hindi pa rin kayo nanumbalik sa akin. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+"Pinadalhan ko rin kayo ng mga salot katulad ng mga ipinadala ko sa Egipto noon. Ipinapatay ko ang inyong mga binata sa digmaan at ipinabihag ang inyong mga kabayo. Pinahirapan ko rin kayo sa baho ng mga patay sa inyong mga kampo. Pero hindi pa rin kayo nanumbalik sa akin. Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -370,7 +370,7 @@ Dahil sa panghihina, pasuray-suray kayong naghahanap ng maiinom. Palipat-lipat k
 
 
 
-"Nilipol ko ang iba sa inyo katulad ng ginawa ko sa Sodom at Gomora. At ang ilan sa inyo na nakaligtas ay parang panggatong na inagaw sa apoy. Pero hindi pa rin kayo nanumbalik sa akin. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+"Nilipol ko ang iba sa inyo katulad ng ginawa ko sa Sodom at Gomora. At ang ilan sa inyo na nakaligtas ay parang panggatong na inagaw sa apoy. Pero hindi pa rin kayo nanumbalik sa akin. Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 

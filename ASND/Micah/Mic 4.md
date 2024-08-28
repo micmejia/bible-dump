@@ -40,7 +40,7 @@ next: ['Mic 5']
 
 
 
-Sa mga huling araw, ang bundok na kinatatayuan ng templo ng Panginoon ay magiging pinakamahalaga sa lahat ng bundok. Dadagsa rito ang mga tao <i class="trans-change">mula sa ibaʼt ibang bansa_. 
+Sa mga huling araw, ang bundok na kinatatayuan ng templo ng Panginoon ay magiging pinakamahalaga sa lahat ng bundok. Dadagsa rito ang mga tao mula sa ibaʼt ibang bansa_. 
 
 
 
@@ -73,7 +73,7 @@ Sa mga huling araw, ang bundok na kinatatayuan ng templo ng Panginoon ay magigin
 
 
 
-Sasabihin nila, "Tayo na sa bundok ng Panginoon, sa templo ng Dios ni Jacob. Tuturuan niya tayo roon ng kanyang mga pamamaraan upang sundin natin." Kaya magsisiuwi ang mga tao mula sa Zion, ang <i class="trans-change">lungsod ng_ Jerusalem, na dala ang Kautusan ng Panginoon. 
+Sasabihin nila, "Tayo na sa bundok ng Panginoon, sa templo ng Dios ni Jacob. Tuturuan niya tayo roon ng kanyang mga pamamaraan upang sundin natin." Kaya magsisiuwi ang mga tao mula sa Zion, ang lungsod ng_ Jerusalem, na dala ang Kautusan ng Panginoon. 
 
 
 
@@ -106,7 +106,7 @@ Sasabihin nila, "Tayo na sa bundok ng Panginoon, sa templo ng Dios ni Jacob. Tut
 
 
 
-<i class="trans-change">At sa pamamagitan ng mga kautusan niya,_ pagkakasunduin niya ang maraming bansa, pati na ang mga makapangyarihang bansa sa malayo. Kaya hindi na magdidigmaan ang mga bansa, at hindi na rin sila magsasanay ng mga sundalo para sa digmaan. Gagawin na lang nilang talim ng araro ang kanilang mga espada, at gagawing karit na pantabas ang kanilang mga sibat. 
+At sa pamamagitan ng mga kautusan niya,_ pagkakasunduin niya ang maraming bansa, pati na ang mga makapangyarihang bansa sa malayo. Kaya hindi na magdidigmaan ang mga bansa, at hindi na rin sila magsasanay ng mga sundalo para sa digmaan. Gagawin na lang nilang talim ng araro ang kanilang mga espada, at gagawing karit na pantabas ang kanilang mga sibat. 
 
 
 
@@ -139,7 +139,7 @@ Sasabihin nila, "Tayo na sa bundok ng Panginoon, sa templo ng Dios ni Jacob. Tut
 
 
 
-Ang bawat tao ay uupo sa ilalim ng kanilang tanim na ubas at puno ng igos nang walang kinatatakutan. <i class="trans-change">Mangyayari ito,_ dahil sinabi mismo ng Panginoong Makapangyarihan. 
+Ang bawat tao ay uupo sa ilalim ng kanilang tanim na ubas at puno ng igos nang walang kinatatakutan. Mangyayari ito,_ dahil sinabi mismo ng Panginoong Makapangyarihan. 
 
 
 
@@ -176,7 +176,7 @@ Kahit na sumunod ang mga tao sa mga dios-diosan nila, kami ay patuloy pa ring su
 
 ## Babalik ang mga Israelita sa Kanilang Bayan
 
-###### 6-7 Sinabi ng Panginoon, "Sa darating na mga araw, titipunin ko ang aking mga mamamayan na aking pinarusahan, <i class="trans-change">na parang mga tupang_ pilay at nagsipangalat. Ang mga natira sa kanila ay gagawin kong makapangyarihang bansa. At mula sa araw na iyon ay maghahari ako sa kanila sa Bundok ng Zion magpakailanman. 
+###### 6-7 Sinabi ng Panginoon, "Sa darating na mga araw, titipunin ko ang aking mga mamamayan na aking pinarusahan, na parang mga tupang_ pilay at nagsipangalat. Ang mga natira sa kanila ay gagawin kong makapangyarihang bansa. At mula sa araw na iyon ay maghahari ako sa kanila sa Bundok ng Zion magpakailanman. 
 
 
 
@@ -209,7 +209,7 @@ Kahit na sumunod ang mga tao sa mga dios-diosan nila, kami ay patuloy pa ring su
 
 
 
-Ang Zion, na katulad ng mataas na bantayang tore ng mga hayop, ay magiging makapangyarihang muli. Ang <i class="trans-change">bayan na ito, na tinatawag ding_ Jerusalem ay mangungunang muli sa lahat ng bayan ng Israel katulad noon. <sup class="versenum">9-10</sup>"Mga mamamayan ng Zion, bakit kayo dumaraing na parang babaeng manganganak na? Nandiyan pa naman ang inyong mga hari, at buhay pa ang kanyang mga tagapayo. Sige, mamilipit kayo sa sakit na parang babaeng manganganak na, dahil hindi magtatagal ay lilisanin nʼyo ang inyong lungsod at maninirahan kayo sa kaparangan, at pagkatapos ay dadalhin kayo sa Babilonia. Pero ililigtas ko kayo doon mula sa inyong mga kalaban. 
+Ang Zion, na katulad ng mataas na bantayang tore ng mga hayop, ay magiging makapangyarihang muli. Ang bayan na ito, na tinatawag ding_ Jerusalem ay mangungunang muli sa lahat ng bayan ng Israel katulad noon. 9-10"Mga mamamayan ng Zion, bakit kayo dumaraing na parang babaeng manganganak na? Nandiyan pa naman ang inyong mga hari, at buhay pa ang kanyang mga tagapayo. Sige, mamilipit kayo sa sakit na parang babaeng manganganak na, dahil hindi magtatagal ay lilisanin nʼyo ang inyong lungsod at maninirahan kayo sa kaparangan, at pagkatapos ay dadalhin kayo sa Babilonia. Pero ililigtas ko kayo doon mula sa inyong mga kalaban. 
 
 
 
@@ -308,4 +308,4 @@ Pero hindi alam ng mga bansang ito ang aking iniisip. Hindi nila nauunawaan ang 
 
 
 
-"Mga mamamayan ng Zion, humanda kayo at lipulin ninyo nang lubusan ang inyong mga kaaway na parang gumigiik kayo <i class="trans-change">ng trigo_. Sapagkat gagawin ko kayong parang <i class="trans-change">mga torong baka na may_ bakal na mga sungay at tansong mga kuko. Dudurugin ninyo ang maraming bansa <i class="trans-change">na nagkaisa para labanan kayo_. At ang mga kayamanang sinamsam nila sa pamamagitan ng pagmamalupit ay ihandog ninyo sa akin, ang Panginoon ng buong mundo."
+"Mga mamamayan ng Zion, humanda kayo at lipulin ninyo nang lubusan ang inyong mga kaaway na parang gumigiik kayo ng trigo_. Sapagkat gagawin ko kayong parang mga torong baka na may_ bakal na mga sungay at tansong mga kuko. Dudurugin ninyo ang maraming bansa na nagkaisa para labanan kayo_. At ang mga kayamanang sinamsam nila sa pamamagitan ng pagmamalupit ay ihandog ninyo sa akin, ang Panginoon ng buong mundo."

@@ -40,7 +40,7 @@ next: ['1 Cor 4']
 
 
 
-Mga kapatid, hindi ko kayo makausap noon bilang mga taong ginagabayan ng Espiritu ng Dios, kundi bilang mga taong makamundo at sanggol pa <i class="trans-change">sa pananampalataya_ kay Cristo. 
+Mga kapatid, hindi ko kayo makausap noon bilang mga taong ginagabayan ng Espiritu ng Dios, kundi bilang mga taong makamundo at sanggol pa sa pananampalataya_ kay Cristo. 
 
 
 
@@ -139,7 +139,7 @@ dahil makamundo pa rin kayo. Nag-iinggitan kayo at nag-aaway-away. Hindi baʼt p
 
 
 
-Kapag sinasabi ninyong "Kay Pablo ako," o "Kay Apolos ako," hindi baʼt para kayong mga taong makamundo <i class="trans-change">na nagkakampi-kampihan_? 
+Kapag sinasabi ninyong "Kay Pablo ako," o "Kay Apolos ako," hindi baʼt para kayong mga taong makamundo na nagkakampi-kampihan_? 
 
 
 
@@ -172,7 +172,7 @@ Kapag sinasabi ninyong "Kay Pablo ako," o "Kay Apolos ako," hindi baʼt para kay
 
 
 
-Bakit, sino ba si Apolos? At sino nga ba naman <i class="trans-change">akong_ si Pablo? Kami ay mga lingkod lamang ng Dios na ginamit niya upang sumampalataya kayo. At ang bawat isa sa amin ay gumagawa lamang ng gawaing ibinigay sa amin ng Panginoon. 
+Bakit, sino ba si Apolos? At sino nga ba naman akong_ si Pablo? Kami ay mga lingkod lamang ng Dios na ginamit niya upang sumampalataya kayo. At ang bawat isa sa amin ay gumagawa lamang ng gawaing ibinigay sa amin ng Panginoon. 
 
 
 
@@ -304,7 +304,7 @@ Ang nagtatanim at ang nagdidilig ay parehong mga lingkod lamang. Ang bawat isa s
 
 
 
-Kami ni Apolos ay nagtutulungan bilang mga manggagawa ng Dios, at kayoʼy katulad ng bukirin <i class="trans-change">na ipinasasaka sa amin_ ng Dios. Maihahalintulad din kayo sa isang gusali na kanyang itinatayo. 
+Kami ni Apolos ay nagtutulungan bilang mga manggagawa ng Dios, at kayoʼy katulad ng bukirin na ipinasasaka sa amin_ ng Dios. Maihahalintulad din kayo sa isang gusali na kanyang itinatayo. 
 
 
 
@@ -403,7 +403,7 @@ dahil wala nang pundasyong maaari pang ilagay maliban sa nailagay na, at itoʼy 
 
 
 
-May magtatayo sa pundasyong ito na gagamit ng <i class="trans-change">mabuting klase ng mga materyales gaya ng_ ginto, pilak at mamahaling bato. <i class="trans-change">Mayroon namang gagamit lamang ng_ kahoy, tuyong damo at dayami. 
+May magtatayo sa pundasyong ito na gagamit ng mabuting klase ng mga materyales gaya ng_ ginto, pilak at mamahaling bato. Mayroon namang gagamit lamang ng_ kahoy, tuyong damo at dayami. 
 
 
 
@@ -502,7 +502,7 @@ Kung ang itinayo ay hindi masusunog, tatanggap ng gantimpala ang nagtayo.
 
 
 
-Ngunit kung ito namaʼy masunog, wala siyang tatanggaping gantimpala. Ganoon pa man, maliligtas siya, ngunit tulad lamang ng isang taong nakaligtas sa sunog <i class="trans-change">na walang nailigtas na kagamitan_. 
+Ngunit kung ito namaʼy masunog, wala siyang tatanggaping gantimpala. Ganoon pa man, maliligtas siya, ngunit tulad lamang ng isang taong nakaligtas sa sunog na walang nailigtas na kagamitan_. 
 
 
 
@@ -601,7 +601,7 @@ Ang sinumang wawasak sa templo ng Dios ay parurusahan niya, dahil banal ang temp
 
 
 
-Huwag ninyong dayain ang inyong sarili. Kung mayroon man sa inyong nag-aakala na siyaʼy marunong ayon sa karunungan ng mundo, kinakailangang tigilan na niya ang ganyang pag-iisip upang maging marunong siya <i class="trans-change">sa paningin ng Dios_. 
+Huwag ninyong dayain ang inyong sarili. Kung mayroon man sa inyong nag-aakala na siyaʼy marunong ayon sa karunungan ng mundo, kinakailangang tigilan na niya ang ganyang pag-iisip upang maging marunong siya sa paningin ng Dios_. 
 
 
 
@@ -700,7 +700,7 @@ at "Alam ng Dios na ang mga pangangatwiran ng marurunong ay walang kabuluhan."
 
 
 
-Kaya huwag ninyong ipagmalaki ang sinuman. Sapagkat lahat ay <i class="trans-change">ibinigay ng Dios_ sa inyo <i class="trans-change">para sa ikabubuti ninyo_. 
+Kaya huwag ninyong ipagmalaki ang sinuman. Sapagkat lahat ay ibinigay ng Dios_ sa inyo para sa ikabubuti ninyo_. 
 
 
 

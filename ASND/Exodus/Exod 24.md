@@ -271,7 +271,7 @@ Kinuha rin niya ang Aklat ng Kasunduan at binasa ito sa mga tao. At sumagot ang 
 
 
 
-Pagkatapos, kinuha niya ang dugo <i class="trans-change">sa mga mangkok_ at iwinisik ito sa mga tao, at sinabi, "Ito ang dugo na nagpapatibay sa kasunduan na ginawa ng Panginoon sa inyo nang ibigay niya ang mga utos na ito." 
+Pagkatapos, kinuha niya ang dugo sa mga mangkok_ at iwinisik ito sa mga tao, at sinabi, "Ito ang dugo na nagpapatibay sa kasunduan na ginawa ng Panginoon sa inyo nang ibigay niya ang mga utos na ito." 
 
 
 
@@ -304,7 +304,7 @@ Pagkatapos, kinuha niya ang dugo <i class="trans-change">sa mga mangkok_ at iwin
 
 
 
-Pumunta paakyat <i class="trans-change">sa bundok_ sina Moises, Aaron, Nadab, Abihu at 70 tagapamahala ng Israel, 
+Pumunta paakyat sa bundok_ sina Moises, Aaron, Nadab, Abihu at 70 tagapamahala ng Israel, 
 
 
 
@@ -370,7 +370,7 @@ at nakita nila ang Dios ng Israel. Sa paanan niya ay may parang daan na gawa sa 
 
 
 
-Kahit nakita na ng mga pinuno ang Dios, hindi sila pinatay ng Dios. Kumain pa sila at uminom <i class="trans-change">doon sa kanyang presensya_. 
+Kahit nakita na ng mga pinuno ang Dios, hindi sila pinatay ng Dios. Kumain pa sila at uminom doon sa kanyang presensya_. 
 
 
 
@@ -469,7 +469,7 @@ Kaya umakyat si Moises sa bundok kasama ang lingkod niyang si Josue.
 
 
 
-<i class="trans-change">Bago sila umakyat,_ sinabi ni Moises sa mga tagapamahala <i class="trans-change">ng Israel_, "Hintayin nʼyo kami rito hanggang sa makabalik kami. Maiiwan dito sina Aaron at Hur, at kung may problema kayo, lumapit lang kayo sa kanila." 
+Bago sila umakyat,_ sinabi ni Moises sa mga tagapamahala ng Israel_, "Hintayin nʼyo kami rito hanggang sa makabalik kami. Maiiwan dito sina Aaron at Hur, at kung may problema kayo, lumapit lang kayo sa kanila." 
 
 
 
@@ -535,4 +535,4 @@ Pagdating ni Moises sa itaas ng bundok, natakpan ng ulap ang bundok.
 
 
 
-At bumaba ang makapangyarihang presensya ng Panginoon sa Bundok ng Sinai. At sa loob ng anim na araw, natakpan ng ulap ang bundok. Sa ikapitong araw, tinawag ng Panginoon si Moises mula sa ulap. <sup class="versenum">17-18</sup>Kaya pumasok si Moises sa ulap habang papaakyat pa siya sa bundok. Nagpaiwan siya roon sa loob ng 40 araw at 40 gabi. Para sa mga Israelitang nasa ibaba, parang apoy na naglalagablab ang makapangyarihang presensya ng Panginoon sa tuktok ng bundok.
+At bumaba ang makapangyarihang presensya ng Panginoon sa Bundok ng Sinai. At sa loob ng anim na araw, natakpan ng ulap ang bundok. Sa ikapitong araw, tinawag ng Panginoon si Moises mula sa ulap. 17-18Kaya pumasok si Moises sa ulap habang papaakyat pa siya sa bundok. Nagpaiwan siya roon sa loob ng 40 araw at 40 gabi. Para sa mga Israelitang nasa ibaba, parang apoy na naglalagablab ang makapangyarihang presensya ng Panginoon sa tuktok ng bundok.

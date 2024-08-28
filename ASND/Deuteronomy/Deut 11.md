@@ -73,7 +73,7 @@ next: ['Deut 12']
 
 
 
-Alalahanin ninyo ang <i class="trans-change">naranasang_ pagtutuwid ng Panginoon na inyong Dios sa inyo. Kayo ang nakaranas nito at hindi ang mga anak ninyo. Hindi sila ang nakakita ng kadakilaan at kapangyarihan ng Panginoon, 
+Alalahanin ninyo ang naranasang_ pagtutuwid ng Panginoon na inyong Dios sa inyo. Kayo ang nakaranas nito at hindi ang mga anak ninyo. Hindi sila ang nakakita ng kadakilaan at kapangyarihan ng Panginoon, 
 
 
 
@@ -271,7 +271,7 @@ Kayo ang nakakita ng mga dakilang bagay na ito na ginawa ng Panginoon.
 
 
 
-"Kaya sundin ninyo ang lahat ng utos na ibinibigay ko sa inyo ngayon para may lakas kayo sa paglalakbay at sa pag-agaw ng lupain <i class="trans-change">sa kabila ng Jordan_. 
+"Kaya sundin ninyo ang lahat ng utos na ibinibigay ko sa inyo ngayon para may lakas kayo sa paglalakbay at sa pag-agaw ng lupain sa kabila ng Jordan_. 
 
 
 
@@ -469,7 +469,7 @@ Ang lupaing ito ay inaalagaan ng Panginoon na inyong Dios; binabantayan niya ito
 
 
 
-padadalhan niya kayo ng ulan sa tamang panahon para makapag-ani kayo ng trigo, ng bagong katas ng ubas at ng <i class="trans-change">olibo para gawing_ langis. 
+padadalhan niya kayo ng ulan sa tamang panahon para makapag-ani kayo ng trigo, ng bagong katas ng ubas at ng olibo para gawing_ langis. 
 
 
 
@@ -667,7 +667,7 @@ Ituro ito sa inyong mga anak. Pag-usapan ninyo ito kapag naroon kayo sa inyong b
 
 
 
-Isulat ninyo ito sa mga hamba ng inyong mga pintuan at sa pintuan <i class="trans-change">ng inyong lungsod_, 
+Isulat ninyo ito sa mga hamba ng inyong mga pintuan at sa pintuan ng inyong lungsod_, 
 
 
 
@@ -700,7 +700,7 @@ Isulat ninyo ito sa mga hamba ng inyong mga pintuan at sa pintuan <i class="tran
 
 
 
-para kayo at ang inyong mga anak ay mabuhay nang matagal doon sa lupaing ipinangako ng Panginoon na ibibigay sa inyong mga ninuno. <i class="trans-change">Maninirahan kayo rito_ hanggaʼt may langit sa ibabaw ng mundo. 
+para kayo at ang inyong mga anak ay mabuhay nang matagal doon sa lupaing ipinangako ng Panginoon na ibibigay sa inyong mga ninuno. Maninirahan kayo rito_ hanggaʼt may langit sa ibabaw ng mundo. 
 
 
 
@@ -997,7 +997,7 @@ Kapag dinala kayo ng Panginoon na inyong Dios sa lupain na inyong titirhan at aa
 
 
 
-Ang mga bundok na ito ay nasa kanluran ng <i class="trans-change">Ilog ng_ Jordan, sa lupain ng mga Cananeo na naninirahan sa Lambak ng Jordan malapit sa bayan ng Gilgal. Hindi ito malayo sa mga malalaking puno ng Moreh. 
+Ang mga bundok na ito ay nasa kanluran ng Ilog ng_ Jordan, sa lupain ng mga Cananeo na naninirahan sa Lambak ng Jordan malapit sa bayan ng Gilgal. Hindi ito malayo sa mga malalaking puno ng Moreh. 
 
 
 

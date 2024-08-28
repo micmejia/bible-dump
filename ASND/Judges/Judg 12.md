@@ -40,7 +40,7 @@ next: ['Judg 13']
 
 
 
-Nagtipon ang mga sundalo ng Efraim, at tumawid sila <i class="trans-change">sa Ilog ng Jordan_, at pumunta sa Zafon para harapin si Jefta. Nagtanong sila sa kanya, "Bakit hindi mo kami tinawag nang makipaglaban kayo sa mga Ammonita? Dahil sa ginawa mong ito, susunugin namin ang bahay mo na nandoon ka sa loob." 
+Nagtipon ang mga sundalo ng Efraim, at tumawid sila sa Ilog ng Jordan_, at pumunta sa Zafon para harapin si Jefta. Nagtanong sila sa kanya, "Bakit hindi mo kami tinawag nang makipaglaban kayo sa mga Ammonita? Dahil sa ginawa mong ito, susunugin namin ang bahay mo na nandoon ka sa loob." 
 
 
 
@@ -172,7 +172,7 @@ Sumagot ang mga taga-Efraim, "Kayong mga taga-Gilead ay mga sampid lamang sa ang
 
 
 
-Sinakop nila ang mga lugar sa <i class="trans-change">Ilog ng_ Jordan na tinatawiran papunta sa Efraim, <i class="trans-change">para walang taga-Efraim na makatakas_. Ang kahit sinong tatawid ay tinatanong nila kung taga-Efraim ba sila o hindi. Kung sasagot sila ng, "Hindi," 
+Sinakop nila ang mga lugar sa Ilog ng_ Jordan na tinatawiran papunta sa Efraim, para walang taga-Efraim na makatakas_. Ang kahit sinong tatawid ay tinatanong nila kung taga-Efraim ba sila o hindi. Kung sasagot sila ng, "Hindi," 
 
 
 
@@ -205,7 +205,7 @@ Sinakop nila ang mga lugar sa <i class="trans-change">Ilog ng_ Jordan na tinataw
 
 
 
-pinagsasalita nila ito ng "Shibolet", dahil ang mga taga-Efraim ay hindi makabigkas nito. Kung ang pagkakasabi naman ay "Sibolet", papatayin sila sa may tawiran ng <i class="trans-change">Ilog ng_ Jordan. May 42,000 taga-Efraim ang namatay nang panahong iyon. 
+pinagsasalita nila ito ng "Shibolet", dahil ang mga taga-Efraim ay hindi makabigkas nito. Kung ang pagkakasabi naman ay "Sibolet", papatayin sila sa may tawiran ng Ilog ng_ Jordan. May 42,000 taga-Efraim ang namatay nang panahong iyon. 
 
 
 
@@ -306,7 +306,7 @@ Pagkamatay ni Jefta, si Ibzan na taga-Betlehem ang pumalit sa kanya bilang pinun
 
 
 
-Si Ibzan ay may <i class="trans-change">60 anak_: 30 lalaki at 30 babae. Pinapag-asawa niya ang mga anak niyang babae sa mga hindi kabilang sa kanilang angkan. Namuno siya sa Israel sa loob ng pitong taon. 
+Si Ibzan ay may 60 anak_: 30 lalaki at 30 babae. Pinapag-asawa niya ang mga anak niyang babae sa mga hindi kabilang sa kanilang angkan. Namuno siya sa Israel sa loob ng pitong taon. 
 
 
 

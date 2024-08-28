@@ -139,7 +139,7 @@ Nang makita ng lahat ng mga Israelita ang apoy na bumaba at ang makapangyarihang
 
 
 
-Pagkatapos, naghandog sa Panginoon si Haring <i class="trans-change">Solomon_ at ang lahat ng mamamayan. 
+Pagkatapos, naghandog sa Panginoon si Haring Solomon_ at ang lahat ng mamamayan. 
 
 
 
@@ -205,7 +205,7 @@ Naghandog sila ng 22,000 baka at 120,000 tupaʼt kambing. Sa ganitong paraan iti
 
 
 
-Pumwesto ang mga pari <i class="trans-change">sa templo_, at ganoon din ang mga Levita na umaawit, "Ang pag-ibig niyaʼy walang hanggan." Tinutugtog nila ang awit gamit ang mga instrumento na ipinagawa ni Haring David sa pagpupuri sa Dios. Sa harap ng mga Levita, ang mga pari ay nagpapatunog din ng mga trumpeta nila habang nakatayo ang lahat ng mga Israelita. 
+Pumwesto ang mga pari sa templo_, at ganoon din ang mga Levita na umaawit, "Ang pag-ibig niyaʼy walang hanggan." Tinutugtog nila ang awit gamit ang mga instrumento na ipinagawa ni Haring David sa pagpupuri sa Dios. Sa harap ng mga Levita, ang mga pari ay nagpapatunog din ng mga trumpeta nila habang nakatayo ang lahat ng mga Israelita. 
 
 
 
@@ -271,7 +271,7 @@ Itinalaga ni Solomon ang bakuran sa harap ng templo ng Panginoon para roon mag-a
 
 
 
-Nagdiwang pa si Solomon at ang lahat ng mga Israelita ng Pista <i class="trans-change">ng Pagtatayo ng mga Kubol_ ng pitong araw. Napakarami ng mga mamamayan na nagtipon mula sa Lebo Hamat <i class="trans-change">sa gawing hilaga_ hanggang sa Lambak ng Egipto <i class="trans-change">sa gawing timog_. 
+Nagdiwang pa si Solomon at ang lahat ng mga Israelita ng Pista ng Pagtatayo ng mga Kubol_ ng pitong araw. Napakarami ng mga mamamayan na nagtipon mula sa Lebo Hamat sa gawing hilaga_ hanggang sa Lambak ng Egipto sa gawing timog_. 
 
 
 
@@ -304,7 +304,7 @@ Nagdiwang pa si Solomon at ang lahat ng mga Israelita ng Pista <i class="trans-c
 
 
 
-Nang ikawalong araw, ginanap nila ang huling pagtitipon, dahil ipinagdiwang nila ang pagtatalaga ng altar <i class="trans-change">at ng buong templo_ nang ikapitong araw at ng Pista <i class="trans-change">ng Pagtatayo ng mga Kubol_ nang ikapito ring araw. 
+Nang ikawalong araw, ginanap nila ang huling pagtitipon, dahil ipinagdiwang nila ang pagtatalaga ng altar at ng buong templo_ nang ikapitong araw at ng Pista ng Pagtatayo ng mga Kubol_ nang ikapito ring araw. 
 
 
 
@@ -471,7 +471,7 @@ At isang gabi, nagpakita sa kanya ang Panginoon at sinabi, "Narinig ko ang panal
 
 
 
-at kung ang mga mamamayan ko na aking tinawag ay magpakumbaba, manalangin, dumulog sa akin, at tumalikod sa ginagawa nilang kasamaan, diringgin ko sila mula sa langit at patatawarin ang kanilang kasalanan, at pagpapalain ko <i class="trans-change">ulit_ pagpapalain ang kanilang lupain. 
+at kung ang mga mamamayan ko na aking tinawag ay magpakumbaba, manalangin, dumulog sa akin, at tumalikod sa ginagawa nilang kasamaan, diringgin ko sila mula sa langit at patatawarin ang kanilang kasalanan, at pagpapalain ko ulit_ pagpapalain ang kanilang lupain. 
 
 
 
@@ -669,7 +669,7 @@ Pero kung tatalikod kayo at hindi tutuparin ang aking mga utos at mga tuntunin n
 
 
 
-palalayasin ko kayo sa lupain na ibinigay ko sa inyo, at itatakwil ko ang templong ito na pinili kong lugar para sa <i class="trans-change">karangalan ng_ aking pangalan. At itoʼy kukutyain at pagtatawanan ng lahat ng tao. 
+palalayasin ko kayo sa lupain na ibinigay ko sa inyo, at itatakwil ko ang templong ito na pinili kong lugar para sa karangalan ng_ aking pangalan. At itoʼy kukutyain at pagtatawanan ng lahat ng tao. 
 
 
 
@@ -702,7 +702,7 @@ palalayasin ko kayo sa lupain na ibinigay ko sa inyo, at itatakwil ko ang templo
 
 
 
-At kahit maganda at tanyag ang templong ito, <i class="trans-change">gigibain ko ito_. Magugulat at magtataka ang lahat ng daraan dito at magsasabi, 'Bakit ginawa ito ng Panginoon sa lupain at sa templong ito?' 
+At kahit maganda at tanyag ang templong ito, gigibain ko ito_. Magugulat at magtataka ang lahat ng daraan dito at magsasabi, 'Bakit ginawa ito ng Panginoon sa lupain at sa templong ito?' 
 
 
 

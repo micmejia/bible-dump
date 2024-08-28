@@ -337,7 +337,7 @@ Huwag maging magagalitin dahil ang pagiging magagalitin ay ugali ng mga hangal.
 
 
 
-Huwag mong sabihin, "Bakit mas mabuti pa noon kaysa ngayon?" Dahil ang tanong na iyan ay walang katuturan. <sup class="versenum">11-12</sup>Ang karunungan ay mabuti gaya ng isang pamana, pareho itong nakakatulong sa mga namumuhay dito sa mundo. Nagbibigay din ito ng proteksyon gaya ng pera. Pero higit pa roon, iniingatan nito ang buhay ng nagtataglay nito. 
+Huwag mong sabihin, "Bakit mas mabuti pa noon kaysa ngayon?" Dahil ang tanong na iyan ay walang katuturan. 11-12Ang karunungan ay mabuti gaya ng isang pamana, pareho itong nakakatulong sa mga namumuhay dito sa mundo. Nagbibigay din ito ng proteksyon gaya ng pera. Pero higit pa roon, iniingatan nito ang buhay ng nagtataglay nito. 
 
 
 
@@ -799,7 +799,7 @@ Pero patuloy akong nag-aral at nag-usisa, para makamit ko ang karunungan at masa
 
 
 
-Napag-alaman kong ang babaeng nanunukso ay mas mapait kaysa sa kamatayan. Ang pag-ibig niyaʼy parang bitag, at ang mga kamay niya na yumayakap sa iyo ay parang kadena. Ang taong nakalulugod sa Dios ay makakatakas sa kanya, pero ang taong masama ay mabibitag niya. <sup class="versenum">27-28</sup>Sinasabi ko bilang isang mangangaral, "Iniisip kong mabuti ang bawat bagay sa paghahanap ko ng kasagutan sa aking mga katanungan. Pero hindi ko pa rin natagpuan ang mga kasagutan. Ngunit ito ang aking natuklasan, sa 1,000 lalaki isa lang ang matuwid, pero sa 1,000 babae wala ni isang matuwid. 
+Napag-alaman kong ang babaeng nanunukso ay mas mapait kaysa sa kamatayan. Ang pag-ibig niyaʼy parang bitag, at ang mga kamay niya na yumayakap sa iyo ay parang kadena. Ang taong nakalulugod sa Dios ay makakatakas sa kanya, pero ang taong masama ay mabibitag niya. 27-28Sinasabi ko bilang isang mangangaral, "Iniisip kong mabuti ang bawat bagay sa paghahanap ko ng kasagutan sa aking mga katanungan. Pero hindi ko pa rin natagpuan ang mga kasagutan. Ngunit ito ang aking natuklasan, sa 1,000 lalaki isa lang ang matuwid, pero sa 1,000 babae wala ni isang matuwid. 
 
 
 

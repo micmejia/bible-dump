@@ -304,7 +304,7 @@ Ikinuwento ni Cornelius sa kanila ang lahat ng nangyari, at pagkatapos ay inutus
 
 
 
-Kinabukasan, nang malapit na sila sa bayan ng Jopa, umakyat si Pedro sa bubong <i class="trans-change">ng bahay_ para manalangin. Tanghaling-tapat noon 
+Kinabukasan, nang malapit na sila sa bayan ng Jopa, umakyat si Pedro sa bubong ng bahay_ para manalangin. Tanghaling-tapat noon 
 
 
 
@@ -568,7 +568,7 @@ Tatlong ulit itong nangyari, at pagkatapos, hinila agad ang bagay na iyon pataas
 
 
 
-Habang naguguluhan si Pedro at iniisip kung ano ang ibig sabihin ng nakita niya, dumating naman sa lugar na iyon ang mga taong inutusan ni Cornelius. Nang malaman nila kung saan ang bahay ni Simon, pumunta sila <i class="trans-change">roon. At pagdating nila_ sa pinto ng bakod, 
+Habang naguguluhan si Pedro at iniisip kung ano ang ibig sabihin ng nakita niya, dumating naman sa lugar na iyon ang mga taong inutusan ni Cornelius. Nang malaman nila kung saan ang bahay ni Simon, pumunta sila roon. At pagdating nila_ sa pinto ng bakod, 
 
 
 
@@ -634,7 +634,7 @@ tumawag sila at nagtanong kung doon ba nanunuluyan si Simon na tinatawag na Pedr
 
 
 
-Habang pinag-iisipan ni Pedro kung ano ang ibig sabihin ng kanyang nakita, sinabi ng <i class="trans-change">Banal na_ Espiritu sa kanya, "May tatlong taong naghahanap sa iyo. 
+Habang pinag-iisipan ni Pedro kung ano ang ibig sabihin ng kanyang nakita, sinabi ng Banal na_ Espiritu sa kanya, "May tatlong taong naghahanap sa iyo. 
 
 
 
@@ -1195,7 +1195,7 @@ Kung ang tao ay may takot sa Dios at tama ang kanyang ginagawa, kahit ano ang la
 
 
 
-Narinig ninyo ang Magandang Balita na ipinahayag ng Dios sa aming mga Israelita, na ang taoʼy magkakaroon na ng magandang relasyon sa Dios sa pamamagitan ng pananampalataya kay Jesu-Cristo na siyang Panginoon ng lahat. <sup class="versenum">37-38</sup>Alam din ninyo ang mga nangyari sa buong Judea tungkol kay Jesus na taga-Nazaret. Nagsimula ito sa Galilea matapos mangaral ni Juan tungkol sa bautismo. Binigyan ng Dios si Jesus ng Banal na Espiritu at kapangyarihan. At dahil kasama niya ang Dios, pumunta siya sa ibaʼt ibang lugar at gumawa ng kabutihan. Pinagaling niya ang lahat ng sinaniban at pinahirapan ng diyablo. 
+Narinig ninyo ang Magandang Balita na ipinahayag ng Dios sa aming mga Israelita, na ang taoʼy magkakaroon na ng magandang relasyon sa Dios sa pamamagitan ng pananampalataya kay Jesu-Cristo na siyang Panginoon ng lahat. 37-38Alam din ninyo ang mga nangyari sa buong Judea tungkol kay Jesus na taga-Nazaret. Nagsimula ito sa Galilea matapos mangaral ni Juan tungkol sa bautismo. Binigyan ng Dios si Jesus ng Banal na Espiritu at kapangyarihan. At dahil kasama niya ang Dios, pumunta siya sa ibaʼt ibang lugar at gumawa ng kabutihan. Pinagaling niya ang lahat ng sinaniban at pinahirapan ng diyablo. 
 
 
 
@@ -1261,7 +1261,7 @@ Kami mismo ay makakapagpatotoo sa lahat ng ginawa niya, dahil nakita namin ito s
 
 
 
-Pero muli siyang binuhay ng Dios sa ikatlong araw at nagpakita sa amin <i class="trans-change">na siyaʼy buhay_. 
+Pero muli siyang binuhay ng Dios sa ikatlong araw at nagpakita sa amin na siyaʼy buhay_. 
 
 
 
@@ -1294,7 +1294,7 @@ Pero muli siyang binuhay ng Dios sa ikatlong araw at nagpakita sa amin <i class=
 
 
 
-Hindi siya nagpakita sa lahat kundi sa amin lamang na mga pinili ng Dios na maging saksi <i class="trans-change">para ipamalita sa iba ang tungkol sa kanya_. Nakasama pa nga namin siyang kumain at uminom pagkatapos na siyaʼy muling nabuhay. 
+Hindi siya nagpakita sa lahat kundi sa amin lamang na mga pinili ng Dios na maging saksi para ipamalita sa iba ang tungkol sa kanya_. Nakasama pa nga namin siyang kumain at uminom pagkatapos na siyaʼy muling nabuhay. 
 
 
 
@@ -1327,7 +1327,7 @@ Hindi siya nagpakita sa lahat kundi sa amin lamang na mga pinili ng Dios na magi
 
 
 
-Inutusan niya kaming mangaral <i class="trans-change">ng Magandang Balita_ sa mga tao at magpatotoo na siya ang tunay na pinili ng Dios na maging tagahatol ng mga buhay at ng mga patay. 
+Inutusan niya kaming mangaral ng Magandang Balita_ sa mga tao at magpatotoo na siya ang tunay na pinili ng Dios na maging tagahatol ng mga buhay at ng mga patay. 
 
 
 
@@ -1459,7 +1459,7 @@ Ang mga mananampalatayang Judio na sumama kay Pedro mula sa Jopa ay namangha dah
 
 
 
-Dahil narinig nilang nagsasalita sila ng ibaʼt ibang wika <i class="trans-change">na hindi nila natutunan_ at nagpupuri sila sa Dios. Kaya sinabi ni Pedro, 
+Dahil narinig nilang nagsasalita sila ng ibaʼt ibang wika na hindi nila natutunan_ at nagpupuri sila sa Dios. Kaya sinabi ni Pedro, 
 
 
 
@@ -1492,7 +1492,7 @@ Dahil narinig nilang nagsasalita sila ng ibaʼt ibang wika <i class="trans-chang
 
 
 
-"Natanggap na nila ang Banal na Espiritu tulad natin <i class="trans-change">kahit hindi sila mga Judio_. Kaya wala nang makakapigil sa kanila para bautismuhan sila sa tubig." 
+"Natanggap na nila ang Banal na Espiritu tulad natin kahit hindi sila mga Judio_. Kaya wala nang makakapigil sa kanila para bautismuhan sila sa tubig." 
 
 
 

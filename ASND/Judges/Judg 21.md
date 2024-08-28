@@ -303,7 +303,7 @@ Nang nagtanong sila kung may lahi ng Israel na hindi nakasama nang nagtipon sila
 
 
 
-Dahil nang binilang ang mga tao, wala ni isa mang mga taga-Jabes Gilead ang nandoon. <sup class="versenum">10-11</sup>Kaya pumili ang mga mamamayan ng 12,000 matatapang na sundalo, at pinapunta sa Jabes Gilead para lipulin ang mga taga-roon, bata man o matanda, lalaki o babae, maliban lang sa mga dalaga. 
+Dahil nang binilang ang mga tao, wala ni isa mang mga taga-Jabes Gilead ang nandoon. 10-11Kaya pumili ang mga mamamayan ng 12,000 matatapang na sundalo, at pinapunta sa Jabes Gilead para lipulin ang mga taga-roon, bata man o matanda, lalaki o babae, maliban lang sa mga dalaga. 
 
 
 
@@ -369,7 +369,7 @@ At doon, nakakita sila ng 400 dalagang birhen at dinala nila ito sa kampo nila s
 
 
 
-Pagkatapos, nagsugo ang buong sambayanan ng <i class="trans-change">Israel_ ng mga mensahero sa mga lahi ni Benjamin na nagtatago sa Bato ng Rimon. Sinabi sa kanila ng mga mensahero na handa nang makipagkasundo sa kanila ang mga kapwa nila Israelita. 
+Pagkatapos, nagsugo ang buong sambayanan ng Israel_ ng mga mensahero sa mga lahi ni Benjamin na nagtatago sa Bato ng Rimon. Sinabi sa kanila ng mga mensahero na handa nang makipagkasundo sa kanila ang mga kapwa nila Israelita. 
 
 
 
@@ -468,7 +468,7 @@ Nalungkot ang mga Israelita sa nangyari sa mga lahi ni Benjamin dahil binawasan 
 
 
 
-Kaya nag-usap-usap ang mga tagapamahala sa mga mamamayan <i class="trans-change">ng Israel_. Sinabi nila, "Wala nang natirang babae na lahi ni Benjamin. Ano ba ang gagawin natin para makapag-asawa ang natira nilang mga lalaki? 
+Kaya nag-usap-usap ang mga tagapamahala sa mga mamamayan ng Israel_. Sinabi nila, "Wala nang natirang babae na lahi ni Benjamin. Ano ba ang gagawin natin para makapag-asawa ang natira nilang mga lalaki? 
 
 
 

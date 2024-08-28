@@ -304,7 +304,7 @@ Lumapit kayo sa Dios at lalapit din siya sa inyo. Kayong mga makasalanan, mamuha
 
 
 
-Maging malungkot kayo at maghinagpis <i class="trans-change">dahil sa mga kasalanan nʼyo_. Palitan nʼyo ng pagdadalamhati ang pagsasaya ninyo. 
+Maging malungkot kayo at maghinagpis dahil sa mga kasalanan nʼyo_. Palitan nʼyo ng pagdadalamhati ang pagsasaya ninyo. 
 
 
 

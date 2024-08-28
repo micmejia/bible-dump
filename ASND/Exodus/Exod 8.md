@@ -106,7 +106,7 @@ Kung hindi mo sila paaalisin, pupunuin ko ng mga palaka ang iyong bansa.
 
 
 
-Mapupuno ng palaka ang <i class="trans-change">Ilog ng_ Nilo at papasok ito sa palasyo mo, sa kwarto at kahit sa higaan mo. Papasok din ang mga ito sa bahay ng mga opisyal at mga mamamayan mo, at pati sa mga pugon at sa pinagmamasahan ng harina. 
+Mapupuno ng palaka ang Ilog ng_ Nilo at papasok ito sa palasyo mo, sa kwarto at kahit sa higaan mo. Papasok din ang mga ito sa bahay ng mga opisyal at mga mamamayan mo, at pati sa mga pugon at sa pinagmamasahan ng harina. 
 
 
 
@@ -238,7 +238,7 @@ Kaya iniunat ni Aaron ang kanyang baston sa mga tubig ng Egipto, at lumabas ang 
 
 
 
-Pero ginawa rin ito ng mga salamangkero sa pamamagitan ng kanilang salamangka. Napalabas din nila ang mga palaka sa <i class="trans-change">tubig ng_ Egipto. 
+Pero ginawa rin ito ng mga salamangkero sa pamamagitan ng kanilang salamangka. Napalabas din nila ang mga palaka sa tubig ng_ Egipto. 
 
 
 
@@ -304,7 +304,7 @@ Ipinatawag ng Faraon sina Moises at Aaron, at sinabi sa kanila, "Manalangin kayo
 
 
 
-Sinabi ni Moises sa Faraon, "Sabihin mo sa akin kung kailan ako mananalangin para sa inyo, sa mga opisyal at sa mga mamamayan mo, para mawala ang mga palakang ito sa inyo at sa mga bahay ninyo. At ang matitira na lang na palaka ay ang mga nasa <i class="trans-change">Ilog ng_ Nilo." 
+Sinabi ni Moises sa Faraon, "Sabihin mo sa akin kung kailan ako mananalangin para sa inyo, sa mga opisyal at sa mga mamamayan mo, para mawala ang mga palakang ito sa inyo at sa mga bahay ninyo. At ang matitira na lang na palaka ay ang mga nasa Ilog ng_ Nilo." 
 
 
 
@@ -337,7 +337,7 @@ Sinabi ni Moises sa Faraon, "Sabihin mo sa akin kung kailan ako mananalangin par
 
 
 
-Sumagot ang Faraon, "<i class="trans-change">Ipanalangin mo ako_ bukas." Sinabi ni Moises, "Matutupad ito ayon sa sinabi nʼyo, para malaman nʼyo na walang ibang katulad ng Panginoon naming Dios. 
+Sumagot ang Faraon, "Ipanalangin mo ako_ bukas." Sinabi ni Moises, "Matutupad ito ayon sa sinabi nʼyo, para malaman nʼyo na walang ibang katulad ng Panginoon naming Dios. 
 
 
 
@@ -370,7 +370,7 @@ Sumagot ang Faraon, "<i class="trans-change">Ipanalangin mo ako_ bukas." Sinabi 
 
 
 
-Mawawala ang lahat ng palaka sa inyo maliban sa nasa <i class="trans-change">Ilog ng_ Nilo." 
+Mawawala ang lahat ng palaka sa inyo maliban sa nasa Ilog ng_ Nilo." 
 
 
 
@@ -636,7 +636,7 @@ Tinangka rin ng mga salamangkero na gayahin ito sa pamamagitan ng kanilang salam
 
 
 
-Sinabi ng mga salamangkero sa Faraon, "Ang Dios ang may gawa nito!" Pero matigas pa rin ang puso ng Faraon, at hindi siya nakinig <i class="trans-change">kina Moises at Aaron_, gaya ng sinabi ng Panginoon.
+Sinabi ng mga salamangkero sa Faraon, "Ang Dios ang may gawa nito!" Pero matigas pa rin ang puso ng Faraon, at hindi siya nakinig kina Moises at Aaron_, gaya ng sinabi ng Panginoon.
 
 ## Ang Salot na mga Langaw 
 

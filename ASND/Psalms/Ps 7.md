@@ -370,7 +370,7 @@ Kayo, O Dios, ang nag-iingat sa akin. Inililigtas nʼyo ang mga namumuhay nang m
 
 
 
-Kayo ang matuwid na hukom, at sa araw-araw ay <i class="trans-change">ipinapakita nʼyo ang inyong_ galit sa masasama. <sup class="versenum">12-13</sup>Kung ayaw nilang magsisi sa kanilang mga kasalanan, ikaw namaʼy nakahandang silaʼy parusahan. Katulad nʼyo ay isang sundalong nakahanda na ang mga nakamamatay na sandata. Nahasa na niya ang kanyang espada, at nakaumang na ang palasong nagbabaga. 
+Kayo ang matuwid na hukom, at sa araw-araw ay ipinapakita nʼyo ang inyong_ galit sa masasama. 12-13Kung ayaw nilang magsisi sa kanilang mga kasalanan, ikaw namaʼy nakahandang silaʼy parusahan. Katulad nʼyo ay isang sundalong nakahanda na ang mga nakamamatay na sandata. Nahasa na niya ang kanyang espada, at nakaumang na ang palasong nagbabaga. 
 
 
 
@@ -403,7 +403,7 @@ Kayo ang matuwid na hukom, at sa araw-araw ay <i class="trans-change">ipinapakit
 
 
 
-Mapag-isip sila ng gulo at kasamaan, kaya nakakapanloko sila ng kapwa. <sup class="versenum">15-16</sup>Pero sila mismo ang mapapahamak sa kanilang binabalak na panggugulo at karahasan. Ang katulad nila ay humuhukay ng bitag para mahulog ang iba, pero sila rin ang mahuhulog sa hinukay nila. 
+Mapag-isip sila ng gulo at kasamaan, kaya nakakapanloko sila ng kapwa. 15-16Pero sila mismo ang mapapahamak sa kanilang binabalak na panggugulo at karahasan. Ang katulad nila ay humuhukay ng bitag para mahulog ang iba, pero sila rin ang mahuhulog sa hinukay nila. 
 
 
 

@@ -73,7 +73,7 @@ Muli akong dinala ng tao sa pintuang palabas ng templo sa gawing silangan, pero 
 
 
 
-Sinabi ng Panginoon sa akin, "Ang pintuang ito ay kinakailangang palaging nakasara at hindi dapat buksan para walang makadaan, dahil <i class="trans-change">ako,_ ang Panginoong Dios ng Israel ay dumaan dito. 
+Sinabi ng Panginoon sa akin, "Ang pintuang ito ay kinakailangang palaging nakasara at hindi dapat buksan para walang makadaan, dahil ako,_ ang Panginoong Dios ng Israel ay dumaan dito. 
 
 
 
@@ -205,7 +205,7 @@ Sinabi sa akin ng Panginoon, "Anak ng tao, pakinggan mong mabuti ang sasabihin k
 
 
 
-Sabihin mo sa mga rebeldeng mamamayan ng Israel na <i class="trans-change">ako,_ ang Panginoong Dios, ay nagsasabi: Mga mamamayan ng Israel, tigilan na ninyo ang mga kasuklam-suklam ninyong ginagawa. 
+Sabihin mo sa mga rebeldeng mamamayan ng Israel na ako,_ ang Panginoong Dios, ay nagsasabi: Mga mamamayan ng Israel, tigilan na ninyo ang mga kasuklam-suklam ninyong ginagawa. 
 
 
 
@@ -271,7 +271,7 @@ Pinapapasok ninyo sa aking templo ang mga dayuhang hindi naniniwala sa akin. Sa 
 
 
 
-Sa halip na kayo ang mamamahala sa mga banal na bagay <i class="trans-change">sa templo_, ipinauubaya ninyo ito sa ibang tao. 
+Sa halip na kayo ang mamamahala sa mga banal na bagay sa templo_, ipinauubaya ninyo ito sa ibang tao. 
 
 
 
@@ -304,7 +304,7 @@ Sa halip na kayo ang mamamahala sa mga banal na bagay <i class="trans-change">sa
 
 
 
-Kaya <i class="trans-change">ako,_ ang Panginoong Dios ay nagsasabing, walang dayuhan na hindi naniniwala sa akin ang papayagang pumasok sa templo ko, kahit na ang mga dayuhang nakatira kasama ninyo. 
+Kaya ako,_ ang Panginoong Dios ay nagsasabing, walang dayuhan na hindi naniniwala sa akin ang papayagang pumasok sa templo ko, kahit na ang mga dayuhang nakatira kasama ninyo. 
 
 
 
@@ -403,7 +403,7 @@ Maaari silang maglingkod sa akin bilang mga tagapagbantay sa pintuan at tagakata
 
 
 
-Ngunit dahil sumamba sila sa mga dios-diosan habang naglilingkod sa mga tao, at dahil din dooʼy nagkasala ang mga mamamayan ng Israel, isinusumpa kong pagdurusahan nila ang kasalanan nila. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Ngunit dahil sumamba sila sa mga dios-diosan habang naglilingkod sa mga tao, at dahil din dooʼy nagkasala ang mga mamamayan ng Israel, isinusumpa kong pagdurusahan nila ang kasalanan nila. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -502,7 +502,7 @@ Gagawin ko na lang silang mga katulong sa lahat ng gawain sa templo.
 
 
 
-"Ngunit ang mga paring Levita na mula sa angkan ni Zadok na naging tapat sa paglilingkod sa akin sa templo nang tumalikod ang mga Israelita ay patuloy na makapaglilingkod sa akin. Sila ang maghahandog sa akin ng taba at dugo. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+"Ngunit ang mga paring Levita na mula sa angkan ni Zadok na naging tapat sa paglilingkod sa akin sa templo nang tumalikod ang mga Israelita ay patuloy na makapaglilingkod sa akin. Sila ang maghahandog sa akin ng taba at dugo. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -568,7 +568,7 @@ Sila lang ang maaaring pumasok sa templo ko at makalalapit sa aking altar upang 
 
 
 
-Kapag pumasok sila sa daanan patungo sa bakuran sa loob ng templo, kinakailangang magbihis sila ng damit na <i class="trans-change">gawa sa telang_ linen. Hindi sila dapat magsuot ng anumang damit na gawa sa lana habang naglilingkod sa bakuran sa loob o sa loob ng templo. 
+Kapag pumasok sila sa daanan patungo sa bakuran sa loob ng templo, kinakailangang magbihis sila ng damit na gawa sa telang_ linen. Hindi sila dapat magsuot ng anumang damit na gawa sa lana habang naglilingkod sa bakuran sa loob o sa loob ng templo. 
 
 
 
@@ -601,7 +601,7 @@ Kapag pumasok sila sa daanan patungo sa bakuran sa loob ng templo, kinakailangan
 
 
 
-Kinakailangang magsuot din sila ng turban na <i class="trans-change">gawa sa telang_ linen at magsuot ng pang-ilalim na damit na <i class="trans-change">gawa rin sa telang_ linen. Hindi sila dapat magsuot ng anumang makapagpapapawis sa kanila. 
+Kinakailangang magsuot din sila ng turban na gawa sa telang_ linen at magsuot ng pang-ilalim na damit na gawa rin sa telang_ linen. Hindi sila dapat magsuot ng anumang makapagpapapawis sa kanila. 
 
 
 
@@ -700,7 +700,7 @@ At kapag lumabas na sila sa bulwagan sa labas na kinaroroonan ng mga tao, kinaka
 
 
 
-Hindi rin sila dapat uminom ng alak kung pupunta sa loob na bakuran <i class="trans-change">ng templo_. 
+Hindi rin sila dapat uminom ng alak kung pupunta sa loob na bakuran ng templo_. 
 
 
 
@@ -865,7 +865,7 @@ Huwag nilang dudungisan ang sarili nila sa pamamagitan ng paghipo sa bangkay, ma
 
 
 
-<i class="trans-change">Kapag nakahipo siya ng bangkay,_ kailangan niya ang paglilinis at maghintay ng pitong araw, 
+Kapag nakahipo siya ng bangkay,_ kailangan niya ang paglilinis at maghintay ng pitong araw, 
 
 
 
@@ -898,7 +898,7 @@ Huwag nilang dudungisan ang sarili nila sa pamamagitan ng paghipo sa bangkay, ma
 
 
 
-bago siya makapasok sa bakuran sa loob ng templo at mag-alay ng handog sa paglilinis para sa kanyang sarili. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito." 
+bago siya makapasok sa bakuran sa loob ng templo at mag-alay ng handog sa paglilinis para sa kanyang sarili. Ako,_ ang Panginoong Dios, ang nagsasabi nito." 
 
 
 
@@ -931,7 +931,7 @@ bago siya makapasok sa bakuran sa loob ng templo at mag-alay ng handog sa paglil
 
 
 
-<i class="trans-change">Sinabi pa ng Panginoon_, "Walang mamanahing lupa ang mga pari ng Israel, dahil ako ang magbibigay ng mga pangangailangan nila. 
+Sinabi pa ng Panginoon_, "Walang mamanahing lupa ang mga pari ng Israel, dahil ako ang magbibigay ng mga pangangailangan nila. 
 
 
 

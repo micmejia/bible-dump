@@ -304,7 +304,7 @@ Kahit maglaro ang mga paslit sa tabi ng lungga ng makamandag na ahas, o kahit na
 
 
 
-Walang mamiminsala o gigiba sa <i class="trans-change">Zion, ang_ banal kong bundok. Sapagkat magiging laganap sa buong mundo ang pagkilala sa Panginoon katulad ng karagatan na puno ng tubig. 
+Walang mamiminsala o gigiba sa Zion, ang_ banal kong bundok. Sapagkat magiging laganap sa buong mundo ang pagkilala sa Panginoon katulad ng karagatan na puno ng tubig. 
 
 
 

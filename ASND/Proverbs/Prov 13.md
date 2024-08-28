@@ -271,7 +271,7 @@ May mga taong nagkukunwaring mayaman ngunit mahirap naman, at may mga nagkukunwa
 
 
 
-Ang taong mayaman <i class="trans-change">kapag dinukot ay_ may pantubos sa kanyang buhay, ngunit ang taong mahirap ni hindi man lang pinagtatangkaan. 
+Ang taong mayaman kapag dinukot ay_ may pantubos sa kanyang buhay, ngunit ang taong mahirap ni hindi man lang pinagtatangkaan. 
 
 
 
@@ -535,7 +535,7 @@ Ang taong may mabuting pang-unawa ay iginagalang, ngunit ang taong taksil ay kap
 
 
 
-Ang taong marunong umunawa kung ano ang tama at mali ay pinag-iisipan muna ang isang bagay bago niya gawin, ngunit ang taong hangal <i class="trans-change">ay hindi nag-iisip,_ ipinakikita niya ang kanyang kahangalan. 
+Ang taong marunong umunawa kung ano ang tama at mali ay pinag-iisipan muna ang isang bagay bago niya gawin, ngunit ang taong hangal ay hindi nag-iisip,_ ipinakikita niya ang kanyang kahangalan. 
 
 
 

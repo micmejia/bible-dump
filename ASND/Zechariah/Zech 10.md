@@ -73,7 +73,7 @@ Humingi kayo ng ulan sa Panginoon sa panahon ng tagsibol, dahil siya ang gumagaw
 
 
 
-Ang totoo, hindi mapapaniwalaan ang mga dios-diosan at ang mga manghuhula. Mali ang ibinibigay nilang kahulugan sa mga panaginip. Walang kabuluhan ang pagpapalakas nila ng loob sa mga tao. Kaya naliligaw ang mga mamamayan <i class="trans-change">ng Israel_ na parang mga tupa. Nahihirapan sila dahil wala silang pinuno. 
+Ang totoo, hindi mapapaniwalaan ang mga dios-diosan at ang mga manghuhula. Mali ang ibinibigay nilang kahulugan sa mga panaginip. Walang kabuluhan ang pagpapalakas nila ng loob sa mga tao. Kaya naliligaw ang mga mamamayan ng Israel_ na parang mga tupa. Nahihirapan sila dahil wala silang pinuno. 
 
 
 
@@ -106,7 +106,7 @@ Ang totoo, hindi mapapaniwalaan ang mga dios-diosan at ang mga manghuhula. Mali 
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Galit na galit ako sa mga namumuno sa aking mga mamamayan. Talagang parurusahan ko sila. Sapagkat aalalahanin ko ang aking mga tupa, ang mga mamamayan ng Juda. Gagawin ko silang tulad ng mga kabayong matagumpay sa digmaan. 
+Sinabi ng Panginoon,_ "Galit na galit ako sa mga namumuno sa aking mga mamamayan. Talagang parurusahan ko sila. Sapagkat aalalahanin ko ang aking mga tupa, ang mga mamamayan ng Juda. Gagawin ko silang tulad ng mga kabayong matagumpay sa digmaan. 
 
 
 
@@ -403,4 +403,4 @@ Tatawid sila sa dagat na maalon ngunit magiging payapa ang mga alon. At kahit an
 
 
 
-Palalakasin ko ang aking mga mamamayan dahil nasa akin sila, at susundin nila ako. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito."
+Palalakasin ko ang aking mga mamamayan dahil nasa akin sila, at susundin nila ako. Ako,_ ang Panginoon, ang nagsasabi nito."

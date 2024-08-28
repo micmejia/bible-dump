@@ -436,7 +436,7 @@ Sinabi ng anghel, "Huwag mong patayin ang anak mo! Ngayon, napatunayan ko na may
 
 
 
-Paglingon ni Abraham, may nakita siyang isang lalaking tupa na ang sungay ay nasabit sa mga <i class="trans-change">sanga ng_ kahoy, at hindi na ito makaalis. Kaya kinuha ito ni Abraham at inihandog bilang handog na sinusunog kapalit ng kanyang anak. 
+Paglingon ni Abraham, may nakita siyang isang lalaking tupa na ang sungay ay nasabit sa mga sanga ng_ kahoy, at hindi na ito makaalis. Kaya kinuha ito ni Abraham at inihandog bilang handog na sinusunog kapalit ng kanyang anak. 
 
 
 
@@ -502,7 +502,7 @@ Tinawag ni Abraham ang lugar na iyon na "Naglalaan ang Panginoon." Ito ang pinag
 
 
 
-Muling tinawag ng anghel ng Panginoon si Abraham mula sa langit. <sup class="versenum">16-17</sup>Sinabi niya, "Ito ang sinasabi ng Panginoon: Sumusumpa ako sa sarili ko na pagpapalain kita nang lubos dahil hindi mo ipinagkait sa akin ang kaisa-isa mong anak. Bibigyan kita ng mga lahi na kasindami ng mga bituin sa langit at ng buhangin sa dalampasigan. Sasakupin nila ang mga lungsod ng kanilang mga kaaway. 
+Muling tinawag ng anghel ng Panginoon si Abraham mula sa langit. 16-17Sinabi niya, "Ito ang sinasabi ng Panginoon: Sumusumpa ako sa sarili ko na pagpapalain kita nang lubos dahil hindi mo ipinagkait sa akin ang kaisa-isa mong anak. Bibigyan kita ng mga lahi na kasindami ng mga bituin sa langit at ng buhangin sa dalampasigan. Sasakupin nila ang mga lungsod ng kanilang mga kaaway. 
 
 
 
@@ -568,7 +568,7 @@ At sa pamamagitan ng iyong mga lahi, pagpapalain ko ang lahat ng bansa sa mundo,
 
 
 
-Pagkatapos nito, binalikan nila Abraham <i class="trans-change">at Isaac_ ang kanilang mga alipin. At bumalik sila sa Beersheba at doon na nanirahan.
+Pagkatapos nito, binalikan nila Abraham at Isaac_ ang kanilang mga alipin. At bumalik sila sa Beersheba at doon na nanirahan.
 
 ## Ang mga Lahi ni Nahor 
 

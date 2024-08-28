@@ -337,7 +337,7 @@ Ang langis at pabango ay gaya ng tapat na payo ng isang kaibigan na nagdudulot n
 
 
 
-Huwag mong pababayaan ang iyong kaibigan o ang kaibigan ng iyong ama. At kung nasa kagipitan ka, hindi ka na hihingi ng tulong sa kapatid mo <i class="trans-change">na nasa malayo_. Ang malapit na kapitbahay ay mas mabuti kaysa sa malayong kapatid. 
+Huwag mong pababayaan ang iyong kaibigan o ang kaibigan ng iyong ama. At kung nasa kagipitan ka, hindi ka na hihingi ng tulong sa kapatid mo na nasa malayo_. Ang malapit na kapitbahay ay mas mabuti kaysa sa malayong kapatid. 
 
 
 
@@ -832,7 +832,7 @@ Sapagkat ang kayamanan at kapangyarihan ay hindi mamamalagi magpakailanman.
 
 
 
-Putulin ang mga damo; at habang hinihintay ang muling pagtubo nito, putulin din ang mga damo sa kabundukan, <i class="trans-change">upang may pagkain ang iyong kawan_. 
+Putulin ang mga damo; at habang hinihintay ang muling pagtubo nito, putulin din ang mga damo sa kabundukan, upang may pagkain ang iyong kawan_. 
 
 
 

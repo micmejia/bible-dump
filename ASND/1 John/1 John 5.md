@@ -204,7 +204,7 @@ At sino ba ang nagtatagumpay laban sa mundo? Ang sumasampalataya na si Jesus ay 
 
 
 
-Si Jesus na naparito sa mundo ay napatunayang Anak ng Dios sa pamamagitan ng tubig <i class="trans-change">nang magpabautismo siya_ at sa pamamagitan ng dugo <i class="trans-change">nang mamatay siya_. Hindi lang sa tubig kundi sa pamamagitan din ng dugo. At ang mga bagay na itoʼy pinatotohanan din <i class="trans-change">sa atin_ ng <i class="trans-change">Banal na_ Espiritu, dahil ang Espiritu ay katotohanan. 
+Si Jesus na naparito sa mundo ay napatunayang Anak ng Dios sa pamamagitan ng tubig nang magpabautismo siya_ at sa pamamagitan ng dugo nang mamatay siya_. Hindi lang sa tubig kundi sa pamamagitan din ng dugo. At ang mga bagay na itoʼy pinatotohanan din sa atin_ ng Banal na_ Espiritu, dahil ang Espiritu ay katotohanan. 
 
 
 
@@ -237,7 +237,7 @@ Si Jesus na naparito sa mundo ay napatunayang Anak ng Dios sa pamamagitan ng tub
 
 
 
-Kaya may tatlong nagpapatotoo <i class="trans-change">tungkol kay Jesus_: 
+Kaya may tatlong nagpapatotoo tungkol kay Jesus_: 
 
 
 
@@ -270,7 +270,7 @@ Kaya may tatlong nagpapatotoo <i class="trans-change">tungkol kay Jesus_:
 
 
 
-ang <i class="trans-change">Banal na_ Espiritu, ang tubig <i class="trans-change">nang magpabautismo siya_, at ang dugo <i class="trans-change">nang mamatay siya_. At ang tatlong itoʼy nagkakaisa. 
+ang Banal na_ Espiritu, ang tubig nang magpabautismo siya_, at ang dugo nang mamatay siya_. At ang tatlong itoʼy nagkakaisa. 
 
 
 
@@ -402,7 +402,7 @@ At ito ang patotoo ng Dios: Binigyan niya tayo ng buhay na walang hanggan, at an
 
 
 
-Ang sinumang nasa kanya ang Anak <i class="trans-change">ng Dios_ ay may buhay <i class="trans-change">na walang hanggan_. Ngunit ang sinumang wala sa kanya ang Anak ng Dios ay walang buhay <i class="trans-change">na walang hanggan_.
+Ang sinumang nasa kanya ang Anak ng Dios_ ay may buhay na walang hanggan_. Ngunit ang sinumang wala sa kanya ang Anak ng Dios ay walang buhay na walang hanggan_.
 
 ## Ang Buhay na Walang Hanggan 
 
@@ -536,7 +536,7 @@ At kung alam nating nakikinig sa atin ang Dios, alam nating tinatanggap na natin
 
 
 
-Kung nakikita ninyo ang inyong kapatid <i class="trans-change">kay Cristo_ na gumagawa ng kasalanang hindi hahantong sa <i class="trans-change">espiritwal na_ kamatayan, ipanalangin ninyo siya at bibigyan siya ng Dios ng buhay. Ito ay para lang sa mga nakagawa ng kasalanang hindi hahantong sa <i class="trans-change">espiritwal na_ kamatayan. May mga kasalanang nagdudulot ng <i class="trans-change">espiritwal na_ kamatayan. Hindi ko sinasabing ipanalangin ninyo ang mga taong nakagawa ng ganitong kasalanan. 
+Kung nakikita ninyo ang inyong kapatid kay Cristo_ na gumagawa ng kasalanang hindi hahantong sa espiritwal na_ kamatayan, ipanalangin ninyo siya at bibigyan siya ng Dios ng buhay. Ito ay para lang sa mga nakagawa ng kasalanang hindi hahantong sa espiritwal na_ kamatayan. May mga kasalanang nagdudulot ng espiritwal na_ kamatayan. Hindi ko sinasabing ipanalangin ninyo ang mga taong nakagawa ng ganitong kasalanan. 
 
 
 
@@ -569,7 +569,7 @@ Kung nakikita ninyo ang inyong kapatid <i class="trans-change">kay Cristo_ na gu
 
 
 
-Ang lahat ng gawaing hindi matuwid ay kasalanan, ngunit may mga kasalanang hindi hahantong sa <i class="trans-change">espiritwal na_ kamatayan. 
+Ang lahat ng gawaing hindi matuwid ay kasalanan, ngunit may mga kasalanang hindi hahantong sa espiritwal na_ kamatayan. 
 
 
 
@@ -668,7 +668,7 @@ Ang buong mundo ay nasa ilalim ng kapangyarihan ng diyablo, ngunit alam nating t
 
 
 
-Alam din nating ang Anak ng Dios ay naparito sa mundo, at binigyan niya tayo ng pang-unawa upang makilala natin ang tunay <i class="trans-change">na Dios_. At tayo nga ay nasa tunay <i class="trans-change">na Dios_ sa pamamagitan ng kanyang anak na si Jesu-Cristo. Siya ang tunay na Dios, at ang buhay na walang hanggan. 
+Alam din nating ang Anak ng Dios ay naparito sa mundo, at binigyan niya tayo ng pang-unawa upang makilala natin ang tunay na Dios_. At tayo nga ay nasa tunay na Dios_ sa pamamagitan ng kanyang anak na si Jesu-Cristo. Siya ang tunay na Dios, at ang buhay na walang hanggan. 
 
 
 

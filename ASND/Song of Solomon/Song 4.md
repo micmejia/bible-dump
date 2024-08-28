@@ -40,7 +40,7 @@ next: ['Song 5']
 
 
 
-Napakaganda mo, O irog ko. Ang mga mata mong natatakpan ng belo ay parang <i class="trans-change">mga mata ng_ kalapati. Ang buhok moʼy parang kawan ng kambing na pababa sa Bundok ng Gilead. 
+Napakaganda mo, O irog ko. Ang mga mata mong natatakpan ng belo ay parang mga mata ng_ kalapati. Ang buhok moʼy parang kawan ng kambing na pababa sa Bundok ng Gilead. 
 
 
 
@@ -73,7 +73,7 @@ Napakaganda mo, O irog ko. Ang mga mata mong natatakpan ng belo ay parang <i cla
 
 
 
-Ang mga ngipin moʼy <i class="trans-change">kasimputi ng_ tupang bagong gupit at pinaliguan. Buong-buo at maganda ang pagkakahanay. 
+Ang mga ngipin moʼy kasimputi ng_ tupang bagong gupit at pinaliguan. Buong-buo at maganda ang pagkakahanay. 
 
 
 
@@ -106,7 +106,7 @@ Ang mga ngipin moʼy <i class="trans-change">kasimputi ng_ tupang bagong gupit a
 
 
 
-Ang mga labi moʼy parang pulang laso, tunay ngang napakaganda. Ang mga pisngi mong natatakpan ng beloʼy <i class="trans-change">mamula-mula na_ parang <i class="trans-change">bunga ng_ pomegranata. 
+Ang mga labi moʼy parang pulang laso, tunay ngang napakaganda. Ang mga pisngi mong natatakpan ng beloʼy mamula-mula na_ parang bunga ng_ pomegranata. 
 
 
 
@@ -205,7 +205,7 @@ Ang dibdib moʼy kasing tikas ng tindig ng kambal na batang usa na nanginginain 
 
 
 
-Bago magbukang-liwayway at bago mawala ang dilim, mananatili ako sa <i class="trans-change">dibdib mong tila_ mga bundok na pinabango ng mira at insenso. 
+Bago magbukang-liwayway at bago mawala ang dilim, mananatili ako sa dibdib mong tila_ mga bundok na pinabango ng mira at insenso. 
 
 
 
@@ -271,7 +271,7 @@ O irog ko, ang lahat sa iyoʼy maganda. Walang maipipintas sa iyo.
 
 
 
-O aking magiging kabiyak, sumama ka sa akin mula sa Lebanon. Bumaba tayo mula sa tuktok ng <i class="trans-change">mga bundok ng_ Amana, Senir at Hermon, na tinitirhan ng mga leopardo at leon. 
+O aking magiging kabiyak, sumama ka sa akin mula sa Lebanon. Bumaba tayo mula sa tuktok ng mga bundok ng_ Amana, Senir at Hermon, na tinitirhan ng mga leopardo at leon. 
 
 
 
@@ -370,7 +370,7 @@ Ang pag-ibig mo aking irog ay walang kasingtamis. O aking magiging kabiyak, higi
 
 
 
-Ang mga labi mo, aking magiging kabiyak ay kasintamis ng pulot. Ang dila moʼy tila may gatas at pulot. At ang damit moʼy kasimbango ng <i class="trans-change">mga puno ng sedro sa_ Lebanon. 
+Ang mga labi mo, aking magiging kabiyak ay kasintamis ng pulot. Ang dila moʼy tila may gatas at pulot. At ang damit moʼy kasimbango ng mga puno ng sedro sa_ Lebanon. 
 
 
 
@@ -436,7 +436,7 @@ O irog ko, aking magiging kabiyak, tulad ka ng isang halamanan na may bukal at n
 
 
 
-Ang mga punoʼy namumunga ng pomegranata at iba pang mga piling bunga. <i class="trans-change">Sagana ito sa halamang_ henna, nardo, 
+Ang mga punoʼy namumunga ng pomegranata at iba pang mga piling bunga. Sagana ito sa halamang_ henna, nardo, 
 
 
 
@@ -502,7 +502,7 @@ safron, kalamo at sinamon, maging ng ibaʼt ibang klase ng insenso, mira, aloe a
 
 
 
-Tulad ka ng isang hardin na may bukal na umaagos mula sa <i class="trans-change">mga kabundukan ng_ Lebanon. 
+Tulad ka ng isang hardin na may bukal na umaagos mula sa mga kabundukan ng_ Lebanon. 
 
 
 

@@ -205,7 +205,7 @@ Marami na akong nasabi, kaya hindi na po ako magsasalita."
 
 
 
-<i class="trans-change">Muling_ sinabi ng Panginoon kay Job mula sa ipu-ipo, 
+Muling_ sinabi ng Panginoon kay Job mula sa ipu-ipo, 
 
 
 
@@ -337,7 +337,7 @@ Ikaw baʼy makapangyarihang tulad ko? Magagawa mo bang parang kulog ang tinig mo
 
 
 
-Kung magagawa mo iyan, patunayan mo na ikaw ngaʼy makapangyarihan, marangal at dakila. <sup class="versenum">11-12</sup>Ipakita mo ang matindi mong galit sa taong mayayabang at ibagsak sila. Wasakin mo ang taong masasama sa kanilang kinatatayuan. 
+Kung magagawa mo iyan, patunayan mo na ikaw ngaʼy makapangyarihan, marangal at dakila. 11-12Ipakita mo ang matindi mong galit sa taong mayayabang at ibagsak sila. Wasakin mo ang taong masasama sa kanilang kinatatayuan. 
 
 
 
@@ -535,7 +535,7 @@ Ang buntot niyaʼy tuwid na tuwid na parang kahoy ng sedro, at ang mga hitaʼy m
 
 
 
-Ang mga buto nitoʼy <i class="trans-change">kasintibay ng_ tubong tanso o bakal. 
+Ang mga buto nitoʼy kasintibay ng_ tubong tanso o bakal. 
 
 
 
@@ -700,7 +700,7 @@ Ang mga halamang matinik at ang iba pang mga punongkahoy sa tabi ng batis ay nag
 
 
 
-Hindi siya natatakot kahit na rumaragasa ang tubig sa ilog. Tahimik pa rin siya kahit halos natatabunan na siya ng tubig sa <i class="trans-change">Ilog ng_ Jordan. 
+Hindi siya natatakot kahit na rumaragasa ang tubig sa ilog. Tahimik pa rin siya kahit halos natatabunan na siya ng tubig sa Ilog ng_ Jordan. 
 
 
 

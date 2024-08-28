@@ -735,7 +735,7 @@ Muling nagsalita si Jesus sa mga pinuno ng mga Judio, "Aalis ako at hahanapin n�
 
 
 
-Kaya nag-usap-usap ang mga <i class="trans-change">pinuno ng mga_ Judio, "Magpapakamatay kaya siya? Ano ang ibig niyang sabihin na hindi tayo makakapunta sa pupuntahan niya?" 
+Kaya nag-usap-usap ang mga pinuno ng mga_ Judio, "Magpapakamatay kaya siya? Ano ang ibig niyang sabihin na hindi tayo makakapunta sa pupuntahan niya?" 
 
 
 
@@ -867,7 +867,7 @@ Kaya sinasabi kong mamamatay kayo na hindi pa napapatawad ang mga kasalanan niny
 
 
 
-Marami akong masasabi at maihahatol laban sa inyo. Sinasabi ko sa inyo ang totoo, wala akong ipinapahayag sa <i class="trans-change">mga tao sa_ mundo maliban sa mga ipinapasabi ng nagsugo sa akin. At mapagkakatiwalaan ang mga sinasabi niya." 
+Marami akong masasabi at maihahatol laban sa inyo. Sinasabi ko sa inyo ang totoo, wala akong ipinapahayag sa mga tao sa_ mundo maliban sa mga ipinapasabi ng nagsugo sa akin. At mapagkakatiwalaan ang mga sinasabi niya." 
 
 
 
@@ -933,7 +933,7 @@ Hindi nila naintindihan na nagsasalita si Jesus tungkol sa Ama.
 
 
 
-Kaya sinabi ni Jesus, "Kapag itinaas na ninyo <i class="trans-change">ako na_ Anak ng Tao, malalaman ninyo na ako nga <i class="trans-change">ang Cristo_. At malalaman din ninyo na ang lahat ng bagay na ginagawa at sinasabi ko ay ayon sa itinuro sa akin ng aking Ama. 
+Kaya sinabi ni Jesus, "Kapag itinaas na ninyo ako na_ Anak ng Tao, malalaman ninyo na ako nga ang Cristo_. At malalaman din ninyo na ang lahat ng bagay na ginagawa at sinasabi ko ay ayon sa itinuro sa akin ng aking Ama. 
 
 
 
@@ -1199,7 +1199,7 @@ Ang alipin ay hindi namamalagi sa isang pamilya sa habang panahon, ngunit ang an
 
 
 
-Kaya kung ang Anak <i class="trans-change">ng Dios_ ang magpapalaya sa inyo, talagang magiging malaya kayo. 
+Kaya kung ang Anak ng Dios_ ang magpapalaya sa inyo, talagang magiging malaya kayo. 
 
 
 
@@ -1298,7 +1298,7 @@ Sinasabi ko sa inyo ang mga bagay na nakita ko sa aking Ama, ngunit ginagawa nam
 
 
 
-Sinabi ng mga tao, "Si Abraham ang aming ama!" Sumagot si Jesus, "Kung totoong mga anak kayo ni Abraham, tinutularan sana ninyo ang <i class="trans-change">mabubuting_ gawa niya. 
+Sinabi ng mga tao, "Si Abraham ang aming ama!" Sumagot si Jesus, "Kung totoong mga anak kayo ni Abraham, tinutularan sana ninyo ang mabubuting_ gawa niya. 
 
 
 
@@ -1529,7 +1529,7 @@ Ngunit ako, pawang katotohanan ang mga sinasabi ko, at ito ang dahilan kung baki
 
 
 
-Sino sa inyo ang makakapagsabi na nakagawa ako ng kasalanan? <i class="trans-change">Wala!_ Bakit ayaw nʼyo akong paniwalaan kung katotohanan ang sinasabi ko? 
+Sino sa inyo ang makakapagsabi na nakagawa ako ng kasalanan? Wala!_ Bakit ayaw nʼyo akong paniwalaan kung katotohanan ang sinasabi ko? 
 
 
 
@@ -1661,7 +1661,7 @@ Sumagot si Jesus, "Hindi ako sinasaniban ng masamang espiritu. Pinararangalan ko
 
 
 
-Hindi ko hinahangad ang sarili kong karangalan. Ang Ama ang naghahangad <i class="trans-change">na parangalan ako ng mga tao_, at siya ang makapagpapasya na tama ang mga sinasabi ko. 
+Hindi ko hinahangad ang sarili kong karangalan. Ang Ama ang naghahangad na parangalan ako ng mga tao_, at siya ang makapagpapasya na tama ang mga sinasabi ko. 
 
 
 
@@ -1727,7 +1727,7 @@ Sinasabi ko sa inyo ang totoo, ang sinumang sumusunod sa mga aral ko ay hindi ma
 
 
 
-Sinabi ng mga <i class="trans-change">pinuno ng mga_ Judio, "Sigurado na kami na sinasaniban ka nga ng demonyo. Si Abraham ay namatay at ganoon din ang mga propeta, pero sinasabi mong hindi mamamatay ang sinumang sumusunod sa aral mo. 
+Sinabi ng mga pinuno ng mga_ Judio, "Sigurado na kami na sinasaniban ka nga ng demonyo. Si Abraham ay namatay at ganoon din ang mga propeta, pero sinasabi mong hindi mamamatay ang sinumang sumusunod sa aral mo. 
 
 
 
@@ -1892,7 +1892,7 @@ Natuwa ang ama ninyong si Abraham nang malaman niyang makikita niya ang aking ka
 
 
 
-Sinabi ng mga <i class="trans-change">pinuno ng mga_ Judio sa kanya, "Wala ka pang 50 taon, paano mo nasabing nakita mo na si Abraham?" 
+Sinabi ng mga pinuno ng mga_ Judio sa kanya, "Wala ka pang 50 taon, paano mo nasabing nakita mo na si Abraham?" 
 
 
 

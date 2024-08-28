@@ -436,7 +436,7 @@ Ang galit ay nagpapasimula ng kaguluhan, ngunit ang pag-ibig ay nagpapatawad ng 
 
 
 
-Nagsasalita ng karunungan ang taong may pang-unawa, ngunit ang walang pang-unawa ay <i class="trans-change">nagsasalita tungo sa kanyang_ kapahamakan. 
+Nagsasalita ng karunungan ang taong may pang-unawa, ngunit ang walang pang-unawa ay nagsasalita tungo sa kanyang_ kapahamakan. 
 
 
 
@@ -535,7 +535,7 @@ Seguridad ng mayaman ang kanyang kayamanan, ngunit kapahamakan naman ng mahirap 
 
 
 
-Ang gantimpala ng matuwid ay <i class="trans-change">maganda at mahabang_ buhay, ngunit ang gantimpala ng masama ay kaparusahan. 
+Ang gantimpala ng matuwid ay maganda at mahabang_ buhay, ngunit ang gantimpala ng masama ay kaparusahan. 
 
 
 
@@ -832,7 +832,7 @@ Ang kinatatakutan ng taong masama ay mangyayari sa kanya, ang hinahangad naman n
 
 
 
-Kapag dumating ang <i class="trans-change">pagsubok sa buhay na parang_ bagyo, maglalaho ang taong masama, ngunit mananatiling matatag ang taong matuwid. 
+Kapag dumating ang pagsubok sa buhay na parang_ bagyo, maglalaho ang taong masama, ngunit mananatiling matatag ang taong matuwid. 
 
 
 

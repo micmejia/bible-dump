@@ -337,7 +337,7 @@ Kinaumagahan, sinabi sa akin ng Panginoon,
 
 
 
-sabihin mo sa kanila na <i class="trans-change">ako_, ang Panginoong Dios ay may ipinapasabi sa mga namamahala ng Jerusalem at sa lahat ng mamamayan ng Israel. 
+sabihin mo sa kanila na ako_, ang Panginoong Dios ay may ipinapasabi sa mga namamahala ng Jerusalem at sa lahat ng mamamayan ng Israel. 
 
 
 
@@ -436,7 +436,7 @@ Kahit ang pinuno nilaʼy papasanin ang sarili niyang dala-dalahan at aalis nang 
 
 
 
-Pero huhulihin ko siya <i class="trans-change">na parang hayop_ at dadalhin sa Babilonia sa lupain ng mga Caldeo. Pero hindi niya ito makikita, at doon siya mamamatay. 
+Pero huhulihin ko siya na parang hayop_ at dadalhin sa Babilonia sa lupain ng mga Caldeo. Pero hindi niya ito makikita, at doon siya mamamatay. 
 
 
 
@@ -634,7 +634,7 @@ Sinabi sa akin ng Panginoon,
 
 
 
-Sabihin mo sa mga mamamayan ng Jerusalem at sa lahat ng taga-Israel na <i class="trans-change">ako_, ang Panginoong Dios ay nagsasabi na maguguluhan sila at manginginig sa takot habang kumakain at umiinom, dahil sasamsamin ang mga ari-arian ng bansa nila dahil sa kanilang kalupitan. 
+Sabihin mo sa mga mamamayan ng Jerusalem at sa lahat ng taga-Israel na ako_, ang Panginoong Dios ay nagsasabi na maguguluhan sila at manginginig sa takot habang kumakain at umiinom, dahil sasamsamin ang mga ari-arian ng bansa nila dahil sa kanilang kalupitan. 
 
 
 
@@ -766,7 +766,7 @@ Sinabing muli ng Panginoon sa akin,
 
 
 
-Sabihin mo sa kanila na <i class="trans-change">ako_, ang Panginoong Dios, ay magpapatigil sa kasabihang ito at hindi na muling sasabihin pa sa Israel. Sabihin mo rin sa kanilang malapit nang matupad ang mga propesiya. 
+Sabihin mo sa kanila na ako_, ang Panginoong Dios, ay magpapatigil sa kasabihang ito at hindi na muling sasabihin pa sa Israel. Sabihin mo rin sa kanilang malapit nang matupad ang mga propesiya. 
 
 
 
@@ -832,7 +832,7 @@ Tiyak na mawawala na sa Israel ang mga maling pangitain o mga panghuhula ng kasi
 
 
 
-Sapagkat kapag ako, ang Panginoon ay nagsalita, tiyak na mangyayari. Hindi magtatagal at magaganap na ang mga sinabi ko tungkol sa mga rebeldeng mamamayan. At mangyayari ito sa panahon ninyo. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito." 
+Sapagkat kapag ako, ang Panginoon ay nagsalita, tiyak na mangyayari. Hindi magtatagal at magaganap na ang mga sinabi ko tungkol sa mga rebeldeng mamamayan. At mangyayari ito sa panahon ninyo. Ako,_ ang Panginoong Dios, ang nagsasabi nito." 
 
 
 
@@ -931,4 +931,4 @@ Sinabi sa akin ng Panginoon,
 
 
 
-Kaya sabihin mo sa kanila: '<i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi na sa lalong madaling panahon ay magaganap na ang mga sinabi ko. <i class="trans-change">Oo_, mangyayari na ito.' "
+Kaya sabihin mo sa kanila: 'Ako,_ ang Panginoong Dios, ang nagsasabi na sa lalong madaling panahon ay magaganap na ang mga sinabi ko. Oo_, mangyayari na ito.' "

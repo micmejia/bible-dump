@@ -73,7 +73,7 @@ Matapos turuan ni Jesus ang kanyang 12 tagasunod, umalis siya sa lugar na iyon u
 
 
 
-Nang nasa bilangguan si Juan <i class="trans-change">na tagapagbautismo_, narinig niya ang mga ginagawa ni Jesus, kaya inutusan niya ang kanyang mga tagasunod 
+Nang nasa bilangguan si Juan na tagapagbautismo_, narinig niya ang mga ginagawa ni Jesus, kaya inutusan niya ang kanyang mga tagasunod 
 
 
 
@@ -238,7 +238,7 @@ Mapalad ang taong hindi nagdududa sa akin."
 
 
 
-Pagkaalis ng mga tagasunod ni Juan, nagtanong si Jesus sa mga tao, "Noong pumunta kayo <i class="trans-change">kay Juan_ sa ilang, ano ang inaasahan ninyong makita? Isa bang <i class="trans-change">taong tulad ng_ talahib na humahapay sa ihip ng hangin? 
+Pagkaalis ng mga tagasunod ni Juan, nagtanong si Jesus sa mga tao, "Noong pumunta kayo kay Juan_ sa ilang, ano ang inaasahan ninyong makita? Isa bang taong tulad ng_ talahib na humahapay sa ihip ng hangin? 
 
 
 
@@ -337,7 +337,7 @@ Pumunta kayo roon para makita ang isang propeta, hindi ba? Totoo, isa nga siyang
 
 
 
-Siya ang binabanggit <i class="trans-change">ng Dios_ sa Kasulatan, 'Ipapadala ko ang aking mensahero. Mauuna siya sa iyo upang ihanda ang dadaanan mo.' 
+Siya ang binabanggit ng Dios_ sa Kasulatan, 'Ipapadala ko ang aking mensahero. Mauuna siya sa iyo upang ihanda ang dadaanan mo.' 
 
 
 
@@ -436,7 +436,7 @@ Mula nang mangaral si Juan hanggang ngayon, nagpupumilit ang mga tao na mapabila
 
 
 
-Sapagkat bago pa dumating si Juan, ipinahayag na ng lahat ng propeta at ng Kautusan <i class="trans-change">ni Moises ang tungkol sa paghahari ng Dios_. 
+Sapagkat bago pa dumating si Juan, ipinahayag na ng lahat ng propeta at ng Kautusan ni Moises ang tungkol sa paghahari ng Dios_. 
 
 
 
@@ -568,7 +568,7 @@ Kayong mga nakikinig, dapat ninyo itong pag-isipan!"
 
 
 
-'Tinugtugan namin kayo <i class="trans-change">ng tugtuging pangkasal_, pero hindi kayo sumayaw! Umawit kami ng awit para sa patay, pero hindi kayo umiyak!' 
+'Tinugtugan namin kayo ng tugtuging pangkasal_, pero hindi kayo sumayaw! Umawit kami ng awit para sa patay, pero hindi kayo umiyak!' 
 
 
 
@@ -601,7 +601,7 @@ Kayong mga nakikinig, dapat ninyo itong pag-isipan!"
 
 
 
-<i class="trans-change">Katulad nga nila ang mga tao ngayon,_ dahil nang dumating dito si Juan, nakita nilang nag-aayuno siya at hindi umiinom <i class="trans-change">ng alak,_ kaya sinabi nila, 'Sinasaniban siya ng masamang espiritu.' 
+Katulad nga nila ang mga tao ngayon,_ dahil nang dumating dito si Juan, nakita nilang nag-aayuno siya at hindi umiinom ng alak,_ kaya sinabi nila, 'Sinasaniban siya ng masamang espiritu.' 
 
 
 
@@ -634,7 +634,7 @@ Kayong mga nakikinig, dapat ninyo itong pag-isipan!"
 
 
 
-At nang dumating naman <i class="trans-change">ako, na_ Anak ng Tao, nakita nilang kumakain ako at umiinom, at sinabi naman nila, 'Ang taong iyan ay matakaw at lasenggo, at kaibigan ng mga maniningil ng buwis at ng iba pang makasalanan.' Ganoon pa man, ang mga taong sumusunod sa kalooban ng Dios ay sumasang-ayon na tama ang ipinapagawa ng Dios sa amin." ## Babala sa mga Bayang Hindi Nagsisisi 
+At nang dumating naman ako, na_ Anak ng Tao, nakita nilang kumakain ako at umiinom, at sinabi naman nila, 'Ang taong iyan ay matakaw at lasenggo, at kaibigan ng mga maniningil ng buwis at ng iba pang makasalanan.' Ganoon pa man, ang mga taong sumusunod sa kalooban ng Dios ay sumasang-ayon na tama ang ipinapagawa ng Dios sa amin." ## Babala sa mga Bayang Hindi Nagsisisi 
 
 
 
@@ -832,7 +832,7 @@ Kaya tandaan ninyo na sa Araw ng Paghuhukom, mas mabigat na parusa ang tatanggap
 
 
 
-Nang oras ding iyon, sinabi ni Jesus, "Pinupuri kita Ama, Panginoon ng langit at lupa, dahil inilihim mo ang mga katotohanang ito sa mga <i class="trans-change">taong ang akala sa sarili ay_ marurunong at matatalino, pero inihayag mo sa mga taong tulad ng bata <i class="trans-change">na kaunti lang ang nalalaman_. 
+Nang oras ding iyon, sinabi ni Jesus, "Pinupuri kita Ama, Panginoon ng langit at lupa, dahil inilihim mo ang mga katotohanang ito sa mga taong ang akala sa sarili ay_ marurunong at matatalino, pero inihayag mo sa mga taong tulad ng bata na kaunti lang ang nalalaman_. 
 
 
 
@@ -865,7 +865,7 @@ Nang oras ding iyon, sinabi ni Jesus, "Pinupuri kita Ama, Panginoon ng langit at
 
 
 
-Oo, Ama, <i class="trans-change">pinupuri kita_ dahil iyon ang kalooban mo." 
+Oo, Ama, pinupuri kita_ dahil iyon ang kalooban mo." 
 
 
 
@@ -898,7 +898,7 @@ Oo, Ama, <i class="trans-change">pinupuri kita_ dahil iyon ang kalooban mo."
 
 
 
-<i class="trans-change">Pagkatapos, sinabi niya sa mga tao,_ "Ibinigay sa akin ng aking Ama ang lahat ng bagay. Walang nakakakilala sa Anak kundi ang Ama, at walang nakakakilala sa Ama kundi ang Anak at ang mga taong nais ng Anak na makakilala sa Ama. 
+Pagkatapos, sinabi niya sa mga tao,_ "Ibinigay sa akin ng aking Ama ang lahat ng bagay. Walang nakakakilala sa Anak kundi ang Ama, at walang nakakakilala sa Ama kundi ang Anak at ang mga taong nais ng Anak na makakilala sa Ama. 
 
 
 

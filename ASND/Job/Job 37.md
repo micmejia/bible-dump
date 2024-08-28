@@ -40,7 +40,7 @@ next: ['Job 38']
 
 
 
-"Kumakabog ang dibdib ko <i class="trans-change">dahil sa bagyo_. 
+"Kumakabog ang dibdib ko dahil sa bagyo_. 
 
 
 
@@ -73,7 +73,7 @@ next: ['Job 38']
 
 
 
-Pakinggan ninyo ang dumadagundong na tinig <i class="trans-change">ng Dios_ na parang kulog. 
+Pakinggan ninyo ang dumadagundong na tinig ng Dios_ na parang kulog. 
 
 
 
@@ -271,7 +271,7 @@ para ang taoʼy makapagpahinga sa kanilang mga ginagawa at makapagbulay-bulay sa
 
 
 
-Nagtatago ang mga hayop sa kanilang mga taguan at nananatili roon <i class="trans-change">kapag may bagyo_. 
+Nagtatago ang mga hayop sa kanilang mga taguan at nananatili roon kapag may bagyo_. 
 
 
 
@@ -337,7 +337,7 @@ Dumadating ang bagyo at ang hanging malamig mula sa kanilang taguan.
 
 
 
-Sa pamamagitan ng hininga ng Dios nabubuo ang yelo, at nagiging yelo ang malalawak na <i class="trans-change">bahagi ng_ tubig. 
+Sa pamamagitan ng hininga ng Dios nabubuo ang yelo, at nagiging yelo ang malalawak na bahagi ng_ tubig. 
 
 
 
@@ -634,7 +634,7 @@ matutulungan mo ba ang Dios na ilatag ang kalangitan at patigasin na parang tans
 
 
 
-"<i class="trans-change">Kung matalino ka,_ sabihin mo sa amin kung ano ang dapat naming sabihin sa Dios. Hindi namin alam kung paano kami mangangatwiran dahil kulang ang aming kaalaman. 
+"Kung matalino ka,_ sabihin mo sa amin kung ano ang dapat naming sabihin sa Dios. Hindi namin alam kung paano kami mangangatwiran dahil kulang ang aming kaalaman. 
 
 
 
@@ -766,7 +766,7 @@ Mula sa hilaga, paparating ang Dios na nagniningning na parang ginto at ang kany
 
 
 
-Hindi natin lubos na maunawaan ang Makapangyarihang <i class="trans-change">Dios_ na napakadakila. Lubos siyang makatarungan, matuwid at hindi nang-aapi, 
+Hindi natin lubos na maunawaan ang Makapangyarihang Dios_ na napakadakila. Lubos siyang makatarungan, matuwid at hindi nang-aapi, 
 
 
 

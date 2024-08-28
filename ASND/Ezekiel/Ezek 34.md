@@ -73,7 +73,7 @@ Sinabi sa akin ng Panginoon,
 
 
 
-"Anak ng tao, magsalita ka laban sa mga bantay ng Israel. Sabihin mo sa kanila na <i class="trans-change">ako,_ ang Panginoong Dios, ay nagsasabi: Nakakaawa ang mga bantay ng Israel. Ang sarili lang ninyo ang inyong inaalagaan! Hindi ba ang mga bantay ang dapat nag-aalaga sa mga tupa? 
+"Anak ng tao, magsalita ka laban sa mga bantay ng Israel. Sabihin mo sa kanila na ako,_ ang Panginoong Dios, ay nagsasabi: Nakakaawa ang mga bantay ng Israel. Ang sarili lang ninyo ang inyong inaalagaan! Hindi ba ang mga bantay ang dapat nag-aalaga sa mga tupa? 
 
 
 
@@ -271,7 +271,7 @@ Naligaw ang mga tupa ko sa mga bundok at burol. Nangalat sila sa buong mundo at 
 
 
 
-Ako, ang Panginoong Dios na buhay, ay sumusumpa <i class="trans-change">na parurusahan ko kayo_ dahil hindi ninyo binantayan ang aking mga tupa, kaya sinalakay sila at nilapa ng mababangis na hayop. Hindi ninyo sila hinanap, sa halip sarili lang ninyo ang inyong inalagaan. 
+Ako, ang Panginoong Dios na buhay, ay sumusumpa na parurusahan ko kayo_ dahil hindi ninyo binantayan ang aking mga tupa, kaya sinalakay sila at nilapa ng mababangis na hayop. Hindi ninyo sila hinanap, sa halip sarili lang ninyo ang inyong inalagaan. 
 
 
 
@@ -337,7 +337,7 @@ Kaya kayong mga bantay, pakinggan ninyo ang mga sinasabi ko.
 
 
 
-<i class="trans-change">Ako,_ ang Panginoong Dios, ay nagsasabi na kalaban ko kayo, at may pananagutan kayo sa nangyari sa aking mga tupa. Hindi ko na ipagkakatiwala sa inyo ang <i class="trans-change">aking_ mga tupa dahil ang sarili lang ninyo ang inyong inaalagaan. Ililigtas ko ang mga tupa mula sa inyo upang hindi na ninyo sila makain. 
+Ako,_ ang Panginoong Dios, ay nagsasabi na kalaban ko kayo, at may pananagutan kayo sa nangyari sa aking mga tupa. Hindi ko na ipagkakatiwala sa inyo ang aking_ mga tupa dahil ang sarili lang ninyo ang inyong inaalagaan. Ililigtas ko ang mga tupa mula sa inyo upang hindi na ninyo sila makain. 
 
 
 
@@ -370,7 +370,7 @@ Kaya kayong mga bantay, pakinggan ninyo ang mga sinasabi ko.
 
 
 
-"<i class="trans-change">Ako,_ ang Panginoong Dios ay nagsasabing ako mismo ang maghahanap sa aking mga tupa at mag-aalaga sa kanila. 
+"Ako,_ ang Panginoong Dios ay nagsasabing ako mismo ang maghahanap sa aking mga tupa at mag-aalaga sa kanila. 
 
 
 
@@ -535,7 +535,7 @@ Ako, ang Panginoong Dios, ang mismong mag-aalaga sa aking mga tupa, at silaʼy a
 
 
 
-Hahanapin ko ang mga nawawala at ang mga naliligaw. Gagamutin ko ang mga may sugat at may sakit, palalakasin ko ang mahihina. Pero lilipulin ko ang matataba at malalakas <i class="trans-change">na tupa_. Gagawin ko sa kanila kung ano ang nararapat. 
+Hahanapin ko ang mga nawawala at ang mga naliligaw. Gagamutin ko ang mga may sugat at may sakit, palalakasin ko ang mahihina. Pero lilipulin ko ang matataba at malalakas na tupa_. Gagawin ko sa kanila kung ano ang nararapat. 
 
 
 
@@ -568,7 +568,7 @@ Hahanapin ko ang mga nawawala at ang mga naliligaw. Gagamutin ko ang mga may sug
 
 
 
-"<i class="trans-change">Mga mamamayan ng Israel na_ aking mga tupa, <i class="trans-change">ako,_ ang Panginoong Dios, ay nagsasabi <i class="trans-change">sa inyo_ na hahatulan ko kayo. Ibubukod ko ang mabubuti sa masasama, ang mga tupa sa mga kambing. 
+"Mga mamamayan ng Israel na_ aking mga tupa, ako,_ ang Panginoong Dios, ay nagsasabi sa inyo_ na hahatulan ko kayo. Ibubukod ko ang mabubuti sa masasama, ang mga tupa sa mga kambing. 
 
 
 
@@ -667,7 +667,7 @@ Manginginain na lang ba ang iba kong mga tupa sa mga pinagtapak-tapakan ninyo? A
 
 
 
-"Kaya <i class="trans-change">ako,_ ang Panginoong Dios ay nagsasabing, ibubukod ko ang matatabang tupa sa mga payat. 
+"Kaya ako,_ ang Panginoong Dios ay nagsasabing, ibubukod ko ang matatabang tupa sa mga payat. 
 
 
 
@@ -865,7 +865,7 @@ Ako, ang Panginoon, ang magiging Dios nila, at ang lahi ng lingkod kong si David
 
 
 
-Pagpapalain ko sila at ang mga lugar sa paligid ng aking <i class="trans-change">banal na_ bundok. Padadalhan ko sila ng ulan sa tamang oras bilang pagpapala sa kanila. 
+Pagpapalain ko sila at ang mga lugar sa paligid ng aking banal na_ bundok. Padadalhan ko sila ng ulan sa tamang oras bilang pagpapala sa kanila. 
 
 
 
@@ -997,7 +997,7 @@ Bibigyan ko sila ng matabang lupain na magbibigay ng masaganang ani para hindi s
 
 
 
-At malalaman nila na ako, ang kanilang Panginoong Dios na kasama nila, at silang mga mamamayan ng Israel, ang aking mga mamamayan. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+At malalaman nila na ako, ang kanilang Panginoong Dios na kasama nila, at silang mga mamamayan ng Israel, ang aking mga mamamayan. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -1030,4 +1030,4 @@ At malalaman nila na ako, ang kanilang Panginoong Dios na kasama nila, at silang
 
 
 
-"Kayo ang mga tupa sa aking pastulan, kayo ang aking mga mamamayan, at ako ang inyong Dios. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito."
+"Kayo ang mga tupa sa aking pastulan, kayo ang aking mga mamamayan, at ako ang inyong Dios. Ako,_ ang Panginoong Dios, ang nagsasabi nito."

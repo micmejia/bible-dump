@@ -40,7 +40,7 @@ next: ['2 Kgs 8']
 
 
 
-Sinabi ni Eliseo, "Pakinggan mo ang mensahe ng Panginoon: Bukas, sa ganito ring oras, <i class="trans-change">magiging mura ang bilihin_ sa pamilihan ng Samaria. Isang pirasong pilak na lang ang halaga ng isang takal na harina at ganoon din ang halaga ng dalawang takal ng sebada." 
+Sinabi ni Eliseo, "Pakinggan mo ang mensahe ng Panginoon: Bukas, sa ganito ring oras, magiging mura ang bilihin_ sa pamilihan ng Samaria. Isang pirasong pilak na lang ang halaga ng isang takal na harina at ganoon din ang halaga ng dalawang takal ng sebada." 
 
 
 
@@ -304,7 +304,7 @@ Nang dumating sa kampo ang mga taong may malubhang sakit sa balat, isa-isa nilan
 
 
 
-Sa bandang huli, sinabi nila sa isaʼt isa, "Hindi ito tama. Magandang balita <i class="trans-change">ang nangyari_ sa araw na ito, kaya hindi natin dapat ilihim. Kung ipagpapabukas pa natin ang pagsasabi nito, tiyak na parurusahan tayo. Pumunta tayo ngayon sa palasyo ng hari at ibalita ang nangyari." 
+Sa bandang huli, sinabi nila sa isaʼt isa, "Hindi ito tama. Magandang balita ang nangyari_ sa araw na ito, kaya hindi natin dapat ilihim. Kung ipagpapabukas pa natin ang pagsasabi nito, tiyak na parurusahan tayo. Pumunta tayo ngayon sa palasyo ng hari at ibalita ang nangyari." 
 
 
 
@@ -337,7 +337,7 @@ Sa bandang huli, sinabi nila sa isaʼt isa, "Hindi ito tama. Magandang balita <i
 
 
 
-Kaya bumalik sila sa lungsod <i class="trans-change">ng Samaria_ at tinawag ang mga guwardya ng pintuan ng lungsod at sinabi, "Pumunta kami sa kampo ng mga Arameo at walang tao roon, maliban sa mga nakataling kabayo at asno. At naroon pa ang mga kagamitan sa tolda." 
+Kaya bumalik sila sa lungsod ng Samaria_ at tinawag ang mga guwardya ng pintuan ng lungsod at sinabi, "Pumunta kami sa kampo ng mga Arameo at walang tao roon, maliban sa mga nakataling kabayo at asno. At naroon pa ang mga kagamitan sa tolda." 
 
 
 
@@ -436,7 +436,7 @@ Bumangon ang hari nang madaling-araw at sinabi sa mga opisyal niya, "Sasabihin k
 
 
 
-Sumagot ang isa sa mga opisyal niya, 'Mas mabuti po na magpadala tayo ng mga tao para alamin <i class="trans-change">ang nangyari_. Hayaan nating gamitin nila ang limang natirang kabayo. Kung may mangyayari po sa kanila, hindi ito malaking kawalan kaysa manatili sila rito at mamatay rin na kasama natin.' " 
+Sumagot ang isa sa mga opisyal niya, 'Mas mabuti po na magpadala tayo ng mga tao para alamin ang nangyari_. Hayaan nating gamitin nila ang limang natirang kabayo. Kung may mangyayari po sa kanila, hindi ito malaking kawalan kaysa manatili sila rito at mamatay rin na kasama natin.' " 
 
 
 
@@ -502,7 +502,7 @@ Kaya naghanda sila ng dalawang karwahe na may mga kabayo at nagpadala ang hari n
 
 
 
-Nakaabot sila hanggang sa <i class="trans-change">Ilog ng_ Jordan, at nakita nila sa daan ang mga damit at mga kagamitan na itinapon ng mga Arameo sa pagmamadaling makatakas. Bumalik ang mga inutusan at ibinalita ito sa hari. 
+Nakaabot sila hanggang sa Ilog ng_ Jordan, at nakita nila sa daan ang mga damit at mga kagamitan na itinapon ng mga Arameo sa pagmamadaling makatakas. Bumalik ang mga inutusan at ibinalita ito sa hari. 
 
 
 
@@ -568,7 +568,7 @@ Pagkatapos, lumabas ang mga tao sa bayan at kinuha nila ang mga mahahalagang bag
 
 
 
-Pinili ng hari ang pinagkakatiwalaan niyang opisyal para magbantay sa pintuan ng lungsod. <i class="trans-change">Nang magtakbuhan ang mga tao, natumba ang opisyal at_ natapak-tapakan siya ng mga tao roon sa pintuan, at namatay siya ayon sa sinabi ni <i class="trans-change">Eliseo_ na lingkod ng Dios nang pumunta ang hari sa kanya. 
+Pinili ng hari ang pinagkakatiwalaan niyang opisyal para magbantay sa pintuan ng lungsod. Nang magtakbuhan ang mga tao, natumba ang opisyal at_ natapak-tapakan siya ng mga tao roon sa pintuan, at namatay siya ayon sa sinabi ni Eliseo_ na lingkod ng Dios nang pumunta ang hari sa kanya. 
 
 
 
@@ -601,7 +601,7 @@ Pinili ng hari ang pinagkakatiwalaan niyang opisyal para magbantay sa pintuan ng
 
 
 
-<i class="trans-change">Nangyari rin ang_ sinabi ng lingkod ng Dios sa hari, "Bukas, sa ganito ring oras, <i class="trans-change">magiging mura ang bilihin_ sa pamilihan ng Samaria. Isang pirasong pilak na lang ang halaga ng isang takal ng harina at ganoon din ang halaga ng dalawang takal ng sebada." 
+Nangyari rin ang_ sinabi ng lingkod ng Dios sa hari, "Bukas, sa ganito ring oras, magiging mura ang bilihin_ sa pamilihan ng Samaria. Isang pirasong pilak na lang ang halaga ng isang takal ng harina at ganoon din ang halaga ng dalawang takal ng sebada." 
 
 
 
@@ -634,7 +634,7 @@ Pinili ng hari ang pinagkakatiwalaan niyang opisyal para magbantay sa pintuan ng
 
 
 
-Sumagot noon ang opisyal <i class="trans-change">ng hari_, "Kahit na magpaulan pa ang Panginoon hindi magiging ganoon kadami ang ani." Sumagot si Eliseo, "Makikita mo na mangyayari iyon, pero hindi ka makakakain nito." 
+Sumagot noon ang opisyal ng hari_, "Kahit na magpaulan pa ang Panginoon hindi magiging ganoon kadami ang ani." Sumagot si Eliseo, "Makikita mo na mangyayari iyon, pero hindi ka makakakain nito." 
 
 
 
@@ -667,4 +667,4 @@ Sumagot noon ang opisyal <i class="trans-change">ng hari_, "Kahit na magpaulan p
 
 
 
-Iyon nga ang nangyari sa opisyal, dahil natapak-tapakan siya ng mga tao <i class="trans-change">na nagsiksikan_ sa pintuan ng lungsod hanggang sa mamatay siya.
+Iyon nga ang nangyari sa opisyal, dahil natapak-tapakan siya ng mga tao na nagsiksikan_ sa pintuan ng lungsod hanggang sa mamatay siya.

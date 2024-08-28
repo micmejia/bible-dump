@@ -403,7 +403,7 @@ Magkakaroon ng malalakas na lindol, taggutom at mga salot sa ibaʼt ibang lugar.
 
 
 
-"Ngunit bago mangyari ang lahat ng iyan ay uusigin muna kayo at dadakpin ng mga tao. Dadalhin nila kayo sa mga sambahan ng mga Judio <i class="trans-change">upang akusahan_ at ipabilanggo. Iimbestigahan kayo sa harap ng mga hari at mga gobernador dahil sa pagsunod ninyo sa akin. 
+"Ngunit bago mangyari ang lahat ng iyan ay uusigin muna kayo at dadakpin ng mga tao. Dadalhin nila kayo sa mga sambahan ng mga Judio upang akusahan_ at ipabilanggo. Iimbestigahan kayo sa harap ng mga hari at mga gobernador dahil sa pagsunod ninyo sa akin. 
 
 
 
@@ -634,7 +634,7 @@ Ngunit hindi kayo mapapahamak.
 
 
 
-At kung magpapakatatag kayo, magkakaroon kayo ng buhay <i class="trans-change">na walang hanggan_.
+At kung magpapakatatag kayo, magkakaroon kayo ng buhay na walang hanggan_.
 
 ## Tungkol sa Pagkawasak ng Jerusalem 
 
@@ -768,7 +768,7 @@ Sapagkat panahon na iyon ng pagpaparusa, upang matupad ang nakasaad sa Kasulatan
 
 
 
-Kawawa ang mga buntis at ang mga nagpapasuso sa mga araw na iyon <i class="trans-change">dahil mahihirapan silang tumakas_. Darating ang napakatinding paghihirap sa lupaing ito dahil sa matinding galit ng Dios sa mga tao rito. 
+Kawawa ang mga buntis at ang mga nagpapasuso sa mga araw na iyon dahil mahihirapan silang tumakas_. Darating ang napakatinding paghihirap sa lupaing ito dahil sa matinding galit ng Dios sa mga tao rito. 
 
 
 
@@ -902,7 +902,7 @@ Hihimatayin sa takot ang mga tao dahil sa mga mangyayari sa mundo, dahil mayayan
 
 
 
-At makikita nila <i class="trans-change">ako na_ Anak ng Tao na dumarating mula sa ulap na taglay ang kapangyarihan at kaluwalhatian. 
+At makikita nila ako na_ Anak ng Tao na dumarating mula sa ulap na taglay ang kapangyarihan at kaluwalhatian. 
 
 
 
@@ -1199,7 +1199,7 @@ nang hindi ninyo inaasahan. Sapagkat darating ang araw na iyon sa lahat ng tao s
 
 
 
-Kaya maging handa kayo sa lahat ng oras. Palagi kayong manalangin upang magkaroon kayo ng lakas na mapagtagumpayan ang lahat ng mangyayaring kahirapan, at makatayo kayo sa harap ko na Anak ng Tao <i class="trans-change">nang hindi napapahiya_." 
+Kaya maging handa kayo sa lahat ng oras. Palagi kayong manalangin upang magkaroon kayo ng lakas na mapagtagumpayan ang lahat ng mangyayaring kahirapan, at makatayo kayo sa harap ko na Anak ng Tao nang hindi napapahiya_." 
 
 
 

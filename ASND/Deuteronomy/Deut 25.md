@@ -304,7 +304,7 @@ At ipapatawag siya ng mga tagapamahala ng bayan at makikipag-usap sila sa kanya.
 
 
 
-lalapitan siya ng biyuda sa harap ng mga tagapamahala at kukunin niya ang sandalyas ng kanyang hipag at duduraan niya sa mukha at sasabihin, 'Ganyan ang gagawin sa lalaking hindi pumapayag na bigyan ng lahi ang kanyang kapatid <i class="trans-change">na namatay_.' 
+lalapitan siya ng biyuda sa harap ng mga tagapamahala at kukunin niya ang sandalyas ng kanyang hipag at duduraan niya sa mukha at sasabihin, 'Ganyan ang gagawin sa lalaking hindi pumapayag na bigyan ng lahi ang kanyang kapatid na namatay_.' 
 
 
 
@@ -403,7 +403,7 @@ Ang pamilya ng taong ito ay tatawagin sa Israel na pamilya ng taong kinuhanan ng
 
 
 
-kailangang putulin ang kamay ng babae nang walang awa. <sup class="versenum">13-14</sup>"Huwag kayong mandaraya sa inyong pagtimbang at pagtakal. 
+kailangang putulin ang kamay ng babae nang walang awa. 13-14"Huwag kayong mandaraya sa inyong pagtimbang at pagtakal. 
 
 
 

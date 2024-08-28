@@ -205,7 +205,7 @@ Nang tanggalin ng Tupa ang ikatlong selyo, narinig kong sinabi ng ikatlong buhay
 
 
 
-May narinig akong parang tinig mula sa apat na buhay na nilalang. At sinabi <i class="trans-change">sa nakasakay sa kabayo_, "<i class="trans-change">Itaas mo ang presyo ng pagkain._ Ang presyo ng isang kilo ng <i class="trans-change">harinang_ trigo ay dapat isang araw na sahod, at ganoon din ang presyo ng tatlong kilo ng <i class="trans-change">harinang_ sebada. Pero huwag itaas ang presyo ng langis at alak!" 
+May narinig akong parang tinig mula sa apat na buhay na nilalang. At sinabi sa nakasakay sa kabayo_, "Itaas mo ang presyo ng pagkain._ Ang presyo ng isang kilo ng harinang_ trigo ay dapat isang araw na sahod, at ganoon din ang presyo ng tatlong kilo ng harinang_ sebada. Pero huwag itaas ang presyo ng langis at alak!" 
 
 
 
@@ -271,7 +271,7 @@ Nang tanggalin ng Tupa ang ikaapat na selyo, narinig kong sinabi ng ikaapat na b
 
 
 
-At nakita ko ang isang maputlang kabayo. Ang pangalan ng nakasakay ay Kamatayan, at kasunod nito ang Hades. Binigyan sila ng kapangyarihang patayin ang ikaapat na bahagi ng <i class="trans-change">populasyon ng_ mundo sa pamamagitan ng digmaan, gutom, sakit at mababangis na hayop. 
+At nakita ko ang isang maputlang kabayo. Ang pangalan ng nakasakay ay Kamatayan, at kasunod nito ang Hades. Binigyan sila ng kapangyarihang patayin ang ikaapat na bahagi ng populasyon ng_ mundo sa pamamagitan ng digmaan, gutom, sakit at mababangis na hayop. 
 
 
 

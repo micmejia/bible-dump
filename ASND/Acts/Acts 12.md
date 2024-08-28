@@ -671,7 +671,7 @@ Nag-utos si Herodes na hanapin siya, pero hindi talaga nila makita. Kaya pinaimb
 
 
 
-Galit na galit si <i class="trans-change">Haring_ Herodes sa mga taga-Tyre at taga-Sidon. Kaya nagkaisa ang mga tao na makipag-ayos sa hari dahil sa bayan nito nanggagaling ang kanilang pagkain. Bago sila pumunta sa hari, kinaibigan muna nila si Blastus para tulungan sila, dahil siya ang katiwala ng hari sa palasyo. 
+Galit na galit si Haring_ Herodes sa mga taga-Tyre at taga-Sidon. Kaya nagkaisa ang mga tao na makipag-ayos sa hari dahil sa bayan nito nanggagaling ang kanilang pagkain. Bago sila pumunta sa hari, kinaibigan muna nila si Blastus para tulungan sila, dahil siya ang katiwala ng hari sa palasyo. 
 
 
 
@@ -704,7 +704,7 @@ Galit na galit si <i class="trans-change">Haring_ Herodes sa mga taga-Tyre at ta
 
 
 
-Nang dumating ang araw <i class="trans-change">na makikipagkita_ na si Herodes sa mga taga-Tyre at taga-Sidon, isinuot niya ang damit panghari at umupo siya sa kanyang trono at nagtalumpati. 
+Nang dumating ang araw na makikipagkita_ na si Herodes sa mga taga-Tyre at taga-Sidon, isinuot niya ang damit panghari at umupo siya sa kanyang trono at nagtalumpati. 
 
 
 

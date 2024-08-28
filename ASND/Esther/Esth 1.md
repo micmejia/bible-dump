@@ -138,7 +138,7 @@ Pagkatapos noon, naghanda rin ang hari para sa lahat ng mga taga-Susa, mayaman m
 
 
 
-Naglagay sila ng kurtinang puti at asul na tinalian ng panaling <i class="trans-change">gawa sa telang_ linen na kulay ube. At ikinabit sa mga argolya na pilak sa mga haliging marmol. Ang mga upuan ay yari sa ginto at pilak. Ang sahig naman nito ay may disenyong yari sa kristal, marmol, nakar, at iba pang mamahaling bato.
+Naglagay sila ng kurtinang puti at asul na tinalian ng panaling gawa sa telang_ linen na kulay ube. At ikinabit sa mga argolya na pilak sa mga haliging marmol. Ang mga upuan ay yari sa ginto at pilak. Ang sahig naman nito ay may disenyong yari sa kristal, marmol, nakar, at iba pang mamahaling bato.
 
 ###### 7-8 Pati ang mga kopa na iniinuman ng mga panauhin ay yari sa ginto na ibaʼt iba ang hugis at disenyo. Nag-utos ang hari sa mga alipin niya na bigyan ng mamahaling alak ang mga panauhin niya hanggaʼt gusto nila. 
 
@@ -173,7 +173,7 @@ Naglagay sila ng kurtinang puti at asul na tinalian ng panaling <i class="trans-
 
 
 
-<i class="trans-change">Habang nagdadaos ng handaan ang hari para sa mga kalalakihan_, nagdadaos din ng handaan si Reyna Vasti para sa mga kababaihan sa palasyo ni Haring Ahasuerus. 
+Habang nagdadaos ng handaan ang hari para sa mga kalalakihan_, nagdadaos din ng handaan si Reyna Vasti para sa mga kababaihan sa palasyo ni Haring Ahasuerus. 
 
 
 
@@ -371,7 +371,7 @@ Ang palagi niyang hinihingan ng payo ay sina Carshena, Shetar, Admata, Tarshish,
 
 
 
-<i class="trans-change">Nagtanong ang hari sa kanila_, "Ayon sa batas ng kaharian ng Persia, ano ang dapat gawin kay Reyna Vasti dahil hindi siya sumunod sa utos ko sa pamamagitan ng aking mga lingkod?" 
+Nagtanong ang hari sa kanila_, "Ayon sa batas ng kaharian ng Persia, ano ang dapat gawin kay Reyna Vasti dahil hindi siya sumunod sa utos ko sa pamamagitan ng aking mga lingkod?" 
 
 
 

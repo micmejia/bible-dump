@@ -40,7 +40,7 @@ next: ['Acts 21']
 
 
 
-Nang matapos na ang gulo, ipinatawag ni Pablo ang mga tagasunod <i class="trans-change">ni Jesus_. Pinayuhan niya sila na magpakatatag, at pagkatapos niyang magpaalam sa kanila, pumunta siya sa Macedonia. 
+Nang matapos na ang gulo, ipinatawag ni Pablo ang mga tagasunod ni Jesus_. Pinayuhan niya sila na magpakatatag, at pagkatapos niyang magpaalam sa kanila, pumunta siya sa Macedonia. 
 
 
 
@@ -539,7 +539,7 @@ Mula sa Mitilene, tumuloy kami sa Kios, at nakarating kami roon kinabukasan. Nan
 
 
 
-Hindi kami dumaan sa Efeso, dahil ayaw ni Pablo na maggugol ng oras sa <i class="trans-change">lalawigan ng_ Asia. Nagmamadali siya dahil gusto niyang makarating sa Jerusalem bago dumating ang Araw ng Pentecostes.
+Hindi kami dumaan sa Efeso, dahil ayaw ni Pablo na maggugol ng oras sa lalawigan ng_ Asia. Nagmamadali siya dahil gusto niyang makarating sa Jerusalem bago dumating ang Araw ng Pentecostes.
 
 ## Ang Pamamaalam ni Pablo sa mga Namumuno ng Iglesya sa Efeso 
 
@@ -607,7 +607,7 @@ Habang nasa Miletus si Pablo, may pinapunta siya sa Efeso para sabihin sa mga na
 
 
 
-Pagdating nila, sinabi ni Pablo sa kanila, "Alam ninyo kung paano akong namuhay noong kasama pa ninyo ako, mula nang dumating ako sa <i class="trans-change">lalawigan ng_ Asia. 
+Pagdating nila, sinabi ni Pablo sa kanila, "Alam ninyo kung paano akong namuhay noong kasama pa ninyo ako, mula nang dumating ako sa lalawigan ng_ Asia. 
 
 
 
@@ -739,7 +739,7 @@ Pinaalalahanan ko ang mga Judio at mga hindi Judio na kailangan nilang magsisi s
 
 
 
-Ngayon, pupunta ako sa Jerusalem dahil ito ang utos ng <i class="trans-change">Banal na_ Espiritu sa akin. Hindi ko alam kung ano ang mangyayari sa akin doon. 
+Ngayon, pupunta ako sa Jerusalem dahil ito ang utos ng Banal na_ Espiritu sa akin. Hindi ko alam kung ano ang mangyayari sa akin doon. 
 
 
 
@@ -970,7 +970,7 @@ Ingatan ninyo ang inyong sarili at ang lahat ng mga mananampalatayang pinababant
 
 
 
-Sapagkat alam kong pagkaalis koʼy may mga <i class="trans-change">tagapagturo riyan na katulad ng_ mga lobo na papasok sa inyo at sisira sa inyong grupo. 
+Sapagkat alam kong pagkaalis koʼy may mga tagapagturo riyan na katulad ng_ mga lobo na papasok sa inyo at sisira sa inyong grupo. 
 
 
 
@@ -1003,7 +1003,7 @@ Sapagkat alam kong pagkaalis koʼy may mga <i class="trans-change">tagapagturo r
 
 
 
-Darating din ang panahon na may magtuturo ng kasinungalingan mula mismo sa inyong grupo at ililigaw nila ang mga tagasunod <i class="trans-change">ni Jesus_ para sila ang kanilang sundin. 
+Darating din ang panahon na may magtuturo ng kasinungalingan mula mismo sa inyong grupo at ililigaw nila ang mga tagasunod ni Jesus_ para sila ang kanilang sundin. 
 
 
 

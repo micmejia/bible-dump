@@ -469,7 +469,7 @@ May nagsabi kay Tamar na ang biyenan niya ay pupunta sa Timnah para pagupitan do
 
 
 
-Nang marinig iyon ni Tamar, pinalitan niya ang kanyang damit na pambalo, at tinakpan ng belo ang kanyang mukha. Naupo siya sa may pintuan ng <i class="trans-change">bayan ng_ Enaim, sa tabi ng daan na papunta sa Timnah. <i class="trans-change">Plano niyang dayain si Juda_ dahil hindi pa rin ibinibigay sa kanya si Shela para maging asawa niya kahit binata na ito. <sup class="versenum">15-16</sup>Pagkakita ni Juda kay Tamar, hindi niya nakilala na manugang niya ito dahil may talukbong ang mukha nito. Akala niyaʼy isa itong babaeng bayaran. Kaya lumapit siya sa kanya sa tabi ng daan at sinabi, "Halika, magsiping tayo." Sumagot si Tamar, "Ano ang ibabayad mo sa akin kapag sumiping ako sa iyo?" 
+Nang marinig iyon ni Tamar, pinalitan niya ang kanyang damit na pambalo, at tinakpan ng belo ang kanyang mukha. Naupo siya sa may pintuan ng bayan ng_ Enaim, sa tabi ng daan na papunta sa Timnah. Plano niyang dayain si Juda_ dahil hindi pa rin ibinibigay sa kanya si Shela para maging asawa niya kahit binata na ito. 15-16Pagkakita ni Juda kay Tamar, hindi niya nakilala na manugang niya ito dahil may talukbong ang mukha nito. Akala niyaʼy isa itong babaeng bayaran. Kaya lumapit siya sa kanya sa tabi ng daan at sinabi, "Halika, magsiping tayo." Sumagot si Tamar, "Ano ang ibabayad mo sa akin kapag sumiping ako sa iyo?" 
 
 
 
@@ -502,7 +502,7 @@ Nang marinig iyon ni Tamar, pinalitan niya ang kanyang damit na pambalo, at tina
 
 
 
-Sinabi ni Juda, "Bibigyan kita ng kambing mula sa aking mga hayop." Sumagot si Tamar, "Papayag ako kung may ibibigay ka sa akin para makatiyak ako na babayaran mo ako hanggang maipadala mo na ang kambing." <sup class="versenum">18-19</sup>Nagtanong si Juda, "Anong garantiya ang gusto mo?" Sumagot si Tamar, "Ibigay mo sa akin ang ginagamit mong pantatak, panali at pati ang iyong tungkod." Kaya ibinigay iyon ni Juda at sumiping siya kay Tamar. Pagkatapos, umuwi si Tamar, at tinanggal niya ang talukbong sa kanyang mukha at muling isinuot ang damit na pambalo. Dumating ang panahon at nagbuntis siya. 
+Sinabi ni Juda, "Bibigyan kita ng kambing mula sa aking mga hayop." Sumagot si Tamar, "Papayag ako kung may ibibigay ka sa akin para makatiyak ako na babayaran mo ako hanggang maipadala mo na ang kambing." 18-19Nagtanong si Juda, "Anong garantiya ang gusto mo?" Sumagot si Tamar, "Ibigay mo sa akin ang ginagamit mong pantatak, panali at pati ang iyong tungkod." Kaya ibinigay iyon ni Juda at sumiping siya kay Tamar. Pagkatapos, umuwi si Tamar, at tinanggal niya ang talukbong sa kanyang mukha at muling isinuot ang damit na pambalo. Dumating ang panahon at nagbuntis siya. 
 
 
 
@@ -535,7 +535,7 @@ Sinabi ni Juda, "Bibigyan kita ng kambing mula sa aking mga hayop." Sumagot si T
 
 
 
-Hindi nagtagal, ipinahatid ni Juda ang kambing sa kaibigan niyang <i class="trans-change">si Hira_ na taga-Adulam para kunin ang mga bagay na ibinigay niya kay Tamar bilang garantiya, pero hindi niya makita si Tamar. 
+Hindi nagtagal, ipinahatid ni Juda ang kambing sa kaibigan niyang si Hira_ na taga-Adulam para kunin ang mga bagay na ibinigay niya kay Tamar bilang garantiya, pero hindi niya makita si Tamar. 
 
 
 
@@ -634,7 +634,7 @@ Kaya bumalik si Hira kay Juda at sinabi, "Hindi ko siya makita. At sinabi ng mga
 
 
 
-Sinabi ni Juda, "Hayaan na lang natin na itago niya ang mga ibinigay kong gamit sa kanya, dahil baka pagtawanan pa tayo ng mga tao <i class="trans-change">na naghahanap tayo sa wala_. Ganoon pa man, pinahatiran ko naman siya ng mga kambing pero hindi mo naman siya makita roon." 
+Sinabi ni Juda, "Hayaan na lang natin na itago niya ang mga ibinigay kong gamit sa kanya, dahil baka pagtawanan pa tayo ng mga tao na naghahanap tayo sa wala_. Ganoon pa man, pinahatiran ko naman siya ng mga kambing pero hindi mo naman siya makita roon." 
 
 
 
@@ -667,7 +667,7 @@ Sinabi ni Juda, "Hayaan na lang natin na itago niya ang mga ibinigay kong gamit 
 
 
 
-Pagkalipas ng tatlong buwan, nabalitaan ni Juda na ang manugang niyang si Tamar ay nagbebenta ng dangal at nabuntis ito. Kaya sinabi ni Juda, "Dalhin ninyo siya <i class="trans-change">sa labas ng lungsod_ at sunugin." 
+Pagkalipas ng tatlong buwan, nabalitaan ni Juda na ang manugang niyang si Tamar ay nagbebenta ng dangal at nabuntis ito. Kaya sinabi ni Juda, "Dalhin ninyo siya sa labas ng lungsod_ at sunugin." 
 
 
 

@@ -40,7 +40,7 @@ next: ['Luke 20']
 
 
 
-Pumasok si Jesus sa Jerico dahil doon siya dadaan <i class="trans-change">papuntang Jerusalem_. 
+Pumasok si Jesus sa Jerico dahil doon siya dadaan papuntang Jerusalem_. 
 
 
 
@@ -106,7 +106,7 @@ May isang lalaki roon na ang pangalan ay Zaqueo. Siya ay mayaman at isa sa mga p
 
 
 
-Gusto niyang makita kung sino talaga si Jesus, pero dahil pandak siya at marami ang tao <i class="trans-change">doon_ ay hindi niya ito magawa. 
+Gusto niyang makita kung sino talaga si Jesus, pero dahil pandak siya at marami ang tao doon_ ay hindi niya ito magawa. 
 
 
 
@@ -271,7 +271,7 @@ Nang makita ng mga tao na roon siya tumuloy sa bahay ni Zaqueo, nagbulung-bulung
 
 
 
-<i class="trans-change">Sa loob ng bahay niya ay_ tumayo si Zaqueo at sinabi, "Panginoon, ibibigay ko po sa mga mahihirap ang kalahati ng kayamanan ko. At kung may nadaya akong sinuman, babayaran ko ng apat na beses ang kinuha ko sa kanya." 
+Sa loob ng bahay niya ay_ tumayo si Zaqueo at sinabi, "Panginoon, ibibigay ko po sa mga mahihirap ang kalahati ng kayamanan ko. At kung may nadaya akong sinuman, babayaran ko ng apat na beses ang kinuha ko sa kanya." 
 
 
 
@@ -337,7 +337,7 @@ Sinabi sa kanya ni Jesus, "Dumating na ngayon ang kaligtasan sa sambahayang ito,
 
 
 
-Sapagkat <i class="trans-change">ako na_ Anak ng Tao ay naparito upang hanapin at iligtas ang naliligaw." ## Ang Talinghaga tungkol sa Tatlong Alipin 
+Sapagkat ako na_ Anak ng Tao ay naparito upang hanapin at iligtas ang naliligaw." ## Ang Talinghaga tungkol sa Tatlong Alipin 
 
 
 
@@ -403,7 +403,7 @@ Habang nakikinig ang mga tao, ikinuwento ni Jesus sa kanila ang isang talinghaga
 
 
 
-Sinabi ni Jesus, "May isang kilala at mayamang tao na pumunta sa malayong lugar upang tanggapin ang awtoridad bilang hari <i class="trans-change">sa kanyang lugar_, at pagkatapos nitoʼy babalik siya agad sa kanyang bayan. 
+Sinabi ni Jesus, "May isang kilala at mayamang tao na pumunta sa malayong lugar upang tanggapin ang awtoridad bilang hari sa kanyang lugar_, at pagkatapos nitoʼy babalik siya agad sa kanyang bayan. 
 
 
 
@@ -436,7 +436,7 @@ Sinabi ni Jesus, "May isang kilala at mayamang tao na pumunta sa malayong lugar 
 
 
 
-<i class="trans-change">Bago siya umalis,_ tinawag niya ang sampu sa mga alipin niya at binigyan sila ng magkakaparehong halaga ng pera. Pagkatapos, sinabi niya sa kanila, 'Gawin ninyo itong puhunan sa negosyo hanggang sa bumalik ako.' 
+Bago siya umalis,_ tinawag niya ang sampu sa mga alipin niya at binigyan sila ng magkakaparehong halaga ng pera. Pagkatapos, sinabi niya sa kanila, 'Gawin ninyo itong puhunan sa negosyo hanggang sa bumalik ako.' 
 
 
 
@@ -1195,7 +1195,7 @@ Dinala nila ang asno kay Jesus, at isinapin nila ang kanilang mga balabal nila s
 
 
 
-Habang nakasakay siya sa asno <i class="trans-change">papuntang Jerusalem_, inilatag ng mga tao ang kanilang mga balabal sa dadaanan niya. 
+Habang nakasakay siya sa asno papuntang Jerusalem_, inilatag ng mga tao ang kanilang mga balabal sa dadaanan niya. 
 
 
 
@@ -1261,7 +1261,7 @@ Nang pababa na siya sa Bundok ng mga Olibo at malapit na sa Jerusalem, nagsigawa
 
 
 
-Sinabi nila, "Pinagpala ng Panginoon ang haring kanyang ipinadala. Mayroon na tayong magandang relasyon sa Dios. Purihin <i class="trans-change">ang Dios_ sa langit!" 
+Sinabi nila, "Pinagpala ng Panginoon ang haring kanyang ipinadala. Mayroon na tayong magandang relasyon sa Dios. Purihin ang Dios_ sa langit!" 
 
 
 
@@ -1459,7 +1459,7 @@ Darating ang araw na papaligiran kayo ng kuta ng inyong mga kaaway. Palilibutan 
 
 
 
-Lilipulin nila kayo at ang inyong mga anak, at wawasakin nila ang lungsod ninyo. Wala silang iiwang bato na magkapatong. <i class="trans-change">Mangyayari ang lahat ng ito sa inyo,_ dahil binalewala ninyo ang araw ng pagliligtas sa inyo ng Dios." ## Ang Pagmamalasakit ni Jesus sa Templo 
+Lilipulin nila kayo at ang inyong mga anak, at wawasakin nila ang lungsod ninyo. Wala silang iiwang bato na magkapatong. Mangyayari ang lahat ng ito sa inyo,_ dahil binalewala ninyo ang araw ng pagliligtas sa inyo ng Dios." ## Ang Pagmamalasakit ni Jesus sa Templo 
 
 
 
@@ -1492,7 +1492,7 @@ Lilipulin nila kayo at ang inyong mga anak, at wawasakin nila ang lungsod ninyo.
 
 
 
-<i class="trans-change">Pagdating nila sa Jerusalem,_ pumunta si Jesus sa templo at itinaboy niya ang mga nagtitinda roon. 
+Pagdating nila sa Jerusalem,_ pumunta si Jesus sa templo at itinaboy niya ang mga nagtitinda roon. 
 
 
 
@@ -1525,7 +1525,7 @@ Lilipulin nila kayo at ang inyong mga anak, at wawasakin nila ang lungsod ninyo.
 
 
 
-Sinabi niya sa kanila, "Sinasabi <i class="trans-change">ng Dios_ sa Kasulatan, 'Ang aking bahay ay bahay-panalanginan.' Ngunit ginawa ninyong pugad ng mga tulisan!" 
+Sinabi niya sa kanila, "Sinasabi ng Dios_ sa Kasulatan, 'Ang aking bahay ay bahay-panalanginan.' Ngunit ginawa ninyong pugad ng mga tulisan!" 
 
 
 

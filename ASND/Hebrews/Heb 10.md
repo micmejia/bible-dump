@@ -106,7 +106,7 @@ Dahil kung napatawad na sila sa pamamagitan ng mga handog, hindi na sana sila uu
 
 
 
-Ngunit ang paghahandog <i class="trans-change">na ginagawa nila_ taun-taon ay siya pang nagpapaalala sa mga kasalanan nila, 
+Ngunit ang paghahandog na ginagawa nila_ taun-taon ay siya pang nagpapaalala sa mga kasalanan nila, 
 
 
 
@@ -172,7 +172,7 @@ dahil hindi makapag-aalis ng kasalanan ang dugo ng mga toro at kambing na inihah
 
 
 
-Kaya nga, nang dumating si Jesus dito sa mundo, sinabi niya <i class="trans-change">sa kanyang Ama_, "Hindi mo nagustuhan ang mga handog at kaloob <i class="trans-change">ng mga tao_, kaya binigyan mo ako ng katawan <i class="trans-change">na ihahandog ko_. 
+Kaya nga, nang dumating si Jesus dito sa mundo, sinabi niya sa kanyang Ama_, "Hindi mo nagustuhan ang mga handog at kaloob ng mga tao_, kaya binigyan mo ako ng katawan na ihahandog ko_. 
 
 
 
@@ -304,7 +304,7 @@ Una, sinabi ni Cristo na hindi nagustuhan ng Dios ang mga handog at kaloob, at h
 
 
 
-Pagkatapos, sinabi niya <i class="trans-change">sa kanyang Ama_, "Nandito ako para sundin ang kalooban mo." Kaya inalis ng Dios ang dating paraan <i class="trans-change">ng paghahandog_ upang palitan ng paghahandog ni Cristo. 
+Pagkatapos, sinabi niya sa kanyang Ama_, "Nandito ako para sundin ang kalooban mo." Kaya inalis ng Dios ang dating paraan ng paghahandog_ upang palitan ng paghahandog ni Cristo. 
 
 
 
@@ -436,7 +436,7 @@ Ngunit si Cristo ay minsan lamang naghandog para sa ating mga kasalanan, at hind
 
 
 
-At hinihintay na lang niya ngayon ang panahong pasukuin sa kanya <i class="trans-change">ng Dios_ ang mga kaaway niya. 
+At hinihintay na lang niya ngayon ang panahong pasukuin sa kanya ng Dios_ ang mga kaaway niya. 
 
 
 
@@ -535,7 +535,7 @@ Ang Banal na Espiritu mismo ang nagpapatotoo tungkol dito. Sapagkat sinabi niya,
 
 
 
-" 'Ganito ang <i class="trans-change">bagong_ kasunduan na gagawin ko sa kanila sa darating na panahon,' sabi ng Panginoon: 'Ilalagay ko ang aking mga utos sa puso nila at itatanim ko ang mga ito sa kanilang isipan.' " 
+" 'Ganito ang bagong_ kasunduan na gagawin ko sa kanila sa darating na panahon,' sabi ng Panginoon: 'Ilalagay ko ang aking mga utos sa puso nila at itatanim ko ang mga ito sa kanilang isipan.' " 
 
 
 
@@ -601,7 +601,7 @@ Dagdag pa niya, "Tuluyan ko nang lilimutin ang mga kasalanan at kasamaan nila."
 
 
 
-At dahil napatawad na ang mga kasalanan natin, hindi na <i class="trans-change">natin_ kailangan pang maghandog para sa <i class="trans-change">ating_ mga kasalanan.
+At dahil napatawad na ang mga kasalanan natin, hindi na natin_ kailangan pang maghandog para sa ating_ mga kasalanan.
 
 ## Lumapit Tayo sa Dios 
 
@@ -669,7 +669,7 @@ Kaya mga kapatid, malaya na tayong makakapasok sa Pinakabanal na Lugar dahil sa 
 
 
 
-Sa pamamagitan ng paghahandog ng kanyang katawan, binuksan niya para sa atin ang bagong daan <i class="trans-change">patungo sa Pinakabanal na Lugar_ na nasa kabila ng tabing. At ang daang ito ang nagdadala sa atin sa buhay <i class="trans-change">na walang hanggan_. 
+Sa pamamagitan ng paghahandog ng kanyang katawan, binuksan niya para sa atin ang bagong daan patungo sa Pinakabanal na Lugar_ na nasa kabila ng tabing. At ang daang ito ang nagdadala sa atin sa buhay na walang hanggan_. 
 
 
 
@@ -735,7 +735,7 @@ At dahil mayroon tayong dakilang punong pari na namamahala sa pamilya ng Dios,
 
 
 
-lumapit tayo sa kanya nang may tapat na puso at matatag na pananampalataya, dahil nilinis na <i class="trans-change">ng dugo ni Jesus_ ang mga puso natin mula sa maruming pag-iisip, at nahugasan na ang mga katawan natin ng malinis na tubig. 
+lumapit tayo sa kanya nang may tapat na puso at matatag na pananampalataya, dahil nilinis na ng dugo ni Jesus_ ang mga puso natin mula sa maruming pag-iisip, at nahugasan na ang mga katawan natin ng malinis na tubig. 
 
 
 
@@ -768,7 +768,7 @@ lumapit tayo sa kanya nang may tapat na puso at matatag na pananampalataya, dahi
 
 
 
-Magpakatatag tayo sa pag-asa natin at huwag tayong mag-alinlangan, dahil tapat ang Dios na nangako <i class="trans-change">sa atin_. 
+Magpakatatag tayo sa pag-asa natin at huwag tayong mag-alinlangan, dahil tapat ang Dios na nangako sa atin_. 
 
 
 
@@ -834,7 +834,7 @@ At sikapin nating mahikayat ang isaʼt isa sa pagmamahalan at sa paggawa ng kabu
 
 
 
-Huwag nating pababayaan ang mga pagtitipon natin gaya ng nakaugalian na ng ilan. Sa halip, palakasin natin ang loob ng bawat isa, lalo na ngayong nalalapit na ang <i class="trans-change">huling_ araw. 
+Huwag nating pababayaan ang mga pagtitipon natin gaya ng nakaugalian na ng ilan. Sa halip, palakasin natin ang loob ng bawat isa, lalo na ngayong nalalapit na ang huling_ araw. 
 
 
 
@@ -900,7 +900,7 @@ Sapagkat kung sasadyain pa nating magpatuloy sa paggawa ng kasalanan pagkatapos 
 
 
 
-Tanging ang nakakatakot na paghuhukom at nagliliyab na apoy ang naghihintay sa mga taong kumakalaban <i class="trans-change">sa Dios_. 
+Tanging ang nakakatakot na paghuhukom at nagliliyab na apoy ang naghihintay sa mga taong kumakalaban sa Dios_. 
 
 
 
@@ -966,7 +966,7 @@ Ipinapapatay noon nang walang awa ang lumalabag sa Kautusan ni Moises, kapag nap
 
 
 
-Gaano pa kaya kabigat ang parusang tatanggapin ng taong lumapastangan sa Anak ng Dios at nagpawalang-halaga sa dugo na nagpatibay sa kasunduan <i class="trans-change">ng Dios_ at naglinis sa mga kasalanan niya? <i class="trans-change">Talagang mas mabigat ang parusa sa mga taong ito_ na humamak sa maawaing <i class="trans-change">Banal na_ Espiritu. 
+Gaano pa kaya kabigat ang parusang tatanggapin ng taong lumapastangan sa Anak ng Dios at nagpawalang-halaga sa dugo na nagpatibay sa kasunduan ng Dios_ at naglinis sa mga kasalanan niya? Talagang mas mabigat ang parusa sa mga taong ito_ na humamak sa maawaing Banal na_ Espiritu. 
 
 
 
@@ -1065,7 +1065,7 @@ Kakila-kilabot ang kahihinatnan ng mga hahatulan ng Dios na buhay.
 
 
 
-Alalahanin nʼyo ang nakaraang panahon, noong una kayong naliwanagan. Dumaan kayo sa matinding hirap, pero tiniis nʼyo ito <i class="trans-change">at hindi kayo nadaig_. 
+Alalahanin nʼyo ang nakaraang panahon, noong una kayong naliwanagan. Dumaan kayo sa matinding hirap, pero tiniis nʼyo ito at hindi kayo nadaig_. 
 
 
 
@@ -1131,7 +1131,7 @@ Kung minsan, inaalipusta kayo at pinag-uusig sa harapan ng mga tao. At kung mins
 
 
 
-Dinadamayan nʼyo ang mga <i class="trans-change">kapatid na_ nakabilanggo. At kahit inagawan kayo ng mga ari-arian, tiniis nʼyo ito nang may kagalakan dahil alam ninyong mayroon kayong mas mabuting kayamanan na hindi mawawala kailanman. 
+Dinadamayan nʼyo ang mga kapatid na_ nakabilanggo. At kahit inagawan kayo ng mga ari-arian, tiniis nʼyo ito nang may kagalakan dahil alam ninyong mayroon kayong mas mabuting kayamanan na hindi mawawala kailanman. 
 
 
 
@@ -1164,7 +1164,7 @@ Dinadamayan nʼyo ang mga <i class="trans-change">kapatid na_ nakabilanggo. At k
 
 
 
-Kaya huwag kayong mawawalan ng pananalig <i class="trans-change">sa Dios_, dahil may malaking gantimpalang <i class="trans-change">nakalaan para sa inyo_. 
+Kaya huwag kayong mawawalan ng pananalig sa Dios_, dahil may malaking gantimpalang nakalaan para sa inyo_. 
 
 
 
@@ -1230,7 +1230,7 @@ Kailangan ninyong magtiis para masunod nʼyo ang kalooban ng Dios, at matanggap 
 
 
 
-Sapagkat <i class="trans-change">sinasabi sa Kasulatan_, "Sandaling panahon na lang at darating na siya. Hindi na siya magtatagal. 
+Sapagkat sinasabi sa Kasulatan_, "Sandaling panahon na lang at darating na siya. Hindi na siya magtatagal. 
 
 
 

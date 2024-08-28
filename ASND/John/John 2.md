@@ -106,7 +106,7 @@ Inimbita rin si Jesus at ang mga tagasunod niya.
 
 
 
-Nang maubos ang alak <i class="trans-change">sa handaan_, sinabi ng ina ni Jesus sa kanya, "Naubusan sila ng alak." 
+Nang maubos ang alak sa handaan_, sinabi ng ina ni Jesus sa kanya, "Naubusan sila ng alak." 
 
 
 
@@ -370,7 +370,7 @@ at sinabi, "Karaniwan, ang pinakamainam na alak muna ang inihahanda, at kapag ma
 
 
 
-Ang nangyaring ito sa Cana, Galilea ay ang unang himala na ginawa ni Jesus. <i class="trans-change">Sa ginawa niyang ito,_ ipinakita niya ang kanyang kapangyarihan, at sumampalataya sa kanya ang mga tagasunod niya. 
+Ang nangyaring ito sa Cana, Galilea ay ang unang himala na ginawa ni Jesus. Sa ginawa niyang ito,_ ipinakita niya ang kanyang kapangyarihan, at sumampalataya sa kanya ang mga tagasunod niya. 
 
 
 
@@ -471,7 +471,7 @@ Malapit na noon ang pista ng mga Judio na tinatawag na Pista ng Paglampas ng Ang
 
 
 
-Nakita niya <i class="trans-change">roon_ sa templo ang mga nagtitinda ng mga baka, tupa at mga kalapati. Nakita rin niya ang mga nagpapalit ng pera ng mga dayuhan sa kanilang mga mesa. 
+Nakita niya roon_ sa templo ang mga nagtitinda ng mga baka, tupa at mga kalapati. Nakita rin niya ang mga nagpapalit ng pera ng mga dayuhan sa kanilang mga mesa. 
 
 
 
@@ -570,7 +570,7 @@ Sinabi ni Jesus sa mga nagtitinda ng mga kalapati, "Alisin ninyo ang mga iyan! H
 
 
 
-Naalala ng mga tagasunod niya ang nakasulat <i class="trans-change">sa Kasulatan_: "Mapapahamak ako dahil sa pagmamalasakit ko sa bahay ninyo." 
+Naalala ng mga tagasunod niya ang nakasulat sa Kasulatan_: "Mapapahamak ako dahil sa pagmamalasakit ko sa bahay ninyo." 
 
 
 
@@ -603,7 +603,7 @@ Naalala ng mga tagasunod niya ang nakasulat <i class="trans-change">sa Kasulatan
 
 
 
-Dahil sa ginawa niyang ito, tinanong siya ng mga <i class="trans-change">pinuno ng mga_ Judio, "Anong himala ang maipapakita mo sa amin upang mapatunayan mong may karapatan kang gawin ito?" 
+Dahil sa ginawa niyang ito, tinanong siya ng mga pinuno ng mga_ Judio, "Anong himala ang maipapakita mo sa amin upang mapatunayan mong may karapatan kang gawin ito?" 
 
 
 
@@ -702,7 +702,7 @@ Sinabi naman nila, "Ginawa ang templong ito ng 46 na taon at itatayo mo sa loob 
 
 
 
-Pero <i class="trans-change">hindi nila naintindihan na_ ang templong tinutukoy ni Jesus ay ang kanyang katawan. 
+Pero hindi nila naintindihan na_ ang templong tinutukoy ni Jesus ay ang kanyang katawan. 
 
 
 
@@ -735,7 +735,7 @@ Pero <i class="trans-change">hindi nila naintindihan na_ ang templong tinutukoy 
 
 
 
-Kaya nang nabuhay siyang muli, naalala ng mga tagasunod niya ang sinabi niyang ito. At naniwala sila sa <i class="trans-change">pahayag ng_ Kasulatan at sa mga sinabi ni Jesus <i class="trans-change">tungkol sa kanyang muling pagkabuhay_.
+Kaya nang nabuhay siyang muli, naalala ng mga tagasunod niya ang sinabi niyang ito. At naniwala sila sa pahayag ng_ Kasulatan at sa mga sinabi ni Jesus tungkol sa kanyang muling pagkabuhay_.
 
 ## Alam ni Jesus ang Kalooban ng Tao 
 

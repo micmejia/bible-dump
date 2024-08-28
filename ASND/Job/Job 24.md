@@ -40,7 +40,7 @@ next: ['Job 25']
 
 
 
-"Bakit hindi pa itakda ng <i class="trans-change">Dios na_ Makapangyarihan ang kanyang paghatol <i class="trans-change">sa masasamang tao_? Bakit hindi makita ng mga nakakakilala sa kanya ang panahong iyon ng paghatol? 
+"Bakit hindi pa itakda ng Dios na_ Makapangyarihan ang kanyang paghatol sa masasamang tao_? Bakit hindi makita ng mga nakakakilala sa kanya ang panahong iyon ng paghatol? 
 
 
 
@@ -304,7 +304,7 @@ Nababasa sila ng ulan sa mga kabundukan, at sumisiksik na lang sa mga siwang ng 
 
 
 
-"Kinukuha <i class="trans-change">ng taong masasama_ ang anak ng biyuda at babaeng dukha bilang garantiya sa pagkakautang nila. 
+"Kinukuha ng taong masasama_ ang anak ng biyuda at babaeng dukha bilang garantiya sa pagkakautang nila. 
 
 
 
@@ -337,7 +337,7 @@ Nababasa sila ng ulan sa mga kabundukan, at sumisiksik na lang sa mga siwang ng 
 
 
 
-Lumalakad na walang damit ang mga dukha; tagapasan sila ng mga inaning <i class="trans-change">trigo_, pero silaʼy nagugutom. 
+Lumalakad na walang damit ang mga dukha; tagapasan sila ng mga inaning trigo_, pero silaʼy nagugutom. 
 
 
 
@@ -601,7 +601,7 @@ Itinuturing nilang liwanag ang dilim, dahil gusto nila ang nakakatakot na kadili
 
 
 
-"Pero ang masasama ay hindi magtatagal, gaya ng bula sa tubig. Kahit na ang lupa na kanilang pag-aari ay isinumpa <i class="trans-change">ng Dios_. Kaya walang pumaparoon kahit sa kanilang ubasan. 
+"Pero ang masasama ay hindi magtatagal, gaya ng bula sa tubig. Kahit na ang lupa na kanilang pag-aari ay isinumpa ng Dios_. Kaya walang pumaparoon kahit sa kanilang ubasan. 
 
 
 

@@ -40,7 +40,7 @@ next: ['1 Tim 5']
 
 
 
-Malinaw ang sinasabi ng <i class="trans-change">Banal na_ Espiritu na sa mga huling araw tatalikod ang iba sa pananampalataya nila <i class="trans-change">sa Dios_. Susunod sila sa mga mapanlinlang na mga espiritu at itinuturo ng mga demonyo. 
+Malinaw ang sinasabi ng Banal na_ Espiritu na sa mga huling araw tatalikod ang iba sa pananampalataya nila sa Dios_. Susunod sila sa mga mapanlinlang na mga espiritu at itinuturo ng mga demonyo. 
 
 
 
@@ -339,7 +339,7 @@ Totoo ang kasabihang ito, at dapat tanggapin at paniwalaan ng lahat.
 
 
 
-At ito ang dahilan kung bakit nagsisikap at nagtitiyaga tayo <i class="trans-change">sa pagtuturo sa mga tao_, dahil umaasa tayo sa Dios na buhay na siyang Tagapagligtas ng lahat ng tao, lalo na ng mga mananampalataya. 
+At ito ang dahilan kung bakit nagsisikap at nagtitiyaga tayo sa pagtuturo sa mga tao_, dahil umaasa tayo sa Dios na buhay na siyang Tagapagligtas ng lahat ng tao, lalo na ng mga mananampalataya. 
 
 
 
@@ -438,7 +438,7 @@ Huwag mong hayaang hamakin ka ninuman dahil sa iyong kabataan. Sa halip, maging 
 
 
 
-Habang wala pa ako riyan, gamitin mo ang panahon mo sa pagbabasa <i class="trans-change">ng Kasulatan sa mga tao_, sa pangangaral at pagtuturo. 
+Habang wala pa ako riyan, gamitin mo ang panahon mo sa pagbabasa ng Kasulatan sa mga tao_, sa pangangaral at pagtuturo. 
 
 
 

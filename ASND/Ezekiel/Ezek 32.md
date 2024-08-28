@@ -40,7 +40,7 @@ next: ['Ezek 33']
 
 
 
-Noong unang araw ng ika-12 buwan, nang ika-12 taon <i class="trans-change">ng aming pagkabihag_, sinabi sa akin ng Panginoon, 
+Noong unang araw ng ika-12 buwan, nang ika-12 taon ng aming pagkabihag_, sinabi sa akin ng Panginoon, 
 
 
 
@@ -73,7 +73,7 @@ Noong unang araw ng ika-12 buwan, nang ika-12 taon <i class="trans-change">ng am
 
 
 
-"Anak ng tao, managhoy ka para sa Faraon, ang hari ng Egipto. Sabihin mo sa kanya, 'Ang akala moʼy isa kang leon <i class="trans-change">na parooʼt parito_ sa mga bansa. Pero ang totooʼy para kang isang buwayang lumalangoy sa sarili mong ilog. Kinakalawkaw ng mga paa mo ang tubig at lumalabo ito.' 
+"Anak ng tao, managhoy ka para sa Faraon, ang hari ng Egipto. Sabihin mo sa kanya, 'Ang akala moʼy isa kang leon na parooʼt parito_ sa mga bansa. Pero ang totooʼy para kang isang buwayang lumalangoy sa sarili mong ilog. Kinakalawkaw ng mga paa mo ang tubig at lumalabo ito.' 
 
 
 
@@ -271,7 +271,7 @@ Kapag napatay na kita nang tuluyan, tatakpan ko ang langit ng makapal na ulap, k
 
 
 
-Padidilimin ko ang lahat ng nagliliwanag sa langit. Kaya didilim sa buong lupain mo. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Padidilimin ko ang lahat ng nagliliwanag sa langit. Kaya didilim sa buong lupain mo. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -370,7 +370,7 @@ Maraming tao ang matatakot sa gagawin ko sa iyo, pati ang mga hari nila ay mangi
 
 
 
-<i class="trans-change">Ako,_ ang Panginoong Dios ay nagsasabing lulusubin ka sa pamamagitan ng espada ng hari ng Babilonia. 
+Ako,_ ang Panginoong Dios ay nagsasabing lulusubin ka sa pamamagitan ng espada ng hari ng Babilonia. 
 
 
 
@@ -436,7 +436,7 @@ Ipapapatay ko ang mga mamamayan mo sa pamamagitan ng espada ng mga makapangyarih
 
 
 
-Papatayin ko ang lahat ng hayop sa Egipto <i class="trans-change">na nanginginain_ sa tabi ng ilog. Kaya wala nang hayop o taong magpapalabo ng tubig nito. 
+Papatayin ko ang lahat ng hayop sa Egipto na nanginginain_ sa tabi ng ilog. Kaya wala nang hayop o taong magpapalabo ng tubig nito. 
 
 
 
@@ -469,7 +469,7 @@ Papatayin ko ang lahat ng hayop sa Egipto <i class="trans-change">na nanginginai
 
 
 
-Palilinawin ko ang tubig nito, at tuloy-tuloy itong aagos na parang langis. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Palilinawin ko ang tubig nito, at tuloy-tuloy itong aagos na parang langis. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -535,7 +535,7 @@ Kapag ginawa ko nang mapanglaw ang Egipto at nawasak ko na ang lahat, at kapag n
 
 
 
-"Ito ang panaghoy ng mga mamamayan ng mga bansa para sa Egipto at sa mga mamamayan nito. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito." 
+"Ito ang panaghoy ng mga mamamayan ng mga bansa para sa Egipto at sa mga mamamayan nito. Ako,_ ang Panginoong Dios, ang nagsasabi nito." 
 
 
 
@@ -667,7 +667,7 @@ Sabihin mo sa kanila, 'Nakakahigit ba kayo kaysa sa iba? Kayo rin ay ihuhulog do
 
 
 
-na nangamatay sa digmaan.' Mamamatay ang mga taga-Egipto dahil nakahanda na ang espada ng mga kaaway na papatay sa kanila. Ang Egipto at ang mga mamamayan niya ay kakaladkarin <i class="trans-change">papunta sa kapahamakan_. 
+na nangamatay sa digmaan.' Mamamatay ang mga taga-Egipto dahil nakahanda na ang espada ng mga kaaway na papatay sa kanila. Ang Egipto at ang mga mamamayan niya ay kakaladkarin papunta sa kapahamakan_. 
 
 
 
@@ -700,7 +700,7 @@ na nangamatay sa digmaan.' Mamamatay ang mga taga-Egipto dahil nakahanda na ang 
 
 
 
-Buong galak silang tatanggapin ng mga makapangyarihang pinuno ng Egipto at mga kakampi niyang bansa roon sa lugar ng mga patay. Sasabihin nila, 'Bumaba rin sila rito! Kasama na nila ngayon ang mga hindi naniniwala sa Dios na namatay sa digmaan.' <sup class="versenum">22-23</sup>"Naroon din ang <i class="trans-change">hari ng_ Asiria na napapaligiran ng libingan ng mga sundalo niyang namatay sa digmaan. Ang mga libingan nila ay naroon sa pinakamalalim na bahagi ng kailaliman. Ang mga taong itoʼy naghasik ng takot sa mga tao noong nabubuhay pa sila. 
+Buong galak silang tatanggapin ng mga makapangyarihang pinuno ng Egipto at mga kakampi niyang bansa roon sa lugar ng mga patay. Sasabihin nila, 'Bumaba rin sila rito! Kasama na nila ngayon ang mga hindi naniniwala sa Dios na namatay sa digmaan.' 22-23"Naroon din ang hari ng_ Asiria na napapaligiran ng libingan ng mga sundalo niyang namatay sa digmaan. Ang mga libingan nila ay naroon sa pinakamalalim na bahagi ng kailaliman. Ang mga taong itoʼy naghasik ng takot sa mga tao noong nabubuhay pa sila. 
 
 
 
@@ -733,7 +733,7 @@ Buong galak silang tatanggapin ng mga makapangyarihang pinuno ng Egipto at mga k
 
 
 
-"Naroon din ang <i class="trans-change">hari_ ng Elam. Ang libingan naman niya ay napapaligiran ng libingan ng kanyang mga tauhan. Namatay silang lahat sa digmaan. Nagsibaba sila roon sa lugar ng mga patay kasama ng mga hindi naniniwala sa Dios. Noong nabubuhay pa sila, naghasik sila ng takot sa mga tao sa daigdig, pero ngayon, inilalagay sila sa kahihiyan kasama ng ibang mga namatay na. 
+"Naroon din ang hari_ ng Elam. Ang libingan naman niya ay napapaligiran ng libingan ng kanyang mga tauhan. Namatay silang lahat sa digmaan. Nagsibaba sila roon sa lugar ng mga patay kasama ng mga hindi naniniwala sa Dios. Noong nabubuhay pa sila, naghasik sila ng takot sa mga tao sa daigdig, pero ngayon, inilalagay sila sa kahihiyan kasama ng ibang mga namatay na. 
 
 
 
@@ -766,7 +766,7 @@ Buong galak silang tatanggapin ng mga makapangyarihang pinuno ng Egipto at mga k
 
 
 
-May himlayan din doon ang <i class="trans-change">hari ng_ Elam kasama ng mga namatay sa digmaan. Ang libingan niya ay napapalibutan ng libingan ng kanyang mga tauhan. Lahat sila ay hindi naniniwala sa Dios at silang lahat ay namatay din sa digmaan. Naghasik sila ng takot sa mga tao noong nabubuhay pa sila. Pero inilagay sila sa kahihiyan at nakahimlay kasama ng mga namatay sa digmaan. 
+May himlayan din doon ang hari ng_ Elam kasama ng mga namatay sa digmaan. Ang libingan niya ay napapalibutan ng libingan ng kanyang mga tauhan. Lahat sila ay hindi naniniwala sa Dios at silang lahat ay namatay din sa digmaan. Naghasik sila ng takot sa mga tao noong nabubuhay pa sila. Pero inilagay sila sa kahihiyan at nakahimlay kasama ng mga namatay sa digmaan. 
 
 
 
@@ -799,7 +799,7 @@ May himlayan din doon ang <i class="trans-change">hari ng_ Elam kasama ng mga na
 
 
 
-"Naroon din ang <i class="trans-change">hari ng_ Meshec at ng Tubal. Napapalibutan din ang libingan nila ng libingan ng kanilang mga tauhan. Silang lahat ay hindi naniniwala sa Dios, at namatay din sa digmaan. Kinatatakutan sila noong nabubuhay pa sila. 
+"Naroon din ang hari ng_ Meshec at ng Tubal. Napapalibutan din ang libingan nila ng libingan ng kanilang mga tauhan. Silang lahat ay hindi naniniwala sa Dios, at namatay din sa digmaan. Kinatatakutan sila noong nabubuhay pa sila. 
 
 
 
@@ -865,7 +865,7 @@ Hindi sila binigyan ng marangal na libing katulad ng mga tanyag na mandirigma na
 
 
 
-"At ikaw, <i class="trans-change">Faraon_, ay mamamatay din at mahihimlay kasama ng mga hindi naniniwala sa Dios na namatay sa digmaan. 
+"At ikaw, Faraon_, ay mamamatay din at mahihimlay kasama ng mga hindi naniniwala sa Dios na namatay sa digmaan. 
 
 
 
@@ -898,7 +898,7 @@ Hindi sila binigyan ng marangal na libing katulad ng mga tanyag na mandirigma na
 
 
 
-"Naroon din <i class="trans-change">sa lugar ng mga patay_ ang hari ng Edom at ang lahat ng pinuno niya. Makapangyarihan sila noon, pero ngayon, nakalibing na sila kasama ng mga hindi naniniwala sa Dios na namatay sa digmaan. 
+"Naroon din sa lugar ng mga patay_ ang hari ng Edom at ang lahat ng pinuno niya. Makapangyarihan sila noon, pero ngayon, nakalibing na sila kasama ng mga hindi naniniwala sa Dios na namatay sa digmaan. 
 
 
 
@@ -964,7 +964,7 @@ Hindi sila binigyan ng marangal na libing katulad ng mga tanyag na mandirigma na
 
 
 
-Kapag nakita na ng Faraon ang mga namatay <i class="trans-change">doon sa lugar ng mga patay_, masisiyahan siya at ang mga sundalo niya dahil hindi lang sila ang namatay sa digmaan. 
+Kapag nakita na ng Faraon ang mga namatay doon sa lugar ng mga patay_, masisiyahan siya at ang mga sundalo niya dahil hindi lang sila ang namatay sa digmaan. 
 
 
 
@@ -997,4 +997,4 @@ Kapag nakita na ng Faraon ang mga namatay <i class="trans-change">doon sa lugar 
 
 
 
-Kahit ipinahintulot kong katakutan sila ng mga tao noong nabubuhay pa sila, <i class="trans-change">mamamatay sila_ kasama ng mga hindi naniniwala sa akin na namatay sa digmaan. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito."
+Kahit ipinahintulot kong katakutan sila ng mga tao noong nabubuhay pa sila, mamamatay sila_ kasama ng mga hindi naniniwala sa akin na namatay sa digmaan. Ako,_ ang Panginoong Dios, ang nagsasabi nito."

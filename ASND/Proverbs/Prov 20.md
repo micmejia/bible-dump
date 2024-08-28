@@ -469,7 +469,7 @@ Kung tulog ka nang tulog maghihirap ka, ngunit kung magsisikap ka, ang iyong pag
 
 
 
-Pinipintasan ng mamimili ang kanyang binibili upang makatawad siya. Pero kung nabili na, <i class="trans-change">hindi na niya ito pinipintasan, sa halip_ ay ipinagyayabang pa. 
+Pinipintasan ng mamimili ang kanyang binibili upang makatawad siya. Pero kung nabili na, hindi na niya ito pinipintasan, sa halip_ ay ipinagyayabang pa. 
 
 
 
@@ -865,7 +865,7 @@ Bago mangako sa Dios ay isiping mabuti, baka magsisi ka sa bandang huli.
 
 
 
-<i class="trans-change">Sa paghatol,_ tinitiyak ng matalinong hari na malaman kung sino ang gumagawa ng kasamaan at saka niya parurusahan. 
+Sa paghatol,_ tinitiyak ng matalinong hari na malaman kung sino ang gumagawa ng kasamaan at saka niya parurusahan. 
 
 
 

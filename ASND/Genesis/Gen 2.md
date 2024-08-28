@@ -306,7 +306,7 @@ Pagkatapos, nilikha rin ng Panginoong Dios ang isang halamanan sa Eden, sa banda
 
 
 
-At pinatubo ng Panginoong Dios ang lahat ng uri ng puno na magagandang tingnan at may masasarap <i class="trans-change">na bunga_. Sa gitna ng halamanan ay may puno na nagbibigay ng buhay, at may puno rin doon na nagbibigay ng kaalaman kung ano ang mabuti at masama. 
+At pinatubo ng Panginoong Dios ang lahat ng uri ng puno na magagandang tingnan at may masasarap na bunga_. Sa gitna ng halamanan ay may puno na nagbibigay ng buhay, at may puno rin doon na nagbibigay ng kaalaman kung ano ang mabuti at masama. 
 
 
 
@@ -405,7 +405,7 @@ Ang pangalan ng unang ilog ay Pishon. Dumadaloy ito sa buong lupain ng Havila ku
 
 
 
-Sa lugar na iyon makikita ang purong ginto, ang <i class="trans-change">mamahaling pabango na_ bediliyum, at ang <i class="trans-change">mamahaling_ bato na onix. 
+Sa lugar na iyon makikita ang purong ginto, ang mamahaling pabango na_ bediliyum, at ang mamahaling_ bato na onix. 
 
 
 

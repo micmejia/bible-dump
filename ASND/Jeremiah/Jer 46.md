@@ -238,7 +238,7 @@ Malakas kayo at mabilis tumakbo pero hindi pa rin kayo makakatakas. Mabubuwal ka
 
 
 
-"Ano itong bansang <i class="trans-change">naging makapangyarihan, na_ katulad ng Ilog ng Nilo na tumataas ang tubig at umaapaw hanggang sa pampang? 
+"Ano itong bansang naging makapangyarihan, na_ katulad ng Ilog ng Nilo na tumataas ang tubig at umaapaw hanggang sa pampang? 
 
 
 
@@ -271,7 +271,7 @@ Malakas kayo at mabilis tumakbo pero hindi pa rin kayo makakatakas. Mabubuwal ka
 
 
 
-Ito ay ang bansang Egipto, <i class="trans-change">na naging makapangyarihan_ katulad ng Ilog ng Nilo na tumataas ang tubig at umaapaw hanggang sa pampang. Sinabi ng Egipto, 'Naging makapangyarihan ako <i class="trans-change">gaya ng baha_ na umapaw sa buong mundo. Wawasakin ko ang mga lungsod at ang mga mamamayan nito.' 
+Ito ay ang bansang Egipto, na naging makapangyarihan_ katulad ng Ilog ng Nilo na tumataas ang tubig at umaapaw hanggang sa pampang. Sinabi ng Egipto, 'Naging makapangyarihan ako gaya ng baha_ na umapaw sa buong mundo. Wawasakin ko ang mga lungsod at ang mga mamamayan nito.' 
 
 
 
@@ -337,7 +337,7 @@ Ito ay ang bansang Egipto, <i class="trans-change">na naging makapangyarihan_ ka
 
 
 
-Pero mananalo ang Panginoong Dios na Makapangyarihan sa digmaang ito. Maghihiganti siya sa mga kaaway niya sa araw na ito. Ang espada niyaʼy parang <i class="trans-change">gutom na hayop na_ lalamon sa kanila at iinom ng dugo nila hanggang sa mabusog. Ang mga bangkay nilaʼy parang mga handog sa Panginoong Dios na Makapangyarihan doon sa lupain sa hilaga malapit sa Ilog ng Eufrates. 
+Pero mananalo ang Panginoong Dios na Makapangyarihan sa digmaang ito. Maghihiganti siya sa mga kaaway niya sa araw na ito. Ang espada niyaʼy parang gutom na hayop na_ lalamon sa kanila at iinom ng dugo nila hanggang sa mabusog. Ang mga bangkay nilaʼy parang mga handog sa Panginoong Dios na Makapangyarihan doon sa lupain sa hilaga malapit sa Ilog ng Eufrates. 
 
 
 
@@ -601,7 +601,7 @@ Sasabihin din nila, 'Ang Faraon na hari ng Egipto ay magaling lang sa salita, at
 
 
 
-"Ako, ang buhay na Hari, ang Panginoong Makapangyarihan, isinusumpa kong mayroong sasalakay <i class="trans-change">sa Egipto na nakahihigit sa kanya,_ katulad ng <i class="trans-change">Bundok ng_ Tabor sa gitna ng mga kabundukan o ng <i class="trans-change">Bundok ng_ Carmel sa tabi ng dagat. 
+"Ako, ang buhay na Hari, ang Panginoong Makapangyarihan, isinusumpa kong mayroong sasalakay sa Egipto na nakahihigit sa kanya,_ katulad ng Bundok ng_ Tabor sa gitna ng mga kabundukan o ng Bundok ng_ Carmel sa tabi ng dagat. 
 
 
 
@@ -865,7 +865,7 @@ Patuloy pang sinabi ng Panginoong Makapangyarihan, ang Dios ng Israel, "Parurusa
 
 
 
-Ibibigay ko sila sa kamay ng mga gustong pumatay sa kanila – kay Haring Nebucadnezar ng Babilonia at sa mga pinuno nito. Pero darating din ang araw na ang Egipto ay tatahanan ng mga tao katulad noong una. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+Ibibigay ko sila sa kamay ng mga gustong pumatay sa kanila – kay Haring Nebucadnezar ng Babilonia at sa mga pinuno nito. Pero darating din ang araw na ang Egipto ay tatahanan ng mga tao katulad noong una. Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -931,4 +931,4 @@ Ibibigay ko sila sa kamay ng mga gustong pumatay sa kanila – kay Haring Nebuca
 
 
 
-Kaya huwag kayong matakot, <i class="trans-change">kayong mga lahi ng_ lingkod kong si Jacob, dahil kasama ninyo ako. Wawasakin ko nang lubusan ang mga bansang pinangalatan ko sa inyo, pero hindi ko kayo wawasakin nang lubusan. Parurusahan ko kayo nang nararapat. Hindi maaaring hindi ko kayo parusahan. <i class="trans-change">Ako,_ ang Panginoon, ang nagsabi nito."
+Kaya huwag kayong matakot, kayong mga lahi ng_ lingkod kong si Jacob, dahil kasama ninyo ako. Wawasakin ko nang lubusan ang mga bansang pinangalatan ko sa inyo, pero hindi ko kayo wawasakin nang lubusan. Parurusahan ko kayo nang nararapat. Hindi maaaring hindi ko kayo parusahan. Ako,_ ang Panginoon, ang nagsabi nito."

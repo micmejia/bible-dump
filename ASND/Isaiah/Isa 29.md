@@ -40,7 +40,7 @@ next: ['Isa 30']
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Nakakaawa ang Jerusalem, ang lungsod na tinitirhan ni David! Sige, ipagdiwang ng lungsod na ito ang kanyang mga pista bawat taon. 
+Sinabi ng Panginoon,_ "Nakakaawa ang Jerusalem, ang lungsod na tinitirhan ni David! Sige, ipagdiwang ng lungsod na ito ang kanyang mga pista bawat taon. 
 
 
 
@@ -205,7 +205,7 @@ Pero darating ang araw na ang marami niyang kaaway ay magiging parang alikabok o
 
 
 
-Ang Jerusalem ay aalalahanin ko, <i class="trans-change">at ako,_ ang Panginoong Makapangyarihan, <i class="trans-change">ay darating_ na may kulog, lindol, ingay, buhawi, bagyo, at nagliliyab na apoy.
+Ang Jerusalem ay aalalahanin ko, at ako,_ ang Panginoong Makapangyarihan, ay darating_ na may kulog, lindol, ingay, buhawi, bagyo, at nagliliyab na apoy.
 
 ###### 7-8 Mawawalang parang panaginip ang maraming bansang sumasalakay sa Jerusalem at gumigiba ng mga pader nito. Ang katulad nilaʼy taong nananaginip na kumakain, pero nang magising ay gutom pa rin; o katulad ng taong nananaginip na umiinom, pero nang magising uhaw pa rin." 
 
@@ -240,7 +240,7 @@ Ang Jerusalem ay aalalahanin ko, <i class="trans-change">at ako,_ ang Panginoong
 
 
 
-<i class="trans-change">Kayong mga taga-Juda,_ magpakatanga kayo at magpakabulag. Maglasing kayo at magpasuray-suray, pero hindi dahil sa alak. 
+Kayong mga taga-Juda,_ magpakatanga kayo at magpakabulag. Maglasing kayo at magpasuray-suray, pero hindi dahil sa alak. 
 
 
 
@@ -504,7 +504,7 @@ Baluktot ang pag-iisip ninyo. Itinuturing ninyong parang palayok ang gumagawa ng
 
 
 
-Hindi magtatagal, ang <i class="trans-change">kagubatan ng_ Lebanon ay magiging matabang lupain, at ang matabang lupain ay magiging kagubatan. 
+Hindi magtatagal, ang kagubatan ng_ Lebanon ay magiging matabang lupain, at ang matabang lupain ay magiging kagubatan. 
 
 
 
@@ -702,7 +702,7 @@ Kaya ang Panginoon, ang Dios na nagligtas kay Abraham ay nagsabi tungkol sa lahi
 
 
 
-Sapagkat kapag nakita nila ang mga ginawa ko sa kanila, igagalang nila ako, ang Banal na Dios ni Jacob. At magkakaroon sila ng takot sa <i class="trans-change">akin, ang_ Dios ng Israel. 
+Sapagkat kapag nakita nila ang mga ginawa ko sa kanila, igagalang nila ako, ang Banal na Dios ni Jacob. At magkakaroon sila ng takot sa akin, ang_ Dios ng Israel. 
 
 
 

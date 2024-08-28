@@ -271,7 +271,7 @@ at bukas ng umaga, makikita ninyo ang makapangyarihang presensya ng Panginoon. S
 
 
 
-Sinabi pa ni Moises, "Bibigyan kayo ng Panginoon ng karne na kakainin ninyo sa gabi at bubusugin niya kayo ng tinapay sa umaga, dahil narinig niya ang pagrereklamo ninyo sa kanya. Hindi kayo nagrereklamo sa amin kundi sa Panginoon. Sino ba kami <i class="trans-change">para sa amin kayo magreklamo_?" 
+Sinabi pa ni Moises, "Bibigyan kayo ng Panginoon ng karne na kakainin ninyo sa gabi at bubusugin niya kayo ng tinapay sa umaga, dahil narinig niya ang pagrereklamo ninyo sa kanya. Hindi kayo nagrereklamo sa amin kundi sa Panginoon. Sino ba kami para sa amin kayo magreklamo_?" 
 
 
 
@@ -733,7 +733,7 @@ Tuwing umaga, nangunguha ang bawat isa ayon sa kanyang kailangan. At kapag umini
 
 
 
-Sa ikaanim na araw, doble ang kanilang kinukuha – mga dalawang salop bawat tao. Kaya pumunta ang mga pinuno ng mamamayan <i class="trans-change">ng Israel_ kay Moises at nagtanong <i class="trans-change">kung bakit doble_. 
+Sa ikaanim na araw, doble ang kanilang kinukuha – mga dalawang salop bawat tao. Kaya pumunta ang mga pinuno ng mamamayan ng Israel_ kay Moises at nagtanong kung bakit doble_. 
 
 
 
@@ -799,7 +799,7 @@ Sinabi ni Moises sa kanila, "Iniutos ng Panginoon na magpahinga kayo bukas dahil
 
 
 
-Kaya itinira nila ito para sa susunod na araw ayon sa iniutos ni Moises. At <i class="trans-change">nang sumunod na araw_ hindi ito inuod o bumaho. 
+Kaya itinira nila ito para sa susunod na araw ayon sa iniutos ni Moises. At nang sumunod na araw_ hindi ito inuod o bumaho. 
 
 
 
@@ -832,7 +832,7 @@ Kaya itinira nila ito para sa susunod na araw ayon sa iniutos ni Moises. At <i c
 
 
 
-Sinabi ni Moises <i class="trans-change">sa kanila_, "Kainin nʼyo iyan ngayon, dahil ngayon ang Araw ng Pamamahinga para sa Panginoon. Wala kayong makikita niyan ngayon. 
+Sinabi ni Moises sa kanila_, "Kainin nʼyo iyan ngayon, dahil ngayon ang Araw ng Pamamahinga para sa Panginoon. Wala kayong makikita niyan ngayon. 
 
 
 
@@ -964,7 +964,7 @@ At sinabi ng Panginoon kay Moises, "Hanggang kailan ba susuwayin ng mga taong it
 
 
 
-Alalahanin ninyo na binigyan ko kayo ng Araw ng Pamamahinga, kaya nga tuwing ikaanim na araw ay dinodoble ko ang pagkain ninyo. Dapat manatili sa bahay niya ang bawat isa sa ikapitong araw. Walang lalabas <i class="trans-change">para kumuha ng pagkain_." 
+Alalahanin ninyo na binigyan ko kayo ng Araw ng Pamamahinga, kaya nga tuwing ikaanim na araw ay dinodoble ko ang pagkain ninyo. Dapat manatili sa bahay niya ang bawat isa sa ikapitong araw. Walang lalabas para kumuha ng pagkain_." 
 
 
 
@@ -1063,7 +1063,7 @@ Tinawag na "manna" ng mga Israelita ang pagkain. Para itong maliliit at mapuputi
 
 
 
-Sinabi <i class="trans-change">sa kanila_ ni Moises, "Ipinag-utos ng Panginoon na magtago kayo ng isang salop na 'manna' para sa susunod pang mga henerasyon, para makita nila ang pagkaing ibinigay ko sa inyo sa ilang nang inilabas ko kayo sa Egipto." 
+Sinabi sa kanila_ ni Moises, "Ipinag-utos ng Panginoon na magtago kayo ng isang salop na 'manna' para sa susunod pang mga henerasyon, para makita nila ang pagkaing ibinigay ko sa inyo sa ilang nang inilabas ko kayo sa Egipto." 
 
 
 
@@ -1129,7 +1129,7 @@ Sinabi ni Moises kay Aaron, "Kumuha kayo ng sisidlan at lagyan ito ng isang salo
 
 
 
-Sinunod ito ni Aaron ayon sa sinabi ng Panginoon kay Moises. Inilagay ni Aaron ang "manna" sa <i class="trans-change">Kahon ng_ Kasunduan para maitago. 
+Sinunod ito ni Aaron ayon sa sinabi ng Panginoon kay Moises. Inilagay ni Aaron ang "manna" sa Kahon ng_ Kasunduan para maitago. 
 
 
 
@@ -1195,4 +1195,4 @@ Kumain ang mga Israelita ng "manna" sa loob ng 40 taon, hanggang sa makarating s
 
 
 
-(<i class="trans-change">Bawat araw, nag-iipon ang bawat isa sa kanila ng_ isang "omer" na "manna", mga isang salop).
+(Bawat araw, nag-iipon ang bawat isa sa kanila ng_ isang "omer" na "manna", mga isang salop).

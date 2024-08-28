@@ -39,7 +39,7 @@ up: ['Galatians']
 
 
 
-Mga kapatid, kung may magkasala man sa inyo, kayong mga ginagabayan ng <i class="trans-change">Banal na_ Espiritu ang dapat tumulong sa kanya para magbalik-loob sa Panginoon. Ngunit gawin nʼyo ito nang buong hinahon, at mag-ingat kayo dahil baka kayo naman ang matukso. 
+Mga kapatid, kung may magkasala man sa inyo, kayong mga ginagabayan ng Banal na_ Espiritu ang dapat tumulong sa kanya para magbalik-loob sa Panginoon. Ngunit gawin nʼyo ito nang buong hinahon, at mag-ingat kayo dahil baka kayo naman ang matukso. 
 
 
 
@@ -204,7 +204,7 @@ dahil may pananagutan ang bawat isa sa kanyang ginagawa.
 
 
 
-Ang mga tinuturuan ng salita <i class="trans-change">ng Dios_ ay dapat na tumulong at magbigay sa mga nagtuturo sa kanila. 
+Ang mga tinuturuan ng salita ng Dios_ ay dapat na tumulong at magbigay sa mga nagtuturo sa kanila. 
 
 
 
@@ -270,7 +270,7 @@ Huwag ninyong linlangin ang inyong sarili. Ang Dios ay hindi madadaya ninuman. K
 
 
 
-Kung ang ninanasa ng laman ang sinusunod ng isang tao, kamatayan ang aanihin niya. Pero kung ang <i class="trans-change">Banal na_ Espiritu ang sinusunod ng isang tao, matatanggap niya mula sa Espiritu ang buhay na walang hanggan. 
+Kung ang ninanasa ng laman ang sinusunod ng isang tao, kamatayan ang aanihin niya. Pero kung ang Banal na_ Espiritu ang sinusunod ng isang tao, matatanggap niya mula sa Espiritu ang buhay na walang hanggan. 
 
 
 
@@ -404,7 +404,7 @@ Mapapansin ninyo na malalaki na ang mga letrang nakasulat dito. Ako na ang sumul
 
 
 
-Gusto lamang ng mga namimilit sa inyong magpatuli na magbigay-lugod <i class="trans-change">sa kapwa nila Judio_. Sapagkat natatakot silang usigin ng mga ito kung ituturo nila na ang kamatayan lamang ni Cristo ang siyang makapagliligtas sa tao. 
+Gusto lamang ng mga namimilit sa inyong magpatuli na magbigay-lugod sa kapwa nila Judio_. Sapagkat natatakot silang usigin ng mga ito kung ituturo nila na ang kamatayan lamang ni Cristo ang siyang makapagliligtas sa tao. 
 
 
 
@@ -470,7 +470,7 @@ Sila mismong mga tinuli ay hindi naman sumusunod sa Kautusan. Ipinagpipilitan la
 
 
 
-Ngunit para sa akin, wala akong ibang ipinagmamalaki maliban sa <i class="trans-change">kamatayan ng_ ating Panginoong Jesu-Cristo sa krus. At dahil sa kamatayan niya sa krus, wala nang halaga para sa akin ang mga bagay sa mundo, at wala rin akong halaga para sa mundo. 
+Ngunit para sa akin, wala akong ibang ipinagmamalaki maliban sa kamatayan ng_ ating Panginoong Jesu-Cristo sa krus. At dahil sa kamatayan niya sa krus, wala nang halaga para sa akin ang mga bagay sa mundo, at wala rin akong halaga para sa mundo. 
 
 
 
@@ -536,7 +536,7 @@ Hindi na mahalaga kung tuli tayo o hindi. Ang tanging mahalaga ay kung binago na
 
 
 
-Sa lahat ng pinili ng Dios at namumuhay ayon sa mga turo kong ito, sumainyo nawa ang kapayapaan at awa <i class="trans-change">ng Dios_. 
+Sa lahat ng pinili ng Dios at namumuhay ayon sa mga turo kong ito, sumainyo nawa ang kapayapaan at awa ng Dios_. 
 
 
 

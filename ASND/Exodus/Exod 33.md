@@ -407,7 +407,7 @@ Kapag nakikipag-usap ang Panginoon kay Moises, magkaharap sila, katulad ng magka
 
 
 
-Sinabi ni Moises sa Panginoon, "Lagi po ninyong sinasabi sa akin na pangunahan ko ang inyong mga mamamayan <i class="trans-change">sa pagpunta sa lupaing ipinangako ninyo_, pero hindi pa po ninyo ipinapaalam kung sino ang pasasamahin ninyo sa akin. Sinabi pa po ninyo na kilalang-kilala nʼyo ako at nalulugod kayo sa akin. 
+Sinabi ni Moises sa Panginoon, "Lagi po ninyong sinasabi sa akin na pangunahan ko ang inyong mga mamamayan sa pagpunta sa lupaing ipinangako ninyo_, pero hindi pa po ninyo ipinapaalam kung sino ang pasasamahin ninyo sa akin. Sinabi pa po ninyo na kilalang-kilala nʼyo ako at nalulugod kayo sa akin. 
 
 
 

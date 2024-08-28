@@ -40,7 +40,7 @@ next: ['Rom 10']
 
 
 
-Ngayon, ako na mananampalataya ni Cristo ay may sasabihin sa inyo. Totoo ito at hindi ako nagsisinungaling. At pinapatunayan ng <i class="trans-change">Banal na_ Espiritu sa aking konsensya na totoo ang sasabihin ko: 
+Ngayon, ako na mananampalataya ni Cristo ay may sasabihin sa inyo. Totoo ito at hindi ako nagsisinungaling. At pinapatunayan ng Banal na_ Espiritu sa aking konsensya na totoo ang sasabihin ko: 
 
 
 
@@ -205,7 +205,7 @@ ang kanilang mga ninunoʼy mga pinili ng Dios; at nagmula sa kanilang lahi si Cr
 
 
 
-Hindi ito nangangahulugan na hindi natupad ang mga pangako ng Dios <i class="trans-change">dahil hindi sila sumampalataya_, sapagkat hindi naman lahat ng nagmula kay Israel ay maituturing na pinili ng Dios. 
+Hindi ito nangangahulugan na hindi natupad ang mga pangako ng Dios dahil hindi sila sumampalataya_, sapagkat hindi naman lahat ng nagmula kay Israel ay maituturing na pinili ng Dios. 
 
 
 
@@ -238,7 +238,7 @@ Hindi ito nangangahulugan na hindi natupad ang mga pangako ng Dios <i class="tra
 
 
 
-At hindi rin naman lahat ng nagmula kay Abraham ay maituturing na mga anak ni Abraham. Sapagkat sinabi ng Dios kay Abraham, "Ang mga anak lang na magmumula kay Isaac ang mga lahi <i class="trans-change">na aking ipinangako_." 
+At hindi rin naman lahat ng nagmula kay Abraham ay maituturing na mga anak ni Abraham. Sapagkat sinabi ng Dios kay Abraham, "Ang mga anak lang na magmumula kay Isaac ang mga lahi na aking ipinangako_." 
 
 
 
@@ -337,7 +337,7 @@ Sapagkat ganito ang ipinangako ng Dios sa kanya, "Babalik ako rito sa ganito rin
 
 
 
-Hindi lang iyon, kundi nangyari rin ang ganoon sa dalawang anak ni Rebeka sa ating ninunong si Isaac, <i class="trans-change">ipinakita rin ng Dios na hindi lahat ng nagmula kay Abraham ay itinuturing na mga anak niya._ <sup class="versenum">11-12</sup>Bago pa man ipanganak ang kambal, sinabi na ng Dios kay Rebeka, "Maglilingkod ang nakatatanda sa nakababatang kapatid." Sinabi ito ng Dios noong wala pa silang nagagawang mabuti o masama, para patunayan na ang pagpili niya ay batay sa sarili niyang pasya at hindi sa <i class="trans-change">mabubuting_ gawa ng tao. 
+Hindi lang iyon, kundi nangyari rin ang ganoon sa dalawang anak ni Rebeka sa ating ninunong si Isaac, ipinakita rin ng Dios na hindi lahat ng nagmula kay Abraham ay itinuturing na mga anak niya._ 11-12Bago pa man ipanganak ang kambal, sinabi na ng Dios kay Rebeka, "Maglilingkod ang nakatatanda sa nakababatang kapatid." Sinabi ito ng Dios noong wala pa silang nagagawang mabuti o masama, para patunayan na ang pagpili niya ay batay sa sarili niyang pasya at hindi sa mabubuting_ gawa ng tao. 
 
 
 
@@ -570,7 +570,7 @@ Kaya nga, kinaaawaan ng Dios ang ibig niyang kaawaan, at pinatitigas niya ang ul
 
 
 
-Maaaring may magsabi sa akin, "Kung ganoon, bakit pa niya pinapanagot ang mga tao <i class="trans-change">sa kanilang mga kasalanan_? At sino ang makakasalungat sa kanyang kalooban?" 
+Maaaring may magsabi sa akin, "Kung ganoon, bakit pa niya pinapanagot ang mga tao sa kanilang mga kasalanan_? At sino ang makakasalungat sa kanyang kalooban?" 
 
 
 
@@ -834,7 +834,7 @@ At sa mga sinabihang, 'Kayoʼy hindi ko mga mamamayan,' silaʼy tatawaging, 'Mga
 
 
 
-Tungkol naman sa mga Israelita, sinabi ni <i class="trans-change">Propeta_ Isaias: "Kahit na maging kasindami pa ng buhangin sa tabing-dagat ang lahi ni Israel, kakaunti lang sa kanila ang maliligtas, 
+Tungkol naman sa mga Israelita, sinabi ni Propeta_ Isaias: "Kahit na maging kasindami pa ng buhangin sa tabing-dagat ang lahi ni Israel, kakaunti lang sa kanila ang maliligtas, 
 
 
 
@@ -867,7 +867,7 @@ Tungkol naman sa mga Israelita, sinabi ni <i class="trans-change">Propeta_ Isaia
 
 
 
-dahil mabilis at matindi ang gagawing paghatol ng Panginoon sa <i class="trans-change">mga tao sa_ mundo." 
+dahil mabilis at matindi ang gagawing paghatol ng Panginoon sa mga tao sa_ mundo." 
 
 
 
@@ -999,7 +999,7 @@ Pero ang mga Judio na nagsikap na maituring na matuwid sa pamamagitan ng pagsuno
 
 
 
-Bakit sila nabigo? Sapagkat nagtiwala sila sa kanilang mga gawa at hindi sila sumampalataya <i class="trans-change">kay Jesu-Cristo_. Natisod sila sa "batong nakakatisod." 
+Bakit sila nabigo? Sapagkat nagtiwala sila sa kanilang mga gawa at hindi sila sumampalataya kay Jesu-Cristo_. Natisod sila sa "batong nakakatisod." 
 
 
 
@@ -1032,4 +1032,4 @@ Bakit sila nabigo? Sapagkat nagtiwala sila sa kanilang mga gawa at hindi sila su
 
 
 
-Gaya nga ng sinabi <i class="trans-change">ng Dios_ sa Kasulatan, "Maglalagay ako sa Zion ng batong naging katitisuran sa mga tao, at nakakapagpadapa sa kanila. Pero hindi mapapahiya ang mga sumasampalataya sa kanya."
+Gaya nga ng sinabi ng Dios_ sa Kasulatan, "Maglalagay ako sa Zion ng batong naging katitisuran sa mga tao, at nakakapagpadapa sa kanila. Pero hindi mapapahiya ang mga sumasampalataya sa kanya."

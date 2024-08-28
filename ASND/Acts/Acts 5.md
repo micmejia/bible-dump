@@ -73,7 +73,7 @@ May mag-asawang nagbenta rin ng kanilang lupa. Ang pangalan ng lalaki ay Ananias
 
 
 
-Pero binawasan ni Ananias ang pinagbilhan ng kanilang lupa. At pumayag naman ang kanyang asawa. Pagkatapos, ibinigay niya ang natirang pera sa mga apostol, <i class="trans-change">at sinabi niyang iyon ang buong halaga ng lupa._ 
+Pero binawasan ni Ananias ang pinagbilhan ng kanilang lupa. At pumayag naman ang kanyang asawa. Pagkatapos, ibinigay niya ang natirang pera sa mga apostol, at sinabi niyang iyon ang buong halaga ng lupa._ 
 
 
 
@@ -238,7 +238,7 @@ Tinanong siya ni Pedro, "Sabihin mo sa akin ang totoo, ito lang ba ang pinagbilh
 
 
 
-Kaya sinabi ni Pedro sa kanya, "Bakit nagkaisa kayong mag-asawa na subukan ang Espiritu ng Panginoon? Tingnan mo, nandiyan na sa pintuan ang mga binata na naglibing sa asawa mo, at bubuhatin ka rin nila <i class="trans-change">para ilibing_." 
+Kaya sinabi ni Pedro sa kanya, "Bakit nagkaisa kayong mag-asawa na subukan ang Espiritu ng Panginoon? Tingnan mo, nandiyan na sa pintuan ang mga binata na naglibing sa asawa mo, at bubuhatin ka rin nila para ilibing_." 
 
 
 
@@ -438,7 +438,7 @@ Sa kabila nito, nadagdagan pa ang bilang ng mga lalaki at babaeng sumasampalatay
 
 
 
-Dahil <i class="trans-change">sa mga himalang ginawa ng mga apostol_, dinala ng mga tao ang mga may sakit sa tabi ng daan at inilagay sa mga higaan, para pagdaan ni Pedro ay madadaanan sila kahit anino man lang nito. 
+Dahil sa mga himalang ginawa ng mga apostol_, dinala ng mga tao ang mga may sakit sa tabi ng daan at inilagay sa mga higaan, para pagdaan ni Pedro ay madadaanan sila kahit anino man lang nito. 
 
 
 
@@ -935,7 +935,7 @@ Sumagot si Pedro at ang kanyang mga kasama, "Ang Dios ang dapat naming sundin, a
 
 
 
-Pinatay ninyo si Jesus sa pamamagitan ng pagpako sa kanya sa krus. Ngunit binuhay siyang muli <i class="trans-change">ng Dios_, ang Dios na sinasamba ng ating mga ninuno. 
+Pinatay ninyo si Jesus sa pamamagitan ng pagpako sa kanya sa krus. Ngunit binuhay siyang muli ng Dios_, ang Dios na sinasamba ng ating mga ninuno. 
 
 
 
@@ -1100,7 +1100,7 @@ Pero tumayo ang kanilang kasamang si Gamaliel. Isa siyang Pariseo at tagapagturo
 
 
 
-<i class="trans-change">Nang makalabas na ang mga apostol,_ sinabi ni Gamaliel sa kanyang mga kasama, "<i class="trans-change">Mga kababayan kong_ Israelita, isipin ninyong mabuti kung ano ang gagawin ninyo sa mga taong iyan, <i class="trans-change">at baka magkamali kayo._ 
+Nang makalabas na ang mga apostol,_ sinabi ni Gamaliel sa kanyang mga kasama, "Mga kababayan kong_ Israelita, isipin ninyong mabuti kung ano ang gagawin ninyo sa mga taong iyan, at baka magkamali kayo._ 
 
 
 
@@ -1298,7 +1298,7 @@ Ipinatawag nilang muli ang mga apostol at ipinahagupit. Pagkatapos, binalaan sil
 
 
 
-Umalis doon ang mga apostol na masayang-masaya, dahil binigyan sila ng Dios ng pagkakataon na magtiis alang-alang sa pangalan <i class="trans-change">ni Jesus_. 
+Umalis doon ang mga apostol na masayang-masaya, dahil binigyan sila ng Dios ng pagkakataon na magtiis alang-alang sa pangalan ni Jesus_. 
 
 
 

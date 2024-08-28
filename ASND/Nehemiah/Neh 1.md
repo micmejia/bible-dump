@@ -41,7 +41,7 @@ next: ['Neh 2']
 
 Ito ang salaysay tungkol sa mga ginawa ni Nehemias na anak ni Hacalia.
 
-## Ang Pananalangin ni Nehemias para sa Jerusalem Noong <i class="trans-change">ikasiyam na buwan, ang_ buwan ng Kislev, nang ika-20 taon <i class="trans-change">ng paghahari ni Artaserses sa Persia,_ naroon ako sa palasyo sa Susa. 
+## Ang Pananalangin ni Nehemias para sa Jerusalem Noong ikasiyam na buwan, ang_ buwan ng Kislev, nang ika-20 taon ng paghahari ni Artaserses sa Persia,_ naroon ako sa palasyo sa Susa. 
 
 
 
@@ -74,7 +74,7 @@ Ito ang salaysay tungkol sa mga ginawa ni Nehemias na anak ni Hacalia.
 
 
 
-Doon ay pumunta sa akin ang isa sa mga kapatid ko na si Hanani. Galing siya sa Juda kasama ang ilang kalalakihan. Tinanong ko sila tungkol sa Jerusalem at sa mga Judio na nagsibalik mula sa pagkakabihag <i class="trans-change">sa Babilonia_. 
+Doon ay pumunta sa akin ang isa sa mga kapatid ko na si Hanani. Galing siya sa Juda kasama ang ilang kalalakihan. Tinanong ko sila tungkol sa Jerusalem at sa mga Judio na nagsibalik mula sa pagkakabihag sa Babilonia_. 
 
 
 
@@ -107,7 +107,7 @@ Doon ay pumunta sa akin ang isa sa mga kapatid ko na si Hanani. Galing siya sa J
 
 
 
-Sumagot sila, "Labis na nahihirapan ang mga nagsibalik sa Juda, tinutuya sila <i class="trans-change">ng mga tao sa paligid_ nila. Hanggang ngayon, sira pa rin ang pader ng Jerusalem at sunog ang mga pintuan nito." 
+Sumagot sila, "Labis na nahihirapan ang mga nagsibalik sa Juda, tinutuya sila ng mga tao sa paligid_ nila. Hanggang ngayon, sira pa rin ang pader ng Jerusalem at sunog ang mga pintuan nito." 
 
 
 
@@ -173,7 +173,7 @@ Nang marinig ko iyon, umupo ako at umiyak. Ilang araw akong nagdalamhati, nag-ay
 
 
 
-Sinabi ko, "Panginoon, Dios ng kalangitan, makapangyarihan po kayo at kamangha-manghang Dios. Tinutupad nʼyo ang <i class="trans-change">inyong_ kasunduan nang may pag-ibig sa mga umiibig sa inyo at tumutupad sa inyong mga utos. 
+Sinabi ko, "Panginoon, Dios ng kalangitan, makapangyarihan po kayo at kamangha-manghang Dios. Tinutupad nʼyo ang inyong_ kasunduan nang may pag-ibig sa mga umiibig sa inyo at tumutupad sa inyong mga utos. 
 
 
 

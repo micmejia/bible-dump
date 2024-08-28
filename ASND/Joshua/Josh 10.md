@@ -139,7 +139,7 @@ Kaya nagpadala ng mensahe si Adoni Zedek kina Haring Hoham ng Hebron, Haring Pir
 
 
 
-<i class="trans-change">Ito ang mensahe niya,_ "Tulungan nʼyo akong lusubin ang Gibeon dahil nakipagkaibigan ito kay Josue at sa mga Israelita." 
+Ito ang mensahe niya,_ "Tulungan nʼyo akong lusubin ang Gibeon dahil nakipagkaibigan ito kay Josue at sa mga Israelita." 
 
 
 
@@ -403,7 +403,7 @@ Patuloy ang paghabol sa kanila ng mga Israelita habang bumababa sila galing sa B
 
 
 
-Nang araw na pinagtagumpay ng Panginoon ang mga Israelita laban sa mga Amoreo, nanalangin si Josue sa Panginoon. Pagkatapos, sinabi niya habang nakikinig ang mga Israelita, "Araw, tumigil ka sa taas ng Gibeon! <i class="trans-change">Ikaw naman_ buwan, <i class="trans-change">tumigil ka_ sa taas ng Lambak ng Ayalon." 
+Nang araw na pinagtagumpay ng Panginoon ang mga Israelita laban sa mga Amoreo, nanalangin si Josue sa Panginoon. Pagkatapos, sinabi niya habang nakikinig ang mga Israelita, "Araw, tumigil ka sa taas ng Gibeon! Ikaw naman_ buwan, tumigil ka_ sa taas ng Lambak ng Ayalon." 
 
 
 
@@ -1100,7 +1100,7 @@ Ibinigay ng Panginoon ang Lakish sa mga Israelita sa ikalawang araw ng labanan. 
 
 
 
-Habang <i class="trans-change">nilulusob nila ang Lakish,_ si Haring Horam ng Gezer at ang mga sundalo nito ay tumulong sa Lakish, pero natalo sila ni Josue, at walang naiwang buhay sa kanila. 
+Habang nilulusob nila ang Lakish,_ si Haring Horam ng Gezer at ang mga sundalo nito ay tumulong sa Lakish, pero natalo sila ni Josue, at walang naiwang buhay sa kanila. 
 
 
 

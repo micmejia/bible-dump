@@ -73,7 +73,7 @@ Naghari si Solomon sa buong Israel.
 
 
 
-At ito ang kanyang matataas na pinuno: Si Azaria ang <i class="trans-change">punong_ pari mula sa angkan ni Zadok. 
+At ito ang kanyang matataas na pinuno: Si Azaria ang punong_ pari mula sa angkan ni Zadok. 
 
 
 
@@ -172,7 +172,7 @@ Si Benaya na anak ni Jehoyada ang kumander ng mga sundalo. Sina Zadok at Abiatar
 
 
 
-Si Azaria na anak ni Natan ang pinuno ng mga gobernador sa mga distrito <i class="trans-change">ng Israel_. Ang paring si Zabud na anak din ni Natan ang personal na tagapayo ng hari. 
+Si Azaria na anak ni Natan ang pinuno ng mga gobernador sa mga distrito ng Israel_. Ang paring si Zabud na anak din ni Natan ang personal na tagapayo ng hari. 
 
 
 
@@ -271,7 +271,7 @@ Mayroon ding 12 gobernador si Solomon sa mga distrito ng buong Israel. Sila ang 
 
 
 
-Ito ang kanilang mga pangalan: Si Ben Hur, <i class="trans-change">na namamahala_ sa kabundukan ng Efraim. 
+Ito ang kanilang mga pangalan: Si Ben Hur, na namamahala_ sa kabundukan ng Efraim. 
 
 
 
@@ -304,7 +304,7 @@ Ito ang kanilang mga pangalan: Si Ben Hur, <i class="trans-change">na namamahala
 
 
 
-Si Ben Deker <i class="trans-change">na namamahala_ sa Makaz, Saalbim, Bet Shemesh at sa Elon Bet Hanan. 
+Si Ben Deker na namamahala_ sa Makaz, Saalbim, Bet Shemesh at sa Elon Bet Hanan. 
 
 
 
@@ -337,7 +337,7 @@ Si Ben Deker <i class="trans-change">na namamahala_ sa Makaz, Saalbim, Bet Sheme
 
 
 
-Si Ben Hesed <i class="trans-change">na namamahala_ sa Arubot, kasama na rito ang Soco at ang buong lupain ng Hefer. 
+Si Ben Hesed na namamahala_ sa Arubot, kasama na rito ang Soco at ang buong lupain ng Hefer. 
 
 
 
@@ -370,7 +370,7 @@ Si Ben Hesed <i class="trans-change">na namamahala_ sa Arubot, kasama na rito an
 
 
 
-Si Ben Abinadab <i class="trans-change">na namamahala_ sa Nafat Dor. (Asawa siya ni Tafat na anak ni Solomon.) 
+Si Ben Abinadab na namamahala_ sa Nafat Dor. (Asawa siya ni Tafat na anak ni Solomon.) 
 
 
 
@@ -403,7 +403,7 @@ Si Ben Abinadab <i class="trans-change">na namamahala_ sa Nafat Dor. (Asawa siya
 
 
 
-Si Baana na anak ni Ahilud, <i class="trans-change">na namamahala_ sa Taanac, Megido, sa buong Bet Shan malapit sa Zaretan sa ibaba ng Jezreel at sa mga lugar na mula sa Bet Shan hanggang Abel Mehola at patawid sa Jokmeam. 
+Si Baana na anak ni Ahilud, na namamahala_ sa Taanac, Megido, sa buong Bet Shan malapit sa Zaretan sa ibaba ng Jezreel at sa mga lugar na mula sa Bet Shan hanggang Abel Mehola at patawid sa Jokmeam. 
 
 
 
@@ -436,7 +436,7 @@ Si Baana na anak ni Ahilud, <i class="trans-change">na namamahala_ sa Taanac, Me
 
 
 
-Si Ben Geber, <i class="trans-change">na namamahala_ sa Ramot Gilead, kasama na rito ang mga bayan ni Jair na anak ni Manase, at sa mga distrito ng Argob sa Bashan, kasama na ang 60 malalaki at napapaderang bayan, na ang mga pintuan ay may tarangkahang tanso. 
+Si Ben Geber, na namamahala_ sa Ramot Gilead, kasama na rito ang mga bayan ni Jair na anak ni Manase, at sa mga distrito ng Argob sa Bashan, kasama na ang 60 malalaki at napapaderang bayan, na ang mga pintuan ay may tarangkahang tanso. 
 
 
 
@@ -469,7 +469,7 @@ Si Ben Geber, <i class="trans-change">na namamahala_ sa Ramot Gilead, kasama na 
 
 
 
-Si Ahinadab na anak ni Iddo, <i class="trans-change">na namamahala_ sa Mahanaim. 
+Si Ahinadab na anak ni Iddo, na namamahala_ sa Mahanaim. 
 
 
 
@@ -502,7 +502,7 @@ Si Ahinadab na anak ni Iddo, <i class="trans-change">na namamahala_ sa Mahanaim.
 
 
 
-Si Ahimaaz, <i class="trans-change">na namamahala_ sa Naftali. (Asawa siya ni Basemat na anak ni Solomon.) 
+Si Ahimaaz, na namamahala_ sa Naftali. (Asawa siya ni Basemat na anak ni Solomon.) 
 
 
 
@@ -535,7 +535,7 @@ Si Ahimaaz, <i class="trans-change">na namamahala_ sa Naftali. (Asawa siya ni Ba
 
 
 
-Si Baana na anak ni Hushai, <i class="trans-change">na namamahala_ sa Asher at sa Alot. 
+Si Baana na anak ni Hushai, na namamahala_ sa Asher at sa Alot. 
 
 
 
@@ -568,7 +568,7 @@ Si Baana na anak ni Hushai, <i class="trans-change">na namamahala_ sa Asher at s
 
 
 
-Si Jehoshafat na anak ni Parua, <i class="trans-change">na namamahala_ sa Isacar. 
+Si Jehoshafat na anak ni Parua, na namamahala_ sa Isacar. 
 
 
 
@@ -601,7 +601,7 @@ Si Jehoshafat na anak ni Parua, <i class="trans-change">na namamahala_ sa Isacar
 
 
 
-Si Shimei na anak ni Ela, <i class="trans-change">na namamahala_ sa Benjamin. 
+Si Shimei na anak ni Ela, na namamahala_ sa Benjamin. 
 
 
 
@@ -634,7 +634,7 @@ Si Shimei na anak ni Ela, <i class="trans-change">na namamahala_ sa Benjamin.
 
 
 
-Si Geber na anak ni Uri, <i class="trans-change">na namamahala_ sa Gilead na sakop noon ni Sihon na hari ng mga Amoreo at ni Haring Og ng Bashan. Si Geber lang ang gobernador sa buong distritong ito.
+Si Geber na anak ni Uri, na namamahala_ sa Gilead na sakop noon ni Sihon na hari ng mga Amoreo at ni Haring Og ng Bashan. Si Geber lang ang gobernador sa buong distritong ito.
 
 ## Ang Kasaganaan at ang Karunungan ni Solomon 
 
@@ -669,7 +669,7 @@ Si Geber na anak ni Uri, <i class="trans-change">na namamahala_ sa Gilead na sak
 
 
 
-Ang bilang ng mga tao sa Juda at Israel ay tulad ng buhangin sa dalampasigan <i class="trans-change">na hindi mabilang_. Sagana sila sa pagkain at inumin, at masaya sila. 
+Ang bilang ng mga tao sa Juda at Israel ay tulad ng buhangin sa dalampasigan na hindi mabilang_. Sagana sila sa pagkain at inumin, at masaya sila. 
 
 
 
@@ -702,7 +702,7 @@ Ang bilang ng mga tao sa Juda at Israel ay tulad ng buhangin sa dalampasigan <i 
 
 
 
-Si Solomon ang namamahala sa lahat ng kaharian mula sa Ilog <i class="trans-change">ng Eufrates_ hanggang sa lupain ng mga Filisteo, hanggang sa hangganan ng Egipto. Ang mga kahariang ito ay nagbabayad ng buwis kay Solomon at nagpapasakop sa kanya habang nabubuhay siya. 
+Si Solomon ang namamahala sa lahat ng kaharian mula sa Ilog ng Eufrates_ hanggang sa lupain ng mga Filisteo, hanggang sa hangganan ng Egipto. Ang mga kahariang ito ay nagbabayad ng buwis kay Solomon at nagpapasakop sa kanya habang nabubuhay siya. 
 
 
 
@@ -735,7 +735,7 @@ Si Solomon ang namamahala sa lahat ng kaharian mula sa Ilog <i class="trans-chan
 
 
 
-Ito ang mga pagkaing kailangan ni Solomon <i class="trans-change">sa kanyang palasyo_ bawat araw: 100 sako ng magandang klaseng harina, 200 sako ng ordinaryong harina, 
+Ito ang mga pagkaing kailangan ni Solomon sa kanyang palasyo_ bawat araw: 100 sako ng magandang klaseng harina, 200 sako ng ordinaryong harina, 
 
 
 
@@ -801,7 +801,7 @@ sampung pinatabang baka sa kulungan, 20 baka na galing sa pastulan, 100 tupa o k
 
 
 
-Sakop ni Solomon ang buong lupain sa kanlurang Ilog <i class="trans-change">ng Eufrates_ mula sa Tifsa hanggang sa Gaza. At maganda ang pakikitungo niya sa lahat ng bansa sa palibot niya. 
+Sakop ni Solomon ang buong lupain sa kanlurang Ilog ng Eufrates_ mula sa Tifsa hanggang sa Gaza. At maganda ang pakikitungo niya sa lahat ng bansa sa palibot niya. 
 
 
 

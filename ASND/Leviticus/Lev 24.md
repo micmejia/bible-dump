@@ -7,7 +7,7 @@ next: ['Lev 25']
 # Leviticus 24
 
 ***
-###### 1-4 Sinabi ng Panginoon kay Moises na iutos ito sa mga Israelita: Magdala kayo ng purong langis mula sa pinigang olibo para sa ilaw na nasa labas ng kwarto kung saan nakalagay ang <i class="trans-change">Kahon_ ng Kasunduan doon sa Toldang Tipanan, para patuloy itong magningas sa presensya ng Panginoon. Sisindihan ito ni Aaron tuwing takip-silim at patuloy na pagniningasin hanggang sa umaga. Dapat tiyakin na laging nagniningas ang mga ilaw sa patungang ginto nito. Dapat ninyong sundin ang tuntuning ito, kayo at ng susunod pang mga henerasyon.
+###### 1-4 Sinabi ng Panginoon kay Moises na iutos ito sa mga Israelita: Magdala kayo ng purong langis mula sa pinigang olibo para sa ilaw na nasa labas ng kwarto kung saan nakalagay ang Kahon_ ng Kasunduan doon sa Toldang Tipanan, para patuloy itong magningas sa presensya ng Panginoon. Sisindihan ito ni Aaron tuwing takip-silim at patuloy na pagniningasin hanggang sa umaga. Dapat tiyakin na laging nagniningas ang mga ilaw sa patungang ginto nito. Dapat ninyong sundin ang tuntuning ito, kayo at ng susunod pang mga henerasyon.
 
 ## Ang mga Tinapay na Inihahandog sa Presensya ng Dios 
 
@@ -174,9 +174,9 @@ Dapat laging maglagay ng tinapay sa presensya ng Panginoon tuwing Araw ng Pamama
 
 
 
-Ang mga tinapay na itoʼy para kay Aaron at sa kanyang angkan. Kakainin nila ito sa banal na lugar <i class="trans-change">doon sa Tolda_, dahil ito ang pinakabanal na bahagi ng mga handog sa pamamagitan ng apoy para sa Panginoon, at itoʼy para sa kanila magpakailanman.
+Ang mga tinapay na itoʼy para kay Aaron at sa kanyang angkan. Kakainin nila ito sa banal na lugar doon sa Tolda_, dahil ito ang pinakabanal na bahagi ng mga handog sa pamamagitan ng apoy para sa Panginoon, at itoʼy para sa kanila magpakailanman.
 
-## Ang Parusa sa Panlalait sa Dios at Pamiminsala sa Kapwa <sup class="versenum">10-11</sup>May isang tao noon na ang ama ay isang Egipcio at ang ina ay Israelita. (Ang pangalan ng ina niya ay si Shelomit na anak ni Dibri na mula sa lahi ni Dan). Siyaʼy nakipag-away sa isang Israelita roon sa kampo, at nilapastangan niya ang pangalan ng Panginoon. Kaya dinala nila siya kay Moises, 
+## Ang Parusa sa Panlalait sa Dios at Pamiminsala sa Kapwa 10-11May isang tao noon na ang ama ay isang Egipcio at ang ina ay Israelita. (Ang pangalan ng ina niya ay si Shelomit na anak ni Dibri na mula sa lahi ni Dan). Siyaʼy nakipag-away sa isang Israelita roon sa kampo, at nilapastangan niya ang pangalan ng Panginoon. Kaya dinala nila siya kay Moises, 
 
 
 
@@ -275,7 +275,7 @@ Ngayon, sinabi ng Panginoon kay Moises,
 
 
 
-"Dalhin ninyo sa labas ng kampo ang taong iyon na lumapastangan sa akin. At ang lahat ng nakarinig ng kanyang paglapastangan ay magpatong ng kanilang mga kamay sa ulo niya <i class="trans-change">bilang patunay na siyaʼy dapat managot_, at pagkatapos, babatuhin siya ng buong mamamayan. <sup class="versenum">15-16</sup>At sabihin mo sa mga Israelita na ang sinumang katutubong Israelita o dayuhang naninirahang kasama nila na lalapastangan sa aking pangalan ay mananagot. At dapat siyang batuhin ng lahat hanggang sa mamatay siya. 
+"Dalhin ninyo sa labas ng kampo ang taong iyon na lumapastangan sa akin. At ang lahat ng nakarinig ng kanyang paglapastangan ay magpatong ng kanilang mga kamay sa ulo niya bilang patunay na siyaʼy dapat managot_, at pagkatapos, babatuhin siya ng buong mamamayan. 15-16At sabihin mo sa mga Israelita na ang sinumang katutubong Israelita o dayuhang naninirahang kasama nila na lalapastangan sa aking pangalan ay mananagot. At dapat siyang batuhin ng lahat hanggang sa mamatay siya. 
 
 
 
@@ -341,7 +341,7 @@ Ngayon, sinabi ng Panginoon kay Moises,
 
 
 
-At ang taong pumatay sa hayop ng kanyang kapwa ay dapat palitan ito. Buhay na hayop ang ipapalit niya sa pinatay na hayop. <sup class="versenum">19-20</sup>Kapag sinaktan ng sinuman ang kanyang kapwa, kailangang saktan din siya katulad ng ginawa niya. Kung binali niya ang buto ng iba, babaliin din ang buto niya, kung dinukot niya ang mata ng iba, dudukutin din ang mata niya, at kung binungi niya ang ngipin ng iba, bubungiin din ang ngipin niya. 
+At ang taong pumatay sa hayop ng kanyang kapwa ay dapat palitan ito. Buhay na hayop ang ipapalit niya sa pinatay na hayop. 19-20Kapag sinaktan ng sinuman ang kanyang kapwa, kailangang saktan din siya katulad ng ginawa niya. Kung binali niya ang buto ng iba, babaliin din ang buto niya, kung dinukot niya ang mata ng iba, dudukutin din ang mata niya, at kung binungi niya ang ngipin ng iba, bubungiin din ang ngipin niya. 
 
 
 

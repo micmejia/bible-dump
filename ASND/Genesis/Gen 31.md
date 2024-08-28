@@ -337,7 +337,7 @@ Kinuha ng Dios ang mga hayop ng inyong ama at ibinigay sa akin."
 
 
 
-<i class="trans-change">Sinabi pa ni Jacob,_ "Nang panahon ng pagkakastahan ng mga hayop, nanaginip ako. Nakita ko na ang mga lalaking kambing na kumakasta sa mga babaeng kambing ay mga batik-batik. 
+Sinabi pa ni Jacob,_ "Nang panahon ng pagkakastahan ng mga hayop, nanaginip ako. Nakita ko na ang mga lalaking kambing na kumakasta sa mga babaeng kambing ay mga batik-batik. 
 
 
 
@@ -403,7 +403,7 @@ Sa panaginip ko tinawag ako ng anghel ng Dios. Sinabi niya, 'Jacob!' Sumagot ako
 
 
 
-At sinabi niya, 'Masdan <i class="trans-change">mo_ ang lahat ng lalaking kambing na kumakasta sa mga babaeng kambing ay mga batik-batik. Ginawa ko ito dahil nakita ko ang lahat ng ginagawa sa iyo ni Laban. 
+At sinabi niya, 'Masdan mo_ ang lahat ng lalaking kambing na kumakasta sa mga babaeng kambing ay mga batik-batik. Ginawa ko ito dahil nakita ko ang lahat ng ginagawa sa iyo ni Laban. 
 
 
 
@@ -535,7 +535,7 @@ Ibang tao na kami sa paningin niya. Ipinagbili na kami at naubos na niya ang per
 
 
 
-Ang lahat ng yaman na binawi sa kanya ng Dios <i class="trans-change">at ibinigay na sa iyo_ ay maituturing namin na mamanahin namin at ng aming mga anak. Kaya gawin <i class="trans-change">mo_ ang sinabi sa iyo ng Dios." <sup class="versenum">17-18</sup>Naghanda agad si Jacob para bumalik sa Canaan, sa lupain ng ama niyang si Isaac. Pinasakay niya ang mga anak niya at mga asawa sa mga kamelyo. Dinala niya ang mga hayop niya at ang lahat ng ari-arian niya na naipon niya sa Padan Aram. 
+Ang lahat ng yaman na binawi sa kanya ng Dios at ibinigay na sa iyo_ ay maituturing namin na mamanahin namin at ng aming mga anak. Kaya gawin mo_ ang sinabi sa iyo ng Dios." 17-18Naghanda agad si Jacob para bumalik sa Canaan, sa lupain ng ama niyang si Isaac. Pinasakay niya ang mga anak niya at mga asawa sa mga kamelyo. Dinala niya ang mga hayop niya at ang lahat ng ari-arian niya na naipon niya sa Padan Aram. 
 
 
 
@@ -966,7 +966,7 @@ Alam kong sabik na sabik ka nang umuwi. Pero bakit ninakaw mo ang mga dios ko?"
 
 
 
-Sumagot si Jacob sa kanya, "<i class="trans-change">Hindi ako nagpaalam sa iyo_ dahil natatakot ako na baka pilitin nʼyong bawiin sa akin ang mga anak mo. 
+Sumagot si Jacob sa kanya, "Hindi ako nagpaalam sa iyo_ dahil natatakot ako na baka pilitin nʼyong bawiin sa akin ang mga anak mo. 
 
 
 
@@ -999,7 +999,7 @@ Sumagot si Jacob sa kanya, "<i class="trans-change">Hindi ako nagpaalam sa iyo_ 
 
 
 
-Pero kung tungkol sa mga nawawala ninyong dios-diosan, kapag nakita nʼyo ito sa kahit sino sa amin, parurusahan siya ng kamatayan. Sa harapan ng mga kamag-anak natin bilang mga saksi, tingnan nʼyo kung may pag-aari po kayo rito na nasa amin, at kung mayroon ay kunin <i class="trans-change">nʼyo_." Hindi alam ni Jacob na si Raquel pala ang kumuha ng mga dios-diosan ni Laban. 
+Pero kung tungkol sa mga nawawala ninyong dios-diosan, kapag nakita nʼyo ito sa kahit sino sa amin, parurusahan siya ng kamatayan. Sa harapan ng mga kamag-anak natin bilang mga saksi, tingnan nʼyo kung may pag-aari po kayo rito na nasa amin, at kung mayroon ay kunin nʼyo_." Hindi alam ni Jacob na si Raquel pala ang kumuha ng mga dios-diosan ni Laban. 
 
 
 

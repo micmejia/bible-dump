@@ -106,7 +106,7 @@ At doon ay nakita ko na dumarating mula sa silangan ang makapangyarihang presens
 
 
 
-Ang pangitaing ito ay katulad din ng pangitaing nakita ko noong winasak ng Dios ang lungsod <i class="trans-change">ng Jerusalem_, at tulad din ng pangitaing nakita ko sa pampang ng Ilog ng Kebar. <i class="trans-change">Nang makita ko ito_, nagpatirapa ako sa lupa. 
+Ang pangitaing ito ay katulad din ng pangitaing nakita ko noong winasak ng Dios ang lungsod ng Jerusalem_, at tulad din ng pangitaing nakita ko sa pampang ng Ilog ng Kebar. Nang makita ko ito_, nagpatirapa ako sa lupa. 
 
 
 
@@ -337,7 +337,7 @@ Ngayoʼy kinakailangan na silang tumigil sa pagsamba sa mga dios-diosan at sa mg
 
 
 
-<i class="trans-change">Sinabi pa ng tinig_, "Anak ng tao, ilarawan mo sa mga mamamayan ng Israel ang templo <i class="trans-change">na ipinakita ko sa iyo_. Sabihin mo sa kanila ang anyo nito upang mapahiya sila dahil sa mga kasalanan nila. 
+Sinabi pa ng tinig_, "Anak ng tao, ilarawan mo sa mga mamamayan ng Israel ang templo na ipinakita ko sa iyo_. Sabihin mo sa kanila ang anyo nito upang mapahiya sila dahil sa mga kasalanan nila. 
 
 
 
@@ -403,7 +403,7 @@ Kapag napahiya na sila sa lahat ng ginawa nila, ilarawan mo sa kanila kung paano
 
 
 
-At ito ang <i class="trans-change">pangunahing_ kautusan tungkol sa templo: Ituring ninyong banal ang lahat ng lugar sa paligid ng bundok doon sa itaas na pagtatayuan ng templo.
+At ito ang pangunahing_ kautusan tungkol sa templo: Ituring ninyong banal ang lahat ng lugar sa paligid ng bundok doon sa itaas na pagtatayuan ng templo.
 
 ## Ang Altar 
 
@@ -438,7 +438,7 @@ At ito ang <i class="trans-change">pangunahing_ kautusan tungkol sa templo: Itur
 
 
 
-"Ito ang sukat ng altar ayon sa umiiral na panukat: Sa paligid ng altar ay gagawa kayo ng parang kanal na 20 pulgada ang luwang at 20 pulgada rin ang lalim at may sinepa sa paligid na anim na pulgada ang kapal. <sup class="versenum">14-17</sup><i class="trans-change">May tatlong palapag ang altar_ na parisukat lahat. Ang ibabang palapag ay 27 talampakan ang haba at luwang. Ang taas naman ay tatlong talampakan. Ang gitnang palapag ay 24 na talampakan ang haba at luwang at pitong talampakan naman ang taas. May kanal sa paligid nito na 20 pulgada ang lalim, at may sinepa sa palibot na sampung pulgada ang luwang. Ang palapag sa itaas ay 20 talampakan ang haba at luwang at pitong talampakan naman ang taas. Dito sinusunog ang mga handog. Ang apat na sulok ng altar ay may parang mga sungay ng hayop. Ang hagdan ng altar ay nasa gawing silangan." 
+"Ito ang sukat ng altar ayon sa umiiral na panukat: Sa paligid ng altar ay gagawa kayo ng parang kanal na 20 pulgada ang luwang at 20 pulgada rin ang lalim at may sinepa sa paligid na anim na pulgada ang kapal. 14-17May tatlong palapag ang altar_ na parisukat lahat. Ang ibabang palapag ay 27 talampakan ang haba at luwang. Ang taas naman ay tatlong talampakan. Ang gitnang palapag ay 24 na talampakan ang haba at luwang at pitong talampakan naman ang taas. May kanal sa paligid nito na 20 pulgada ang lalim, at may sinepa sa palibot na sampung pulgada ang luwang. Ang palapag sa itaas ay 20 talampakan ang haba at luwang at pitong talampakan naman ang taas. Dito sinusunog ang mga handog. Ang apat na sulok ng altar ay may parang mga sungay ng hayop. Ang hagdan ng altar ay nasa gawing silangan." 
 
 
 
@@ -768,4 +768,4 @@ Sa ganitong paraan, malilinis ang altar at maaari nang gamitin pagkatapos.
 
 
 
-At mula sa ikawalong araw, maghahandog na ang mga pari ng inyong mga handog na sinusunog at mga handog para sa mabuting relasyon. At tatanggapin ko kayo. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito."
+At mula sa ikawalong araw, maghahandog na ang mga pari ng inyong mga handog na sinusunog at mga handog para sa mabuting relasyon. At tatanggapin ko kayo. Ako,_ ang Panginoong Dios, ang nagsasabi nito."

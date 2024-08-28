@@ -7,7 +7,7 @@ next: ['Jer 31']
 # Jeremiah 30
 
 ***
-###### 1-2 Sinabi ng Panginoon kay Jeremias, "<i class="trans-change">Ako,_ ang Panginoon, ang Dios ng Israel ay nagsasabing, isulat mo sa aklat ang lahat ng sinabi ko sa iyo. 
+###### 1-2 Sinabi ng Panginoon kay Jeremias, "Ako,_ ang Panginoon, ang Dios ng Israel ay nagsasabing, isulat mo sa aklat ang lahat ng sinabi ko sa iyo. 
 
 
 
@@ -139,7 +139,7 @@ Lubhang nakakatakot kapag dumating na ang araw na iyon, at wala itong katulad. P
 
 
 
-<i class="trans-change">Ako,_ ang Panginoong Makapangyarihan, ay nagsasabing sa panahong iyon, hindi na sila aalipinin ng mga taga-ibang bansa. Babaliin ko na ang pamatok sa mga leeg nila at tatanggalin ko na ang mga kadena nila. 
+Ako,_ ang Panginoong Makapangyarihan, ay nagsasabing sa panahong iyon, hindi na sila aalipinin ng mga taga-ibang bansa. Babaliin ko na ang pamatok sa mga leeg nila at tatanggalin ko na ang mga kadena nila. 
 
 
 
@@ -172,7 +172,7 @@ Lubhang nakakatakot kapag dumating na ang araw na iyon, at wala itong katulad. P
 
 
 
-Maglilingkod na sila sa <i class="trans-change">akin, ang_ Panginoon nilang Dios, at hihirang ako ng hari nila mula sa angkan ni David. 
+Maglilingkod na sila sa akin, ang_ Panginoon nilang Dios, at hihirang ako ng hari nila mula sa angkan ni David. 
 
 
 
@@ -205,7 +205,7 @@ Maglilingkod na sila sa <i class="trans-change">akin, ang_ Panginoon nilang Dios
 
 
 
-"Kaya huwag kayong matatakot, o manlulupaypay man, kayong mga lahi ni Jacob na lingkod ko. <i class="trans-change">Ako,_ ang Panginoon, ay nagsasabing kukunin ko kayo mula riyan sa malayong lugar kung saan kayo binihag. Sa pagbabalik ninyo, mamumuhay na kayo nang payapa, tahimik, at walang kinatatakutan. 
+"Kaya huwag kayong matatakot, o manlulupaypay man, kayong mga lahi ni Jacob na lingkod ko. Ako,_ ang Panginoon, ay nagsasabing kukunin ko kayo mula riyan sa malayong lugar kung saan kayo binihag. Sa pagbabalik ninyo, mamumuhay na kayo nang payapa, tahimik, at walang kinatatakutan. 
 
 
 
@@ -238,7 +238,7 @@ Maglilingkod na sila sa <i class="trans-change">akin, ang_ Panginoon nilang Dios
 
 
 
-Kasama ninyo ako at ililigtas ko kayo. Lubusan kong wawasakin ang mga bansang pinangalatan ko sa inyo pero hindi ko ito gagawin sa inyo. Ngunit hindi rin ito nangangahulugang hindi ko kayo parurusahan. Didisiplinahin ko kayo nang nararapat." <sup class="versenum">12-13</sup>Sinabi pa ng Panginoon sa kanyang mga mamamayan, "Talagang malubha na ang inyong mga sugat at hindi na ito gagaling. Wala nang makakatulong o makakagamot sa inyo. Wala na ring gamot para sa inyo. 
+Kasama ninyo ako at ililigtas ko kayo. Lubusan kong wawasakin ang mga bansang pinangalatan ko sa inyo pero hindi ko ito gagawin sa inyo. Ngunit hindi rin ito nangangahulugang hindi ko kayo parurusahan. Didisiplinahin ko kayo nang nararapat." 12-13Sinabi pa ng Panginoon sa kanyang mga mamamayan, "Talagang malubha na ang inyong mga sugat at hindi na ito gagaling. Wala nang makakatulong o makakagamot sa inyo. Wala na ring gamot para sa inyo. 
 
 
 
@@ -370,7 +370,7 @@ Huwag kayong dadaing na hindi na gumagaling ang sugat ninyo. Pinarusahan ko kayo
 
 
 
-Ngunit gagamutin at pagagalingin ko ang mga sugat nʼyo kahit na sinasabi ng iba na kayong mga taga-Jerusalem ay itinakwil at pinabayaan. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito." 
+Ngunit gagamutin at pagagalingin ko ang mga sugat nʼyo kahit na sinasabi ng iba na kayong mga taga-Jerusalem ay itinakwil at pinabayaan. Ako,_ ang Panginoon, ang nagsasabi nito." 
 
 
 
@@ -502,7 +502,7 @@ Magiging maunlad ang kanilang mga anak katulad noong una. Patatatagin ko sila sa
 
 
 
-Ang mga pinuno nilaʼy magmumula rin sa kanila. Palalapitin ko siya sa akin, at siya naman ay lalapit. Sapagkat walang sinumang taong mangangahas na lumapit sa akin kung hindi ko siya palalapitin. <i class="trans-change">Ako,_ ang Panginoon, ay nagsasabing, 
+Ang mga pinuno nilaʼy magmumula rin sa kanila. Palalapitin ko siya sa akin, at siya naman ay lalapit. Sapagkat walang sinumang taong mangangahas na lumapit sa akin kung hindi ko siya palalapitin. Ako,_ ang Panginoon, ay nagsasabing, 
 
 
 

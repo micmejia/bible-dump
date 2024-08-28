@@ -436,7 +436,7 @@ Nang marinig ito ni Pilato, muli niyang sinikap na mapalaya si Jesus. Pero nagsi
 
 
 
-Nang marinig ito ni Pilato, inilabas niya si Jesus <i class="trans-change">sa palasyo_. Pagkatapos, umupo siya sa upuan ng tagahatol, sa lugar na kung tawagin ay "Batong Plataporma", (na sa <i class="trans-change">wikang_ Hebreo ay "Gabbata"). 
+Nang marinig ito ni Pilato, inilabas niya si Jesus sa palasyo_. Pagkatapos, umupo siya sa upuan ng tagahatol, sa lugar na kung tawagin ay "Batong Plataporma", (na sa wikang_ Hebreo ay "Gabbata"). 
 
 
 
@@ -570,7 +570,7 @@ Kaya ibinigay ni Pilato sa kanila si Jesus upang ipako sa krus.
 
 
 
-palabas ng lungsod. Ipinapasan nila kay Jesus ang kanyang krus papunta sa lugar na tinatawag na "Lugar ng Bungo" (na sa <i class="trans-change">wikang_ Hebreo ay Golgota). 
+palabas ng lungsod. Ipinapasan nila kay Jesus ang kanyang krus papunta sa lugar na tinatawag na "Lugar ng Bungo" (na sa wikang_ Hebreo ay Golgota). 
 
 
 
@@ -636,7 +636,7 @@ Doon nila ipinako sa krus si Jesus, kasama ng dalawa pa. Sa kanan ang isa at ang
 
 
 
-Pinalagyan ni Pilato ng karatula ang krus <i class="trans-change">ni Jesus_, at ganito ang nakasulat: "Si Jesus na taga-Nazaret, ang Hari ng mga Judio." 
+Pinalagyan ni Pilato ng karatula ang krus ni Jesus_, at ganito ang nakasulat: "Si Jesus na taga-Nazaret, ang Hari ng mga Judio." 
 
 
 
@@ -1036,7 +1036,7 @@ Nang masipsip na ni Jesus ang alak, sinabi niya, "Tapos na!" Iniyuko niya ang ka
 
 
 
-Bisperas na noon ng pista, at kinabukasan ay espesyal na Araw ng Pamamahinga. Dahil ayaw ng mga Judio na maiwan sa krus ang mga bangkay sa Araw ng Pamamahinga, hiniling nila kay Pilato na baliin ang mga binti ng mga nakapako <i class="trans-change">upang madali silang mamatay_, at nang maalis agad ang mga bangkay. 
+Bisperas na noon ng pista, at kinabukasan ay espesyal na Araw ng Pamamahinga. Dahil ayaw ng mga Judio na maiwan sa krus ang mga bangkay sa Araw ng Pamamahinga, hiniling nila kay Pilato na baliin ang mga binti ng mga nakapako upang madali silang mamatay_, at nang maalis agad ang mga bangkay. 
 
 
 
@@ -1267,7 +1267,7 @@ Sinasabi rin sa isa pang bahagi ng Kasulatan, "Pagmamasdan nila ang taong sinaks
 
 
 
-Pagkatapos nito, hiningi ni Jose na taga-Arimatea ang bangkay ni Jesus kay Pilato. (Si Jose ay isang tagasunod ni Jesus, ngunit palihim lang dahil natatakot siya sa mga <i class="trans-change">pinuno ng mga_ Judio.) Pinayagan siya ni Pilato, kaya pinuntahan niya ang bangkay ni Jesus para kunin ito. 
+Pagkatapos nito, hiningi ni Jose na taga-Arimatea ang bangkay ni Jesus kay Pilato. (Si Jose ay isang tagasunod ni Jesus, ngunit palihim lang dahil natatakot siya sa mga pinuno ng mga_ Judio.) Pinayagan siya ni Pilato, kaya pinuntahan niya ang bangkay ni Jesus para kunin ito. 
 
 
 

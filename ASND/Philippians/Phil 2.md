@@ -40,7 +40,7 @@ next: ['Phil 3']
 
 
 
-Hindi baʼt masigla kayo dahil nakay Cristo kayo? Hindi baʼt masaya kayo dahil alam ninyong mahal niya kayo? Hindi baʼt may mabuti kayong pagsasamahan dahil sa <i class="trans-change">Banal na_ Espiritu? At hindi baʼt may malasakit at pang-unawa kayo sa isaʼt isa? 
+Hindi baʼt masigla kayo dahil nakay Cristo kayo? Hindi baʼt masaya kayo dahil alam ninyong mahal niya kayo? Hindi baʼt may mabuti kayong pagsasamahan dahil sa Banal na_ Espiritu? At hindi baʼt may malasakit at pang-unawa kayo sa isaʼt isa? 
 
 
 
@@ -337,7 +337,7 @@ Kaya naman itinaas siyang lubos ng Dios at binigyan ng titulong higit sa lahat n
 
 
 
-upang ang lahat ng nasa langit at lupa, at nasa ilalim ng lupa ay luluhod <i class="trans-change">sa pagsamba_ sa kanya. 
+upang ang lahat ng nasa langit at lupa, at nasa ilalim ng lupa ay luluhod sa pagsamba_ sa kanya. 
 
 
 
@@ -405,7 +405,7 @@ At kikilalanin ng lahat na si Jesu-Cristo ang Panginoon, sa ikapupuri ng Dios Am
 
 
 
-Mga minamahal, kung paanong lagi ninyo akong sinusunod noong magkakasama pa tayo, lalo sana kayong maging masunurin kahit ngayong malayo na ako sa inyo. Sikapin ninyong ipamuhay ang kaligtasang tinanggap nʼyo, <i class="trans-change">at gawin nʼyo ito_ nang may takot at paggalang <i class="trans-change">sa Dios_. 
+Mga minamahal, kung paanong lagi ninyo akong sinusunod noong magkakasama pa tayo, lalo sana kayong maging masunurin kahit ngayong malayo na ako sa inyo. Sikapin ninyong ipamuhay ang kaligtasang tinanggap nʼyo, at gawin nʼyo ito_ nang may takot at paggalang sa Dios_. 
 
 
 
@@ -504,7 +504,7 @@ Gawin nʼyo ang lahat nang walang reklamo o pagtatalo,
 
 
 
-para maging malinis kayo at walang kapintasang mga anak ng Dios sa gitna ng mga mapanlinlang at masasamang <i class="trans-change">tao_ sa panahong ito. Kailangang magsilbi kayong ilaw na nagliliwanag sa kanila 
+para maging malinis kayo at walang kapintasang mga anak ng Dios sa gitna ng mga mapanlinlang at masasamang tao_ sa panahong ito. Kailangang magsilbi kayong ilaw na nagliliwanag sa kanila 
 
 
 
@@ -537,7 +537,7 @@ para maging malinis kayo at walang kapintasang mga anak ng Dios sa gitna ng mga 
 
 
 
-habang pinaninindigan nʼyo ang salita na nagbibigay ng buhay <i class="trans-change">na walang hanggan_. At kung gagawin nʼyo ito, may maipagmamalaki ako sa pagbabalik ni Cristo, dahil alam kong hindi nasayang ang pagsisikap ko sa inyo. 
+habang pinaninindigan nʼyo ang salita na nagbibigay ng buhay na walang hanggan_. At kung gagawin nʼyo ito, may maipagmamalaki ako sa pagbabalik ni Cristo, dahil alam kong hindi nasayang ang pagsisikap ko sa inyo. 
 
 
 
@@ -836,7 +836,7 @@ At umaasa ako sa Panginoon na ako mismo ay makakapunta sa inyo sa lalong madalin
 
 
 
-Sa ngayon, naisip kong kailangan nang pabalikin ang kapatid nating si Epafroditus na pinapunta nʼyo rito para tulungan ako. Tulad ko rin siyang manggagawa at tagapagtanggol <i class="trans-change">ng Magandang Balita_. 
+Sa ngayon, naisip kong kailangan nang pabalikin ang kapatid nating si Epafroditus na pinapunta nʼyo rito para tulungan ako. Tulad ko rin siyang manggagawa at tagapagtanggol ng Magandang Balita_. 
 
 
 
@@ -869,7 +869,7 @@ Sa ngayon, naisip kong kailangan nang pabalikin ang kapatid nating si Epafroditu
 
 
 
-<i class="trans-change">Pababalikin ko na siya sa inyo_ dahil sabik na sabik na siyang makita kayo, at hindi siya mapalagay dahil nabalitaan ninyong nagkasakit siya. 
+Pababalikin ko na siya sa inyo_ dahil sabik na sabik na siyang makita kayo, at hindi siya mapalagay dahil nabalitaan ninyong nagkasakit siya. 
 
 
 
@@ -902,7 +902,7 @@ Sa ngayon, naisip kong kailangan nang pabalikin ang kapatid nating si Epafroditu
 
 
 
-Totoo ngang nagkasakit siya, at muntik nang mamatay. Ngunit naawa ang Dios sa kanya at maging sa akin, dahil <i class="trans-change">pinagaling siya at_ naligtas naman ako sa matinding kalungkutan. 
+Totoo ngang nagkasakit siya, at muntik nang mamatay. Ngunit naawa ang Dios sa kanya at maging sa akin, dahil pinagaling siya at_ naligtas naman ako sa matinding kalungkutan. 
 
 
 
@@ -935,7 +935,7 @@ Totoo ngang nagkasakit siya, at muntik nang mamatay. Ngunit naawa ang Dios sa ka
 
 
 
-Kaya gusto ko na siyang pabalikin para matuwa kayo kapag nakita nʼyo na siya ulit, at hindi na rin ako mag-aalala <i class="trans-change">para sa inyo_. 
+Kaya gusto ko na siyang pabalikin para matuwa kayo kapag nakita nʼyo na siya ulit, at hindi na rin ako mag-aalala para sa inyo_. 
 
 
 

@@ -403,7 +403,7 @@ Sapagkat ang kanilang makapangyarihang tagapagtanggol ay ang Panginoon. Siya ang
 
 
 
-Makinig ka kapag itinutuwid ang iyong pag-uugali upang ikaw ay matuto. <sup class="versenum">13-14</sup>Huwag kang magpapabaya sa pagdidisiplina sa iyong anak. Ang tamang pagpalo ay hindi niya ikamamatay kundi makapagliligtas pa sa kanya sa kamatayan. <sup class="versenum">15-16</sup>Anak, matutuwa ako kung magiging matalino ka at karunungan ang mamumutawi sa iyong mga labi. 
+Makinig ka kapag itinutuwid ang iyong pag-uugali upang ikaw ay matuto. 13-14Huwag kang magpapabaya sa pagdidisiplina sa iyong anak. Ang tamang pagpalo ay hindi niya ikamamatay kundi makapagliligtas pa sa kanya sa kamatayan. 15-16Anak, matutuwa ako kung magiging matalino ka at karunungan ang mamumutawi sa iyong mga labi. 
 
 
 
@@ -502,7 +502,7 @@ At kung magkagayon ay gaganda ang kinabukasan mo at mapapasaiyo ang mga hinahang
 
 
 
-Anak, pakinggan mo ang itinuturo ko sa iyo. Maging matalino ka at sundin mo ang tamang daan. <sup class="versenum">20-21</sup>Huwag kang gumaya sa mga lasenggo at matakaw sa pagkain, dahil ang gaya nila ay hahantong sa kahirapan. Tulog lang sila ng tulog, kaya sa bandang huli ay magdadamit na lang sila ng basahan. 
+Anak, pakinggan mo ang itinuturo ko sa iyo. Maging matalino ka at sundin mo ang tamang daan. 20-21Huwag kang gumaya sa mga lasenggo at matakaw sa pagkain, dahil ang gaya nila ay hahantong sa kahirapan. Tulog lang sila ng tulog, kaya sa bandang huli ay magdadamit na lang sila ng basahan. 
 
 
 
@@ -568,7 +568,7 @@ Makinig ka sa iyong mga magulang sapagkat kung hindi dahil sa kanila, hindi ka n
 
 
 
-Pagsikapan mong mapasaiyo ang katotohanan, karunungan, magandang pag-uugali at pang-unawa. At huwag mo itong ipagpapalit sa kahit anumang bagay. <sup class="versenum">24-25</sup>Matutuwa ang iyong mga magulang kung matuwid ka at matalino. Ikaliligaya nila na sila ang naging iyong ama at ina. 
+Pagsikapan mong mapasaiyo ang katotohanan, karunungan, magandang pag-uugali at pang-unawa. At huwag mo itong ipagpapalit sa kahit anumang bagay. 24-25Matutuwa ang iyong mga magulang kung matuwid ka at matalino. Ikaliligaya nila na sila ang naging iyong ama at ina. 
 
 
 
@@ -634,7 +634,7 @@ Anak, makinig kang mabuti sa akin at tularan mo ang aking pamumuhay.
 
 
 
-Sapagkat ang babaeng bayaran ay <i class="trans-change">makapagpapahamak sa iyo_ katulad ng malalim at makitid na hukay. 
+Sapagkat ang babaeng bayaran ay makapagpapahamak sa iyo_ katulad ng malalim at makitid na hukay. 
 
 
 
@@ -799,7 +799,7 @@ Huwag kang matakam sa alak na napakagandang tingnan sa isang baso at tila masara
 
 
 
-Kapag nalasing ka, <i class="trans-change">sasama ang iyong pakiramdam na_ parang tinuklaw ka ng makamandag na ahas. 
+Kapag nalasing ka, sasama ang iyong pakiramdam na_ parang tinuklaw ka ng makamandag na ahas. 
 
 
 

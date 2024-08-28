@@ -240,7 +240,7 @@ Nagalit si David dahil biglang pinarusahan ng Panginoon si Uza. Ito ang dahilan 
 
 
 
-Nang araw na iyon, natakot si David sa Panginoon at sinabi niya, "Paano madadala <i class="trans-change">sa lungsod_ ko ang Kahon ng Kasunduan ng Panginoon?" 
+Nang araw na iyon, natakot si David sa Panginoon at sinabi niya, "Paano madadala sa lungsod_ ko ang Kahon ng Kasunduan ng Panginoon?" 
 
 
 
@@ -372,7 +372,7 @@ Ngayon, nabalitaan ni Haring David na pinagpala ng Panginoon ang sambahayan ni O
 
 
 
-Nang makaanim na hakbang na ang mga nagbubuhat ng Kahon ng Panginoon, <i class="trans-change">pinahinto sila ni David_ at naghandog siya ng isang toro at isang pinatabang guya. 
+Nang makaanim na hakbang na ang mga nagbubuhat ng Kahon ng Panginoon, pinahinto sila ni David_ at naghandog siya ng isang toro at isang pinatabang guya. 
 
 
 
@@ -405,7 +405,7 @@ Nang makaanim na hakbang na ang mga nagbubuhat ng Kahon ng Panginoon, <i class="
 
 
 
-At sumayaw si David nang buong sigla sa presensya ng Panginoon na nakasuot ng espesyal na damit na <i class="trans-change">gawa sa telang_ linen. 
+At sumayaw si David nang buong sigla sa presensya ng Panginoon na nakasuot ng espesyal na damit na gawa sa telang_ linen. 
 
 
 
@@ -669,7 +669,7 @@ Sinabi ni David kay Mical, "Ginawa ko iyon sa presensya ng Panginoon na pumili s
 
 
 
-At kahit na nakakahiya pa ang gagawin ko <i class="trans-change">para sa pagdiriwang ng Panginoon,_ gagawin ko pa rin ito. Kahiya-hiya ako sa paningin mo pero marangal ako sa paningin ng mga babaeng alipin na sinasabi mo." 
+At kahit na nakakahiya pa ang gagawin ko para sa pagdiriwang ng Panginoon,_ gagawin ko pa rin ito. Kahiya-hiya ako sa paningin mo pero marangal ako sa paningin ng mga babaeng alipin na sinasabi mo." 
 
 
 

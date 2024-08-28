@@ -40,7 +40,7 @@ next: ['Isa 10']
 
 
 
-Pero darating ang araw na mawawala rin ang kadiliman sa <i class="trans-change">lupaing_ nasa kahirapan. Noong una, inilagay ng Panginoon sa kahihiyan ang lupain ng Zebulun at Naftali. Pero darating ang araw na pararangalan niya ang mga lugar na ito na daanan patungo sa lawa at nasa kabila ng <i class="trans-change">Ilog ng_ Jordan. Ang mga lugar na itoʼy sakop ng Galilea at tinitirhan ng mga hindi Judio. 
+Pero darating ang araw na mawawala rin ang kadiliman sa lupaing_ nasa kahirapan. Noong una, inilagay ng Panginoon sa kahihiyan ang lupain ng Zebulun at Naftali. Pero darating ang araw na pararangalan niya ang mga lugar na ito na daanan patungo sa lawa at nasa kabila ng Ilog ng_ Jordan. Ang mga lugar na itoʼy sakop ng Galilea at tinitirhan ng mga hindi Judio. 
 
 
 
@@ -106,7 +106,7 @@ Nabubuhay sa kadiliman ang mga tao roon, ngunit makakakita sila ng matinding liw
 
 
 
-<i class="trans-change">Panginoon,_ bigyan nʼyo po sila ng malaking kagalakan, at matutuwa sila sa presensya nʼyo katulad ng mga taong natutuwa kapag panahon na ng anihan, o katulad din ng mga taong nagdiriwang sa paghahati-hati nila ng mga nasamsam sa digmaan. 
+Panginoon,_ bigyan nʼyo po sila ng malaking kagalakan, at matutuwa sila sa presensya nʼyo katulad ng mga taong natutuwa kapag panahon na ng anihan, o katulad din ng mga taong nagdiriwang sa paghahati-hati nila ng mga nasamsam sa digmaan. 
 
 
 
@@ -172,7 +172,7 @@ Sapagkat palalayain nʼyo sila sa mga umaapi sa kanila. Magiging katulad sila ng
 
 
 
-<i class="trans-change">Matutuwa sila_ dahil <i class="trans-change">matitigil na ang mga digmaan_. Susunugin na ang mga uniporme ng mga sundalo na puno ng dugo, pati ang kanilang mga bota. 
+Matutuwa sila_ dahil matitigil na ang mga digmaan_. Susunugin na ang mga uniporme ng mga sundalo na puno ng dugo, pati ang kanilang mga bota. 
 
 
 
@@ -372,7 +372,7 @@ At alam ito ng lahat ng tao sa Israel, pati ng mga nasa Samaria na kabisera nito
 
 
 
-Kaya ipapasalakay sila ng Panginoon sa mga taga-Asiria na kaaway ni <i class="trans-change">Haring_ Rezin. 
+Kaya ipapasalakay sila ng Panginoon sa mga taga-Asiria na kaaway ni Haring_ Rezin. 
 
 
 
@@ -405,7 +405,7 @@ Kaya ipapasalakay sila ng Panginoon sa mga taga-Asiria na kaaway ni <i class="tr
 
 
 
-Ang Israel ay wawasakin ng mga taga-Aram sa gawing silangan, at ng mga Filisteo sa gawing kanluran, <i class="trans-change">tulad ng mabangis na hayop_ na sisila sa kanila. Pero hindi pa napapawi ang galit ng Panginoon, kaya nakahanda pa siyang magparusa sa kanila. 
+Ang Israel ay wawasakin ng mga taga-Aram sa gawing silangan, at ng mga Filisteo sa gawing kanluran, tulad ng mabangis na hayop_ na sisila sa kanila. Pero hindi pa napapawi ang galit ng Panginoon, kaya nakahanda pa siyang magparusa sa kanila. 
 
 
 

@@ -40,7 +40,7 @@ next: ['Luke 9']
 
 
 
-Pagkatapos, nilibot ni Jesus ang mga bayan at mga nayon <i class="trans-change">ng Galilea_. Nangaral siya ng Magandang Balita tungkol sa paghahari ng Dios. Kasama niya ang 12 <i class="trans-change">apostol_ 
+Pagkatapos, nilibot ni Jesus ang mga bayan at mga nayon ng Galilea_. Nangaral siya ng Magandang Balita tungkol sa paghahari ng Dios. Kasama niya ang 12 apostol_ 
 
 
 
@@ -372,7 +372,7 @@ Sumagot si Jesus, "Ipinagkaloob sa inyo na malaman ang mga lihim tungkol sa pagh
 
 
 
-<i class="trans-change">Isinalaysay ni Jesus_ kung ano ang kahulugan ng talinghaga na iyon: "Ang binhi ay ang salita ng Dios. 
+Isinalaysay ni Jesus_ kung ano ang kahulugan ng talinghaga na iyon: "Ang binhi ay ang salita ng Dios. 
 
 
 
@@ -405,7 +405,7 @@ Sumagot si Jesus, "Ipinagkaloob sa inyo na malaman ang mga lihim tungkol sa pagh
 
 
 
-Ang tabi ng daan, kung saan nahulog ang ilang binhi ay ang mga taong nakinig <i class="trans-change">ng salita ng Dios_, ngunit dumating ang diyablo at kinuha iyon sa mga puso nila upang hindi sila sumampalataya at maligtas. 
+Ang tabi ng daan, kung saan nahulog ang ilang binhi ay ang mga taong nakinig ng salita ng Dios_, ngunit dumating ang diyablo at kinuha iyon sa mga puso nila upang hindi sila sumampalataya at maligtas. 
 
 
 
@@ -438,7 +438,7 @@ Ang tabi ng daan, kung saan nahulog ang ilang binhi ay ang mga taong nakinig <i 
 
 
 
-Ang mabatong lugar, kung saan nahulog ang ibang binhi ay ang mga taong nakinig <i class="trans-change">ng salita ng Dios_ at masaya itong tinanggap. Ngunit hindi taimtim sa puso nila ang pagtanggap, kaya hindi tumagal ang kanilang pananampalataya. Pagdating ng mga pagsubok ay agad silang tumatalikod sa kanilang pananampalataya. 
+Ang mabatong lugar, kung saan nahulog ang ibang binhi ay ang mga taong nakinig ng salita ng Dios_ at masaya itong tinanggap. Ngunit hindi taimtim sa puso nila ang pagtanggap, kaya hindi tumagal ang kanilang pananampalataya. Pagdating ng mga pagsubok ay agad silang tumatalikod sa kanilang pananampalataya. 
 
 
 
@@ -471,7 +471,7 @@ Ang mabatong lugar, kung saan nahulog ang ibang binhi ay ang mga taong nakinig <
 
 
 
-Ang lupang may matitinik na damo, kung saan nahulog ang iba pang binhi ay ang mga taong nakinig <i class="trans-change">ng salita ng Dios_. Ngunit sa katagalan, nadaig sila ng mga alalahanin sa buhay, kayamanan at kalayawan sa mundong ito. Kaya hindi sila lumago at hindi namunga. 
+Ang lupang may matitinik na damo, kung saan nahulog ang iba pang binhi ay ang mga taong nakinig ng salita ng Dios_. Ngunit sa katagalan, nadaig sila ng mga alalahanin sa buhay, kayamanan at kalayawan sa mundong ito. Kaya hindi sila lumago at hindi namunga. 
 
 
 
@@ -504,7 +504,7 @@ Ang lupang may matitinik na damo, kung saan nahulog ang iba pang binhi ay ang mg
 
 
 
-Ngunit ang mabuting lupang hinasikan ng binhi ay ang mga taong nakikinig sa salita <i class="trans-change">ng Dios_, at iniingatan ito sa kanilang malinis at tapat na puso, at pinagsisikapang sundin hanggang sa silaʼy mamunga." ## Ang Aral Mula sa Ilaw 
+Ngunit ang mabuting lupang hinasikan ng binhi ay ang mga taong nakikinig sa salita ng Dios_, at iniingatan ito sa kanilang malinis at tapat na puso, at pinagsisikapang sundin hanggang sa silaʼy mamunga." ## Ang Aral Mula sa Ilaw 
 
 
 
@@ -537,7 +537,7 @@ Ngunit ang mabuting lupang hinasikan ng binhi ay ang mga taong nakikinig sa sali
 
 
 
-<i class="trans-change">Sinabi pa ni Jesus,_ "Walang taong nagsisindi ng ilaw at pagkatapos ay tatakpan ng palayok o ilalagay sa ilalim ng higaan. Sa halip, inilalagay ang ilaw sa patungan para magbigay-liwanag sa lahat ng pumapasok sa bahay. 
+Sinabi pa ni Jesus,_ "Walang taong nagsisindi ng ilaw at pagkatapos ay tatakpan ng palayok o ilalagay sa ilalim ng higaan. Sa halip, inilalagay ang ilaw sa patungan para magbigay-liwanag sa lahat ng pumapasok sa bahay. 
 
 
 
@@ -801,7 +801,7 @@ Nang naglalayag na sila, nakatulog si Jesus. Maya-mayaʼy lumakas ang hangin at 
 
 
 
-Nilapitan si Jesus ng mga tagasunod niya at ginising, "Guro! Guro! Lulubog na tayo!" Bumangon si Jesus at pinatigil ang <i class="trans-change">malakas na_ hangin at ang malalaking alon. Tumigil ang mga ito at biglang kumalma ang panahon. 
+Nilapitan si Jesus ng mga tagasunod niya at ginising, "Guro! Guro! Lulubog na tayo!" Bumangon si Jesus at pinatigil ang malakas na_ hangin at ang malalaking alon. Tumigil ang mga ito at biglang kumalma ang panahon. 
 
 
 
@@ -900,7 +900,7 @@ Nagpatuloy sila sa paglalayag hanggang sa makarating sila sa lupain ng mga Geras
 
 
 
-Pagkababa ni Jesus sa bangka, sinalubong siya ng isang lalaking taga-roon na sinasaniban ng masasamang espiritu. Matagal na itong walang suot na damit at ayaw tumira sa bahay kundi sa mga <i class="trans-change">kwebang_ libingan. 
+Pagkababa ni Jesus sa bangka, sinalubong siya ng isang lalaking taga-roon na sinasaniban ng masasamang espiritu. Matagal na itong walang suot na damit at ayaw tumira sa bahay kundi sa mga kwebang_ libingan. 
 
 
 
@@ -1032,7 +1032,7 @@ Tinanong siya ni Jesus, "Ano ang pangalan mo?" Sagot niya, "Kawan," dahil marami
 
 
 
-Nagmakaawa ang masasamang espiritu kay Jesus na huwag silang papuntahin sa kailaliman <i class="trans-change">at parusahan doon_. 
+Nagmakaawa ang masasamang espiritu kay Jesus na huwag silang papuntahin sa kailaliman at parusahan doon_. 
 
 
 
@@ -1397,7 +1397,7 @@ Dumating naman ang isang lalaking namumuno sa sambahan ng mga Judio, na ang pang
 
 
 
-dahil naghihingalo ang kaisa-isa niyang anak na babae na 12 taong gulang. Habang papunta si Jesus <i class="trans-change">sa bahay ni Jairus_, nagsisiksikan sa kanya ang mga tao. 
+dahil naghihingalo ang kaisa-isa niyang anak na babae na 12 taong gulang. Habang papunta si Jesus sa bahay ni Jairus_, nagsisiksikan sa kanya ang mga tao. 
 
 
 
@@ -1562,7 +1562,7 @@ Pero sinabi ni Jesus, "May humipo sa akin, dahil naramdaman kong may kapangyarih
 
 
 
-Nang malaman ng babae na hindi pala lihim <i class="trans-change">kay Jesus_ ang ginawa niya, lumapit siyang nanginginig <i class="trans-change">sa takot_ at lumuhod sa harap ni Jesus. Pagkatapos, sinabi niya sa harapan ng lahat kung bakit niya hinipo si Jesus, at kung paanong gumaling siya kaagad. 
+Nang malaman ng babae na hindi pala lihim kay Jesus_ ang ginawa niya, lumapit siyang nanginginig sa takot_ at lumuhod sa harap ni Jesus. Pagkatapos, sinabi niya sa harapan ng lahat kung bakit niya hinipo si Jesus, at kung paanong gumaling siya kaagad. 
 
 
 
@@ -1628,7 +1628,7 @@ Sinabi sa kanya ni Jesus, "Anak, pinagaling ka ng iyong pananampalataya. Umuwi k
 
 
 
-Habang kausap pa ni Jesus ang babae, dumating ang isang lalaki galing sa bahay ni Jairus. Sinabi niya <i class="trans-change">kay Jairus_, "Patay na po ang anak ninyo. Huwag nʼyo nang abalahin ang guro." 
+Habang kausap pa ni Jesus ang babae, dumating ang isang lalaki galing sa bahay ni Jairus. Sinabi niya kay Jairus_, "Patay na po ang anak ninyo. Huwag nʼyo nang abalahin ang guro." 
 
 
 

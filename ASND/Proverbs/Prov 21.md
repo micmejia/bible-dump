@@ -205,7 +205,7 @@ Ang gawaing plinanong mabuti at pinagsikapan ay patungo sa kaunlaran, ngunit ang
 
 
 
-Ang kayamanang nakuha sa pandaraya ay madaling mawala at maaaring humantong sa <i class="trans-change">maagang_ kamatayan. 
+Ang kayamanang nakuha sa pandaraya ay madaling mawala at maaaring humantong sa maagang_ kamatayan. 
 
 
 
@@ -634,7 +634,7 @@ Pinarurusahan ang masasama at makasalanan upang iligtas ang taong matuwid.
 
 
 
-Mas mabuti pang manirahan sa disyerto kaysa manirahan <i class="trans-change">sa bahay_ na kasama ang asawang magagalitin at palaaway. 
+Mas mabuti pang manirahan sa disyerto kaysa manirahan sa bahay_ na kasama ang asawang magagalitin at palaaway. 
 
 
 
@@ -898,7 +898,7 @@ Ang taong tamad ay laging naghahangad na makatanggap, ngunit ang taong matuwid a
 
 
 
-Kinasusuklaman <i class="trans-change">ng Panginoon_ ang handog ng taong masama, lalo na kung ihahandog niya ito ng may layuning masama. 
+Kinasusuklaman ng Panginoon_ ang handog ng taong masama, lalo na kung ihahandog niya ito ng may layuning masama. 
 
 
 

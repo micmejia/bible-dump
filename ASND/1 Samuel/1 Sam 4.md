@@ -108,7 +108,7 @@ Sinugod ng mga Filisteo ang mga Israelita at tinalo ang mga ito; 4,000 Israelita
 
 
 
-<i class="trans-change">Pagkatapos ng digmaan,_ bumalik ang mga natirang Israelita sa kampo nila. Tinanong sila ng mga tagapamahala ng Israel, "Bakit hinayaan ng Panginoon na matalo tayo ng mga Filisteo? Mabuti pa sigurong kunin natin ang Kahon ng Kasunduan sa Shilo para samahan tayo ng Panginoon at iligtas tayo sa mga kalaban natin." 
+Pagkatapos ng digmaan,_ bumalik ang mga natirang Israelita sa kampo nila. Tinanong sila ng mga tagapamahala ng Israel, "Bakit hinayaan ng Panginoon na matalo tayo ng mga Filisteo? Mabuti pa sigurong kunin natin ang Kahon ng Kasunduan sa Shilo para samahan tayo ng Panginoon at iligtas tayo sa mga kalaban natin." 
 
 
 
@@ -407,7 +407,7 @@ Naagaw ng mga Filisteo ang Kahon ng Kasunduan at napatay ang dalawang anak ni El
 
 
 
-Nang araw ding iyon, may isang tao mula sa lahi ni Benjamin na tumatakbo galing sa digmaan papunta sa Shilo. Pinunit niya ang kanyang damit at nilagyan ng abo ang kanyang ulo <i class="trans-change">bilang tanda ng pagluluksa_. <sup class="versenum">13-15</sup>Pagdating niya sa Shilo, nakaupo si Eli sa upuan na nasa gilid ng daan at nagbabantay dahil nag-aalala siya para sa Kahon ng Dios. Si Eli ay 98 taon na noon at halos hindi na nakakakita. Ibinalita ng tao ang nangyaring digmaan sa bayan. Nang marinig ito ng mga tao, nag-iyakan sila. Narinig ito ni Eli at nagtanong siya, "Bakit umiiyak ang mga tao?" Dali-daling lumapit sa kanya ang tao, 
+Nang araw ding iyon, may isang tao mula sa lahi ni Benjamin na tumatakbo galing sa digmaan papunta sa Shilo. Pinunit niya ang kanyang damit at nilagyan ng abo ang kanyang ulo bilang tanda ng pagluluksa_. 13-15Pagdating niya sa Shilo, nakaupo si Eli sa upuan na nasa gilid ng daan at nagbabantay dahil nag-aalala siya para sa Kahon ng Dios. Si Eli ay 98 taon na noon at halos hindi na nakakakita. Ibinalita ng tao ang nangyaring digmaan sa bayan. Nang marinig ito ng mga tao, nag-iyakan sila. Narinig ito ni Eli at nagtanong siya, "Bakit umiiyak ang mga tao?" Dali-daling lumapit sa kanya ang tao, 
 
 
 
@@ -572,4 +572,4 @@ Nang panahon ding iyon, kabuwanan ng manugang ni Eli na asawa ni Finehas. Nang m
 
 
 
-Nang nag-aagaw buhay na siya, sinabi sa kanya ng mga manghihilot, "Lakasan mo ang loob mo. Lalaki ang anak mo." Pero hindi na siya sumagot. <sup class="versenum">21-22</sup><i class="trans-change">Bago siya namatay_, Icabod ang ipinangalan niya sa bata, dahil sinabi niya, "Wala na ang makapangyarihang presensya <i class="trans-change">ng Dios_ sa Israel." Sinabi niya ito dahil naagaw ang Kahon ng Dios at napatay ang asawa niya at biyenan niyang lalaki.
+Nang nag-aagaw buhay na siya, sinabi sa kanya ng mga manghihilot, "Lakasan mo ang loob mo. Lalaki ang anak mo." Pero hindi na siya sumagot. 21-22Bago siya namatay_, Icabod ang ipinangalan niya sa bata, dahil sinabi niya, "Wala na ang makapangyarihang presensya ng Dios_ sa Israel." Sinabi niya ito dahil naagaw ang Kahon ng Dios at napatay ang asawa niya at biyenan niyang lalaki.

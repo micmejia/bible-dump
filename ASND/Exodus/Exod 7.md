@@ -471,7 +471,7 @@ Pero nagmatigas pa rin ang puso ng Faraon at hindi siya nakinig kina Moises at A
 
 
 
-Sinabi ng Panginoon kay Moises, "Matigas pa rin ang puso ng Faraon; hindi niya pinaalis ang mga mamamayan <i class="trans-change">ng Israel_. 
+Sinabi ng Panginoon kay Moises, "Matigas pa rin ang puso ng Faraon; hindi niya pinaalis ang mga mamamayan ng Israel_. 
 
 
 
@@ -570,7 +570,7 @@ Sabihin mo sa kanya, 'Inutusan po ako ng Panginoon, ang Dios ng mga Hebreo, na s
 
 
 
-<i class="trans-change">Ako_, ang Panginoon ay nagsasabing, sa pamamagitan ng gagawin ko, malalaman mo na ako ang Panginoon. Sa pamamagitan ng bastong ito, hahampasin ko ang tubig ng Nilo at magiging dugo ang tubig. 
+Ako_, ang Panginoon ay nagsasabing, sa pamamagitan ng gagawin ko, malalaman mo na ako ang Panginoon. Sa pamamagitan ng bastong ito, hahampasin ko ang tubig ng Nilo at magiging dugo ang tubig. 
 
 
 
@@ -636,7 +636,7 @@ Mamamatay ang mga isda, at babaho ang ilog, at hindi na makakainom dito ang mga 
 
 
 
-Sinabi pa ng Panginoon kay Moises, "Sabihin mo kay Aaron na iunat niya ang kanyang baston <i class="trans-change">sa lahat ng_ tubig ng Egipto: sa mga ilog, sapa, kanal at sa lahat ng pinag-iipunan ng tubig, at magiging dugo ang lahat ng ito. Ganito ang mangyayari sa buong lupain ng Egipto. Kahit na ang mga tubig sa mga sisidlang kahoy o bato ay magiging dugo." 
+Sinabi pa ng Panginoon kay Moises, "Sabihin mo kay Aaron na iunat niya ang kanyang baston sa lahat ng_ tubig ng Egipto: sa mga ilog, sapa, kanal at sa lahat ng pinag-iipunan ng tubig, at magiging dugo ang lahat ng ito. Ganito ang mangyayari sa buong lupain ng Egipto. Kahit na ang mga tubig sa mga sisidlang kahoy o bato ay magiging dugo." 
 
 
 
@@ -836,4 +836,4 @@ Naghukay ang mga Egipcio sa palibot ng ilog para makakuha ng tubig na inumin dah
 
 
 
-Pagkaraan ng pitong araw mula nang hampasin ng Panginoon ang <i class="trans-change">Ilog ng_ Nilo <i class="trans-change">sa pamamagitan ni Aaron_.
+Pagkaraan ng pitong araw mula nang hampasin ng Panginoon ang Ilog ng_ Nilo sa pamamagitan ni Aaron_.

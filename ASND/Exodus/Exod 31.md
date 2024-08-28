@@ -436,7 +436,7 @@ Iniutos ng Dios kay Moises
 
 
 
-na sabihin niya ito sa mga Israelita, "Sundin ninyo ang aking <i class="trans-change">ipinag-uutos tungkol sa_ Araw ng Pamamahinga, dahil tanda ito ng kasunduan natin hanggang sa susunod pang mga henerasyon. Sa pamamagitan nito, malalaman ninyo na ako ang Panginoon na pumili sa inyo na maging mga mamamayan ko. 
+na sabihin niya ito sa mga Israelita, "Sundin ninyo ang aking ipinag-uutos tungkol sa_ Araw ng Pamamahinga, dahil tanda ito ng kasunduan natin hanggang sa susunod pang mga henerasyon. Sa pamamagitan nito, malalaman ninyo na ako ang Panginoon na pumili sa inyo na maging mga mamamayan ko. 
 
 
 
@@ -469,7 +469,7 @@ na sabihin niya ito sa mga Israelita, "Sundin ninyo ang aking <i class="trans-ch
 
 
 
-Dapat ninyong sundin ang ipinag-uutos ko tungkol sa Araw ng Pamamahinga, dahil banal ang araw na ito para sa inyo. Ang sinumang lalabag <i class="trans-change">sa ipinag-uutos ko sa araw na iyon_ ay dapat patayin. Ang sinumang gagawa sa araw na iyon ay huwag na ninyong ituring na kababayan. 
+Dapat ninyong sundin ang ipinag-uutos ko tungkol sa Araw ng Pamamahinga, dahil banal ang araw na ito para sa inyo. Ang sinumang lalabag sa ipinag-uutos ko sa araw na iyon_ ay dapat patayin. Ang sinumang gagawa sa araw na iyon ay huwag na ninyong ituring na kababayan. 
 
 
 
@@ -502,7 +502,7 @@ Dapat ninyong sundin ang ipinag-uutos ko tungkol sa Araw ng Pamamahinga, dahil b
 
 
 
-Gawin ninyo ang mga gawain nʼyo sa loob ng anim na araw, pero sa ikapitong araw ay magpahinga kayo. Sapagkat banal ang araw na ito para sa akin, papatayin ang sinumang gagawa sa araw na ito. <sup class="versenum">16-17</sup>Kaya kayong mga Israelita, dapat ninyong sundin magpakailanman ang ipinapagawa ko sa inyo sa Araw ng Pamamahinga hanggang sa susunod pang mga henerasyon. Ito ang walang hanggang tanda ng walang katapusang kasunduan natin. Dahil sa loob ng anim na araw, nilikha ko ang langit at ang mundo, at sa ikapitong araw ay nagpahinga ako." 
+Gawin ninyo ang mga gawain nʼyo sa loob ng anim na araw, pero sa ikapitong araw ay magpahinga kayo. Sapagkat banal ang araw na ito para sa akin, papatayin ang sinumang gagawa sa araw na ito. 16-17Kaya kayong mga Israelita, dapat ninyong sundin magpakailanman ang ipinapagawa ko sa inyo sa Araw ng Pamamahinga hanggang sa susunod pang mga henerasyon. Ito ang walang hanggang tanda ng walang katapusang kasunduan natin. Dahil sa loob ng anim na araw, nilikha ko ang langit at ang mundo, at sa ikapitong araw ay nagpahinga ako." 
 
 
 

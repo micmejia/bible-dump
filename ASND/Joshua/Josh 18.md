@@ -139,7 +139,7 @@ Kaya sinabi ni Josue sa mga Israelita, "Kailan nʼyo pa ba sasakupin ang natiran
 
 
 
-Pumili kayo ng tatlong tao sa bawat lahi. Papupuntahin ko sila para suriin ang <i class="trans-change">natirang_ lupain. Pagkatapos, babalik sila sa akin na may dalang mapa na ginawa nila na nagpapakita kung papaano hahatiin ang lupaing iyon. 
+Pumili kayo ng tatlong tao sa bawat lahi. Papupuntahin ko sila para suriin ang natirang_ lupain. Pagkatapos, babalik sila sa akin na may dalang mapa na ginawa nila na nagpapakita kung papaano hahatiin ang lupaing iyon. 
 
 
 
@@ -172,7 +172,7 @@ Pumili kayo ng tatlong tao sa bawat lahi. Papupuntahin ko sila para suriin ang <
 
 
 
-Dapat hatiin ang lupain sa pitong bahagi, hindi kasali ang lupain <i class="trans-change">ng lahi_ ni Juda sa timog at ang lupain ng lahi ni Jose sa hilaga. 
+Dapat hatiin ang lupain sa pitong bahagi, hindi kasali ang lupain ng lahi_ ni Juda sa timog at ang lupain ng lahi ni Jose sa hilaga. 
 
 
 
@@ -337,7 +337,7 @@ Kaya lumakad ang mga tao para suriin ang buong lupain. Pagkatapos, ginawan nila 
 
 
 
-At pagkatapos magpalabunutan sa presensya ng Panginoon, binigyan ni Josue ng bahagi ang mga lahi ng Israel <i class="trans-change">na walang lupain_.
+At pagkatapos magpalabunutan sa presensya ng Panginoon, binigyan ni Josue ng bahagi ang mga lahi ng Israel na walang lupain_.
 
 ## Ang Lupaing Ibinigay sa Lahi ni Benjamin 
 
@@ -405,7 +405,7 @@ Ang unang bahagi ng lupain ay napunta sa lahi ni Benjamin. Nasa pagitan ito ng m
 
 
 
-Ang hangganan nito sa hilaga ay nagsisimula sa <i class="trans-change">Ilog ng_ Jordan papunta sa hilagang libis ng Jerico. Pagkatapos, paahon ito sa kanluran sa mga kabundukan hanggang sa disyerto ng Bet Aven. 
+Ang hangganan nito sa hilaga ay nagsisimula sa Ilog ng_ Jordan papunta sa hilagang libis ng Jerico. Pagkatapos, paahon ito sa kanluran sa mga kabundukan hanggang sa disyerto ng Bet Aven. 
 
 
 
@@ -636,7 +636,7 @@ at dumaraan sa hilagang libis na nakaharap sa Lambak ng Jordan pababa sa Lambak 
 
 
 
-Pagkatapos, papunta ito sa hilagang libis ng Bet Hogla, at nagtapos ito sa hilagang daanan ng tubig ng Dagat na Patay, na siyang hangganan ng <i class="trans-change">Ilog ng_ Jordan sa timog. Ito ang hangganan sa timog. 
+Pagkatapos, papunta ito sa hilagang libis ng Bet Hogla, at nagtapos ito sa hilagang daanan ng tubig ng Dagat na Patay, na siyang hangganan ng Ilog ng_ Jordan sa timog. Ito ang hangganan sa timog. 
 
 
 
@@ -669,7 +669,7 @@ Pagkatapos, papunta ito sa hilagang libis ng Bet Hogla, at nagtapos ito sa hilag
 
 
 
-Ang <i class="trans-change">Ilog ng_ Jordan ay ang hangganan sa silangan. Iyon ang mga hangganan ng lupaing natanggap ng lahi ni Benjamin ayon sa bawat sambahayan.
+Ang Ilog ng_ Jordan ay ang hangganan sa silangan. Iyon ang mga hangganan ng lupaing natanggap ng lahi ni Benjamin ayon sa bawat sambahayan.
 
 ## Ang mga Lungsod na Natanggap ng Lahi ni Benjamin 
 
@@ -836,7 +836,7 @@ Kefar Ammoni, Ofni at Geba – 12 bayan kasama ang mga baryo nito.
 
 
 
-<i class="trans-change">Dagdag pa rito ay ang_ Gibeon, Rama, Beerot, 
+Dagdag pa rito ay ang_ Gibeon, Rama, Beerot, 
 
 
 

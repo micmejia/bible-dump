@@ -138,7 +138,7 @@ Lubhang pinahirapan ang Juda at ang mga mamamayan niyaʼy binihag. Doon na sila 
 
 
 
-Ang mga daan patungo sa Jerusalem ay <i class="trans-change">puno na ng_ kalungkutan, dahil wala nang dumadalo sa mga takdang pista. Sa mga pintuang bayan ay wala na ring mga tao. Ang mga pari ay dumadaing, at ang mga dalaga ay nagdadalamhati. Napakapait ng sinapit ng Jerusalem. 
+Ang mga daan patungo sa Jerusalem ay puno na ng_ kalungkutan, dahil wala nang dumadalo sa mga takdang pista. Sa mga pintuang bayan ay wala na ring mga tao. Ang mga pari ay dumadaing, at ang mga dalaga ay nagdadalamhati. Napakapait ng sinapit ng Jerusalem. 
 
 
 
@@ -303,7 +303,7 @@ Napakalaki ng kasalanan ng Jerusalem, kaya naging marumi siya. Ang lahat ng pumu
 
 
 
-Nahayag sa lahat ang kanyang karumihan, at hindi niya inalala ang kanyang kasasapitan. Malagim ang kanyang naging pagbagsak, at walang sinumang tumutulong sa kanya. <i class="trans-change">Kaya sinabi niya,_ "O Panginoon tingnan nʼyo po ang aking paghihirap, dahil tinalo ako ng aking mga kaaway." 
+Nahayag sa lahat ang kanyang karumihan, at hindi niya inalala ang kanyang kasasapitan. Malagim ang kanyang naging pagbagsak, at walang sinumang tumutulong sa kanya. Kaya sinabi niya,_ "O Panginoon tingnan nʼyo po ang aking paghihirap, dahil tinalo ako ng aking mga kaaway." 
 
 
 
@@ -336,7 +336,7 @@ Nahayag sa lahat ang kanyang karumihan, at hindi niya inalala ang kanyang kasasa
 
 
 
-Kinuha ng mga kaaway ang lahat ng kayamanan niya. Sa temploʼy nakita niyang pumapasok ang mga taong hindi pinahihintulutan ng <i class="trans-change">Panginoon_ na pumasok doon. 
+Kinuha ng mga kaaway ang lahat ng kayamanan niya. Sa temploʼy nakita niyang pumapasok ang mga taong hindi pinahihintulutan ng Panginoon_ na pumasok doon. 
 
 
 
@@ -402,7 +402,7 @@ Ang mga mamamayan niyaʼy dumadaing habang naghahanap ng pagkain. Ipinagpalit ni
 
 
 
-<i class="trans-change">Sinabi rin niya_ sa mga dumaraan, "Balewala lang ba ito sa inyo? May nakita ba kayong naghirap na kagaya ko? Ang paghihirap na ito ay ipinataw sa akin ng Panginoon nang magalit siya sa akin. 
+Sinabi rin niya_ sa mga dumaraan, "Balewala lang ba ito sa inyo? May nakita ba kayong naghirap na kagaya ko? Ang paghihirap na ito ay ipinataw sa akin ng Panginoon nang magalit siya sa akin. 
 
 
 
@@ -600,7 +600,7 @@ Humingi ng tulong ang Jerusalem pero walang tumulong sa kanya. Sapagkat niloob n
 
 
 
-<i class="trans-change">Sinabi ng Jerusalem,_ "Matuwid ang Panginoon, pero hindi ko sinunod ang kanyang mga utos. Kaya lahat kayo, pakinggan ninyo ako at tingnan ang aking paghihirap. Ang mga kabataan kong babae at lalaki ay binihag. 
+Sinabi ng Jerusalem,_ "Matuwid ang Panginoon, pero hindi ko sinunod ang kanyang mga utos. Kaya lahat kayo, pakinggan ninyo ako at tingnan ang aking paghihirap. Ang mga kabataan kong babae at lalaki ay binihag. 
 
 
 
@@ -699,7 +699,7 @@ Humingi ako ng tulong sa aking mga kakampi pero pinagtaksilan nila ako. Namatay 
 
 
 
-Narinig ng mga tao ang pagdaing ko ngunit wala kahit isang umaalo sa akin. Nalaman ng lahat ng kaaway ko ang aking mga paghihirap at natuwa sila sa ginawa nʼyong ito sa akin. Dumating na sana ang araw <i class="trans-change">na ipinangako nʼyong pagpaparusa sa kanila,_ para maging katulad ko rin sila. 
+Narinig ng mga tao ang pagdaing ko ngunit wala kahit isang umaalo sa akin. Nalaman ng lahat ng kaaway ko ang aking mga paghihirap at natuwa sila sa ginawa nʼyong ito sa akin. Dumating na sana ang araw na ipinangako nʼyong pagpaparusa sa kanila,_ para maging katulad ko rin sila. 
 
 
 

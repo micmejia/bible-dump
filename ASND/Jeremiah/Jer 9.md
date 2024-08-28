@@ -238,7 +238,7 @@ Puro na lang pandaraya ang ginagawa nila, at dahil sa pandaraya ay ayaw na nila 
 
 
 
-Kaya <i class="trans-change">ako_, ang Panginoong Makapangyarihan, ay nagsasabing dadalisayin ko sila na parang metal at susubukin ko sila. Ano pa ang maaari kong gawin sa kanila? 
+Kaya ako_, ang Panginoong Makapangyarihan, ay nagsasabing dadalisayin ko sila na parang metal at susubukin ko sila. Ano pa ang maaari kong gawin sa kanila? 
 
 
 
@@ -304,7 +304,7 @@ Ang kanilang mga dila ay parang panang nakakamatay. Puro na lang pandaraya ang k
 
 
 
-Hindi baʼt nararapat ko silang parusahan? Hindi ba dapat na paghigantihan ko ang bansang katulad nito? <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito." 
+Hindi baʼt nararapat ko silang parusahan? Hindi ba dapat na paghigantihan ko ang bansang katulad nito? Ako,_ ang Panginoon, ang nagsasabi nito." 
 
 
 
@@ -337,7 +337,7 @@ Hindi baʼt nararapat ko silang parusahan? Hindi ba dapat na paghigantihan ko an
 
 
 
-<i class="trans-change">Sinabi ni Jeremias:_ Iiyak ako ng malakas para sa mga kabundukan at mananaghoy ako para sa mga pastulan. Dahil malungkot na ito at wala nang dumadaan. Hindi na marinig ang unga ng mga baka, at nag-alisan na ang mga ibon at mga hayop. 
+Sinabi ni Jeremias:_ Iiyak ako ng malakas para sa mga kabundukan at mananaghoy ako para sa mga pastulan. Dahil malungkot na ito at wala nang dumadaan. Hindi na marinig ang unga ng mga baka, at nag-alisan na ang mga ibon at mga hayop. 
 
 
 
@@ -370,7 +370,7 @@ Hindi baʼt nararapat ko silang parusahan? Hindi ba dapat na paghigantihan ko an
 
 
 
-<i class="trans-change">Dahil sinabi ng Panginoon,_ "Wawasakin ko ang Jerusalem, at magiging tirahan ito ng mga asong-gubat. Gagawin kong parang ilang ang mga bayan ng Juda at wala nang titira rito." 
+Dahil sinabi ng Panginoon,_ "Wawasakin ko ang Jerusalem, at magiging tirahan ito ng mga asong-gubat. Gagawin kong parang ilang ang mga bayan ng Juda at wala nang titira rito." 
 
 
 
@@ -403,7 +403,7 @@ Hindi baʼt nararapat ko silang parusahan? Hindi ba dapat na paghigantihan ko an
 
 
 
-<i class="trans-change">Nagtanong ako sa Panginoon,_ "Sino pong marunong na tao ang makakaunawa <i class="trans-change">sa mga pangyayaring_ ito? Kanino nʼyo po ipinaliwanag ang tungkol dito para maipaliwanag ito sa mga tao? Bakit po nawasak ang lupaing ito at naging parang ilang na hindi na dinadaanan?" 
+Nagtanong ako sa Panginoon,_ "Sino pong marunong na tao ang makakaunawa sa mga pangyayaring_ ito? Kanino nʼyo po ipinaliwanag ang tungkol dito para maipaliwanag ito sa mga tao? Bakit po nawasak ang lupaing ito at naging parang ilang na hindi na dinadaanan?" 
 
 
 
@@ -502,7 +502,7 @@ Sa halip, sinunod nila ang kapasyahan ng matigas nilang mga puso. Sumamba sila k
 
 
 
-Kaya <i class="trans-change">ako_, ang Panginoong Makapangyarihan, ang Dios ng Israel ay nagsabing pakakainin ko ang mga taong ito ng mapait na pagkain at paiinumin ng tubig na may lason. 
+Kaya ako_, ang Panginoong Makapangyarihan, ang Dios ng Israel ay nagsabing pakakainin ko ang mga taong ito ng mapait na pagkain at paiinumin ng tubig na may lason. 
 
 
 
@@ -634,7 +634,7 @@ Pagmadaliin silang pumunta para iyakan ang mga mamamayan ko hanggang sa dumaloy 
 
 
 
-Pakinggan ang mga pag-iyak sa Jerusalem. <i class="trans-change">Sinasabi ng mga tao,_ 'Nawasak tayo! Nakakahiya ang nangyaring ito sa atin! Kailangang iwan na natin ang ating lupain dahil nawasak na ang ating mga tahanan!' " 
+Pakinggan ang mga pag-iyak sa Jerusalem. Sinasabi ng mga tao,_ 'Nawasak tayo! Nakakahiya ang nangyaring ito sa atin! Kailangang iwan na natin ang ating lupain dahil nawasak na ang ating mga tahanan!' " 
 
 
 
@@ -700,7 +700,7 @@ Ngayon, kayong mga babae, pakinggan ninyo ang sinasabi ng Panginoon. Pakinggan n
 
 
 
-Dumating ang kamatayan sa ating mga sambahayan at sa matitibay na bahagi ng ating lungsod. Pinatay ang mga bata <i class="trans-change">na naglalaro_ sa mga lansangan at ang mga kabataang lalaki <i class="trans-change">na nagkakatipon_ sa mga plasa. 
+Dumating ang kamatayan sa ating mga sambahayan at sa matitibay na bahagi ng ating lungsod. Pinatay ang mga bata na naglalaro_ sa mga lansangan at ang mga kabataang lalaki na nagkakatipon_ sa mga plasa. 
 
 
 
@@ -799,7 +799,7 @@ Hindi dapat ipagmalaki ng marunong ang karunungan niya, o ng malakas ang kalakas
 
 
 
-Kung gusto ng sinuman na magmalaki, dapat lang niyang ipagmalaki na kilala niya ako at nauunawaan niyang ako ang Panginoong mapagmahal na gumagawa ng tama at matuwid dito sa mundo, dahil iyon ang kinalulugdan ko. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+Kung gusto ng sinuman na magmalaki, dapat lang niyang ipagmalaki na kilala niya ako at nauunawaan niyang ako ang Panginoong mapagmahal na gumagawa ng tama at matuwid dito sa mundo, dahil iyon ang kinalulugdan ko. Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 

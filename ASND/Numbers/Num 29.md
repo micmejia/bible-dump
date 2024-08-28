@@ -440,7 +440,7 @@ Maghandog din kayo ng isang lalaking kambing bilang handog sa paglilinis, bukod 
 
 
 
-Mag-alay kayo ng mga handog na sinusunog na ang mabangong samyo nito ay makalulugod sa Panginoon. <i class="trans-change">Sa unang araw, ito ang inyong ihandog:_ 13 batang toro, dalawang lalaking tupa at 14 na batang tupa na isang taong gulang. Kailangang walang kapintasan ang lahat ng mga ito. 
+Mag-alay kayo ng mga handog na sinusunog na ang mabangong samyo nito ay makalulugod sa Panginoon. Sa unang araw, ito ang inyong ihandog:_ 13 batang toro, dalawang lalaking tupa at 14 na batang tupa na isang taong gulang. Kailangang walang kapintasan ang lahat ng mga ito. 
 
 
 

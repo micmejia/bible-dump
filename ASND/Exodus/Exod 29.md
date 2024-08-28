@@ -205,7 +205,7 @@ Pagkatapos, ipasuot mo kay Aaron ang damit-panloob, ang damit-panlabas, ang espe
 
 
 
-Ipasuot mo sa ulo niya ang turban, at ikabit sa harapan ng turban ang ginto <i class="trans-change">na simbolo_ ng pagbubukod sa kanila ng Panginoon. 
+Ipasuot mo sa ulo niya ang turban, at ikabit sa harapan ng turban ang ginto na simbolo_ ng pagbubukod sa kanila ng Panginoon. 
 
 
 
@@ -403,7 +403,7 @@ Pagkatapos, katayin ang baka sa presensya ng Panginoon, sa may pintuan ng Toldan
 
 
 
-Kumuha ka ng dugo ng baka at ipahid mo ito sa <i class="trans-change">parang_ sungay sa mga sulok ng altar, at ibuhos mo sa ilalim ng altar ang matitirang dugo. 
+Kumuha ka ng dugo ng baka at ipahid mo ito sa parang_ sungay sa mga sulok ng altar, at ibuhos mo sa ilalim ng altar ang matitirang dugo. 
 
 
 
@@ -733,7 +733,7 @@ Kumuha ka ng kaunting dugo sa altar at ihalo ito sa langis na pamahid, iwisik it
 
 
 
-"Pagkatapos, kunin ninyo ang taba ng tupa, ang matabang buntot, at ang lahat ng taba sa lamang-loob, ang maliit na bahagi ng atay, ang mga bato pati ang taba nito, at ang kanang hita. Ito ang tupang handog para sa pagtatalaga <i class="trans-change">sa mga pari_. 
+"Pagkatapos, kunin ninyo ang taba ng tupa, ang matabang buntot, at ang lahat ng taba sa lamang-loob, ang maliit na bahagi ng atay, ang mga bato pati ang taba nito, at ang kanang hita. Ito ang tupang handog para sa pagtatalaga sa mga pari_. 
 
 
 
@@ -766,7 +766,7 @@ Kumuha ka ng kaunting dugo sa altar at ihalo ito sa langis na pamahid, iwisik it
 
 
 
-Kumuha ka sa basket ng mga tinapay na walang pampaalsa na ihahandog para sa akin: tinapay <i class="trans-change">na hindi hinaluan ng langis_, makapal na tinapay na hinaluan ng langis at manipis na tinapay. 
+Kumuha ka sa basket ng mga tinapay na walang pampaalsa na ihahandog para sa akin: tinapay na hindi hinaluan ng langis_, makapal na tinapay na hinaluan ng langis at manipis na tinapay. 
 
 
 
@@ -865,7 +865,7 @@ Kunin mo ito sa kanila at sunugin sa altar kasama ng mga handog na sinusunog. An
 
 
 
-Kunin mo rin ang dibdib ng tupa at itaas nʼyo ito sa akin bilang mga handog na itinataas. Ito ang parte mo sa tupang handog para sa pagtatalaga kay Aaron <i class="trans-change">at ng mga anak niyang lalaki_. 
+Kunin mo rin ang dibdib ng tupa at itaas nʼyo ito sa akin bilang mga handog na itinataas. Ito ang parte mo sa tupang handog para sa pagtatalaga kay Aaron at ng mga anak niyang lalaki_. 
 
 
 
@@ -964,7 +964,7 @@ Sa tuwing maghahandog ang mga Israelita ng mga handog para sa mabuting relasyon,
 
 
 
-"Kapag namatay na si Aaron, ang banal na mga damit niya ay ibibigay sa mga anak niyang papalit sa kanya <i class="trans-change">bilang punong pari_, para ito ang isuot nila kapag ordinahan na sila. 
+"Kapag namatay na si Aaron, ang banal na mga damit niya ay ibibigay sa mga anak niyang papalit sa kanya bilang punong pari_, para ito ang isuot nila kapag ordinahan na sila. 
 
 
 
@@ -997,7 +997,7 @@ Sa tuwing maghahandog ang mga Israelita ng mga handog para sa mabuting relasyon,
 
 
 
-Ang mga angkan ni Aaron na papalit sa kanya bilang <i class="trans-change">punong_ pari ang magsusuot ng mga damit na ito sa loob ng pitong araw kapag papasok siya sa Toldang Tipanan para maglingkod sa Banal na Lugar. 
+Ang mga angkan ni Aaron na papalit sa kanya bilang punong_ pari ang magsusuot ng mga damit na ito sa loob ng pitong araw kapag papasok siya sa Toldang Tipanan para maglingkod sa Banal na Lugar. 
 
 
 
@@ -1362,7 +1362,7 @@ Sa paghahandog mo ng tupa sa umaga, maghandog ka rin ng dalawang kilo ng maganda
 
 
 
-Sa paghahandog mo ng tupa sa hapon, ihandog mo rin ang mga nabanggit na harina at inumin. Ang mabangong samyo ng handog na ito sa pamamagitan ng apoy ay makalulugod sa akin. <sup class="versenum">42-43</sup>Ang mga handog na sinusunog ay kailangang ihandog araw-araw ng susunod pang mga henerasyon. Ihandog ninyo ito sa aking presensya, doon sa may pintuan ng Toldang Tipanan kung saan ako makikipag-usap sa iyo at makikipagkita sa mga Israelita. Magiging banal ang Tolda dahil sa makapangyarihan kong presensya. 
+Sa paghahandog mo ng tupa sa hapon, ihandog mo rin ang mga nabanggit na harina at inumin. Ang mabangong samyo ng handog na ito sa pamamagitan ng apoy ay makalulugod sa akin. 42-43Ang mga handog na sinusunog ay kailangang ihandog araw-araw ng susunod pang mga henerasyon. Ihandog ninyo ito sa aking presensya, doon sa may pintuan ng Toldang Tipanan kung saan ako makikipag-usap sa iyo at makikipagkita sa mga Israelita. Magiging banal ang Tolda dahil sa makapangyarihan kong presensya. 
 
 
 
@@ -1395,7 +1395,7 @@ Sa paghahandog mo ng tupa sa hapon, ihandog mo rin ang mga nabanggit na harina a
 
 
 
-<i class="trans-change">Oo,_ gagawin kong banal ang Toldang Tipanan at ang altar, at ibubukod ko si Aaron at ang mga anak niya sa paglilingkod sa akin bilang mga pari. 
+Oo,_ gagawin kong banal ang Toldang Tipanan at ang altar, at ibubukod ko si Aaron at ang mga anak niya sa paglilingkod sa akin bilang mga pari. 
 
 
 
@@ -1461,4 +1461,4 @@ Maninirahan ako kasama ng mga Israelita at akoʼy magiging Dios nila.
 
 
 
-Malalaman nila na ako ang Panginoon na kanilang Dios na naglabas <i class="trans-change">sa kanila_ sa Egipto para makapanirahan akong kasama nila. <i class="trans-change">Oo,_ Ako ang Panginoon na kanilang Dios.
+Malalaman nila na ako ang Panginoon na kanilang Dios na naglabas sa kanila_ sa Egipto para makapanirahan akong kasama nila. Oo,_ Ako ang Panginoon na kanilang Dios.

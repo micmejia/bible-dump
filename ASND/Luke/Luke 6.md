@@ -106,7 +106,7 @@ Kaya sinabi ng ilang Pariseo, "Bakit kayo gumagawa ng ipinagbabawal sa Araw ng P
 
 
 
-Sinagot sila ni Jesus, "Hindi ba ninyo nabasa <i class="trans-change">sa Kasulatan_ ang ginawa ni David nang magutom siya at ang mga kasamahan niya? 
+Sinagot sila ni Jesus, "Hindi ba ninyo nabasa sa Kasulatan_ ang ginawa ni David nang magutom siya at ang mga kasamahan niya? 
 
 
 
@@ -139,7 +139,7 @@ Sinagot sila ni Jesus, "Hindi ba ninyo nabasa <i class="trans-change">sa Kasulat
 
 
 
-Pumasok siya sa bahay ng Dios at kumuha ng tinapay na inihandog sa Dios at kinain ito. Binigyan din niya ang mga kasamahan niya. <i class="trans-change">Hindi sila nagkasala,_ kahit na <i class="trans-change">ayon sa Kautusan,_ ang mga pari lang ang may karapatang kumain niyon." 
+Pumasok siya sa bahay ng Dios at kumuha ng tinapay na inihandog sa Dios at kinain ito. Binigyan din niya ang mga kasamahan niya. Hindi sila nagkasala,_ kahit na ayon sa Kautusan,_ ang mga pari lang ang may karapatang kumain niyon." 
 
 
 
@@ -172,7 +172,7 @@ Pumasok siya sa bahay ng Dios at kumuha ng tinapay na inihandog sa Dios at kinai
 
 
 
-At sinabi pa ni Jesus sa kanila, "<i class="trans-change">Ako na_ Anak ng Tao ang siyang makapagsasabi kung ano ang nararapat gawin sa Araw ng Pamamahinga." ## Ang Lalaking Paralisado ang Isang Kamay 
+At sinabi pa ni Jesus sa kanila, "Ako na_ Anak ng Tao ang siyang makapagsasabi kung ano ang nararapat gawin sa Araw ng Pamamahinga." ## Ang Lalaking Paralisado ang Isang Kamay 
 
 
 
@@ -572,7 +572,7 @@ Judas na anak ng isa pang Santiago, at si Judas Iscariote na siyang nagtraydor k
 
 
 
-Pagkatapos <i class="trans-change">niyang piliin ang mga apostol niya_, bumaba sila <i class="trans-change">mula sa bundok_ at tumigil sa isang patag na lugar. Naroon ang marami pa niyang tagasunod at ang mga taong nanggaling sa Judea, Jerusalem, at sa baybayin ng Tyre at Sidon. 
+Pagkatapos niyang piliin ang mga apostol niya_, bumaba sila mula sa bundok_ at tumigil sa isang patag na lugar. Naroon ang marami pa niyang tagasunod at ang mga taong nanggaling sa Judea, Jerusalem, at sa baybayin ng Tyre at Sidon. 
 
 
 
@@ -739,7 +739,7 @@ Mapalad kayong mga nagugutom ngayon, dahil bubusugin kayo. Mapalad kayong mga um
 
 
 
-Mapalad kayo kung dahil sa <i class="trans-change">pagsunod ninyo sa akin na_ Anak ng Tao ay kamuhian kayo, itakwil, insultuhin, at siraan ang inyong pangalan. 
+Mapalad kayo kung dahil sa pagsunod ninyo sa akin na_ Anak ng Tao ay kamuhian kayo, itakwil, insultuhin, at siraan ang inyong pangalan. 
 
 
 
@@ -1069,7 +1069,7 @@ Gawin ninyo sa inyong kapwa ang gusto ninyong gawin nila sa inyo.
 
 
 
-"Kung ang mamahalin lang ninyo ay ang mga nagmamahal sa inyo, anong gantimpala ang matatanggap ninyo <i class="trans-change">mula sa Dios_? Ginagawa rin iyan ng masasamang tao. 
+"Kung ang mamahalin lang ninyo ay ang mga nagmamahal sa inyo, anong gantimpala ang matatanggap ninyo mula sa Dios_? Ginagawa rin iyan ng masasamang tao. 
 
 
 
@@ -1102,7 +1102,7 @@ Gawin ninyo sa inyong kapwa ang gusto ninyong gawin nila sa inyo.
 
 
 
-At kung ang gagawan lang ninyo ng mabuti ay ang mga taong mabuti sa inyo, anong gantimpala ang matatanggap ninyo <i class="trans-change">mula sa Dios_? Ginagawa rin iyan ng masasamang tao. 
+At kung ang gagawan lang ninyo ng mabuti ay ang mga taong mabuti sa inyo, anong gantimpala ang matatanggap ninyo mula sa Dios_? Ginagawa rin iyan ng masasamang tao. 
 
 
 
@@ -1135,7 +1135,7 @@ At kung ang gagawan lang ninyo ng mabuti ay ang mga taong mabuti sa inyo, anong 
 
 
 
-At kung ang pinahihiram lang ninyo ay ang mga taong inaasahan ninyong makakabayad sa inyo, anong gantimpala ang matatanggap ninyo <i class="trans-change">mula sa Dios_? Kahit ang masasamang tao ay nagpapahiram din sa kapwa nila masama sa pag-asang babayaran sila. 
+At kung ang pinahihiram lang ninyo ay ang mga taong inaasahan ninyong makakabayad sa inyo, anong gantimpala ang matatanggap ninyo mula sa Dios_? Kahit ang masasamang tao ay nagpapahiram din sa kapwa nila masama sa pag-asang babayaran sila. 
 
 
 
@@ -1234,7 +1234,7 @@ Maging maawain kayo tulad ng inyong Ama." ## Huwag Husgahan ang Kapwa
 
 
 
-"Huwag ninyong husgahan ang iba, upang hindi rin kayo husgahan <i class="trans-change">ng Dios_. Huwag kayong magsabi na dapat silang parusahan <i class="trans-change">ng Dios_, upang hindi rin niya kayo parusahan. Magpatawad kayo, upang patawarin din kayo <i class="trans-change">ng Dios_. 
+"Huwag ninyong husgahan ang iba, upang hindi rin kayo husgahan ng Dios_. Huwag kayong magsabi na dapat silang parusahan ng Dios_, upang hindi rin niya kayo parusahan. Magpatawad kayo, upang patawarin din kayo ng Dios_. 
 
 
 
@@ -1267,7 +1267,7 @@ Maging maawain kayo tulad ng inyong Ama." ## Huwag Husgahan ang Kapwa
 
 
 
-Magbigay kayo, upang bigyan din kayo <i class="trans-change">ng Dios_. Ibabalik sa inyo nang sobra-sobra at umaapaw ang ibinigay ninyo. Sapagkat kung paano kayo magbigay sa iba, ganoon din ang pagbibigay <i class="trans-change">ng Dios_ sa inyo." 
+Magbigay kayo, upang bigyan din kayo ng Dios_. Ibabalik sa inyo nang sobra-sobra at umaapaw ang ibinigay ninyo. Sapagkat kung paano kayo magbigay sa iba, ganoon din ang pagbibigay ng Dios_ sa inyo." 
 
 
 
@@ -1498,7 +1498,7 @@ Ang bawat puno ay nakikilala sa bunga nito. Ang matitinik na halaman ay hindi na
 
 
 
-<i class="trans-change">Ganoon din naman ang tao._ Ang mabuting tao ay nagsasalita ng mabuti dahil puno ng kabutihan ang puso niya. Ngunit ang masamang tao ay nagsasalita ng masama dahil puno ng kasamaan ang puso niya. Sapagkat kung ano ang nasa puso ng isang tao, iyon din ang lumalabas sa kanyang bibig." ## Ang Dalawang Uri ng Taong Nagtayo ng Bahay 
+Ganoon din naman ang tao._ Ang mabuting tao ay nagsasalita ng mabuti dahil puno ng kabutihan ang puso niya. Ngunit ang masamang tao ay nagsasalita ng masama dahil puno ng kasamaan ang puso niya. Sapagkat kung ano ang nasa puso ng isang tao, iyon din ang lumalabas sa kanyang bibig." ## Ang Dalawang Uri ng Taong Nagtayo ng Bahay 
 
 
 
@@ -1630,4 +1630,4 @@ Katulad siya ng isang taong humukay nang malalim at nagtayo ng bahay sa pundasyo
 
 
 
-Ngunit ang nakikinig sa mga sinasabi ko pero hindi naman ito sinusunod ay katulad ng isang taong nagtayo ng bahay na walang matibay na pundasyon. <i class="trans-change">Nang bumaha at_ dinaanan ng malakas na agos ang bahay, nagiba ito at lubusang nawasak."
+Ngunit ang nakikinig sa mga sinasabi ko pero hindi naman ito sinusunod ay katulad ng isang taong nagtayo ng bahay na walang matibay na pundasyon. Nang bumaha at_ dinaanan ng malakas na agos ang bahay, nagiba ito at lubusang nawasak."

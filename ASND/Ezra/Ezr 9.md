@@ -40,7 +40,7 @@ next: ['Ezr 10']
 
 
 
-<i class="trans-change">Sinabi pa ni Ezra:_ Pagkatapos ng pangyayaring iyon, pumunta sa akin ang mga pinuno <i class="trans-change">ng mga Judio_ at nagsabi, "Marami sa mamamayan ng Israel, pati na ang mga pari at mga Levita, ang namumuhay katulad ng mga tao sa paligid nila. Ginagawa nila ang mga kasuklam-suklam na gawain ng mga Cananeo, Heteo, Perezeo, Jebuseo, Ammonita, Moabita, Egipcio, at Amoreo. 
+Sinabi pa ni Ezra:_ Pagkatapos ng pangyayaring iyon, pumunta sa akin ang mga pinuno ng mga Judio_ at nagsabi, "Marami sa mamamayan ng Israel, pati na ang mga pari at mga Levita, ang namumuhay katulad ng mga tao sa paligid nila. Ginagawa nila ang mga kasuklam-suklam na gawain ng mga Cananeo, Heteo, Perezeo, Jebuseo, Ammonita, Moabita, Egipcio, at Amoreo. 
 
 
 
@@ -73,7 +73,7 @@ next: ['Ezr 10']
 
 
 
-Nagsipag-asawa pa sila at ang mga anak nila ng mga babaeng mula sa mga mamamayang nabanggit. Kaya ang mga mamamayang pinili ng Dios ay nahaluan ng ibang mga lahi. At ang mga pinuno at mga opisyal pa <i class="trans-change">natin_ ang siyang nangunguna sa paggawa nito." 
+Nagsipag-asawa pa sila at ang mga anak nila ng mga babaeng mula sa mga mamamayang nabanggit. Kaya ang mga mamamayang pinili ng Dios ay nahaluan ng ibang mga lahi. At ang mga pinuno at mga opisyal pa natin_ ang siyang nangunguna sa paggawa nito." 
 
 
 
@@ -304,7 +304,7 @@ Simula pa po sa kapanahunan ng mga ninuno namin hanggang ngayon, sobra na ang ka
 
 
 
-Kahit mga alipin kami, hindi nʼyo kami pinabayaan sa pagkaalipin, sa halip ipinapakita nʼyo sa amin ang inyong pag-ibig sa pamamagitan ng mabuting pagtrato ng mga hari ng Persia sa amin. Ginawa nʼyo ito para mabigyan kami ng bagong buhay, at para maipatayo namin muli ang templo nʼyong nagiba, at mabigyan nʼyo po kami ng kalinga <i class="trans-change">dito_ sa Juda at Jerusalem. 
+Kahit mga alipin kami, hindi nʼyo kami pinabayaan sa pagkaalipin, sa halip ipinapakita nʼyo sa amin ang inyong pag-ibig sa pamamagitan ng mabuting pagtrato ng mga hari ng Persia sa amin. Ginawa nʼyo ito para mabigyan kami ng bagong buhay, at para maipatayo namin muli ang templo nʼyong nagiba, at mabigyan nʼyo po kami ng kalinga dito_ sa Juda at Jerusalem. 
 
 
 

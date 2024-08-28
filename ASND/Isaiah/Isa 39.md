@@ -271,4 +271,4 @@ At ang iba sa mga susunod na lahi mo ay bibihagin at magiging alipin sa palasyo 
 
 
 
-Ang akala ni Hezekia ay <i class="trans-change">hindi iyon mangyayari sa panahon niya, kundi_ magiging mapayapa at walang panganib ang kanyang buhay. Kaya sinabi niya kay Isaias, "Maganda ang mensahe ng Panginoon na sinabi mo sa akin."
+Ang akala ni Hezekia ay hindi iyon mangyayari sa panahon niya, kundi_ magiging mapayapa at walang panganib ang kanyang buhay. Kaya sinabi niya kay Isaias, "Maganda ang mensahe ng Panginoon na sinabi mo sa akin."

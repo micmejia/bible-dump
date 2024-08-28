@@ -105,7 +105,7 @@ Si Elkana ay may dalawang asawa. Sila ay sina Hanna at Penina. May mga anak si P
 
 
 
-Taun-taon, pumupunta si Elkana <i class="trans-change">at ang sambahayan niya_ sa Shilo upang sumamba at maghandog sa Panginoong Makapangyarihan. Ang dalawang anak ni Eli na sina Hofni at Finehas ang mga pari ng Panginoon sa Shilo. 
+Taun-taon, pumupunta si Elkana at ang sambahayan niya_ sa Shilo upang sumamba at maghandog sa Panginoong Makapangyarihan. Ang dalawang anak ni Eli na sina Hofni at Finehas ang mga pari ng Panginoon sa Shilo. 
 
 
 
@@ -270,7 +270,7 @@ Ganito ang laging nangyayari taun-taon. Sa tuwing pupunta si Hanna sa bahay ng P
 
 
 
-Sinasabi ni Elkana sa kanya, "Bakit ka umiiyak? Bakit ayaw mong kumain? Bakit ka malungkot? Mas mahalaga ba para sa iyo ang sampung anak kaysa sa akin?" <sup class="versenum">9-10</sup><i class="trans-change">Minsan,_ pagkatapos nilang kumain <i class="trans-change">sa bahay ng Panginoon_ sa Shilo, tumayo si Hanna at nanalangin nang umiiyak dahil sa labis na kalungkutan. Nakaupo noon ang pari na si Eli sa may pintuan ng bahay ng Panginoon. 
+Sinasabi ni Elkana sa kanya, "Bakit ka umiiyak? Bakit ayaw mong kumain? Bakit ka malungkot? Mas mahalaga ba para sa iyo ang sampung anak kaysa sa akin?" 9-10Minsan,_ pagkatapos nilang kumain sa bahay ng Panginoon_ sa Shilo, tumayo si Hanna at nanalangin nang umiiyak dahil sa labis na kalungkutan. Nakaupo noon ang pari na si Eli sa may pintuan ng bahay ng Panginoon. 
 
 
 
@@ -303,7 +303,7 @@ Sinasabi ni Elkana sa kanya, "Bakit ka umiiyak? Bakit ayaw mong kumain? Bakit ka
 
 
 
-Nangako si Hanna sa Panginoon. Sinabi niya, "O Panginoong Makapangyarihan, tingnan po ninyo ang aking paghihirap. Alalahanin ninyo ang inyong lingkod at huwag ninyo akong kalimutan. Kung bibigyan nʼyo po ako ng isang anak na lalaki, ihahandog ko siya sa inyo para maglingkod sa inyo sa buong buhay niya. At <i class="trans-change">bilang tanda nang lubos niyang pagsunod sa inyo,_ hindi ko po pagugupitan ang kanyang buhok." <sup class="versenum">12-13</sup>Habang patuloy siyang nananalangin sa Panginoon, nakita ni Eli na bumubuka ang bibig ni Hanna pero hindi naririnig ang kanyang boses. Inakala ni Eli na lasing si Hanna, 
+Nangako si Hanna sa Panginoon. Sinabi niya, "O Panginoong Makapangyarihan, tingnan po ninyo ang aking paghihirap. Alalahanin ninyo ang inyong lingkod at huwag ninyo akong kalimutan. Kung bibigyan nʼyo po ako ng isang anak na lalaki, ihahandog ko siya sa inyo para maglingkod sa inyo sa buong buhay niya. At bilang tanda nang lubos niyang pagsunod sa inyo,_ hindi ko po pagugupitan ang kanyang buhok." 12-13Habang patuloy siyang nananalangin sa Panginoon, nakita ni Eli na bumubuka ang bibig ni Hanna pero hindi naririnig ang kanyang boses. Inakala ni Eli na lasing si Hanna, 
 
 
 
@@ -600,7 +600,7 @@ Muling dumating ang panahon na si Elkana at ang buo niyang pamilya ay maghahando
 
 
 
-Pero hindi sumama si Hanna. Sinabi niya sa kanyang asawa, "Kapag naawat na ang sanggol sa pagsuso sa akin, dadalhin ko siya sa <i class="trans-change">bahay ng_ Panginoon para ihandog sa kanya. Doon na siya titira sa buong buhay niya." 
+Pero hindi sumama si Hanna. Sinabi niya sa kanyang asawa, "Kapag naawat na ang sanggol sa pagsuso sa akin, dadalhin ko siya sa bahay ng_ Panginoon para ihandog sa kanya. Doon na siya titira sa buong buhay niya." 
 
 
 

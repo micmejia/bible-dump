@@ -636,7 +636,7 @@ Tumayo ka at ibangon mo ang bata, dahil gagawin kong malaking bansa ang kanyang 
 
 
 
-Pagkatapos, may ipinakita ang Dios sa kanya na isang balon. Pumunta siya roon at nilagyan ng tubig ang sisidlan niya. Pagkatapos, pinainom niya ang kanyang anak. <sup class="versenum">20-21</sup>Hindi pinabayaan ng Dios si Ishmael hanggang lumaki ito. Doon siya tumira sa ilang ng Paran at naging isa siyang <i class="trans-change">mahusay na_ mamamana. Dumating ang panahon na pinapag-asawa siya ng kanyang ina sa isang Egipcio.
+Pagkatapos, may ipinakita ang Dios sa kanya na isang balon. Pumunta siya roon at nilagyan ng tubig ang sisidlan niya. Pagkatapos, pinainom niya ang kanyang anak. 20-21Hindi pinabayaan ng Dios si Ishmael hanggang lumaki ito. Doon siya tumira sa ilang ng Paran at naging isa siyang mahusay na_ mamamana. Dumating ang panahon na pinapag-asawa siya ng kanyang ina sa isang Egipcio.
 
 ## Ang Kasunduan nina Abraham at Abimelec 
 

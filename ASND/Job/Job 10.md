@@ -337,7 +337,7 @@ Alalahanin ninyong akoʼy hinubog nʼyo mula sa lupa at ngayon baʼy ibabalik n�
 
 
 
-Hindi baʼt kayo ang humubog sa akin <i class="trans-change">mula sa sinapupunan ng aking ina_ na parang keso na hinubog mula sa gatas? 
+Hindi baʼt kayo ang humubog sa akin mula sa sinapupunan ng aking ina_ na parang keso na hinubog mula sa gatas? 
 
 
 

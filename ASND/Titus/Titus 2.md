@@ -40,7 +40,7 @@ next: ['Titus 3']
 
 
 
-Ngunit ikaw, <i class="trans-change">Tito,_ ituro mo ang naaayon sa wastong aral. 
+Ngunit ikaw, Tito,_ ituro mo ang naaayon sa wastong aral. 
 
 
 
@@ -172,7 +172,7 @@ upang maturuan nila ang mga nakababatang babae na mahalin ang kanilang asawa at 
 
 
 
-marunong magpasya kung ano ang nararapat, malinis ang isipan, masipag sa tahanan, mabait, at nagpapasakop sa asawa, upang hindi mapintasan ang salita ng Dios <i class="trans-change">na ating itinuturo_. 
+marunong magpasya kung ano ang nararapat, malinis ang isipan, masipag sa tahanan, mabait, at nagpapasakop sa asawa, upang hindi mapintasan ang salita ng Dios na ating itinuturo_. 
 
 
 
@@ -337,7 +337,7 @@ Turuan mo rin ang mga alipin na maging masunurin sa kanilang mga amo sa lahat ng
 
 
 
-Huwag din silang mangungupit <i class="trans-change">sa kanilang amo_, kundi ipakita nilang silaʼy tapat at mapagkakatiwalaan. Nang sa ganoon, maipapakita nila sa lahat <i class="trans-change">ng kanilang ginagawa_ ang kagandahan ng ating mga itinuturo tungkol sa Dios na ating Tagapagligtas. 
+Huwag din silang mangungupit sa kanilang amo_, kundi ipakita nilang silaʼy tapat at mapagkakatiwalaan. Nang sa ganoon, maipapakita nila sa lahat ng kanilang ginagawa_ ang kagandahan ng ating mga itinuturo tungkol sa Dios na ating Tagapagligtas. 
 
 
 

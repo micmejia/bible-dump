@@ -39,7 +39,7 @@ next: ['Mic 2']
 
 
 
-Ito ang mensahe ng Panginoon tungkol sa Samaria at Jerusalem. Ipinahayag niya ito kay Micas na taga-Moreshet noong <i class="trans-change">magkakasunod na_ naghari sa Juda sina Jotam, Ahaz at Hezekia. <i class="trans-change">Sinabi ni Micas:_ 
+Ito ang mensahe ng Panginoon tungkol sa Samaria at Jerusalem. Ipinahayag niya ito kay Micas na taga-Moreshet noong magkakasunod na_ naghari sa Juda sina Jotam, Ahaz at Hezekia. Sinabi ni Micas:_ 
 
 
 
@@ -140,7 +140,7 @@ Makinig kayo! Lalabas ang Panginoon mula sa kanyang tahanan. Bababa siya at lala
 
 
 
-Ang mga bundok na kanyang malalakaran ay matutunaw na parang mga kandila na nadikit sa apoy, at magiging lubak-lubak ang mga patag <i class="trans-change">na kanyang malalakaran_ na parang dinaanan ng tubig na umagos mula sa matarik na lugar. 
+Ang mga bundok na kanyang malalakaran ay matutunaw na parang mga kandila na nadikit sa apoy, at magiging lubak-lubak ang mga patag na kanyang malalakaran_ na parang dinaanan ng tubig na umagos mula sa matarik na lugar. 
 
 
 
@@ -206,7 +206,7 @@ Mangyayari ang lahat ng ito dahil sa mga kasalanan ng mga mamamayan ng Israel at
 
 
 
-Kaya <i class="trans-change">sinabi ng Panginoon,_ "Gigibain ko ang Samaria at tataniman na lang ito ng mga ubas. Pagugulungin ko ang mga bato nito papunta sa kapatagan hanggang sa makita ang mga pundasyon nito. 
+Kaya sinabi ng Panginoon,_ "Gigibain ko ang Samaria at tataniman na lang ito ng mga ubas. Pagugulungin ko ang mga bato nito papunta sa kapatagan hanggang sa makita ang mga pundasyon nito. 
 
 
 
@@ -239,7 +239,7 @@ Kaya <i class="trans-change">sinabi ng Panginoon,_ "Gigibain ko ang Samaria at t
 
 
 
-Madudurog ang lahat ng imahen ng dios-diosan ng Samaria, at masusunog ang lahat ng ibinayad ng mga lalaki sa kanilang pakikipagtalik sa mga babaeng bayaran sa templo. Nakapagtipon <i class="trans-change">ng mga imahen_ ang Samaria sa pamamagitan ng mga ibinayad sa mga babaeng bayaran sa templo, kaya <i class="trans-change">kukunin ng kanyang mga kalaban ang mga pilak at ginto na binalot sa mga imahen para_ gamitin din <i class="trans-change">ng kanyang mga kalaban_ na pambayad sa mga babaeng bayaran sa kanilang templo." 
+Madudurog ang lahat ng imahen ng dios-diosan ng Samaria, at masusunog ang lahat ng ibinayad ng mga lalaki sa kanilang pakikipagtalik sa mga babaeng bayaran sa templo. Nakapagtipon ng mga imahen_ ang Samaria sa pamamagitan ng mga ibinayad sa mga babaeng bayaran sa templo, kaya kukunin ng kanyang mga kalaban ang mga pilak at ginto na binalot sa mga imahen para_ gamitin din ng kanyang mga kalaban_ na pambayad sa mga babaeng bayaran sa kanilang templo." 
 
 
 
@@ -272,7 +272,7 @@ Madudurog ang lahat ng imahen ng dios-diosan ng Samaria, at masusunog ang lahat 
 
 
 
-<i class="trans-change">Sinabi pa ni Micas:_ Dahil sa pagkawasak ng Samaria, iiyak ako at magdadalamhati. Maglalakad ako nang nakapaa at nakahubad <i class="trans-change">para ipakita ang aking kalungkutan_. Iiyak ako nang malakas na parang asong-gubat at tulad ng paghuni ng kuwago. 
+Sinabi pa ni Micas:_ Dahil sa pagkawasak ng Samaria, iiyak ako at magdadalamhati. Maglalakad ako nang nakapaa at nakahubad para ipakita ang aking kalungkutan_. Iiyak ako nang malakas na parang asong-gubat at tulad ng paghuni ng kuwago. 
 
 
 
@@ -338,7 +338,7 @@ Sapagkat ang pagkagiba ng Samaria ay parang sugat na hindi na gagaling, at mangy
 
 
 
-<i class="trans-change">Mga taga-Juda,_ huwag ninyong ibalita sa <i class="trans-change">ating mga kalaban na_ mga taga-Gat <i class="trans-change">ang tungkol sa darating na kapahamakan sa atin_. Huwag ninyong ipapakita na umiiyak kayo. Doon ninyo ipakita sa bayan ng Bet Leafra ang inyong kalungkutan sa pamamagitan ng paggulong sa lupa. 
+Mga taga-Juda,_ huwag ninyong ibalita sa ating mga kalaban na_ mga taga-Gat ang tungkol sa darating na kapahamakan sa atin_. Huwag ninyong ipapakita na umiiyak kayo. Doon ninyo ipakita sa bayan ng Bet Leafra ang inyong kalungkutan sa pamamagitan ng paggulong sa lupa. 
 
 
 
@@ -371,7 +371,7 @@ Sapagkat ang pagkagiba ng Samaria ay parang sugat na hindi na gagaling, at mangy
 
 
 
-Mga mamamayan ng Shafir, bibihagin kayo at dadalhing nakahubad, kaya mapapahiya kayo. Ang mga mamamayan ng Zaanan ay matatakot lumabas sa kanilang bayan <i class="trans-change">para tulungan kayo_. Ang mga taga-Bet Ezel ay hindi rin makakatulong sa inyo dahil sila rin ay umiiyak <i class="trans-change">sa kapahamakang dumating sa kanila_. 
+Mga mamamayan ng Shafir, bibihagin kayo at dadalhing nakahubad, kaya mapapahiya kayo. Ang mga mamamayan ng Zaanan ay matatakot lumabas sa kanilang bayan para tulungan kayo_. Ang mga taga-Bet Ezel ay hindi rin makakatulong sa inyo dahil sila rin ay umiiyak sa kapahamakang dumating sa kanila_. 
 
 
 
@@ -404,7 +404,7 @@ Mga mamamayan ng Shafir, bibihagin kayo at dadalhing nakahubad, kaya mapapahiya 
 
 
 
-Ang totoo, ang mga taga-Marot ay matiyagang naghihintay sa pagtigil ng digmaan. Pero <i class="trans-change">mabibigo sila dahil_ niloob ng Panginoon na makarating ang mga kalaban sa pintuan ng Jerusalem. 
+Ang totoo, ang mga taga-Marot ay matiyagang naghihintay sa pagtigil ng digmaan. Pero mabibigo sila dahil_ niloob ng Panginoon na makarating ang mga kalaban sa pintuan ng Jerusalem. 
 
 
 
@@ -437,7 +437,7 @@ Ang totoo, ang mga taga-Marot ay matiyagang naghihintay sa pagtigil ng digmaan. 
 
 
 
-Mga mamamayan ng Lakish, isingkaw ninyo ang mga kabayo sa karwahe <i class="trans-change">at tumakas kayo_. Ginaya ninyo ang kasalanang ginawa ng mga taga-Israel, at dahil sa inyoʼy nagkasala rin ang mga taga-Zion. 
+Mga mamamayan ng Lakish, isingkaw ninyo ang mga kabayo sa karwahe at tumakas kayo_. Ginaya ninyo ang kasalanang ginawa ng mga taga-Israel, at dahil sa inyoʼy nagkasala rin ang mga taga-Zion. 
 
 
 
@@ -470,7 +470,7 @@ Mga mamamayan ng Lakish, isingkaw ninyo ang mga kabayo sa karwahe <i class="tran
 
 
 
-Kayong mga taga-Juda, magpaalam na kayo sa <i class="trans-change">bayan ng_ Moreshet Gat <i class="trans-change">dahil sasakupin na rin iyan ng mga kalaban. Sasakupin din_ ang bayan ng Aczib, <i class="trans-change">kaya_ wala nang maaasahang tulong ang inyong mga hari mula sa bayang iyon. 
+Kayong mga taga-Juda, magpaalam na kayo sa bayan ng_ Moreshet Gat dahil sasakupin na rin iyan ng mga kalaban. Sasakupin din_ ang bayan ng Aczib, kaya_ wala nang maaasahang tulong ang inyong mga hari mula sa bayang iyon. 
 
 
 
@@ -503,7 +503,7 @@ Kayong mga taga-Juda, magpaalam na kayo sa <i class="trans-change">bayan ng_ Mor
 
 
 
-Kayong mga mamamayan ng Maresha, padadalhan kayo ng Panginoon ng kalaban na sasakop sa inyo. Mga taga-Juda, ang inyong mga pinuno ay magtatago sa <i class="trans-change">kweba ng_ Adulam. 
+Kayong mga mamamayan ng Maresha, padadalhan kayo ng Panginoon ng kalaban na sasakop sa inyo. Mga taga-Juda, ang inyong mga pinuno ay magtatago sa kweba ng_ Adulam. 
 
 
 

@@ -337,7 +337,7 @@ Hinarangan niya ng pader ang aking landas, at pinaliku-liko ang aking dadaanan.
 
 
 
-Para siyang oso o leon na nag-aabang <i class="trans-change">upang salakayin ako_. 
+Para siyang oso o leon na nag-aabang upang salakayin ako_. 
 
 
 
@@ -766,7 +766,7 @@ ang pag-ibig at awa ng Panginoon ay walang katapusan. Iyan ang dahilan kung baki
 
 
 
-Araw-araw ay ipinapakita niya ang kanyang habag. Dakila ang katapatan ng <i class="trans-change">Panginoon_! 
+Araw-araw ay ipinapakita niya ang kanyang habag. Dakila ang katapatan ng Panginoon_! 
 
 
 
@@ -964,7 +964,7 @@ Kapag tinuturuan tayo ng Panginoon, tumahimik tayo at pag-isipan itong mabuti.
 
 
 
-Magpakumbaba tayo sa harap ng <i class="trans-change">Panginoon_ at huwag mawalan ng pag-asa. 
+Magpakumbaba tayo sa harap ng Panginoon_ at huwag mawalan ng pag-asa. 
 
 
 
@@ -1393,7 +1393,7 @@ Buksan natin ang ating mga puso at itaas ang ating mga kamay sa Dios na nasa lan
 
 
 
-"<i class="trans-change">Panginoon_, nagkasala po kami at naghimagsik <i class="trans-change">sa inyo_, at hindi nʼyo kami pinatawad. 
+"Panginoon_, nagkasala po kami at naghimagsik sa inyo_, at hindi nʼyo kami pinatawad. 
 
 
 
@@ -1756,7 +1756,7 @@ Hinahabol ako ng aking mga kaaway na parang isang ibon, kahit na wala naman akon
 
 
 
-Sinubukan nila akong patayin <i class="trans-change">sa pamamagitan ng_ pambabato at paghulog sa balon. 
+Sinubukan nila akong patayin sa pamamagitan ng_ pambabato at paghulog sa balon. 
 
 
 

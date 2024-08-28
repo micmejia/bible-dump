@@ -106,7 +106,7 @@ Habang akoʼy natutulog, nanaginip ako. Narinig kong kumakatok ang mahal ko. Ang
 
 
 
-<i class="trans-change">Pero sinabi ko,_ "Hinubad ko na ang aking damit, isusuot ko pa ba itong muli? Hinugasan ko na ang aking mga paa, dudumihan ko pa ba itong muli?" 
+Pero sinabi ko,_ "Hinubad ko na ang aking damit, isusuot ko pa ba itong muli? Hinugasan ko na ang aking mga paa, dudumihan ko pa ba itong muli?" 
 
 
 
@@ -139,7 +139,7 @@ Habang akoʼy natutulog, nanaginip ako. Narinig kong kumakatok ang mahal ko. Ang
 
 
 
-Nang hawakan ng aking mahal ang susian <i class="trans-change">ng pinto,_ biglang tumibok ng mabilis ang aking puso. 
+Nang hawakan ng aking mahal ang susian ng pinto,_ biglang tumibok ng mabilis ang aking puso. 
 
 
 
@@ -337,7 +337,7 @@ O babaeng pinakamaganda, ano bang mayroon sa iyong minamahal na wala sa iba, at 
 
 
 
-Ang aking mahal ay makisig at mamula-mula <i class="trans-change">ang kutis_. Nag-iisa lamang siya sa sampung libong lalaki. 
+Ang aking mahal ay makisig at mamula-mula ang kutis_. Nag-iisa lamang siya sa sampung libong lalaki. 
 
 
 
@@ -469,7 +469,7 @@ Mga pisngi niyaʼy kasimbango ng harding puno ng halamang ginagawang pabango. At
 
 
 
-Mga bisig niyaʼy tila mahahabang bareta ng ginto na napapalamutian ng mamahaling bato. Katawaʼy tila pangil ng elepante, makinang at napapalamutian ng <i class="trans-change">mga batong_ safiro. 
+Mga bisig niyaʼy tila mahahabang bareta ng ginto na napapalamutian ng mamahaling bato. Katawaʼy tila pangil ng elepante, makinang at napapalamutian ng mga batong_ safiro. 
 
 
 
@@ -502,7 +502,7 @@ Mga bisig niyaʼy tila mahahabang bareta ng ginto na napapalamutian ng mamahalin
 
 
 
-Mga paa niyaʼy tulad ng mga haliging marmol na nakatayo sa pundasyong ginto. Napakaganda niyang pagmasdan, tulad ng mga <i class="trans-change">puno ng_ sedro sa Lebanon. 
+Mga paa niyaʼy tulad ng mga haliging marmol na nakatayo sa pundasyong ginto. Napakaganda niyang pagmasdan, tulad ng mga puno ng_ sedro sa Lebanon. 
 
 
 

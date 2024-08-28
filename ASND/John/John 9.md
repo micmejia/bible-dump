@@ -106,7 +106,7 @@ Tinanong si Jesus ng mga tagasunod niya, "Guro, sino po ba ang nagkasala at ipin
 
 
 
-Sumagot si Jesus, "Hindi siya ipinanganak na bulag dahil nagkasala siya o ang mga magulang niya. Nangyari iyon para maipakita ang kapangyarihan ng Dios <i class="trans-change">sa pamamagitan ng pagpapagaling_ sa kanya. 
+Sumagot si Jesus, "Hindi siya ipinanganak na bulag dahil nagkasala siya o ang mga magulang niya. Nangyari iyon para maipakita ang kapangyarihan ng Dios sa pamamagitan ng pagpapagaling_ sa kanya. 
 
 
 
@@ -139,7 +139,7 @@ Sumagot si Jesus, "Hindi siya ipinanganak na bulag dahil nagkasala siya o ang mg
 
 
 
-Hindi baʼt nagtatrabaho ang tao sa araw dahil hindi na siya makakapagtrabaho sa gabi? Kaya dapat gawin na natin ang mga ipinapagawa ng <i class="trans-change">Dios na_ nagpadala sa akin habang magagawa pa natin. Sapagkat darating ang araw na hindi na natin magagawa ang ipinapagawa niya. 
+Hindi baʼt nagtatrabaho ang tao sa araw dahil hindi na siya makakapagtrabaho sa gabi? Kaya dapat gawin na natin ang mga ipinapagawa ng Dios na_ nagpadala sa akin habang magagawa pa natin. Sapagkat darating ang araw na hindi na natin magagawa ang ipinapagawa niya. 
 
 
 
@@ -601,7 +601,7 @@ Kaya tinanong ulit ng mga Pariseo ang dating bulag, "Ano ang masasabi mo tungkol
 
 
 
-Pero ayaw pa ring maniwala ng mga <i class="trans-change">pinuno ng mga_ Judio na siya nga ang dating bulag na ngayon ay nakakakita na. Kaya ipinatawag nila ang mga magulang niya 
+Pero ayaw pa ring maniwala ng mga pinuno ng mga_ Judio na siya nga ang dating bulag na ngayon ay nakakakita na. Kaya ipinatawag nila ang mga magulang niya 
 
 
 
@@ -733,7 +733,7 @@ Pero hindi namin alam kung paano siya nakakita at kung sino ang nagpagaling sa k
 
 
 
-Ito ang sinabi ng mga magulang ng lalaki dahil sa takot sa mga <i class="trans-change">pinuno ng mga_ Judio. Sapagkat napagkasunduan na ng mga <i class="trans-change">pinuno ng mga_ Judio na ang sinumang kikilala kay Jesus bilang Cristo ay hindi na tatanggapin sa sambahan nila. 
+Ito ang sinabi ng mga magulang ng lalaki dahil sa takot sa mga pinuno ng mga_ Judio. Sapagkat napagkasunduan na ng mga pinuno ng mga_ Judio na ang sinumang kikilala kay Jesus bilang Cristo ay hindi na tatanggapin sa sambahan nila. 
 
 
 
@@ -931,7 +931,7 @@ Sumagot siya, "Sinabi ko na po sa inyo, pero ayaw naman ninyong maniwala. Bakit 
 
 
 
-Kaya <i class="trans-change">nagalit sila at_ ininsulto ang lalaki. Sinabi nila, "Tagasunod ka niya, pero kami ay mga tagasunod ni Moises. 
+Kaya nagalit sila at_ ininsulto ang lalaki. Sinabi nila, "Tagasunod ka niya, pero kami ay mga tagasunod ni Moises. 
 
 
 
@@ -1164,7 +1164,7 @@ Sumagot ang mga pinuno ng mga Judio, "Ipinanganak kang makasalanan! At ang lakas
 
 
 
-Nabalitaan ni Jesus na pinagbawalang pumasok <i class="trans-change">sa sambahan_ ang dating bulag, kaya hinanap niya ito. At nang matagpuan niya, tinanong niya ito, "Sumasampalataya ka ba sa Anak ng Tao?" 
+Nabalitaan ni Jesus na pinagbawalang pumasok sa sambahan_ ang dating bulag, kaya hinanap niya ito. At nang matagpuan niya, tinanong niya ito, "Sumasampalataya ka ba sa Anak ng Tao?" 
 
 
 
@@ -1263,7 +1263,7 @@ Sinabi ni Jesus sa kanya, "Nakita mo na siya, at siya ang kausap mo ngayon."
 
 
 
-Sinabi <i class="trans-change">agad_ ng lalaki, "Panginoon, sumasampalataya po ako sa inyo." At lumuhod siya at sumamba kay Jesus. 
+Sinabi agad_ ng lalaki, "Panginoon, sumasampalataya po ako sa inyo." At lumuhod siya at sumamba kay Jesus. 
 
 
 
@@ -1296,7 +1296,7 @@ Sinabi <i class="trans-change">agad_ ng lalaki, "Panginoon, sumasampalataya po a
 
 
 
-Sinabi pa ni Jesus, "Naparito ako sa mundo upang hatulan ang mga tao. Ang mga <i class="trans-change">taong umaaming_ bulag <i class="trans-change">sila sa katotohanan_ ay makakakita, ngunit ang mga <i class="trans-change">nagsasabing_ hindi <i class="trans-change">sila_ bulag <i class="trans-change">sa katotohanan_ ay hindi makakakita." 
+Sinabi pa ni Jesus, "Naparito ako sa mundo upang hatulan ang mga tao. Ang mga taong umaaming_ bulag sila sa katotohanan_ ay makakakita, ngunit ang mga nagsasabing_ hindi sila_ bulag sa katotohanan_ ay hindi makakakita." 
 
 
 
@@ -1362,4 +1362,4 @@ Narinig ito ng ilang Pariseong naroon, at nagtanong sila, "Sinasabi mo bang mga 
 
 
 
-Sumagot si Jesus, "Kung <i class="trans-change">inaamin nʼyong_ mga bulag kayo <i class="trans-change">sa katotohanan_, wala sana kayong kasalanan. Ngunit dahil sinasabi ninyong hindi kayo bulag, <i class="trans-change">nangangahulugan ito na_ may kasalanan pa rin kayo."
+Sumagot si Jesus, "Kung inaamin nʼyong_ mga bulag kayo sa katotohanan_, wala sana kayong kasalanan. Ngunit dahil sinasabi ninyong hindi kayo bulag, nangangahulugan ito na_ may kasalanan pa rin kayo."

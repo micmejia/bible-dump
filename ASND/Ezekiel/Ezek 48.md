@@ -39,7 +39,7 @@ up: ['Ezekiel']
 
 
 
-Ito ang talaan ng mga lahi ng Israel <i class="trans-change">at ang mga lupaing magiging bahagi nila_: Ang lupain para <i class="trans-change">sa lahi ni_ Dan ay nasa hilaga. Ang hangganan nito ay magsisimula sa Hetlon patungo sa Lebo Hamat hanggang sa Hazar Enan na nasa hangganan ng Damascus at ng Hamat sa hilaga. Ang luwang ng lupain <i class="trans-change">para sa lahi_ ni Dan ay magmumula sa silangan hanggang sa kanluran <i class="trans-change">ng Israel_. 
+Ito ang talaan ng mga lahi ng Israel at ang mga lupaing magiging bahagi nila_: Ang lupain para sa lahi ni_ Dan ay nasa hilaga. Ang hangganan nito ay magsisimula sa Hetlon patungo sa Lebo Hamat hanggang sa Hazar Enan na nasa hangganan ng Damascus at ng Hamat sa hilaga. Ang luwang ng lupain para sa lahi_ ni Dan ay magmumula sa silangan hanggang sa kanluran ng Israel_. 
 
 
 
@@ -72,7 +72,7 @@ Ito ang talaan ng mga lahi ng Israel <i class="trans-change">at ang mga lupaing 
 
 
 
-Ang lupain <i class="trans-change">ng lahi_ ni Asher ay nasa bandang timog ng lupain <i class="trans-change">ng lahi_ ni Dan, at ang luwang nito ay mula rin sa silangan hanggang sa kanluran <i class="trans-change">ng Israel_. 
+Ang lupain ng lahi_ ni Asher ay nasa bandang timog ng lupain ng lahi_ ni Dan, at ang luwang nito ay mula rin sa silangan hanggang sa kanluran ng Israel_. 
 
 
 
@@ -105,7 +105,7 @@ Ang lupain <i class="trans-change">ng lahi_ ni Asher ay nasa bandang timog ng lu
 
 
 
-Katabi ng lupain <i class="trans-change">ng lahi_ ni Asher ang lupain <i class="trans-change">ng lahi_ ni Naftali na nasa hilaga ng lupain ni Asher at ang luwang nito ay mula rin sa silangan hanggang sa kanluran ng lupain <i class="trans-change">ng Israel_. 
+Katabi ng lupain ng lahi_ ni Asher ang lupain ng lahi_ ni Naftali na nasa hilaga ng lupain ni Asher at ang luwang nito ay mula rin sa silangan hanggang sa kanluran ng lupain ng Israel_. 
 
 
 
@@ -138,9 +138,9 @@ Katabi ng lupain <i class="trans-change">ng lahi_ ni Asher ang lupain <i class="
 
 
 
-Ang lupain <i class="trans-change">ng lahi_ ni Manase ay nasa gawing timog ng lupain <i class="trans-change">ng lahi_ ni Naftali, at ang luwang nito ay mula pa rin sa silangan hanggang sa kanluran <i class="trans-change">ng Israel_.
+Ang lupain ng lahi_ ni Manase ay nasa gawing timog ng lupain ng lahi_ ni Naftali, at ang luwang nito ay mula pa rin sa silangan hanggang sa kanluran ng Israel_.
 
-###### 5-7 Ang susunod pang mga lupa ay pag-aari ng lahi nina Efraim, Reuben, at ni Juda, na ang lawak ay mula rin sa silangan hanggang sa kanluran <i class="trans-change">ng Israel_. 
+###### 5-7 Ang susunod pang mga lupa ay pag-aari ng lahi nina Efraim, Reuben, at ni Juda, na ang lawak ay mula rin sa silangan hanggang sa kanluran ng Israel_. 
 
 
 
@@ -173,7 +173,7 @@ Ang lupain <i class="trans-change">ng lahi_ ni Manase ay nasa gawing timog ng lu
 
 
 
-Ang lupain sa bandang hilaga ng Juda ay ibibigay ninyo sa Panginoon bilang tanging handog. Ang haba nito ay 12 kilometro at ang luwang ay mula rin sa silangan hanggang sa kanluran <i class="trans-change">ng Israel_, katulad din ng sa mga lahi <i class="trans-change">ng Israel_. Sa gitna ng lupang ito itatayo ang templo. 
+Ang lupain sa bandang hilaga ng Juda ay ibibigay ninyo sa Panginoon bilang tanging handog. Ang haba nito ay 12 kilometro at ang luwang ay mula rin sa silangan hanggang sa kanluran ng Israel_, katulad din ng sa mga lahi ng Israel_. Sa gitna ng lupang ito itatayo ang templo. 
 
 
 
@@ -206,7 +206,7 @@ Ang lupain sa bandang hilaga ng Juda ay ibibigay ninyo sa Panginoon bilang tangi
 
 
 
-Ang bahaging ibibigay ninyo sa Panginoon <i class="trans-change">para pagtayuan ng templo_ ay 12 kilometro ang haba at 5 kilometro ang luwang. 
+Ang bahaging ibibigay ninyo sa Panginoon para pagtayuan ng templo_ ay 12 kilometro ang haba at 5 kilometro ang luwang. 
 
 
 
@@ -272,7 +272,7 @@ At ang natitirang kalahati ng lupaing ito ay para sa mga pari, 12 kilometro ang 
 
 
 
-Ang lupang ito ay para sa mga hinirang na pari, na anak ni Zadok, na aking tapat na lingkod. Hindi siya lumayo sa akin, hindi katulad ng ginawa ng ibang Levita na sumama sa mga Israelitang tumalikod sa akin. <sup class="versenum">12-13</sup>Ito ang natatanging handog para sa kanila sa panahong paghahati-hatiin na ninyo ang lupain, at ito ang kabanal-banalang lupa. Katabi nito ay ang lupain para sa ibang Levita na 12 kilometro ang haba at limang kilometro ang luwang. 
+Ang lupang ito ay para sa mga hinirang na pari, na anak ni Zadok, na aking tapat na lingkod. Hindi siya lumayo sa akin, hindi katulad ng ginawa ng ibang Levita na sumama sa mga Israelitang tumalikod sa akin. 12-13Ito ang natatanging handog para sa kanila sa panahong paghahati-hatiin na ninyo ang lupain, at ito ang kabanal-banalang lupa. Katabi nito ay ang lupain para sa ibang Levita na 12 kilometro ang haba at limang kilometro ang luwang. 
 
 
 
@@ -371,7 +371,7 @@ Ang natitirang lupain na 12 kilometro ang haba at dalawaʼt kalahating kilometro
 
 
 
-na ang luwang ay dalawang kilometro sa gawing kanluran, dalawang kilometro sa gawing silangan, dalawang kilometro sa gawing hilaga, at dalawang kilometro <i class="trans-change">rin_ sa gawing timog. 
+na ang luwang ay dalawang kilometro sa gawing kanluran, dalawang kilometro sa gawing silangan, dalawang kilometro sa gawing hilaga, at dalawang kilometro rin_ sa gawing timog. 
 
 
 
@@ -503,7 +503,7 @@ na mula sa ibaʼt ibang lahi ng Israel. Maaari silang magtanim sa lupang ito.
 
 
 
-Kaya ang kabuuan ng lupaing ibibigay ninyo sa Panginoon bilang natatanging handog pati na ang banal na lupa at ang lungsod ay 12 kilometro kwadrado. <sup class="versenum">21-22</sup>Ang natitirang lupain sa gawing silangan at kanluran ng banal na lupain at ng lungsod ay para sa pinuno. Ang mga lupaing ito ay may luwang na 12 kilometro na umaabot hanggang sa hangganan sa silangan at kanluran. Kaya sa gitna ng lupain na para sa pinuno ay ang aking banal na lugar, ang templo, ang lupain ng mga Levita, at ang bayan. Ang lupaing para sa pinuno ay nasa gitna ng lupain <i class="trans-change">ng lahi ni Juda_ at <i class="trans-change">ng lahi_ ni Benjamin. 
+Kaya ang kabuuan ng lupaing ibibigay ninyo sa Panginoon bilang natatanging handog pati na ang banal na lupa at ang lungsod ay 12 kilometro kwadrado. 21-22Ang natitirang lupain sa gawing silangan at kanluran ng banal na lupain at ng lungsod ay para sa pinuno. Ang mga lupaing ito ay may luwang na 12 kilometro na umaabot hanggang sa hangganan sa silangan at kanluran. Kaya sa gitna ng lupain na para sa pinuno ay ang aking banal na lugar, ang templo, ang lupain ng mga Levita, at ang bayan. Ang lupaing para sa pinuno ay nasa gitna ng lupain ng lahi ni Juda_ at ng lahi_ ni Benjamin. 
 
 
 
@@ -536,7 +536,7 @@ Kaya ang kabuuan ng lupaing ibibigay ninyo sa Panginoon bilang natatanging hando
 
 
 
-Ito naman ang mga lupaing tatanggapin ng ibang mga lahi: Ang lupain <i class="trans-change">ng lahi_ ni Benjamin ay nasa gawing timog ng lupain ng mga pinuno, at ang lawak ay mula sa silangan hanggang sa kanluran ng lupain <i class="trans-change">ng Israel_. 
+Ito naman ang mga lupaing tatanggapin ng ibang mga lahi: Ang lupain ng lahi_ ni Benjamin ay nasa gawing timog ng lupain ng mga pinuno, at ang lawak ay mula sa silangan hanggang sa kanluran ng lupain ng Israel_. 
 
 
 
@@ -569,7 +569,7 @@ Ito naman ang mga lupaing tatanggapin ng ibang mga lahi: Ang lupain <i class="tr
 
 
 
-Katabi ng lupain <i class="trans-change">ng lahi_ ni Benjamin sa gawing timog ay ang <i class="trans-change">lahi_ ni Simeon at ang haba nito ay mula sa silangan hanggang sa kanluran ng lupain <i class="trans-change">ng Israel_. <sup class="versenum">25-27</sup>Ang susunod pang mga bahagi ay sa <i class="trans-change">lahi_ nina Isacar, Zebulun at Gad, na ang haba ay pawang mula sa silangan hanggang sa kanluran ng lupain <i class="trans-change">ng Israel_. 
+Katabi ng lupain ng lahi_ ni Benjamin sa gawing timog ay ang lahi_ ni Simeon at ang haba nito ay mula sa silangan hanggang sa kanluran ng lupain ng Israel_. 25-27Ang susunod pang mga bahagi ay sa lahi_ nina Isacar, Zebulun at Gad, na ang haba ay pawang mula sa silangan hanggang sa kanluran ng lupain ng Israel_. 
 
 
 
@@ -602,7 +602,7 @@ Katabi ng lupain <i class="trans-change">ng lahi_ ni Benjamin sa gawing timog ay
 
 
 
-Ang hangganan sa timog ng lupaing para <i class="trans-change">sa lahi_ ni Gad ay magsisimula sa Tamar patungo sa bukal ng Meribat Kadesh hanggang sa Lambak ng Egipto patungo sa Dagat ng Mediteraneo. 
+Ang hangganan sa timog ng lupaing para sa lahi_ ni Gad ay magsisimula sa Tamar patungo sa bukal ng Meribat Kadesh hanggang sa Lambak ng Egipto patungo sa Dagat ng Mediteraneo. 
 
 
 
@@ -635,9 +635,9 @@ Ang hangganan sa timog ng lupaing para <i class="trans-change">sa lahi_ ni Gad a
 
 
 
-Ito ang mga lupaing tatanggapin ng mga lahi ng Israel na kanilang mamanahin. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito.
+Ito ang mga lupaing tatanggapin ng mga lahi ng Israel na kanilang mamanahin. Ako,_ ang Panginoong Dios, ang nagsasabi nito.
 
-## Ang mga Pintuan ng Lungsod ng Jerusalem <sup class="versenum">30-34</sup>Ang lungsod <i class="trans-change">ng Jerusalem_ ay napapalibutan ng pader. Sa bawat panig nito ay may tatlong pintuan. Ang tatlong pintuan sa gawing hilaga ng pader ay tatawaging Reuben, Juda, at Levi. Ang tatlong pintuan sa gawing silangan ay tatawaging Jose, Benjamin at Dan. Ang tatlong pintuan sa gawing timog ay tatawaging Simeon, Isacar at Zebulun. At ang tatlong pintuan sa gawing kanluran ay tatawaging Gad, Asher, at Naftali. Ang bawat pader sa ibaʼt ibang panig ay 2,250 metro ang haba. 
+## Ang mga Pintuan ng Lungsod ng Jerusalem 30-34Ang lungsod ng Jerusalem_ ay napapalibutan ng pader. Sa bawat panig nito ay may tatlong pintuan. Ang tatlong pintuan sa gawing hilaga ng pader ay tatawaging Reuben, Juda, at Levi. Ang tatlong pintuan sa gawing silangan ay tatawaging Jose, Benjamin at Dan. Ang tatlong pintuan sa gawing timog ay tatawaging Simeon, Isacar at Zebulun. At ang tatlong pintuan sa gawing kanluran ay tatawaging Gad, Asher, at Naftali. Ang bawat pader sa ibaʼt ibang panig ay 2,250 metro ang haba. 
 
 
 

@@ -337,7 +337,7 @@ Ngayon, magmadali kayong bumalik sa aking ama at sabihin nʼyo sa kanya na ang a
 
 
 
-<i class="trans-change">Sabihin nʼyo rin sa kanya na_ maaari siyang tumira sa lupain ng Goshen kasama ang kanyang mga anak at mga apo, mga hayop, at ang lahat ng ari-arian niya, para malapit siya sa akin. 
+Sabihin nʼyo rin sa kanya na_ maaari siyang tumira sa lupain ng Goshen kasama ang kanyang mga anak at mga apo, mga hayop, at ang lahat ng ari-arian niya, para malapit siya sa akin. 
 
 
 
@@ -403,7 +403,7 @@ Aalagaan ko siya rito sa Goshen dahil may darating pang limang taon na taggutom.
 
 
 
-<i class="trans-change">Nagpatuloy si Jose sa pagsasalita,_ "Ngayong alam nʼyo na, maging ng kapatid kong si Benjamin, na talagang ako si Jose na nakikipag-usap sa inyo. 
+Nagpatuloy si Jose sa pagsasalita,_ "Ngayong alam nʼyo na, maging ng kapatid kong si Benjamin, na talagang ako si Jose na nakikipag-usap sa inyo. 
 
 
 
@@ -436,7 +436,7 @@ Aalagaan ko siya rito sa Goshen dahil may darating pang limang taon na taggutom.
 
 
 
-Sabihin nʼyo sa aking ama ang tungkol sa karangalang nakamit ko rito sa Egipto at ang lahat ng nakita ninyo <i class="trans-change">tungkol sa akin_. At dalhin nʼyo siya agad dito sa akin." 
+Sabihin nʼyo sa aking ama ang tungkol sa karangalang nakamit ko rito sa Egipto at ang lahat ng nakita ninyo tungkol sa akin_. At dalhin nʼyo siya agad dito sa akin." 
 
 
 
@@ -634,7 +634,7 @@ Pagkatapos, dalhin nila rito ang kanilang ama at ang kani-kanilang pamilya, dahi
 
 
 
-"Sabihin mo rin sa kanila na magdala sila ng mga karwahe mula rito sa Egipto para masakyan ng mga asawaʼt anak nila <i class="trans-change">sa paglipat nila rito_. At dalhin nila rito ang kanilang ama. 
+"Sabihin mo rin sa kanila na magdala sila ng mga karwahe mula rito sa Egipto para masakyan ng mga asawaʼt anak nila sa paglipat nila rito_. At dalhin nila rito ang kanilang ama. 
 
 
 
@@ -667,7 +667,7 @@ Pagkatapos, dalhin nila rito ang kanilang ama at ang kani-kanilang pamilya, dahi
 
 
 
-Huwag na silang manghinayang sa mga ari-arian nilang <i class="trans-change">maiiwan_ dahil ang magagandang bagay sa buong Egipto ay magiging sa kanila." 
+Huwag na silang manghinayang sa mga ari-arian nilang maiiwan_ dahil ang magagandang bagay sa buong Egipto ay magiging sa kanila." 
 
 
 
@@ -865,7 +865,7 @@ Kaya umalis sila sa Egipto at bumalik sa kanilang ama sa Canaan.
 
 
 
-<i class="trans-change">Pagdating nila roon,_ sinabi nila sa kanilang ama na buhay pa si Jose, at siya pa nga ang tagapamahala ng buong Egipto. Natulala si Jacob; hindi siya makapaniwala. 
+Pagdating nila roon,_ sinabi nila sa kanilang ama na buhay pa si Jose, at siya pa nga ang tagapamahala ng buong Egipto. Natulala si Jacob; hindi siya makapaniwala. 
 
 
 

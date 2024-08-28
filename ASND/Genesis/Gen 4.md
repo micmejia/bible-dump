@@ -73,7 +73,7 @@ Pagkatapos noon, sumiping si Adan sa asawa niyang si Eva at nagbuntis ito. Nang 
 
 
 
-At muling nanganak si Eva ng lalaki at Abel ang ipinangalan sa kanya. <i class="trans-change">Nang lumaki na sila,_ si Abel ay naging pastol ng mga tupa at kambing, at si Cain naman ay naging magsasaka. 
+At muling nanganak si Eva ng lalaki at Abel ang ipinangalan sa kanya. Nang lumaki na sila,_ si Abel ay naging pastol ng mga tupa at kambing, at si Cain naman ay naging magsasaka. 
 
 
 
@@ -867,4 +867,4 @@ Sumiping muli si Adan kay Eva at nanganak ng isang lalaki at pinangalanan niya i
 
 
 
-Nang <i class="trans-change">bandang_ huli, si Set ay nagkaroon din ng anak na lalaki na pinangalanan niyang Enosh. Nang panahong isinilang si Enosh, ang mga taoʼy nagsimulang tumawag sa pangalan ng Panginoon.
+Nang bandang_ huli, si Set ay nagkaroon din ng anak na lalaki na pinangalanan niyang Enosh. Nang panahong isinilang si Enosh, ang mga taoʼy nagsimulang tumawag sa pangalan ng Panginoon.

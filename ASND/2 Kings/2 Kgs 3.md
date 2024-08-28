@@ -40,7 +40,7 @@ next: ['2 Kgs 4']
 
 
 
-Naging hari ng Israel ang anak ni Ahab na si Joram nang ika-18 taon ng paghahari ni Jehoshafat sa Juda. Sa Samaria <i class="trans-change">tumira si Joram, at_ naghari siya sa loob ng 12 taon. 
+Naging hari ng Israel ang anak ni Ahab na si Joram nang ika-18 taon ng paghahari ni Jehoshafat sa Juda. Sa Samaria tumira si Joram, at_ naghari siya sa loob ng 12 taon. 
 
 
 
@@ -139,7 +139,7 @@ Pero ginawa rin niya ang mga kasalanang ginawa ni Jeroboam na anak ni Nebat at i
 
 
 
-Si Haring Mesha ng Moab ay nag-aalaga ng mga tupa. <i class="trans-change">Taun-taon ay_ nagbibigay siya sa hari ng Israel ng 100,000 batang tupa at balahibo ng 100,000 lalaking tupa <i class="trans-change">dahil sakop ng Israel ang bansa nila_. 
+Si Haring Mesha ng Moab ay nag-aalaga ng mga tupa. Taun-taon ay_ nagbibigay siya sa hari ng Israel ng 100,000 batang tupa at balahibo ng 100,000 lalaking tupa dahil sakop ng Israel ang bansa nila_. 
 
 
 
@@ -205,7 +205,7 @@ Pero pagkamatay ni Ahab, nagrebelde siya sa hari ng Israel.
 
 
 
-Nang panahong iyon, tinipon ni Joram ang buong Israel at umalis sila sa Samaria <i class="trans-change">para lusubin ang Moab_. 
+Nang panahong iyon, tinipon ni Joram ang buong Israel at umalis sila sa Samaria para lusubin ang Moab_. 
 
 
 
@@ -337,7 +337,7 @@ Kaya lumakad ang hari ng Israel, ang hari ng Juda at ang hari ng Edom. Pagkatapo
 
 
 
-Sinabi ng hari ng Israel, "Ano ang gagawin natin? Ipinatawag ba tayong tatlo ng Panginoon para ibigay lang sa kamay <i class="trans-change">ng hari_ ng Moab?" 
+Sinabi ng hari ng Israel, "Ano ang gagawin natin? Ipinatawag ba tayong tatlo ng Panginoon para ibigay lang sa kamay ng hari_ ng Moab?" 
 
 
 
@@ -700,7 +700,7 @@ Kinaumagahan, sa oras ng paghahandog, umagos ang tubig mula sa Edom at napuno ng
 
 
 
-Pagkatapos, nabalitaan ng lahat ng Moabita na lulusubin sila ng mga hari. Kaya tinipon nila ang lahat ng kalalakihan, bata man o matanda, na may kakayahan sa pakikipaglaban at pinapwesto sila sa hangganan <i class="trans-change">ng Moab_. 
+Pagkatapos, nabalitaan ng lahat ng Moabita na lulusubin sila ng mga hari. Kaya tinipon nila ang lahat ng kalalakihan, bata man o matanda, na may kakayahan sa pakikipaglaban at pinapwesto sila sa hangganan ng Moab_. 
 
 
 
@@ -865,7 +865,7 @@ Winasak nila ang mga bayan, hinagisan ng mga bato ang bawat magagandang bukirin 
 
 
 
-Nang makita ng hari ng Moab na natatalo na sila sa labanan, dinala niya ang 700 tao na may mga espada para hawiin ang <i class="trans-change">mga sundalo ng_ hari ng Edom at makatakas, pero nabigo sila. 
+Nang makita ng hari ng Moab na natatalo na sila sa labanan, dinala niya ang 700 tao na may mga espada para hawiin ang mga sundalo ng_ hari ng Edom at makatakas, pero nabigo sila. 
 
 
 

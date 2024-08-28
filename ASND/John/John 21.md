@@ -237,7 +237,7 @@ Sinabi ni Jesus sa kanila, "Ihulog nʼyo ang lambat sa gawing kanan ng bangka at
 
 
 
-Sinabi kay Pedro ng tagasunod na minamahal ni Jesus, "Ang Panginoon iyon!" Nang marinig ito ni Pedro, isinuot niya ang damit na hinubad niya, tumalon sa tubig, <i class="trans-change">at lumangoy papunta sa dalampasigan_. 
+Sinabi kay Pedro ng tagasunod na minamahal ni Jesus, "Ang Panginoon iyon!" Nang marinig ito ni Pedro, isinuot niya ang damit na hinubad niya, tumalon sa tubig, at lumangoy papunta sa dalampasigan_. 
 
 
 
@@ -468,7 +468,7 @@ Kumuha si Jesus ng tinapay at ibinigay sa kanila. Ganoon din ang ginawa niya sa 
 
 
 
-Ito na ang ikatlong pagpapakita ni Jesus sa mga tagasunod <i class="trans-change">niya_ pagkatapos niyang mabuhay muli.
+Ito na ang ikatlong pagpapakita ni Jesus sa mga tagasunod niya_ pagkatapos niyang mabuhay muli.
 
 ## Si Jesus at si Pedro 
 

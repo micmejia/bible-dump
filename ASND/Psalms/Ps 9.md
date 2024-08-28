@@ -469,7 +469,7 @@ Panginoon, tingnan nʼyo po ang pagpapahirap sa akin ng aking mga kaaway. Maawa 
 
 
 
-upang masabi ko <i class="trans-change">sa lahat ng tao_ sa pintuan ng Zion, ang inyong mga ginawa, at akoʼy magagalak at magpupuri dahil sa inyong pagliligtas. 
+upang masabi ko sa lahat ng tao_ sa pintuan ng Zion, ang inyong mga ginawa, at akoʼy magagalak at magpupuri dahil sa inyong pagliligtas. 
 
 
 
@@ -502,7 +502,7 @@ upang masabi ko <i class="trans-change">sa lahat ng tao_ sa pintuan ng Zion, ang
 
 
 
-Nangyari mismo sa kanilang bansa <i class="trans-change">ang plinano nilang masama_. At sila mismo ang nahuli sa sarili nilang bitag. 
+Nangyari mismo sa kanilang bansa ang plinano nilang masama_. At sila mismo ang nahuli sa sarili nilang bitag. 
 
 
 

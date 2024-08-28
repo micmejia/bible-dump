@@ -39,7 +39,7 @@ next: ['1 Chr 2']
 
 
 
-<i class="trans-change">Ang mga lahi ni_ Adan <i class="trans-change">ay sina_ Set, Enosh, 
+Ang mga lahi ni_ Adan ay sina_ Set, Enosh, 
 
 
 
@@ -138,7 +138,7 @@ Enoc, Metusela, Lamec at Noe.
 
 
 
-<i class="trans-change">Ang mga anak na lalaki ni_ Noe <i class="trans-change">ay sina_ Shem, Ham at Jafet.
+Ang mga anak na lalaki ni_ Noe ay sina_ Shem, Ham at Jafet.
 
 ## Ang Lahi ni Jafet 
 
@@ -472,7 +472,7 @@ Si Canaan ang ama nina Sidon at Het. Si Sidon ang panganay.
 
 
 
-<i class="trans-change">Si Canaan ang siya ring pinagmulan ng mga_ Jebuseo, Amoreo, Girgaseo, 
+Si Canaan ang siya ring pinagmulan ng mga_ Jebuseo, Amoreo, Girgaseo, 
 
 
 
@@ -804,7 +804,7 @@ Ofir, Havila at Jobab. Silang lahat ay anak na lalaki ni Joktan.
 
 
 
-<i class="trans-change">Ito ang lahi na mula kay_ Shem: sina Arfaxad, Shela, 
+Ito ang lahi na mula kay_ Shem: sina Arfaxad, Shela, 
 
 
 
@@ -1305,7 +1305,7 @@ Ang mga anak na lalaki ni Seir ay sina Lotan, Shobal, Zibeon, Ana, Dishon, Ezer 
 
 
 
-Ang mga anak na lalaki ni Lotan ay sina Hori at Homam. Magkapatid sina Lotan at Timna <i class="trans-change">na isa pang asawa ni Elipaz_. 
+Ang mga anak na lalaki ni Lotan ay sina Hori at Homam. Magkapatid sina Lotan at Timna na isa pang asawa ni Elipaz_. 
 
 
 
@@ -1604,7 +1604,7 @@ Pagkamatay ni Hadad, pinalitan siya ni Samla na taga-Masreka.
 
 
 
-Pagkamatay ni Samla, pinalitan siya ni Shaul na taga-Rehobot na malapit sa Ilog <i class="trans-change">ng Eufrates_. 
+Pagkamatay ni Samla, pinalitan siya ni Shaul na taga-Rehobot na malapit sa Ilog ng Eufrates_. 
 
 
 

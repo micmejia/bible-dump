@@ -405,7 +405,7 @@ Nainggit ang mga kapatid ni Jose sa kanya, pero si Jacob ay sinarili na lamang a
 
 
 
-<i class="trans-change">Isang araw,_ pumunta ang mga kapatid ni Jose sa Shekem para magbantay ng mga hayop ng kanilang ama. <sup class="versenum">13-14</sup>Sinabi ni Jacob kay Jose, "Ang mga kapatid mo ay naroon sa Shekem na nagpapastol ng mga hayop. Pumunta ka roon at tingnan mo kung maayos ang kalagayan ng mga kapatid mo at ng mga hayop. Bumalik ka agad at sabihin sa akin." Sumagot si Jose, "Opo ama." Kaya mula sa Lambak ng Hebron, pumunta si Jose sa Shekem. 
+Isang araw,_ pumunta ang mga kapatid ni Jose sa Shekem para magbantay ng mga hayop ng kanilang ama. 13-14Sinabi ni Jacob kay Jose, "Ang mga kapatid mo ay naroon sa Shekem na nagpapastol ng mga hayop. Pumunta ka roon at tingnan mo kung maayos ang kalagayan ng mga kapatid mo at ng mga hayop. Bumalik ka agad at sabihin sa akin." Sumagot si Jose, "Opo ama." Kaya mula sa Lambak ng Hebron, pumunta si Jose sa Shekem. 
 
 
 
@@ -900,7 +900,7 @@ Kaya pagdaan ng mga mangangalakal na Ishmaelita, iniahon nila si Jose mula sa ba
 
 
 
-Nang bumalik si Reuben sa balon, wala na doon si Jose. Kaya pinunit niya ang kanyang damit <i class="trans-change">sa lungkot_. 
+Nang bumalik si Reuben sa balon, wala na doon si Jose. Kaya pinunit niya ang kanyang damit sa lungkot_. 
 
 
 
@@ -933,7 +933,7 @@ Nang bumalik si Reuben sa balon, wala na doon si Jose. Kaya pinunit niya ang kan
 
 
 
-Pagkatapos, bumalik siya sa mga kapatid niya at sinabi, "Wala na doon ang <i class="trans-change">nakababata_ nating kapatid. Paano na ako ngayon makakauwi <i class="trans-change">roon kay ama_?" 
+Pagkatapos, bumalik siya sa mga kapatid niya at sinabi, "Wala na doon ang nakababata_ nating kapatid. Paano na ako ngayon makakauwi roon kay ama_?" 
 
 
 
@@ -1065,7 +1065,7 @@ Nakilala agad ni Jacob ang damit. Sinabi niya, "Sa kanya ito! Pinatay siya ng ma
 
 
 
-Pinunit agad ni Jacob ang kanyang damit at nagdamit ng sako <i class="trans-change">bilang pagluluksa_. Nagluksa siya nang matagal sa pagkamatay ng kanyang anak. 
+Pinunit agad ni Jacob ang kanyang damit at nagdamit ng sako bilang pagluluksa_. Nagluksa siya nang matagal sa pagkamatay ng kanyang anak. 
 
 
 

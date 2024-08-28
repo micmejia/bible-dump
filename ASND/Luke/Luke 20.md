@@ -205,7 +205,7 @@ Nag-usap-usap sila, "Kung sasabihin nating mula sa Dios, sasabihin niya, 'Bakit 
 
 
 
-Pero kung sasabihin nating mula sa tao, babatuhin tayo ng mga tao, dahil naniniwala silang si Juan ay propeta <i class="trans-change">ng Dios_." 
+Pero kung sasabihin nating mula sa tao, babatuhin tayo ng mga tao, dahil naniniwala silang si Juan ay propeta ng Dios_." 
 
 
 
@@ -733,7 +733,7 @@ Sinabi ng mga espiya kay Jesus, "Guro, alam naming totoo ang mga sinasabi at iti
 
 
 
-Ngayon para sa inyo, tama po ba na <i class="trans-change">tayong mga Judio ay_ magbayad ng buwis sa Emperador ng Roma o hindi?" 
+Ngayon para sa inyo, tama po ba na tayong mga Judio ay_ magbayad ng buwis sa Emperador ng Roma o hindi?" 
 
 
 
@@ -933,7 +933,7 @@ May ilang Saduceo na lumapit kay Jesus at nagtanong. (Ang mga Saduceo ay hindi n
 
 
 
-Sinabi nila, "Guro, ayon po sa <i class="trans-change">batas na_ isinulat ni Moises, kapag ang isang lalaki ay namatay na walang anak sa kanyang asawa, dapat ay pakasalan ng kapatid niyang lalaki ang naiwan niyang asawa, para magkaanak sila para sa kanya. 
+Sinabi nila, "Guro, ayon po sa batas na_ isinulat ni Moises, kapag ang isang lalaki ay namatay na walang anak sa kanyang asawa, dapat ay pakasalan ng kapatid niyang lalaki ang naiwan niyang asawa, para magkaanak sila para sa kanya. 
 
 
 
@@ -966,7 +966,7 @@ Sinabi nila, "Guro, ayon po sa <i class="trans-change">batas na_ isinulat ni Moi
 
 
 
-Ngayon, may pitong magkakapatid na lalaki. Nag-asawa ang panganay, at namatay na walang anak. <sup class="versenum">30-31</sup>Kaya ang biyuda ay napangasawa ng ikalawang kapatid. Pero namatay din siya na wala silang anak. Ganoon din ang nangyari sa ikatlo hanggang sa ikapitong kapatid. Namatay silang lahat na walang anak sa babae. 
+Ngayon, may pitong magkakapatid na lalaki. Nag-asawa ang panganay, at namatay na walang anak. 30-31Kaya ang biyuda ay napangasawa ng ikalawang kapatid. Pero namatay din siya na wala silang anak. Ganoon din ang nangyari sa ikatlo hanggang sa ikapitong kapatid. Namatay silang lahat na walang anak sa babae. 
 
 
 
@@ -1298,7 +1298,7 @@ At wala nang nangahas na magtanong sa kanya.
 
 
 
-Ngayon, si Jesus naman ang nagtanong sa kanila, "Bakit sinasabi ng mga tao na ang Cristo raw ay lahi <i class="trans-change">lang_ ni David? 
+Ngayon, si Jesus naman ang nagtanong sa kanila, "Bakit sinasabi ng mga tao na ang Cristo raw ay lahi lang_ ni David? 
 
 
 
@@ -1397,7 +1397,7 @@ hanggang sa mapasuko ko sa iyo ang iyong mga kaaway.'
 
 
 
-Ngayon, kung tinawag siya ni David na Panginoon, paano masasabing lahi <i class="trans-change">lang_ siya ni David?" ## Babala Laban sa mga Tagapagturo ng Kautusan 
+Ngayon, kung tinawag siya ni David na Panginoon, paano masasabing lahi lang_ siya ni David?" ## Babala Laban sa mga Tagapagturo ng Kautusan 
 
 
 

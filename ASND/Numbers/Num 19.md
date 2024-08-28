@@ -205,7 +205,7 @@ At habang nakatingin si Eleazar, susunugin ang buong baka – ang balat, ang lam
 
 
 
-Pagkatapos, kukuha si Eleazar ng <i class="trans-change">isang putol ng_ punong sedro, <i class="trans-change">isang sanga ng tanim_ na isopo at pulang panali na ihahagis lahat sa sinusunog na baka. 
+Pagkatapos, kukuha si Eleazar ng isang putol ng_ punong sedro, isang sanga ng tanim_ na isopo at pulang panali na ihahagis lahat sa sinusunog na baka. 
 
 
 
@@ -469,7 +469,7 @@ Ang sinumang makakahipo sa bangkay na hindi naglinis ng kanyang sarili ay para n
 
 
 
-"Ito ang tuntunin kung may taong mamatay sa loob ng tolda: Ang sinumang pumasok sa tolda o kayaʼy naroon na sa loob <i class="trans-change">nang mamatay ang tao_ ay ituturing na marumi sa loob ng pitong araw. 
+"Ito ang tuntunin kung may taong mamatay sa loob ng tolda: Ang sinumang pumasok sa tolda o kayaʼy naroon na sa loob nang mamatay ang tao_ ay ituturing na marumi sa loob ng pitong araw. 
 
 
 
@@ -601,7 +601,7 @@ At ituturing din na marumi ang anumang mga lalagyan sa tolda na walang takip.
 
 
 
-Pagkatapos, kukuha ang taong itinuturing na malinis ng <i class="trans-change">isang sanga ng tanim na_ isopo, at isasawsaw niya ito sa nasabing tubig, at iwiwisik sa tolda <i class="trans-change">na may namatay_ at sa lahat ng kagamitan dito, at sa mga tao na nasa tolda. Wiwisikan din ang taong nakahipo ng buto ng tao o ng libingan, o ang sinumang pinatay o namatay sa natural na kamatayan. 
+Pagkatapos, kukuha ang taong itinuturing na malinis ng isang sanga ng tanim na_ isopo, at isasawsaw niya ito sa nasabing tubig, at iwiwisik sa tolda na may namatay_ at sa lahat ng kagamitan dito, at sa mga tao na nasa tolda. Wiwisikan din ang taong nakahipo ng buto ng tao o ng libingan, o ang sinumang pinatay o namatay sa natural na kamatayan. 
 
 
 

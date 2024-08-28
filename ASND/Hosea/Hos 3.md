@@ -40,7 +40,7 @@ next: ['Hos 4']
 
 
 
-Sinabi ng Panginoon sa akin, "Umalis ka at ipakita mong muli ang pagmamahal mo sa iyong asawa kahit na nangangalunya siya. Mahalin mo siya katulad ng pagmamahal ko sa mga mamamayan ng Israel kahit na sumasamba sila sa ibang mga dios at gustong maghandog <i class="trans-change">sa kanila_ ng mga tinapay na may mga pasas." 
+Sinabi ng Panginoon sa akin, "Umalis ka at ipakita mong muli ang pagmamahal mo sa iyong asawa kahit na nangangalunya siya. Mahalin mo siya katulad ng pagmamahal ko sa mga mamamayan ng Israel kahit na sumasamba sila sa ibang mga dios at gustong maghandog sa kanila_ ng mga tinapay na may mga pasas." 
 
 
 
@@ -139,7 +139,7 @@ At sinabi ko sa kanya, "Makisama ka sa akin ng mahabang panahon, at huwag ka nan
 
 
 
-Nangangahulugan ito na sa mahabang panahon ang mga Israelita ay mawawalan ng hari, pinuno, mga handog, alaalang bato, espesyal na damit <i class="trans-change">sa panghuhula_, at mga dios-diosan. 
+Nangangahulugan ito na sa mahabang panahon ang mga Israelita ay mawawalan ng hari, pinuno, mga handog, alaalang bato, espesyal na damit sa panghuhula_, at mga dios-diosan. 
 
 
 
@@ -172,4 +172,4 @@ Nangangahulugan ito na sa mahabang panahon ang mga Israelita ay mawawalan ng har
 
 
 
-Pero sa bandang huli, magbabalik-loob silang muli sa Panginoon nilang Dios at sa <i class="trans-change">lahi ni_ David na kanilang hari. Buong paggalang silang lalapit sa Panginoon dahil sa kanyang kabutihan.
+Pero sa bandang huli, magbabalik-loob silang muli sa Panginoon nilang Dios at sa lahi ni_ David na kanilang hari. Buong paggalang silang lalapit sa Panginoon dahil sa kanyang kabutihan.

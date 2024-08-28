@@ -172,7 +172,7 @@ Sinabi ni Jesus sa kanila, "Ang isang propeta ay iginagalang kahit saan, maliban
 
 
 
-<i class="trans-change">Iyan ang dahilan kung bakit_ hindi siya nakagawa ng mga himala roon maliban sa ilang maysakit na pinatungan niya ng kanyang kamay at pinagaling. 
+Iyan ang dahilan kung bakit_ hindi siya nakagawa ng mga himala roon maliban sa ilang maysakit na pinatungan niya ng kanyang kamay at pinagaling. 
 
 
 
@@ -240,7 +240,7 @@ Nagtaka siya sa kawalan nila ng pananampalataya sa kanya.
 
 
 
-Tinawag niya ang 12 <i class="trans-change">apostol_ at sinugo sila nang dala-dalawa. Binigyan niya sila ng kapangyarihang magpalayas ng masasamang espiritu. 
+Tinawag niya ang 12 apostol_ at sinugo sila nang dala-dalawa. Binigyan niya sila ng kapangyarihang magpalayas ng masasamang espiritu. 
 
 
 
@@ -572,7 +572,7 @@ Pero nang mabalitaan ni Herodes ang mga sinabing iyon ng mga tao, sinabi niya, "
 
 
 
-Ipinahuli noon ni Herodes si Juan at ipinabilanggo, dahil <i class="trans-change">tinutuligsa ni Juan ang relasyon niya_ kay Herodias. Si Herodias ay asawa ng kapatid ni Herodes na si Felipe. Pero kinuha siya ni Herodes bilang asawa. 
+Ipinahuli noon ni Herodes si Juan at ipinabilanggo, dahil tinutuligsa ni Juan ang relasyon niya_ kay Herodias. Si Herodias ay asawa ng kapatid ni Herodes na si Felipe. Pero kinuha siya ni Herodes bilang asawa. 
 
 
 
@@ -638,7 +638,7 @@ Laging sinasabihan ni Juan si Herodes na hindi tama na kunin niya ang asawa ng k
 
 
 
-Kaya nagkimkim ng galit si Herodias kay Juan, at gusto niya itong ipapatay. Pero hindi niya magawa, <i class="trans-change">dahil ayaw pumayag ni Herodes_. 
+Kaya nagkimkim ng galit si Herodias kay Juan, at gusto niya itong ipapatay. Pero hindi niya magawa, dahil ayaw pumayag ni Herodes_. 
 
 
 
@@ -704,7 +704,7 @@ Takot si Herodes kay Juan dahil alam niyang matuwid at mabuting tao si Juan. Kay
 
 
 
-Pero sa wakas ay dumating din ang pagkakataong hinihintay <i class="trans-change">ni Herodias_. Kaarawan noon ni Herodes at nagdaos siya ng malaking handaan. Inimbita niya ang mga opisyal ng Galilea, mga kumander ng mga sundalong <i class="trans-change">Romano_ at iba pang mga kilalang tao roon. 
+Pero sa wakas ay dumating din ang pagkakataong hinihintay ni Herodias_. Kaarawan noon ni Herodes at nagdaos siya ng malaking handaan. Inimbita niya ang mga opisyal ng Galilea, mga kumander ng mga sundalong Romano_ at iba pang mga kilalang tao roon. 
 
 
 
@@ -1366,7 +1366,7 @@ Kaya umupo nga sila ng grupo-grupo, tig-100 at tig-50 bawat grupo.
 
 
 
-Kinuha ni Jesus ang limang tinapay at dalawang isda. Tumingala siya sa langit at nagpasalamat <i class="trans-change">sa Dios_. Pagkatapos, hinati-hati niya ang tinapay at ibinigay sa mga tagasunod niya para ipamigay sa mga tao. Ganoon din ang ginawa niya sa isda. 
+Kinuha ni Jesus ang limang tinapay at dalawang isda. Tumingala siya sa langit at nagpasalamat sa Dios_. Pagkatapos, hinati-hati niya ang tinapay at ibinigay sa mga tagasunod niya para ipamigay sa mga tao. Ganoon din ang ginawa niya sa isda. 
 
 
 
@@ -1432,7 +1432,7 @@ Kumain silang lahat at nabusog.
 
 
 
-<i class="trans-change">Pagkatapos,_ tinipon nila ang natirang tinapay at isda, at nakapuno sila ng 12 basket. 
+Pagkatapos,_ tinipon nila ang natirang tinapay at isda, at nakapuno sila ng 12 basket. 
 
 
 
@@ -1500,7 +1500,7 @@ Ang bilang ng mga lalaking kumain ay 5,000.
 
 
 
-Pagkatapos, pinasakay agad ni Jesus sa bangka ang mga tagasunod niya at pinauna sa <i class="trans-change">bayan ng_ Betsaida, sa kabila ng lawa, habang pinapauwi niya ang mga tao. 
+Pagkatapos, pinasakay agad ni Jesus sa bangka ang mga tagasunod niya at pinauna sa bayan ng_ Betsaida, sa kabila ng lawa, habang pinapauwi niya ang mga tao. 
 
 
 
@@ -1599,7 +1599,7 @@ Nang gumabi na, nasa laot na ang bangka at siya na lang ang naiwan.
 
 
 
-Nakita niyang hirap sa pagsagwan ang mga tagasunod niya, dahil salungat sila sa hangin. Nang madaling-araw na, sumunod sa kanila si Jesus na naglalakad sa ibabaw ng tubig. Lalampasan na lang sana niya sila, <sup class="versenum">49-50</sup>pero nakita siya ng mga tagasunod niya na lumalakad sa ibabaw ng tubig. Natakot sila at nagsigawan, dahil akala nila ay multo siya. Pero nagsalita agad si Jesus, "Ako ito! Huwag kayong matakot. Lakasan ninyo ang inyong loob." 
+Nakita niyang hirap sa pagsagwan ang mga tagasunod niya, dahil salungat sila sa hangin. Nang madaling-araw na, sumunod sa kanila si Jesus na naglalakad sa ibabaw ng tubig. Lalampasan na lang sana niya sila, 49-50pero nakita siya ng mga tagasunod niya na lumalakad sa ibabaw ng tubig. Natakot sila at nagsigawan, dahil akala nila ay multo siya. Pero nagsalita agad si Jesus, "Ako ito! Huwag kayong matakot. Lakasan ninyo ang inyong loob." 
 
 
 
@@ -1632,7 +1632,7 @@ Nakita niyang hirap sa pagsagwan ang mga tagasunod niya, dahil salungat sila sa 
 
 
 
-Sumakay siya sa bangka at biglang tumigil ang <i class="trans-change">malakas na_ hangin. Namangha sila nang husto, 
+Sumakay siya sa bangka at biglang tumigil ang malakas na_ hangin. Namangha sila nang husto, 
 
 
 
@@ -1665,7 +1665,7 @@ Sumakay siya sa bangka at biglang tumigil ang <i class="trans-change">malakas na
 
 
 
-dahil hindi pa rin sila nakakaunawa kahit nakita na nila ang himalang ginawa ni Jesus sa tinapay. <i class="trans-change">Ayaw nilang maniwala_ dahil matigas ang puso nila.
+dahil hindi pa rin sila nakakaunawa kahit nakita na nila ang himalang ginawa ni Jesus sa tinapay. Ayaw nilang maniwala_ dahil matigas ang puso nila.
 
 ## Pinagaling ni Jesus ang mga May Sakit sa Genesaret 
 

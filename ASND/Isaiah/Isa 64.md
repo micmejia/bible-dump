@@ -40,7 +40,7 @@ next: ['Isa 65']
 
 
 
-<i class="trans-change">Panginoon,_ punitin nʼyo po ang kalangitan. Bumaba kayo, at yayanig ang mga bundok kapag nakita kayo. 
+Panginoon,_ punitin nʼyo po ang kalangitan. Bumaba kayo, at yayanig ang mga bundok kapag nakita kayo. 
 
 
 

@@ -73,7 +73,7 @@ Kaya ngayon, hindi na hahatulan ng kaparusahan ang mga nakay Cristo Jesus.
 
 
 
-Sapagkat sa pakikipag-isa natin kay Cristo Jesus, pinalaya na tayo sa kapangyarihan ng kasalanan at kamatayan sa pamamagitan ng kapangyarihan ng <i class="trans-change">Banal na_ Espiritu na nagbibigay-buhay. 
+Sapagkat sa pakikipag-isa natin kay Cristo Jesus, pinalaya na tayo sa kapangyarihan ng kasalanan at kamatayan sa pamamagitan ng kapangyarihan ng Banal na_ Espiritu na nagbibigay-buhay. 
 
 
 
@@ -139,7 +139,7 @@ Ang Kautusan ay hindi makapag-aalis ng kapangyarihan ng kasalanan sa ating buhay
 
 
 
-Ginawa ito ng Dios para ang ipinatutupad ng Kautusan ay matupad nating mga namumuhay sa patnubay ng <i class="trans-change">Banal na_ Espiritu at hindi ayon sa ating makasalanang pagkatao. 
+Ginawa ito ng Dios para ang ipinatutupad ng Kautusan ay matupad nating mga namumuhay sa patnubay ng Banal na_ Espiritu at hindi ayon sa ating makasalanang pagkatao. 
 
 
 
@@ -172,7 +172,7 @@ Ginawa ito ng Dios para ang ipinatutupad ng Kautusan ay matupad nating mga namum
 
 
 
-Sapagkat ang mga taong namumuhay ayon sa kanilang makasalanang pagkatao ay walang ibang iniisip kundi ang nais ng kanilang pagkatao. Pero ang tao namang namumuhay ayon sa <i class="trans-change">Banal na_ Espiritu ay walang ibang iniisip kundi ang nais ng <i class="trans-change">Banal na_ Espiritu. 
+Sapagkat ang mga taong namumuhay ayon sa kanilang makasalanang pagkatao ay walang ibang iniisip kundi ang nais ng kanilang pagkatao. Pero ang tao namang namumuhay ayon sa Banal na_ Espiritu ay walang ibang iniisip kundi ang nais ng Banal na_ Espiritu. 
 
 
 
@@ -205,7 +205,7 @@ Sapagkat ang mga taong namumuhay ayon sa kanilang makasalanang pagkatao ay walan
 
 
 
-Ang kahihinatnan ng pagsunod sa nais ng makasalanang pagkatao ay kamatayan, pero ang kahihinatnan ng pagsunod sa nais ng <i class="trans-change">Banal na_ Espiritu ay kapayapaan at buhay <i class="trans-change">na walang hanggan_. 
+Ang kahihinatnan ng pagsunod sa nais ng makasalanang pagkatao ay kamatayan, pero ang kahihinatnan ng pagsunod sa nais ng Banal na_ Espiritu ay kapayapaan at buhay na walang hanggan_. 
 
 
 
@@ -370,7 +370,7 @@ Pero dahil nasa inyo na si Cristo, mamatay man ang katawan nʼyo dahil sa kasala
 
 
 
-At dahil nasa inyo na ang Espiritu <i class="trans-change">ng Dios_ na muling bumuhay kay Jesu-Cristo, siya rin ang magbibigay ng buhay sa inyong mga katawang may kamatayan. Gagawin niya ito sa pamamagitan ng kanyang Espiritung nananahan sa inyo. 
+At dahil nasa inyo na ang Espiritu ng Dios_ na muling bumuhay kay Jesu-Cristo, siya rin ang magbibigay ng buhay sa inyong mga katawang may kamatayan. Gagawin niya ito sa pamamagitan ng kanyang Espiritung nananahan sa inyo. 
 
 
 
@@ -436,7 +436,7 @@ Kaya nga mga kapatid, hindi tayo dapat mamuhay ayon sa ating makasalanang pagkat
 
 
 
-Sapagkat mamamatay kayo kapag namuhay kayo ayon sa inyong makasalanang pagkatao. Pero mabubuhay kayo kung susupilin ninyo ang inyong makasalanang pagkatao sa pamamagitan ng <i class="trans-change">Banal na_ Espiritu. 
+Sapagkat mamamatay kayo kapag namuhay kayo ayon sa inyong makasalanang pagkatao. Pero mabubuhay kayo kung susupilin ninyo ang inyong makasalanang pagkatao sa pamamagitan ng Banal na_ Espiritu. 
 
 
 
@@ -535,7 +535,7 @@ At ang Espiritu na tinanggap ninyo ay hindi kayo inalipin upang muling matakot, 
 
 
 
-Ang <i class="trans-change">Banal na_ Espiritu at ang ating espiritu ay parehong nagpapatunay na tayoʼy mga anak ng Dios. 
+Ang Banal na_ Espiritu at ang ating espiritu ay parehong nagpapatunay na tayoʼy mga anak ng Dios. 
 
 
 
@@ -568,7 +568,7 @@ Ang <i class="trans-change">Banal na_ Espiritu at ang ating espiritu ay parehong
 
 
 
-At bilang mga anak, mga tagapagmana tayo ng Dios at kasama ni Cristo na magmamana <i class="trans-change">ng mga pagpapalang inilaan niya_. Sapagkat kung magtitiis tayo kagaya ni Cristo noon, darating ang araw na pararangalan din tayong kasama niya.
+At bilang mga anak, mga tagapagmana tayo ng Dios at kasama ni Cristo na magmamana ng mga pagpapalang inilaan niya_. Sapagkat kung magtitiis tayo kagaya ni Cristo noon, darating ang araw na pararangalan din tayong kasama niya.
 
 ## Ang Napakagandang Kalagayan sa Hinaharap 
 
@@ -768,7 +768,7 @@ Alam natin na hanggang ngayon, ang buong nilikha ay naghihirap at dumaraing tula
 
 
 
-At hindi lamang ang buong nilikha, kundi pati tayong mga tumanggap ng <i class="trans-change">Banal na_ Espiritu na siyang unang kaloob ng Dios ay dumaraing din habang naghihintay tayo na matubos ang ating mga katawan at mahayag ang ganap na katayuan natin bilang mga anak ng Dios. 
+At hindi lamang ang buong nilikha, kundi pati tayong mga tumanggap ng Banal na_ Espiritu na siyang unang kaloob ng Dios ay dumaraing din habang naghihintay tayo na matubos ang ating mga katawan at mahayag ang ganap na katayuan natin bilang mga anak ng Dios. 
 
 
 
@@ -867,7 +867,7 @@ Pero kung ang inaasahan natiʼy wala pa, maghihintay tayo nang may pagtitiyaga.
 
 
 
-Tinutulungan tayo ng <i class="trans-change">Banal na_ Espiritu sa kahinaan natin. Hindi natin alam kung ano ang dapat nating ipanalangin, kaya ang Espiritu na rin ang namamagitan sa Dios para sa atin sa pamamagitan ng mga daing na hindi natin kayang sabihin. 
+Tinutulungan tayo ng Banal na_ Espiritu sa kahinaan natin. Hindi natin alam kung ano ang dapat nating ipanalangin, kaya ang Espiritu na rin ang namamagitan sa Dios para sa atin sa pamamagitan ng mga daing na hindi natin kayang sabihin. 
 
 
 
@@ -900,7 +900,7 @@ Tinutulungan tayo ng <i class="trans-change">Banal na_ Espiritu sa kahinaan nati
 
 
 
-At ang anumang nais sabihin ng <i class="trans-change">Banal na_ Espiritu ay alam ng Dios na siyang sumisiyasat sa puso ng mga tao. Sapagkat namamagitan ang <i class="trans-change">Banal na_ Espiritu para sa mga mananampalataya, kung ano ang ayon sa kalooban ng Dios. 
+At ang anumang nais sabihin ng Banal na_ Espiritu ay alam ng Dios na siyang sumisiyasat sa puso ng mga tao. Sapagkat namamagitan ang Banal na_ Espiritu para sa mga mananampalataya, kung ano ang ayon sa kalooban ng Dios. 
 
 
 
@@ -999,7 +999,7 @@ Sapagkat alam na ng Dios noon pa man kung sinu-sino ang kanyang magiging mga ana
 
 
 
-Kaya nga, ang mga taong pinili ng Dios noong una pa ay tinawag niya <i class="trans-change">para maging kanyang mga anak_, at ang mga tinawag niya ay itinuring niyang matuwid, at ang itinuring niyang matuwid ay binigyan niya ng karangalan.
+Kaya nga, ang mga taong pinili ng Dios noong una pa ay tinawag niya para maging kanyang mga anak_, at ang mga tinawag niya ay itinuring niyang matuwid, at ang itinuring niyang matuwid ay binigyan niya ng karangalan.
 
 ## Ang Pag-ibig ng Dios 
 
@@ -1133,7 +1133,7 @@ Sino ang maaaring mag-akusa sa mga pinili ng Dios? Ang Dios na mismo ang nagturi
 
 
 
-Wala ring makakahatol sa atin ng kaparusahan, dahil si Cristo Jesus na mismo ang <i class="trans-change">hinatulang_ mamatay <i class="trans-change">para sa atin_. At hindi lang iyan, muli siyang binuhay at nasa kanang kamay na ngayon ng Dios at namamagitan para sa atin. 
+Wala ring makakahatol sa atin ng kaparusahan, dahil si Cristo Jesus na mismo ang hinatulang_ mamatay para sa atin_. At hindi lang iyan, muli siyang binuhay at nasa kanang kamay na ngayon ng Dios at namamagitan para sa atin. 
 
 
 
@@ -1232,4 +1232,4 @@ Gaya nga ng sinasabi sa Kasulatan, "Alang-alang sa iyo, palaging nasa panganib a
 
 
 
-Pero kahit ganito ang kalagayan natin, kayang-kaya nating pagtagumpayan ito sa tulong ni Cristo na nagmamahal sa atin. <sup class="versenum">38-39</sup>Sapagkat natitiyak ko na walang makakapaghiwalay sa atin sa pag-ibig ng Dios na ipinakita sa atin sa pamamagitan ni Cristo Jesus na ating Panginoon. Maging kamatayan o buhay, mga anghel o anumang makapangyarihang espiritu, ang kasalukuyang panahon o ang hinaharap, ang mga kapangyarihan, ang mga nasa itaas o mga nasa ibaba, o kahit ano pang mga bagay sa buong mundo ay hindi makapaghihiwalay sa atin sa pag-ibig ng Dios.
+Pero kahit ganito ang kalagayan natin, kayang-kaya nating pagtagumpayan ito sa tulong ni Cristo na nagmamahal sa atin. 38-39Sapagkat natitiyak ko na walang makakapaghiwalay sa atin sa pag-ibig ng Dios na ipinakita sa atin sa pamamagitan ni Cristo Jesus na ating Panginoon. Maging kamatayan o buhay, mga anghel o anumang makapangyarihang espiritu, ang kasalukuyang panahon o ang hinaharap, ang mga kapangyarihan, ang mga nasa itaas o mga nasa ibaba, o kahit ano pang mga bagay sa buong mundo ay hindi makapaghihiwalay sa atin sa pag-ibig ng Dios.

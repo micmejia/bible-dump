@@ -337,7 +337,7 @@ Nang pababa na sila sa bundok, sinabihan sila ni Jesus, "Huwag ninyong sasabihin
 
 
 
-Tinanong siya ng <i class="trans-change">kanyang_ mga tagasunod, "Bakit sinasabi ng mga tagapagturo ng Kautusan na kailangan daw munang dumating si Elias <i class="trans-change">bago dumating ang Cristo_?" 
+Tinanong siya ng kanyang_ mga tagasunod, "Bakit sinasabi ng mga tagapagturo ng Kautusan na kailangan daw munang dumating si Elias bago dumating ang Cristo_?" 
 
 
 
@@ -403,7 +403,7 @@ Sumagot si Jesus, "Totoo iyan, kailangan ngang dumating muna si Elias upang ihan
 
 
 
-Ngunit sinasabi ko sa inyo: dumating na si Elias. Kaya lang hindi siya nakilala ng mga tao at ginawa nila ang gusto nilang gawin sa kanya. Ganyan din ang gagawin nila sa <i class="trans-change">akin na_ Anak ng Tao. Pahihirapan din nila ako." 
+Ngunit sinasabi ko sa inyo: dumating na si Elias. Kaya lang hindi siya nakilala ng mga tao at ginawa nila ang gusto nilang gawin sa kanya. Ganyan din ang gagawin nila sa akin na_ Anak ng Tao. Pahihirapan din nila ako." 
 
 
 

@@ -55,7 +55,7 @@ That I may tell of all Your praise In the gates of the daughter of Zion. I will 
 The nations have sunk down in the pit _which_ they made; In the net which they hid, their own foot is caught. 
 
 ###### 16 
-The Lord is known _by_ the judgment He executes; The wicked is snared in the work of his own hands. Meditation. <i class="selah">Selah_ 
+The Lord is known _by_ the judgment He executes; The wicked is snared in the work of his own hands. Meditation. Selah_ 
 
 ###### 17 
 The wicked shall be turned into hell, _And_ all the nations that forget God. 
@@ -67,4 +67,4 @@ For the needy shall not always be forgotten; The expectation of the poor shall _
 Arise, O Lord, Do not let man prevail; Let the nations be judged in Your sight. 
 
 ###### 20 
-Put them in fear, O Lord, _That_ the nations may know themselves _to be but_ men. <i class="selah">Selah_
+Put them in fear, O Lord, _That_ the nations may know themselves _to be but_ men. Selah_

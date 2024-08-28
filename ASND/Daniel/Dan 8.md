@@ -172,7 +172,7 @@ Nakita kong nanunuwag ito kahit saan mang lugar. Walang ibang hayop na makapigil
 
 
 
-Habang itoʼy tinitingnan ko, biglang dumating ang isang kambing mula sa kanluran. Umikot ito sa buong mundo na hindi sumasayad ang paa sa lupa <i class="trans-change">sa sobrang bilis_. Mayroon siyang kakaibang sungay sa gitna ng kanyang mga mata. 
+Habang itoʼy tinitingnan ko, biglang dumating ang isang kambing mula sa kanluran. Umikot ito sa buong mundo na hindi sumasayad ang paa sa lupa sa sobrang bilis_. Mayroon siyang kakaibang sungay sa gitna ng kanyang mga mata. 
 
 
 
@@ -370,7 +370,7 @@ Lalo pa siyang naging makapangyarihan hanggang sa kalangitan, at pinabagsak niya
 
 
 
-Itinuring niya ang kanyang sarili na higit na makapangyarihan kaysa sa Pinuno ng mga nilalang sa langit. Pinatigil niya ang araw-araw na paghahandog sa <i class="trans-change">templo ng_ Dios, at nilapastangan niya ang templo. 
+Itinuring niya ang kanyang sarili na higit na makapangyarihan kaysa sa Pinuno ng mga nilalang sa langit. Pinatigil niya ang araw-araw na paghahandog sa templo ng_ Dios, at nilapastangan niya ang templo. 
 
 
 
@@ -436,7 +436,7 @@ Sa ginawa niyang iyon, ipinasakop sa kanya ang mga nilalang sa langit at ang ara
 
 
 
-Narinig kong nag-uusap ang dalawang anghel. Ang isang anghel ay nagtatanong sa isa, "Hanggang kailan kaya tatagal ang mga pangyayaring ito na nasa pangitain? Ang <i class="trans-change">pagpapatigil sa_ araw-araw na paghahandog, ang paglapastangan sa templo na magiging dahilan para pabayaan ito, at ang pagyurak sa mga nilalang sa langit?" 
+Narinig kong nag-uusap ang dalawang anghel. Ang isang anghel ay nagtatanong sa isa, "Hanggang kailan kaya tatagal ang mga pangyayaring ito na nasa pangitain? Ang pagpapatigil sa_ araw-araw na paghahandog, ang paglapastangan sa templo na magiging dahilan para pabayaan ito, at ang pagyurak sa mga nilalang sa langit?" 
 
 
 
@@ -832,7 +832,7 @@ Siyaʼy magiging makapangyarihan, pero hindi tulad ng haring nauna sa kanya. Mag
 
 
 
-Dahil sa kanyang kakayahan, magtatagumpay siya sa kanyang pandaraya. Ipagmamalaki niya ang kanyang sarili, at maraming tao ang kanyang papatayin ng walang anumang babala. Lalabanan niya pati ang Pinuno ng mga pinuno. Pero lilipulin siya hindi sa kapangyarihan ng tao <i class="trans-change">kundi sa kapangyarihan ng Dios_. 
+Dahil sa kanyang kakayahan, magtatagumpay siya sa kanyang pandaraya. Ipagmamalaki niya ang kanyang sarili, at maraming tao ang kanyang papatayin ng walang anumang babala. Lalabanan niya pati ang Pinuno ng mga pinuno. Pero lilipulin siya hindi sa kapangyarihan ng tao kundi sa kapangyarihan ng Dios_. 
 
 
 
@@ -865,7 +865,7 @@ Dahil sa kanyang kakayahan, magtatagumpay siya sa kanyang pandaraya. Ipagmamalak
 
 
 
-"Ang pangitaing nakita mo tungkol sa <i class="trans-change">pagpapatigil ng_ pang-umaga at panghapon <i class="trans-change">na paghahandog_ ay totoo. Pero huwag mo munang ihayag ito dahil matatagalan pa bago ito maganap." 
+"Ang pangitaing nakita mo tungkol sa pagpapatigil ng_ pang-umaga at panghapon na paghahandog_ ay totoo. Pero huwag mo munang ihayag ito dahil matatagalan pa bago ito maganap." 
 
 
 
@@ -898,4 +898,4 @@ Dahil sa kanyang kakayahan, magtatagumpay siya sa kanyang pandaraya. Ipagmamalak
 
 
 
-<i class="trans-change">Pagkatapos noon,_ akong si Daniel ay nanghina at nagkasakit nang ilang araw. Nang gumaling ako, bumalik ako sa trabaho na ibinigay sa akin ng hari. Pero patuloy ko pa ring iniisip ang pangitaing iyon na hindi ko lubos na maunawaan.
+Pagkatapos noon,_ akong si Daniel ay nanghina at nagkasakit nang ilang araw. Nang gumaling ako, bumalik ako sa trabaho na ibinigay sa akin ng hari. Pero patuloy ko pa ring iniisip ang pangitaing iyon na hindi ko lubos na maunawaan.

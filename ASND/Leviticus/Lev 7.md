@@ -172,7 +172,7 @@ ang mga bato at ang taba nito, pati na ang maliit na bahagi ng atay.
 
 
 
-<i class="trans-change">Lahat ng_ itoʼy susunugin ng pari sa altar bilang handog sa Panginoon sa pamamagitan ng apoy. Itoʼy handog na pambayad ng kasalanan. 
+Lahat ng_ itoʼy susunugin ng pari sa altar bilang handog sa Panginoon sa pamamagitan ng apoy. Itoʼy handog na pambayad ng kasalanan. 
 
 
 
@@ -405,7 +405,7 @@ Ito ang mga tuntunin tungkol sa handog para sa mabuting relasyon na iniaalay sa 
 
 
 
-Kung ang <i class="trans-change">hayop na_ handog para sa mabuting relasyon ay inialay bilang handog ng pagpapasalamat <i class="trans-change">sa Panginoon,_ sasamahan niya ito ng tinapay. Magdadala siya ng tinapay na walang pampaalsa katulad ng makapal na tinapay na hinaluan ng langis, manipis na tinapay na pinahiran ng langis, at tinapay na mula sa magandang klaseng harina na hinaluan ng langis. 
+Kung ang hayop na_ handog para sa mabuting relasyon ay inialay bilang handog ng pagpapasalamat sa Panginoon,_ sasamahan niya ito ng tinapay. Magdadala siya ng tinapay na walang pampaalsa katulad ng makapal na tinapay na hinaluan ng langis, manipis na tinapay na pinahiran ng langis, at tinapay na mula sa magandang klaseng harina na hinaluan ng langis. 
 
 
 
@@ -504,7 +504,7 @@ Siyaʼy maghahandog mula sa bawat uri ng tinapay na ito bilang kaloob sa Pangino
 
 
 
-Ang karne ng hayop na inihandog bilang pagpapasalamat <i class="trans-change">sa Panginoon_ ay dapat kainin ng taong naghandog nito at ng sambahayan niya at ng mga pari sa araw ding iyon, at dapat walang matira kinaumagahan. 
+Ang karne ng hayop na inihandog bilang pagpapasalamat sa Panginoon_ ay dapat kainin ng taong naghandog nito at ng sambahayan niya at ng mga pari sa araw ding iyon, at dapat walang matira kinaumagahan. 
 
 
 
@@ -970,7 +970,7 @@ Nag-utos din ang Panginoon kay Moises
 
 
 
-na sabihin ito sa mga taga-Israel: Ang sinumang mag-aalay ng handog para sa mabuting relasyon ay dapat magbukod ng bahagi ng handog na iyon para sa Panginoon <i class="trans-change">na ibibigay sa mga pari_. 
+na sabihin ito sa mga taga-Israel: Ang sinumang mag-aalay ng handog para sa mabuting relasyon ay dapat magbukod ng bahagi ng handog na iyon para sa Panginoon na ibibigay sa mga pari_. 
 
 
 
@@ -1003,7 +1003,7 @@ na sabihin ito sa mga taga-Israel: Ang sinumang mag-aalay ng handog para sa mabu
 
 
 
-At ang bahaging iyon ng handog ay dadalhin mismo ng maghahandog <i class="trans-change">sa altar_ upang ialay sa Panginoon bilang handog sa pamamagitan ng apoy. Dadalhin niya ang taba at pitso ng hayop, at itataas niya ang pitso sa presensya ng Panginoon bilang handog na itinataas. 
+At ang bahaging iyon ng handog ay dadalhin mismo ng maghahandog sa altar_ upang ialay sa Panginoon bilang handog sa pamamagitan ng apoy. Dadalhin niya ang taba at pitso ng hayop, at itataas niya ang pitso sa presensya ng Panginoon bilang handog na itinataas. 
 
 
 
@@ -1036,7 +1036,7 @@ At ang bahaging iyon ng handog ay dadalhin mismo ng maghahandog <i class="trans-
 
 
 
-Pagkatapos, susunugin ng paring namumuno ng seremonya ang taba sa altar, pero ang pitso ay para kay Aaron at sa kanyang angkan. <sup class="versenum">32-33</sup>Ang kanang hita ng hayop na inihandog ay ibibigay sa paring naghahandog ng dugo at taba nito. 
+Pagkatapos, susunugin ng paring namumuno ng seremonya ang taba sa altar, pero ang pitso ay para kay Aaron at sa kanyang angkan. 32-33Ang kanang hita ng hayop na inihandog ay ibibigay sa paring naghahandog ng dugo at taba nito. 
 
 
 

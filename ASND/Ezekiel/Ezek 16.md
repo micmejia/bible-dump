@@ -106,7 +106,7 @@ Sinabi sa akin ng Panginoon,
 
 
 
-Sabihin mo sa kanya na <i class="trans-change">ako,_ ang Panginoong Dios, ang nagsasabi nito sa kanya: Isa kang Canaanita! Ang ama mo ay isang Amoreo at ang iyong ina ay isang Heteo. 
+Sabihin mo sa kanya na ako,_ ang Panginoong Dios, ang nagsasabi nito sa kanya: Isa kang Canaanita! Ang ama mo ay isang Amoreo at ang iyong ina ay isang Heteo. 
 
 
 
@@ -139,7 +139,7 @@ Sabihin mo sa kanya na <i class="trans-change">ako,_ ang Panginoong Dios, ang na
 
 
 
-Nang ipinanganak kaʼy walang <i class="trans-change">nag-asikaso sa iyo_. <i class="trans-change">Walang_ pumutol ng pusod mo, nagpaligo o nagpahid ng asin sa katawan mo at wala ring nagbalot ng lampin sa iyo. 
+Nang ipinanganak kaʼy walang nag-asikaso sa iyo_. Walang_ pumutol ng pusod mo, nagpaligo o nagpahid ng asin sa katawan mo at wala ring nagbalot ng lampin sa iyo. 
 
 
 
@@ -271,7 +271,7 @@ Pinalaki kita tulad ng isang tanim sa bukirin. Lumaki ka at naging dalaga. Lumak
 
 
 
-"Nang muli akong mapadaan, nakita kong ganap ka nang dalaga. Kaya tinakpan ko ng aking balabal ang kahubaran mo at ipinangakong <i class="trans-change">ikaw ay aking mamahalin_. Gumawa ako ng kasunduan sa iyo, at ikaw ay naging akin. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+"Nang muli akong mapadaan, nakita kong ganap ka nang dalaga. Kaya tinakpan ko ng aking balabal ang kahubaran mo at ipinangakong ikaw ay aking mamahalin_. Gumawa ako ng kasunduan sa iyo, at ikaw ay naging akin. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -469,7 +469,7 @@ Pinalamutian kita ng pilak at ginto, dinamitan ng burdadong seda at ang pagkain 
 
 
 
-Naging tanyag ka sa mga bansa dahil sa labis mong kagandahan, at sa karangyaang ibinigay ko sa iyo. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Naging tanyag ka sa mga bansa dahil sa labis mong kagandahan, at sa karangyaang ibinigay ko sa iyo. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -568,7 +568,7 @@ Ginamit mo ang iba mong damit para pagandahin ang mga sambahan sa matataas na lu
 
 
 
-Ginamit mo rin ang mga pilak at gintong alahas na ibinigay ko sa iyo sa paggawa ng mga lalaking dios-diosan na sinamba mo. <i class="trans-change">Kaya_ para ka na ring nangalunya. 
+Ginamit mo rin ang mga pilak at gintong alahas na ibinigay ko sa iyo sa paggawa ng mga lalaking dios-diosan na sinamba mo. Kaya_ para ka na ring nangalunya. 
 
 
 
@@ -634,7 +634,7 @@ Pinadamitan mo ang mga dios-diosang iyon ng mga damit na may mga burda na ibinig
 
 
 
-Inihandog mo rin sa kanila ang mga pagkaing ibinigay ko sa iyo mula sa magandang klaseng harina, pulot at langis ng olibo. Inihandog mo ito sa kanila bilang mabangong handog. <i class="trans-change">Oo_, iyan nga ang nangyari. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Inihandog mo rin sa kanila ang mga pagkaing ibinigay ko sa iyo mula sa magandang klaseng harina, pulot at langis ng olibo. Inihandog mo ito sa kanila bilang mabangong handog. Oo_, iyan nga ang nangyari. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -733,7 +733,7 @@ Pinatay mo pa ang mga anak ko at inihandog sa mga dios-diosan.
 
 
 
-Sa lahat ng kasuklam-suklam mong gawain at pagpapagamit sa iba ay hindi mo na naisip <i class="trans-change">kung papaano kita inalagaan_ noong kabataan mo pa, noong hubad ka at kumakawag-kawag sa sarili mong dugo. 
+Sa lahat ng kasuklam-suklam mong gawain at pagpapagamit sa iba ay hindi mo na naisip kung papaano kita inalagaan_ noong kabataan mo pa, noong hubad ka at kumakawag-kawag sa sarili mong dugo. 
 
 
 
@@ -766,7 +766,7 @@ Sa lahat ng kasuklam-suklam mong gawain at pagpapagamit sa iba ay hindi mo na na
 
 
 
-"<i class="trans-change">Ako,_ ang Panginoong Dios ay nagsasabing, nakakaawa ka! Maliban sa mga kasamaang ito na ginawa mo, 
+"Ako,_ ang Panginoong Dios ay nagsasabing, nakakaawa ka! Maliban sa mga kasamaang ito na ginawa mo, 
 
 
 
@@ -997,7 +997,7 @@ Lalo pang tumindi ang iyong pagnanasa at nangalunya ka pa sa Babilonia na lugar 
 
 
 
-"<i class="trans-change">Ako,_ ang Panginoong Dios ay nagsasabing kay dali mong mahikayat! Para kang babaeng bayaran na walang kahihiyan! 
+"Ako,_ ang Panginoong Dios ay nagsasabing kay dali mong mahikayat! Para kang babaeng bayaran na walang kahihiyan! 
 
 
 
@@ -1129,7 +1129,7 @@ Tumatanggap ng bayad ang mga babaeng bayaran, pero ikaw, ikaw pa ang nagbibigay 
 
 
 
-Kabaligtaran ka ng mga babaeng bayaran! Walang nagyayaya sa iyo para sumiping; <i class="trans-change">ikaw pa ang nagyayaya_. Hindi ka na nagpapabayad, ikaw pa ang nagbabayad. Kakaiba ka talaga! 
+Kabaligtaran ka ng mga babaeng bayaran! Walang nagyayaya sa iyo para sumiping; ikaw pa ang nagyayaya_. Hindi ka na nagpapabayad, ikaw pa ang nagbabayad. Kakaiba ka talaga! 
 
 
 
@@ -1195,7 +1195,7 @@ Kabaligtaran ka ng mga babaeng bayaran! Walang nagyayaya sa iyo para sumiping; <
 
 
 
-<i class="trans-change">Ako,_ ang Panginoong Dios, ay nagsasabi: Ipinakita mo ang iyong kahalayan at kahubaran sa mga mangingibig mo at sa mga kasuklam-suklam mong dios-diosan. Pinatay mo ang mga anak mo at inihandog sa kanila. 
+Ako,_ ang Panginoong Dios, ay nagsasabi: Ipinakita mo ang iyong kahalayan at kahubaran sa mga mangingibig mo at sa mga kasuklam-suklam mong dios-diosan. Pinatay mo ang mga anak mo at inihandog sa kanila. 
 
 
 
@@ -1426,7 +1426,7 @@ Sa gayon, mapapawi na ang matinding galit ko sa iyo at ang aking panibugho. Hind
 
 
 
-"Kinalimutan mo kung papaano kita inalagaan noong kabataan mo pa. Sa halip, ginalit mo ako sa iyong mga ginawa, kaya paparusahan kita ayon sa iyong mga gawa. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. Hindi baʼt sa dami ng mga kasuklam-suklam mong ginawa, nagawa mo pang dagdagan ito ng kalaswaan? 
+"Kinalimutan mo kung papaano kita inalagaan noong kabataan mo pa. Sa halip, ginalit mo ako sa iyong mga ginawa, kaya paparusahan kita ayon sa iyong mga gawa. Ako,_ ang Panginoong Dios, ang nagsasabi nito. Hindi baʼt sa dami ng mga kasuklam-suklam mong ginawa, nagawa mo pang dagdagan ito ng kalaswaan? 
 
 
 
@@ -1822,7 +1822,7 @@ para mapahiya ka sa lahat ng ginawa mo, dahil nagmukha pa silang matuwid kaysa s
 
 
 
-<i class="trans-change">Oo,_ muli kong pauunlarin ang mga kapatid mong babae – ang Sodom at Samaria, ganoon din ang mga anak nilang babae. Ito rin ang mangyayari sa iyo at sa mga anak mong babae. 
+Oo,_ muli kong pauunlarin ang mga kapatid mong babae – ang Sodom at Samaria, ganoon din ang mga anak nilang babae. Ito rin ang mangyayari sa iyo at sa mga anak mong babae. 
 
 
 
@@ -1921,7 +1921,7 @@ at hindi pa nabubunyag ang iyong kasamaan. Pero ngayon, katulad ka na rin niya. 
 
 
 
-Dadanasin mo ang parusa dahil sa iyong kahalayan at kasuklam-suklam na gawain. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito." 
+Dadanasin mo ang parusa dahil sa iyong kahalayan at kasuklam-suklam na gawain. Ako,_ ang Panginoon, ang nagsasabi nito." 
 
 
 
@@ -2086,4 +2086,4 @@ Patitibayin ko ang kasunduan ko sa iyo, at malalaman mong ako ang Panginoon.
 
 
 
-Maaalala mo ang mga kasalanan mo at mahihiya ka, lalo na kapag pinatawad ko na ang lahat ng ginawa mo, hindi ka na makakapagsalita dahil sa sobrang kahihiyan. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito."
+Maaalala mo ang mga kasalanan mo at mahihiya ka, lalo na kapag pinatawad ko na ang lahat ng ginawa mo, hindi ka na makakapagsalita dahil sa sobrang kahihiyan. Ako,_ ang Panginoong Dios, ang nagsasabi nito."

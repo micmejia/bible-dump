@@ -39,7 +39,7 @@ next: ['Col 2']
 
 
 
-<i class="trans-change">Mula kay_ Pablo na apostol ni Cristo Jesus ayon sa kalooban ng Dios, <i class="trans-change">kasama si_ Timoteo na kapatid <i class="trans-change">natin_. 
+Mula kay_ Pablo na apostol ni Cristo Jesus ayon sa kalooban ng Dios, kasama si_ Timoteo na kapatid natin_. 
 
 
 
@@ -72,7 +72,7 @@ next: ['Col 2']
 
 
 
-<i class="trans-change">Mahal kong_ mga taga-Colosas, pinabanal at matatapat na kapatid na nakay Cristo: Sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama.
+Mahal kong_ mga taga-Colosas, pinabanal at matatapat na kapatid na nakay Cristo: Sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama.
 
 ## Ang Panalangin ni Pablo para sa mga Taga-Colosas 
 
@@ -140,7 +140,7 @@ Lagi kaming nagpapasalamat sa Dios na Ama ng ating Panginoong Jesu-Cristo sa tuw
 
 
 
-Sapagkat nabalitaan namin ang pananampalataya nʼyo bilang mga nakay Cristo Jesus at ang pag-ibig nʼyo sa lahat ng mga pinabanal <i class="trans-change">ng Dios_, 
+Sapagkat nabalitaan namin ang pananampalataya nʼyo bilang mga nakay Cristo Jesus at ang pag-ibig nʼyo sa lahat ng mga pinabanal ng Dios_, 
 
 
 
@@ -239,7 +239,7 @@ At ang Magandang Balitang itoʼy lumalaganap at lumalago sa buong mundo, katulad
 
 
 
-Natutunan nʼyo ito kay Epafras na minamahal namin at kapwa lingkod <i class="trans-change">ng Panginoon_. Isa siyang tapat na lingkod ni Cristo, at pumariyan siya bilang kinatawan namin. 
+Natutunan nʼyo ito kay Epafras na minamahal namin at kapwa lingkod ng Panginoon_. Isa siyang tapat na lingkod ni Cristo, at pumariyan siya bilang kinatawan namin. 
 
 
 
@@ -272,7 +272,7 @@ Natutunan nʼyo ito kay Epafras na minamahal namin at kapwa lingkod <i class="tr
 
 
 
-Siya ang nagbalita sa amin tungkol sa pag-ibig nʼyo na ibinigay ng <i class="trans-change">Banal na_ Espiritu. 
+Siya ang nagbalita sa amin tungkol sa pag-ibig nʼyo na ibinigay ng Banal na_ Espiritu. 
 
 
 
@@ -305,7 +305,7 @@ Siya ang nagbalita sa amin tungkol sa pag-ibig nʼyo na ibinigay ng <i class="tr
 
 
 
-Kaya nga, mula nang mabalitaan namin <i class="trans-change">ang tungkol sa inyo_, patuloy namin kayong ipinapanalangin. Hinihiling namin <i class="trans-change">sa Dios_ na bigyan nawa kayo ng karunungan at pang-unawang mula sa <i class="trans-change">Banal na_ Espiritu para lubusan ninyong malaman ang kalooban niya. 
+Kaya nga, mula nang mabalitaan namin ang tungkol sa inyo_, patuloy namin kayong ipinapanalangin. Hinihiling namin sa Dios_ na bigyan nawa kayo ng karunungan at pang-unawang mula sa Banal na_ Espiritu para lubusan ninyong malaman ang kalooban niya. 
 
 
 
@@ -404,7 +404,7 @@ Nawaʼy palakasin niya kayo sa pamamagitan ng dakila niyang kapangyarihan, para 
 
 
 
-At makapagpapasalamat din kayo sa Ama. Ginawa niya kayong karapat-dapat na makabahagi sa mamanahin ng mga pinabanal <i class="trans-change">niya_, ang manang nasa <i class="trans-change">kinaroroonan ng_ kaliwanagan. 
+At makapagpapasalamat din kayo sa Ama. Ginawa niya kayong karapat-dapat na makabahagi sa mamanahin ng mga pinabanal niya_, ang manang nasa kinaroroonan ng_ kaliwanagan. 
 
 
 
@@ -470,7 +470,7 @@ Iniligtas niya tayo mula sa kapangyarihan ng kadiliman at inilipat tayo sa kahar
 
 
 
-At sa pamamagitan ng kanyang Anak, tinubos <i class="trans-change">niya_ tayo, na ang ibig sabihin ay pinatawad na ang ating mga kasalanan.
+At sa pamamagitan ng kanyang Anak, tinubos niya_ tayo, na ang ibig sabihin ay pinatawad na ang ating mga kasalanan.
 
 ## Ang Kadakilaan ni Cristo 
 
@@ -538,7 +538,7 @@ Si Cristo ang larawan ng di-nakikitang Dios, at siya ang may kapangyarihan sa la
 
 
 
-Sapagkat sa pamamagitan niya, at para sa kanya, nilikha ang lahat ng nasa langit at nasa mundo, ang nakikita pati rin ang di-nakikita, katulad ng mga <i class="trans-change">espiritung_ naghahari at namamahala, mga <i class="trans-change">espiritung_ namumuno at may kapangyarihan. 
+Sapagkat sa pamamagitan niya, at para sa kanya, nilikha ang lahat ng nasa langit at nasa mundo, ang nakikita pati rin ang di-nakikita, katulad ng mga espiritung_ naghahari at namamahala, mga espiritung_ namumuno at may kapangyarihan. 
 
 
 
@@ -637,7 +637,7 @@ Si Cristo ang ulo ng iglesya na kanyang katawan. Siya ang pinagmulan nito, ang u
 
 
 
-Sapagkat minabuti ng Dios na <i class="trans-change">ang pagka-Dios niya ay_ manahan nang lubos kay Cristo, 
+Sapagkat minabuti ng Dios na ang pagka-Dios niya ay_ manahan nang lubos kay Cristo, 
 
 
 
@@ -670,7 +670,7 @@ Sapagkat minabuti ng Dios na <i class="trans-change">ang pagka-Dios niya ay_ man
 
 
 
-at sa pamamagitan ni Cristo, ipagkakasundo sa kanya ang lahat <i class="trans-change">ng nilikha_ sa langit at sa mundo. <i class="trans-change">Ginawa niya ito_ sa pamamagitan ng dugo ni Cristo sa krus. 
+at sa pamamagitan ni Cristo, ipagkakasundo sa kanya ang lahat ng nilikha_ sa langit at sa mundo. Ginawa niya ito_ sa pamamagitan ng dugo ni Cristo sa krus. 
 
 
 
@@ -703,7 +703,7 @@ at sa pamamagitan ni Cristo, ipagkakasundo sa kanya ang lahat <i class="trans-ch
 
 
 
-Noong una ay malayo kayo <i class="trans-change">sa Dios_, at naging kaaway <i class="trans-change">niya_ dahil sa kasamaan ng inyong pag-iisip at mga gawa. 
+Noong una ay malayo kayo sa Dios_, at naging kaaway niya_ dahil sa kasamaan ng inyong pag-iisip at mga gawa. 
 
 
 
@@ -837,7 +837,7 @@ Masaya ako sa mga nararanasan kong paghihirap ng katawan ko para sa inyo. Dahil 
 
 
 
-Itinalaga ako ng Dios na maging tagapaglingkod ng iglesya para lubusang ipahayag ang mensahe niya sa inyo <i class="trans-change">na mga hindi Judio_. 
+Itinalaga ako ng Dios na maging tagapaglingkod ng iglesya para lubusang ipahayag ang mensahe niya sa inyo na mga hindi Judio_. 
 
 
 
@@ -870,7 +870,7 @@ Itinalaga ako ng Dios na maging tagapaglingkod ng iglesya para lubusang ipahayag
 
 
 
-Ito ang lihim niyang plano na hindi inihayag noon sa naunang mga panahon at mga salinlahi, pero ngayon ay inihayag na sa <i class="trans-change">atin na_ mga pinabanal niya. 
+Ito ang lihim niyang plano na hindi inihayag noon sa naunang mga panahon at mga salinlahi, pero ngayon ay inihayag na sa atin na_ mga pinabanal niya. 
 
 
 
@@ -903,7 +903,7 @@ Ito ang lihim niyang plano na hindi inihayag noon sa naunang mga panahon at mga 
 
 
 
-Nais ng Dios na ihayag sa atin ang dakila at kamangha-mangha niyang plano para sa lahat ng tao. At ito ang lihim na plano: Si Cristo ay sumasainyo at ito ang <i class="trans-change">basehan ng_ pag-asa ninyo na inyong makakamtan ang napakabuting kalagayan sa hinaharap. 
+Nais ng Dios na ihayag sa atin ang dakila at kamangha-mangha niyang plano para sa lahat ng tao. At ito ang lihim na plano: Si Cristo ay sumasainyo at ito ang basehan ng_ pag-asa ninyo na inyong makakamtan ang napakabuting kalagayan sa hinaharap. 
 
 
 
@@ -936,7 +936,7 @@ Nais ng Dios na ihayag sa atin ang dakila at kamangha-mangha niyang plano para s
 
 
 
-Kaya nga ipinangangaral namin si Cristo sa lahat ng tao. Pinapaalalahanan at tinuturuan namin ang bawat isa ayon sa karunungang <i class="trans-change">ibinigay sa amin ng Dios_. Sa ganoon, maihaharap namin ang bawat isa <i class="trans-change">sa Dios_ nang ganap sa pakikipag-isa nila kay Cristo. 
+Kaya nga ipinangangaral namin si Cristo sa lahat ng tao. Pinapaalalahanan at tinuturuan namin ang bawat isa ayon sa karunungang ibinigay sa amin ng Dios_. Sa ganoon, maihaharap namin ang bawat isa sa Dios_ nang ganap sa pakikipag-isa nila kay Cristo. 
 
 
 

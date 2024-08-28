@@ -403,7 +403,7 @@ May anak ding lalaki si Shaharaim sa asawa niyang si Hushim. Silaʼy sina Abitub
 
 
 
-Ang mga anak na lalaki ni Elpaal ay sina Eber, Misam, Shemed (na nagtatag ng <i class="trans-change">mga bayan ng_ Ono at Lod, at ng mga baryo sa paligid nito), 
+Ang mga anak na lalaki ni Elpaal ay sina Eber, Misam, Shemed (na nagtatag ng mga bayan ng_ Ono at Lod, at ng mga baryo sa paligid nito), 
 
 
 
@@ -436,7 +436,7 @@ Ang mga anak na lalaki ni Elpaal ay sina Eber, Misam, Shemed (na nagtatag ng <i 
 
 
 
-at sina Beria at Shema. Sila ang mga pinuno ng kanilang mga pamilya na nakatira sa Ayalon. Sila rin ang nagpaalis sa mga naninirahan sa Gat. <sup class="versenum">14-16</sup>Ang mga anak na lalaki ni Beria ay sina Ahio, Shashak, Jeremot, Zebadia, Arad, Eder, Micael, Ishpa at Joha. <sup class="versenum">17-18</sup>Ang mga anak na lalaki ni Elpaal ay sina Zebadia, Meshulam, Hizki, Heber, Ishmerai, Izlia at Jobab. <sup class="versenum">19-21</sup>Ang mga anak na lalaki ni Shimei ay sina Jakim, Zicri, Zabdi, Elienai, Ziletai, Eliel, Adaya, Beraya at Shimrat. <sup class="versenum">22-25</sup>Ang mga anak na lalaki ni Shashak ay sina Ispan, Eber, Eliel Abdon, Zicri, Hanan, Hanania, Elam, Antotia, Ifdeya at Penuel. <sup class="versenum">26-27</sup>Ang mga anak na lalaki ni Jeroham ay sina Shamsherai, Sheharia, Atalia, Jaareshia, Elias at Zicri. 
+at sina Beria at Shema. Sila ang mga pinuno ng kanilang mga pamilya na nakatira sa Ayalon. Sila rin ang nagpaalis sa mga naninirahan sa Gat. 14-16Ang mga anak na lalaki ni Beria ay sina Ahio, Shashak, Jeremot, Zebadia, Arad, Eder, Micael, Ishpa at Joha. 17-18Ang mga anak na lalaki ni Elpaal ay sina Zebadia, Meshulam, Hizki, Heber, Ishmerai, Izlia at Jobab. 19-21Ang mga anak na lalaki ni Shimei ay sina Jakim, Zicri, Zabdi, Elienai, Ziletai, Eliel, Adaya, Beraya at Shimrat. 22-25Ang mga anak na lalaki ni Shashak ay sina Ispan, Eber, Eliel Abdon, Zicri, Hanan, Hanania, Elam, Antotia, Ifdeya at Penuel. 26-27Ang mga anak na lalaki ni Jeroham ay sina Shamsherai, Sheharia, Atalia, Jaareshia, Elias at Zicri. 
 
 
 

@@ -73,7 +73,7 @@ Pagkatapos, sumagot si Bildad na taga-Shua,
 
 
 
-"<i class="trans-change">Job,_ hanggang kailan ka ba magsasalita ng ganyan? Ayusin mo ang sinasabi mo at saka kami makikipag-usap sa iyo. 
+"Job,_ hanggang kailan ka ba magsasalita ng ganyan? Ayusin mo ang sinasabi mo at saka kami makikipag-usap sa iyo. 
 
 
 
@@ -139,7 +139,7 @@ Ang tingin mo ba sa amin ay para kaming mga hayop na hindi nakakaunawa?
 
 
 
-Sinasaktan mo lang ang sarili mo dahil sa galit mo. Ang akala mo baʼy dahil lang sa iyo, pababayaan na <i class="trans-change">ng Dios_ ang mundo o ililipat <i class="trans-change">niya_ ang mga bato mula sa kinaroroonan nila? 
+Sinasaktan mo lang ang sarili mo dahil sa galit mo. Ang akala mo baʼy dahil lang sa iyo, pababayaan na ng Dios_ ang mundo o ililipat niya_ ang mga bato mula sa kinaroroonan nila? 
 
 
 

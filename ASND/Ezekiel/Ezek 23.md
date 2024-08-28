@@ -436,7 +436,7 @@ Nahumaling din siya sa mga taga-Asiria na makikisig at nasa kasibulan ng kanilan
 
 
 
-Nakita kong katulad din siya ng kapatid niya. Dinungisan din niya ang kanyang sarili. <sup class="versenum">14-15</sup>"Patuloy na nagbenta ng kanyang dangal si Oholiba. Nagkagusto siya sa mga opisyal ng Babilonia nang makita niya ang mga larawan ng mga ito sa mga pader. Nakapulang uniporme sila, may sinturon sa baywang at nakaturban. 
+Nakita kong katulad din siya ng kapatid niya. Dinungisan din niya ang kanyang sarili. 14-15"Patuloy na nagbenta ng kanyang dangal si Oholiba. Nagkagusto siya sa mga opisyal ng Babilonia nang makita niya ang mga larawan ng mga ito sa mga pader. Nakapulang uniporme sila, may sinturon sa baywang at nakaturban. 
 
 
 
@@ -601,7 +601,7 @@ Sa kabila nito, nagpatuloy pa rin siya sa pagbebenta ng kanyang dangal tulad ng 
 
 
 
-Nahumaling siya sa mga kalaguyo niya, na ang ari ay <i class="trans-change">kasinlaki_ ng sa asno at ang binhi ay <i class="trans-change">kasindami_ ng sa kabayo. 
+Nahumaling siya sa mga kalaguyo niya, na ang ari ay kasinlaki_ ng sa asno at ang binhi ay kasindami_ ng sa kabayo. 
 
 
 
@@ -634,7 +634,7 @@ Nahumaling siya sa mga kalaguyo niya, na ang ari ay <i class="trans-change">kasi
 
 
 
-Kaya pinanabikan mo <i class="trans-change">Oholiba_ ang iyong mahalay na gawain na ginawa mo sa Egipto noong kabataan mo, nang ang mga lalaki roon ay nagpasasa sa katawan mo. 
+Kaya pinanabikan mo Oholiba_ ang iyong mahalay na gawain na ginawa mo sa Egipto noong kabataan mo, nang ang mga lalaki roon ay nagpasasa sa katawan mo. 
 
 
 
@@ -667,7 +667,7 @@ Kaya pinanabikan mo <i class="trans-change">Oholiba_ ang iyong mahalay na gawain
 
 
 
-"Kaya, <i class="trans-change">ako,_ ang Panginoong Dios, ang nagsasabi sa iyo nito Oholiba, ipapasalakay kita sa mga kalaguyo mong itinakwil mo at pinagsawaan. 
+"Kaya, ako,_ ang Panginoong Dios, ang nagsasabi sa iyo nito Oholiba, ipapasalakay kita sa mga kalaguyo mong itinakwil mo at pinagsawaan. 
 
 
 
@@ -997,7 +997,7 @@ Tinularan mo ang ginawa ng kapatid mo, kaya parurusahan kita katulad ng pagpapar
 
 
 
-"<i class="trans-change">Oo, ako,_ ang Panginoong Dios, ay nagsasabing, parurusahan kita tulad ng pagpaparusa ko sa iyong kapatid. Ang parusa koʼy tulad ng inuming nakalagay sa isang malaki at malalim na tasa. At kapag nainom mo na ang laman ng tasang ito, kukutyain ka at pagtatawanan dahil puno ito ng galit ko. 
+"Oo, ako,_ ang Panginoong Dios, ay nagsasabing, parurusahan kita tulad ng pagpaparusa ko sa iyong kapatid. Ang parusa koʼy tulad ng inuming nakalagay sa isang malaki at malalim na tasa. At kapag nainom mo na ang laman ng tasang ito, kukutyain ka at pagtatawanan dahil puno ito ng galit ko. 
 
 
 
@@ -1030,7 +1030,7 @@ Tinularan mo ang ginawa ng kapatid mo, kaya parurusahan kita katulad ng pagpapar
 
 
 
-Malalasing kaʼt malulungkot dahil ang tasang itoʼy puno ng kapahamakan. Ito ang tasa <i class="trans-change">ng paghihirap na ininom_ ng kapatid mong Samaria. 
+Malalasing kaʼt malulungkot dahil ang tasang itoʼy puno ng kapahamakan. Ito ang tasa ng paghihirap na ininom_ ng kapatid mong Samaria. 
 
 
 
@@ -1063,7 +1063,7 @@ Malalasing kaʼt malulungkot dahil ang tasang itoʼy puno ng kapahamakan. Ito an
 
 
 
-Iinumin mong lahat ang laman nito at babasagin mo ang tasa. Dadagukan mo ang iyong dibdib <i class="trans-change">sa labis na kalungkutan_. <i class="trans-change">Mangyayari ito,_ dahil ako, ang Panginoong Dios, ang nagsasabi nito. 
+Iinumin mong lahat ang laman nito at babasagin mo ang tasa. Dadagukan mo ang iyong dibdib sa labis na kalungkutan_. Mangyayari ito,_ dahil ako, ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -1096,7 +1096,7 @@ Iinumin mong lahat ang laman nito at babasagin mo ang tasa. Dadagukan mo ang iyo
 
 
 
-At dahil kinalimutan mo akoʼt itinakwil, <i class="trans-change">ako,_ ang Panginoong Dios ay nagsasabing maghihirap ka dahil sa kahalayan mo at sa pagpapagamit mo ng iyong katawan." 
+At dahil kinalimutan mo akoʼt itinakwil, ako,_ ang Panginoong Dios ay nagsasabing maghihirap ka dahil sa kahalayan mo at sa pagpapagamit mo ng iyong katawan." 
 
 
 
@@ -1162,7 +1162,7 @@ Muling sinabi sa akin ng Panginoon, "Anak ng tao, hatulan mo sina Ohola at Oholi
 
 
 
-Sapagkat nakiapid sila at pumatay. Nakikiapid sila sa pamamagitan ng pagsamba sa mga dios-diosan. At ang mga anak nila na itinalaga sa akin nang isilang ay siya mismong inialay nila sa mga dios-diosan bilang pagkain nito. <sup class="versenum">38-39</sup>Ito pa ang ginawa nila sa akin: Nilapastangan nila ang Araw ng Pamamahinga at ang aking templo. Nilapastangan nila ang templo ko sa pamamagitan ng paghahandog ng mga anak nila sa kanilang mga dios-diosan. 
+Sapagkat nakiapid sila at pumatay. Nakikiapid sila sa pamamagitan ng pagsamba sa mga dios-diosan. At ang mga anak nila na itinalaga sa akin nang isilang ay siya mismong inialay nila sa mga dios-diosan bilang pagkain nito. 38-39Ito pa ang ginawa nila sa akin: Nilapastangan nila ang Araw ng Pamamahinga at ang aking templo. Nilapastangan nila ang templo ko sa pamamagitan ng paghahandog ng mga anak nila sa kanilang mga dios-diosan. 
 
 
 
@@ -1294,7 +1294,7 @@ Maririnig ang ingay ng mga lasing at ng mga taong walang magawa sa buhay, na gal
 
 
 
-Pagkatapos, sinabi ko <i class="trans-change">sa sarili ko_, 'Sige, magpakasawa na sila sa babaeng iyon na tumanda na sa pakikiapid.' 
+Pagkatapos, sinabi ko sa sarili ko_, 'Sige, magpakasawa na sila sa babaeng iyon na tumanda na sa pakikiapid.' 
 
 
 
@@ -1393,7 +1393,7 @@ Ngunit parurusahan sila ng mga taong matuwid, parusang nararapat sa kanilang pak
 
 
 
-"<i class="trans-change">Ako,_ ang Panginoong Dios, ay mag-uutos sa mga taong sasalakay sa kanila na takutin sila, sasamsamin ang kanilang mga ari-arian, 
+"Ako,_ ang Panginoong Dios, ay mag-uutos sa mga taong sasalakay sa kanila na takutin sila, sasamsamin ang kanilang mga ari-arian, 
 
 
 

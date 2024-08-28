@@ -702,7 +702,7 @@ Ganito ang ginagawa ng babaeng nagtataksil sa kanyang asawa: Sumisiping siya sa 
 
 
 
-May apat na bagay na hindi matanggap <i class="trans-change">ng mga tao_ sa mundo: <sup class="versenum">22-23</sup>Ang aliping naging hari, ang mangmang na sagana sa pagkain, ang babaeng masungit na nakapag-asawa, at ang babaeng alipin na pumalit sa kanyang amo. 
+May apat na bagay na hindi matanggap ng mga tao_ sa mundo: 22-23Ang aliping naging hari, ang mangmang na sagana sa pagkain, ang babaeng masungit na nakapag-asawa, at ang babaeng alipin na pumalit sa kanyang amo. 
 
 
 

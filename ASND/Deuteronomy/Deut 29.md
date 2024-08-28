@@ -436,7 +436,7 @@ Nakatayo kayo rito ngayon para gawin ang kasunduan sa Panginoon na inyong Dios. 
 
 
 
-Gusto niyang mapatunayan sa inyo sa araw na ito na kayo ang mamamayan niya at siya ang Dios ninyo ayon sa ipinangako niya sa inyo at sa inyong mga ninuno na sina Abraham, Isaac, at Jacob. <sup class="versenum">14-15</sup>Pero hindi lang kayo na nakatayo ngayon dito sa presensya ng Panginoon na inyong Dios ang saklaw ng kasunduang ito, kundi pati ang lahat ng inyong lahi na ipapanganak pa lang. 
+Gusto niyang mapatunayan sa inyo sa araw na ito na kayo ang mamamayan niya at siya ang Dios ninyo ayon sa ipinangako niya sa inyo at sa inyong mga ninuno na sina Abraham, Isaac, at Jacob. 14-15Pero hindi lang kayo na nakatayo ngayon dito sa presensya ng Panginoon na inyong Dios ang saklaw ng kasunduang ito, kundi pati ang lahat ng inyong lahi na ipapanganak pa lang. 
 
 
 
@@ -601,7 +601,7 @@ Ang sinumang nakarinig ng mga babala ng sumpang ito ay huwag mag-iisip na hindi 
 
 
 
-Hindi siya patatawarin ng Panginoon. Maglalagablab ang galit ng Panginoon sa kanya <i class="trans-change">tulad ng apoy_, at mangyayari sa kanya ang lahat ng sumpa na nakasulat sa aklat na ito, at buburahin ng Panginoon ang kanyang pangalan sa mundo. 
+Hindi siya patatawarin ng Panginoon. Maglalagablab ang galit ng Panginoon sa kanya tulad ng apoy_, at mangyayari sa kanya ang lahat ng sumpa na nakasulat sa aklat na ito, at buburahin ng Panginoon ang kanyang pangalan sa mundo. 
 
 
 

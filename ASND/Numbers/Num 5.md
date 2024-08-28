@@ -372,7 +372,7 @@ Magiging pag-aari ng mga pari ang mga banal na handog na ito." ## Ang Parusa sa 
 
 
 
-Sinabi pa ng Panginoon kay Moises, <sup class="versenum">12-13</sup>"Sabihin mo ito sa mga Israelita: Kung sakali man na may isang lalaking naghihinala na nanlalalaki ang kanyang asawa, ngunit wala siyang katibayan dahil walang nakakita nito sa akto, <sup class="versenum">14-15</sup>kailangang dalhin niya ang kanyang asawa sa pari, kahit na hindi totoong dinungisan nito ang sarili sa pamamagitan ng pangangalunya. At kailangang magdala ang lalaki ng handog na dalawang kilong harinang sebada para sa kanyang asawa. Hindi niya ito dapat lagyan ng langis o insenso dahil itoʼy handog ng paghihinala. 
+Sinabi pa ng Panginoon kay Moises, 12-13"Sabihin mo ito sa mga Israelita: Kung sakali man na may isang lalaking naghihinala na nanlalalaki ang kanyang asawa, ngunit wala siyang katibayan dahil walang nakakita nito sa akto, 14-15kailangang dalhin niya ang kanyang asawa sa pari, kahit na hindi totoong dinungisan nito ang sarili sa pamamagitan ng pangangalunya. At kailangang magdala ang lalaki ng handog na dalawang kilong harinang sebada para sa kanyang asawa. Hindi niya ito dapat lagyan ng langis o insenso dahil itoʼy handog ng paghihinala. 
 
 
 
@@ -669,7 +669,7 @@ Ang tubig sana na ito na nagdadala ng sumpa ay pumasok sa iyong katawan para hin
 
 
 
-(Kapag napainom na sa babae ang mapait na tubig na nagdadala ng sumpa. At <i class="trans-change">kung may kasalanan siya_, magiging dahilan ito ng matinding paghihirap niya, <i class="trans-change">kung talagang nagkasala siya_.) 
+(Kapag napainom na sa babae ang mapait na tubig na nagdadala ng sumpa. At kung may kasalanan siya_, magiging dahilan ito ng matinding paghihirap niya, kung talagang nagkasala siya_.) 
 
 
 
@@ -867,7 +867,7 @@ Pero kung hindi niya dinungisan ang kanyang sarili, hindi siya masasaktan, at ma
 
 
 
-o naghihinala ang lalaki sa kanyang asawa <i class="trans-change">na nanlalalaki ito_, kailangang patayuin ng pari ang asawa niya sa aking presensya at ipagawa ang kautusang ito sa kanya. 
+o naghihinala ang lalaki sa kanyang asawa na nanlalalaki ito_, kailangang patayuin ng pari ang asawa niya sa aking presensya at ipagawa ang kautusang ito sa kanya. 
 
 
 

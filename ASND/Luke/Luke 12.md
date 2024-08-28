@@ -40,7 +40,7 @@ next: ['Luke 13']
 
 
 
-Libu-libong tao ang dumagsa <i class="trans-change">kay Jesus_, kaya nagkakasiksikan na sila. Binalaan ni Jesus ang mga tagasunod niya, "Mag-ingat kayo at baka mahawa kayo sa ugali ng mga Pariseo na pakitang-tao. 
+Libu-libong tao ang dumagsa kay Jesus_, kaya nagkakasiksikan na sila. Binalaan ni Jesus ang mga tagasunod niya, "Mag-ingat kayo at baka mahawa kayo sa ugali ng mga Pariseo na pakitang-tao. 
 
 
 
@@ -271,7 +271,7 @@ Higit kayong mahalaga kaysa sa maraming maya. Kahit ang bilang ng buhok nʼyo ay
 
 
 
-<i class="trans-change">Sinabi pa ni Jesus sa kanila,_ "Tandaan ninyo: ang sinumang kumikilala sa akin <i class="trans-change">na ako ang Panginoon niya_ sa harap ng mga tao, <i class="trans-change">ako na_ Anak ng Tao, ay kikilalanin din siya sa harap ng mga anghel ng Dios. 
+Sinabi pa ni Jesus sa kanila,_ "Tandaan ninyo: ang sinumang kumikilala sa akin na ako ang Panginoon niya_ sa harap ng mga tao, ako na_ Anak ng Tao, ay kikilalanin din siya sa harap ng mga anghel ng Dios. 
 
 
 
@@ -337,7 +337,7 @@ Ngunit ang hindi kumikilala sa akin sa harap ng mga tao ay hindi ko rin kikilala
 
 
 
-Ang sinumang magsalita ng masama laban sa <i class="trans-change">akin na_ Anak ng Tao ay mapapatawad, ngunit ang magsalita ng masama laban sa Banal na Espiritu ay hindi mapapatawad. 
+Ang sinumang magsalita ng masama laban sa akin na_ Anak ng Tao ay mapapatawad, ngunit ang magsalita ng masama laban sa Banal na Espiritu ay hindi mapapatawad. 
 
 
 
@@ -667,7 +667,7 @@ At dahil marami na akong naipon para sa maraming taon, magpapahinga na lang ako,
 
 
 
-Ngunit sinabi sa kanya ng Dios, 'Hangal! Ngayong gabi ay babawiin <i class="trans-change">ko_ sa iyo ang buhay mo. Kanino ngayon mapupunta ang lahat ng inipon mo para sa iyong sarili?' 
+Ngunit sinabi sa kanya ng Dios, 'Hangal! Ngayong gabi ay babawiin ko_ sa iyo ang buhay mo. Kanino ngayon mapupunta ang lahat ng inipon mo para sa iyong sarili?' 
 
 
 
@@ -931,7 +931,7 @@ Tingnan ninyo kung paano tumutubo ang mga bulaklak sa parang. Hindi sila nagtatr
 
 
 
-Kung dinadamitan ng Dios nang ganito ang mga damo sa parang, na buhay ngayon pero kinabukasan ay <i class="trans-change">malalanta at_ susunugin, kayo pa kaya? Kay liit ng inyong pananampalataya! 
+Kung dinadamitan ng Dios nang ganito ang mga damo sa parang, na buhay ngayon pero kinabukasan ay malalanta at_ susunugin, kayo pa kaya? Kay liit ng inyong pananampalataya! 
 
 
 
@@ -1129,7 +1129,7 @@ Ipagbili ninyo ang mga ari-arian ninyo at ipamigay ang pera sa mga mahihirap, up
 
 
 
-Sapagkat kung nasaan ang kayamanan ninyo, naroon din ang puso ninyo." ## Ang Mapagkakatiwalaang mga Utusan <sup class="versenum">35-36</sup><i class="trans-change">Sinabi pa ni Jesus sa kanila,_ "Maging handa kayo palagi sa pagbabalik ng inyong Panginoon, katulad ng mga aliping naghihintay sa pag-uwi ng kanilang amo mula sa kasalan. Nakahanda sila at nakasindi ang mga ilawan nila, upang sa pagdating at pagkatok ng amo nila ay mabubuksan nila agad ang pinto. 
+Sapagkat kung nasaan ang kayamanan ninyo, naroon din ang puso ninyo." ## Ang Mapagkakatiwalaang mga Utusan 35-36Sinabi pa ni Jesus sa kanila,_ "Maging handa kayo palagi sa pagbabalik ng inyong Panginoon, katulad ng mga aliping naghihintay sa pag-uwi ng kanilang amo mula sa kasalan. Nakahanda sila at nakasindi ang mga ilawan nila, upang sa pagdating at pagkatok ng amo nila ay mabubuksan nila agad ang pinto. 
 
 
 
@@ -1261,7 +1261,7 @@ Tandaan ninyo ito: kung alam ng isang tao kung anong oras darating ang magnanaka
 
 
 
-Kayo man ay dapat maging handa, dahil <i class="trans-change">ako, na_ Anak ng Tao, ay darating sa oras na hindi ninyo inaasahan." ## Ang Tapat at Hindi Tapat na Alipin 
+Kayo man ay dapat maging handa, dahil ako, na_ Anak ng Tao, ay darating sa oras na hindi ninyo inaasahan." ## Ang Tapat at Hindi Tapat na Alipin 
 
 
 

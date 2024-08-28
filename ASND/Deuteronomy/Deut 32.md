@@ -139,7 +139,7 @@ Ipahahayag ko ang pangalan ng Panginoon. Purihin natin ang kadakilaan ng ating D
 
 
 
-Siya ang Bato <i class="trans-change">na kanlungan_; matuwid ang lahat ng gawa niya at mapagkakatiwalaan ang lahat ng kanyang mga pamamaraan. Matapat siyang Dios at hindi nagkakasala; makatarungan siya at maaasahan. 
+Siya ang Bato na kanlungan_; matuwid ang lahat ng gawa niya at mapagkakatiwalaan ang lahat ng kanyang mga pamamaraan. Matapat siyang Dios at hindi nagkakasala; makatarungan siya at maaasahan. 
 
 
 
@@ -436,7 +436,7 @@ Ang Panginoon lang ang gumagabay sa kanyang mga mamamayan, walang tulong mula sa
 
 
 
-Sila ang pinamahala niya sa mga kabundukan, at pinakain ng mga ani ng lupa. Inalagaan niya sila sa pamamagitan ng pulot mula sa batuhan at ng langis <i class="trans-change">ng olibo_ mula sa mabatong lupa. 
+Sila ang pinamahala niya sa mga kabundukan, at pinakain ng mga ani ng lupa. Inalagaan niya sila sa pamamagitan ng pulot mula sa batuhan at ng langis ng olibo_ mula sa mabatong lupa. 
 
 
 
@@ -502,7 +502,7 @@ Binigyan niya sila ng keso at gatas ng mga baka at kambing, at binigyan ng matat
 
 
 
-Naging maunlad ang mga Israelita pero nagrebelde sila. Tumaba sila at lumakas, ngunit tinalikuran nila ang Dios na lumikha sa kanila, at sinuway nila ang kanilang Bato <i class="trans-change">na kanlungan_ na kanilang Tagapagligtas. 
+Naging maunlad ang mga Israelita pero nagrebelde sila. Tumaba sila at lumakas, ngunit tinalikuran nila ang Dios na lumikha sa kanila, at sinuway nila ang kanilang Bato na kanlungan_ na kanilang Tagapagligtas. 
 
 
 
@@ -601,7 +601,7 @@ Naghandog sila sa mga demonyo na hindi tunay na dios – mga dios na hindi nila 
 
 
 
-Kinalimutan nila ang Dios na Bato <i class="trans-change">na kanlungan_ na lumikha sa kanila. 
+Kinalimutan nila ang Dios na Bato na kanlungan_ na lumikha sa kanila. 
 
 
 
@@ -700,7 +700,7 @@ Sinabi niya, "Tatalikuran ko sila, at titingnan ko kung ano ang kanilang kahihin
 
 
 
-Pinagselos nila ako sa mga hindi tunay na dios, at ginalit nila ako sa kanilang walang kwentang mga dios-diosan. Kaya pagseselosin ko rin sila sa pamamagitan ng pagpapala ko sa ibang mga lahi. Gagalitin ko sila sa pamamagitan ng <i class="trans-change">pagpapala ko sa_ mga mangmang na bansa. 
+Pinagselos nila ako sa mga hindi tunay na dios, at ginalit nila ako sa kanilang walang kwentang mga dios-diosan. Kaya pagseselosin ko rin sila sa pamamagitan ng pagpapala ko sa ibang mga lahi. Gagalitin ko sila sa pamamagitan ng pagpapala ko sa_ mga mangmang na bansa. 
 
 
 
@@ -997,7 +997,7 @@ Kung matalino lang sila, mauunawaan sana nila ang kanilang kahihinatnan.
 
 
 
-Paano ba mahahabol ng isang tao ang 1,000 Israelita? Paano matatalo ng dalawang tao ang 10,000 sa kanila? Mangyayari lamang ito kung ibinigay sila ng Panginoon na kanilang Bato <i class="trans-change">na kanlungan_. 
+Paano ba mahahabol ng isang tao ang 1,000 Israelita? Paano matatalo ng dalawang tao ang 10,000 sa kanila? Mangyayari lamang ito kung ibinigay sila ng Panginoon na kanilang Bato na kanlungan_. 
 
 
 
@@ -1030,7 +1030,7 @@ Paano ba mahahabol ng isang tao ang 1,000 Israelita? Paano matatalo ng dalawang 
 
 
 
-Sapagkat ang Bato <i class="trans-change">na kanlungan_ ng ating mga kaaway ay hindi katulad ng ating batong <i class="trans-change">kanlungan_; at kahit sila ay nakakaalam nito. 
+Sapagkat ang Bato na kanlungan_ ng ating mga kaaway ay hindi katulad ng ating batong kanlungan_; at kahit sila ay nakakaalam nito. 
 
 
 
@@ -1228,7 +1228,7 @@ Ipagtatanggol ng Panginoon ang kanyang mga mamamayan; kaaawaan niya ang kanyang 
 
 
 
-At pagkatapos ay magtatanong ang Panginoon <i class="trans-change">sa kanyang mamamayan_, "Nasaan na ngayon ang inyong mga dios, ang batong kanlungan ninyo? 
+At pagkatapos ay magtatanong ang Panginoon sa kanyang mamamayan_, "Nasaan na ngayon ang inyong mga dios, ang batong kanlungan ninyo? 
 
 
 
@@ -1459,7 +1459,7 @@ Mga bansa, purihin nʼyo ang mga mamamayan ng Panginoon. Sapagkat gaganti ang Pa
 
 
 
-Ito nga ang inawit ni Moises kasama si Josue sa harapan ng mga Israelita. <sup class="versenum">45-46</sup>Pagkatapos niyang sabihin ito, sinabi ni Moises sa mga tao, "Itanim ninyo sa inyong mga puso ang lahat ng sinasabi ko sa inyo sa araw na ito. Ituro rin ninyo ito sa inyong mga anak para matupad nilang mabuti ang lahat ng sinasabi sa mga utos na ito. 
+Ito nga ang inawit ni Moises kasama si Josue sa harapan ng mga Israelita. 45-46Pagkatapos niyang sabihin ito, sinabi ni Moises sa mga tao, "Itanim ninyo sa inyong mga puso ang lahat ng sinasabi ko sa inyo sa araw na ito. Ituro rin ninyo ito sa inyong mga anak para matupad nilang mabuti ang lahat ng sinasabi sa mga utos na ito. 
 
 
 
@@ -1591,7 +1591,7 @@ Nang araw ding iyon, sinabi ng Panginoon kay Moises,
 
 
 
-Sapagkat sa bundok na iyan ka mamamatay at isasama na sa iyong mga kamag-anak <i class="trans-change">na sumakabilang buhay na_, gaya ni Aaron na iyong kapatid nang mamatay siya sa Bundok ng Hor at isinama na rin sa mga kamag-anak niya <i class="trans-change">na sumakabilang buhay na_. 
+Sapagkat sa bundok na iyan ka mamamatay at isasama na sa iyong mga kamag-anak na sumakabilang buhay na_, gaya ni Aaron na iyong kapatid nang mamatay siya sa Bundok ng Hor at isinama na rin sa mga kamag-anak niya na sumakabilang buhay na_. 
 
 
 

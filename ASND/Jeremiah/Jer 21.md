@@ -238,7 +238,7 @@ Papatayin ko ang lahat ng naninirahan sa lungsod na ito, tao man o hayop. Mamama
 
 
 
-At ikaw, Haring Zedekia ng Juda, ang mga tagapamahala mo, at ang mga mamamayang natitira na hindi namatay sa salot, digmaan, o gutom ay ibibigay ko kay Haring Nebucadnezar ng Babilonia na kaaway ninyo. At walang awa niya kayong papatayin. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito.' 
+At ikaw, Haring Zedekia ng Juda, ang mga tagapamahala mo, at ang mga mamamayang natitira na hindi namatay sa salot, digmaan, o gutom ay ibibigay ko kay Haring Nebucadnezar ng Babilonia na kaaway ninyo. At walang awa niya kayong papatayin. Ako,_ ang Panginoon, ang nagsasabi nito.' 
 
 
 
@@ -271,7 +271,7 @@ At ikaw, Haring Zedekia ng Juda, ang mga tagapamahala mo, at ang mga mamamayang 
 
 
 
-"Sabihin din ninyo sa mga mamamayan <i class="trans-change">ng Jerusalem_ na ito ang ipinapasabi ng Panginoon, 'Makinig kayo! Pumili kayo, buhay o kamatayan. 
+"Sabihin din ninyo sa mga mamamayan ng Jerusalem_ na ito ang ipinapasabi ng Panginoon, 'Makinig kayo! Pumili kayo, buhay o kamatayan. 
 
 
 
@@ -337,7 +337,7 @@ Ang sinumang mananatili sa lungsod na ito ay mamamatay sa digmaan, gutom o sakit
 
 
 
-Nakapagpasya na akong padalhan ng kapahamakan ang lungsod na ito at hindi kabutihan. Ipapasakop ko ito sa hari ng Babilonia, at susunugin niya ito. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito.' <sup class="versenum">11-12</sup>"Sabihin din ninyo sa sambahayan ng hari ng Juda, na mga angkan ni David, na pakinggan ang mensaheng ito ng Panginoon: Pairalin nʼyo lagi ang katarungan. Tulungan nʼyo ang mga ninakawan; iligtas nʼyo sila sa mga umaapi sa kanila. Sapagkat kung hindi, magniningas ang galit ko na parang apoy na hindi mapapatay dahil sa masama nʼyong ginagawa. 
+Nakapagpasya na akong padalhan ng kapahamakan ang lungsod na ito at hindi kabutihan. Ipapasakop ko ito sa hari ng Babilonia, at susunugin niya ito. Ako,_ ang Panginoon, ang nagsasabi nito.' 11-12"Sabihin din ninyo sa sambahayan ng hari ng Juda, na mga angkan ni David, na pakinggan ang mensaheng ito ng Panginoon: Pairalin nʼyo lagi ang katarungan. Tulungan nʼyo ang mga ninakawan; iligtas nʼyo sila sa mga umaapi sa kanila. Sapagkat kung hindi, magniningas ang galit ko na parang apoy na hindi mapapatay dahil sa masama nʼyong ginagawa. 
 
 
 
@@ -370,7 +370,7 @@ Nakapagpasya na akong padalhan ng kapahamakan ang lungsod na ito at hindi kabuti
 
 
 
-Kalaban ko kayo, mga taga-Jerusalem, kayong nakatira sa matibay na lugar sa patag sa ibabaw ng bundok. <i class="trans-change">Nagmamataas_ kayo na nagsasabi, 'Walang makakasalakay sa atin, sa matibay na talampas na ito!' 
+Kalaban ko kayo, mga taga-Jerusalem, kayong nakatira sa matibay na lugar sa patag sa ibabaw ng bundok. Nagmamataas_ kayo na nagsasabi, 'Walang makakasalakay sa atin, sa matibay na talampas na ito!' 
 
 
 
@@ -403,4 +403,4 @@ Kalaban ko kayo, mga taga-Jerusalem, kayong nakatira sa matibay na lugar sa pata
 
 
 
-Pero parurusahan ko kayo ayon sa mga ginagawa ninyo. Susunugin ko ang inyong mga kagubatan hanggang sa ang lahat ng nakapalibot sa inyo ay matupok. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito."
+Pero parurusahan ko kayo ayon sa mga ginagawa ninyo. Susunugin ko ang inyong mga kagubatan hanggang sa ang lahat ng nakapalibot sa inyo ay matupok. Ako,_ ang Panginoon, ang nagsasabi nito."

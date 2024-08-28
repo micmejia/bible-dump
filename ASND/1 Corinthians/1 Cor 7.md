@@ -238,7 +238,7 @@ Ang sinasabi koʼy hindi isang utos kundi mungkahi lamang.
 
 
 
-Kung pwede lang, gusto ko sanang kayong lahat ay maging katulad ko <i class="trans-change">na walang asawa_. Ngunit may kanya-kanyang kaloob sa atin ang Dios, at hindi ito pare-pareho. 
+Kung pwede lang, gusto ko sanang kayong lahat ay maging katulad ko na walang asawa_. Ngunit may kanya-kanyang kaloob sa atin ang Dios, at hindi ito pare-pareho. 
 
 
 
@@ -304,7 +304,7 @@ Ngayon, ito naman ang masasabi ko sa mga wala pang asawa at sa mga biyuda: mas m
 
 
 
-Ngunit kung hindi kayo makapagpigil sa inyong sarili, mag-asawa na lang kayo. Mas mabuti na ito kaysa sa magkasala kayo dahil sa matinding pagnanasa ng laman. <sup class="versenum">10-11</sup>Ngayon, sa inyong mga may asawa, may utos ako na sinabi mismo ng Panginoon: Hindi dapat hiwalayan ng lalaki ang kanyang asawa, at ganoon din naman ang babae sa kanyang asawa. Ngunit kung hihiwalay ang babae sa kanyang asawa, dapat manatili siyang walang asawa o di kayaʼy bumalik na lang sa kanyang asawa. 
+Ngunit kung hindi kayo makapagpigil sa inyong sarili, mag-asawa na lang kayo. Mas mabuti na ito kaysa sa magkasala kayo dahil sa matinding pagnanasa ng laman. 10-11Ngayon, sa inyong mga may asawa, may utos ako na sinabi mismo ng Panginoon: Hindi dapat hiwalayan ng lalaki ang kanyang asawa, at ganoon din naman ang babae sa kanyang asawa. Ngunit kung hihiwalay ang babae sa kanyang asawa, dapat manatili siyang walang asawa o di kayaʼy bumalik na lang sa kanyang asawa. 
 
 
 
@@ -403,7 +403,7 @@ At kung ang isang babae naman ay may asawang hindi mananampalataya na gusto nama
 
 
 
-Sapagkat ang lalaking hindi mananampalataya ay tinatanggap ng Dios dahil sa kanyang <i class="trans-change">mananampalatayang_ asawa, at ang babaeng hindi mananampalataya ay tinatanggap din ng Dios dahil sa kanyang <i class="trans-change">mananampalatayang_ asawa. Dahil kung hindi, maging ang mga anak nila ay hindi tatanggapin ng Dios. Ngunit ang totoo, tinatanggap din sila ng Dios. 
+Sapagkat ang lalaking hindi mananampalataya ay tinatanggap ng Dios dahil sa kanyang mananampalatayang_ asawa, at ang babaeng hindi mananampalataya ay tinatanggap din ng Dios dahil sa kanyang mananampalatayang_ asawa. Dahil kung hindi, maging ang mga anak nila ay hindi tatanggapin ng Dios. Ngunit ang totoo, tinatanggap din sila ng Dios. 
 
 
 
@@ -537,7 +537,7 @@ Ang bawat isa sa inyo ay dapat mamuhay ayon sa kalagayan na ibinigay ng Panginoo
 
 
 
-Halimbawa, kung ang isang lalaki ay tuli nang siyaʼy tawagin <i class="trans-change">ng Dios_, hindi na niya dapat baguhin ang kanyang kalagayan. At kung hindi pa siya tuli nang siyaʼy tawagin, hindi na niya kailangang magpatuli pa. 
+Halimbawa, kung ang isang lalaki ay tuli nang siyaʼy tawagin ng Dios_, hindi na niya dapat baguhin ang kanyang kalagayan. At kung hindi pa siya tuli nang siyaʼy tawagin, hindi na niya kailangang magpatuli pa. 
 
 
 
@@ -636,7 +636,7 @@ Kaya mamuhay ang bawat isa ayon sa kanyang kalagayan nang tinawag siya ng Dios.
 
 
 
-Ikaw baʼy isang alipin nang tawagin <i class="trans-change">ng Dios_? Hindi na bale, ngunit kung may magagawa ka naman para maging malaya, samantalahin mo ito. 
+Ikaw baʼy isang alipin nang tawagin ng Dios_? Hindi na bale, ngunit kung may magagawa ka naman para maging malaya, samantalahin mo ito. 
 
 
 
@@ -702,7 +702,7 @@ Sapagkat ang alipin nang tawagin siya ng Panginoon ay malaya na sa harap ng Pang
 
 
 
-Binili kayo <i class="trans-change">ng Dios_ sa malaking halaga, kaya huwag kayong basta magpaalipin sa tao. 
+Binili kayo ng Dios_ sa malaking halaga, kaya huwag kayong basta magpaalipin sa tao. 
 
 
 
@@ -1001,7 +1001,7 @@ Ang mga gumagamit ng mga bagay dito sa mundo ay hindi dapat mawili sa mga bagay 
 
 
 
-Gusto ko sanang maging malaya kayo sa mga alalahanin <i class="trans-change">sa mundong ito_. Kung ang isang lalaki ay walang asawa, ang pinagkakaabalahan niya ay ang mga gawain ng Panginoon at kung paano siya magiging kalugod-lugod sa kanya. 
+Gusto ko sanang maging malaya kayo sa mga alalahanin sa mundong ito_. Kung ang isang lalaki ay walang asawa, ang pinagkakaabalahan niya ay ang mga gawain ng Panginoon at kung paano siya magiging kalugod-lugod sa kanya. 
 
 
 
@@ -1133,7 +1133,7 @@ Sinasabi ko lamang ito para sa inyong kabutihan. Hindi ko kayo pinagbabawalang m
 
 
 
-Ngayon, <i class="trans-change">tungkol naman sa mga magkasintahan:_ Kung sa palagay ng lalaki ay hindi tama ang ikinikilos niya sa kanyang nobya dahil sa pagnanasa, at sa palagay niyaʼy dapat na silang magpakasal, mas mabuti ngang magpakasal na sila. Hindi ito kasalanan. 
+Ngayon, tungkol naman sa mga magkasintahan:_ Kung sa palagay ng lalaki ay hindi tama ang ikinikilos niya sa kanyang nobya dahil sa pagnanasa, at sa palagay niyaʼy dapat na silang magpakasal, mas mabuti ngang magpakasal na sila. Hindi ito kasalanan. 
 
 
 

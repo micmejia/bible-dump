@@ -7,7 +7,7 @@ next: ['Num 17']
 # Numbers 16
 
 ***
-###### 1-2 Ngayon, nagrebelde kay Moises si Kora na anak ni Izar, na angkan ni Kohat na anak ni Levi. Kasama niya sa pagrerebelde sina Datan at Abiram na mga anak ni Eliab, at si On na anak ni Pelet na mula sa lahi ni Reuben. May kasama pa silang 250 lalaking Israelita na kilala at pinili ng mga pinuno mula sa kapulungan <i class="trans-change">ng Israel_. 
+###### 1-2 Ngayon, nagrebelde kay Moises si Kora na anak ni Izar, na angkan ni Kohat na anak ni Levi. Kasama niya sa pagrerebelde sina Datan at Abiram na mga anak ni Eliab, at si On na anak ni Pelet na mula sa lahi ni Reuben. May kasama pa silang 250 lalaking Israelita na kilala at pinili ng mga pinuno mula sa kapulungan ng Israel_. 
 
 
 
@@ -73,7 +73,7 @@ Pumunta silang lahat kina Moises at Aaron, at sinabi, "Sobra na ang ginagawa nʼ
 
 
 
-Pagkarinig nito ni Moises, nagpatirapa siya <i class="trans-change">para manalangin sa_ Panginoon. 
+Pagkarinig nito ni Moises, nagpatirapa siya para manalangin sa_ Panginoon. 
 
 
 
@@ -240,7 +240,7 @@ Pinili niya kayo at ang iba pang mga Levita para makalapit sa kanyang presensya,
 
 
 
-Sino ba si Aaron para reklamuhan ninyo? <i class="trans-change">Sa ginagawa ninyong iyan,_ ang Panginoon ang inyong kinakalaban." 
+Sino ba si Aaron para reklamuhan ninyo? Sa ginagawa ninyong iyan,_ ang Panginoon ang inyong kinakalaban." 
 
 
 
@@ -339,7 +339,7 @@ Hindi pa ba sapat na kinuha mo kami sa Egipto na maganda at masaganang lupain pa
 
 
 
-At isa pa, hindi mo kami dinala sa maganda at masaganang lupain o binigyan ng mga bukid o mga ubasan na aming aariin. Ngayon, gusto mo pa ba kaming lokohin? Hindi kami pupunta <i class="trans-change">sa iyo!_" 
+At isa pa, hindi mo kami dinala sa maganda at masaganang lupain o binigyan ng mga bukid o mga ubasan na aming aariin. Ngayon, gusto mo pa ba kaming lokohin? Hindi kami pupunta sa iyo!_" 
 
 
 
@@ -405,7 +405,7 @@ Nagalit si Moises at sinabi niya sa Panginoon, "Huwag po ninyong tatanggapin ang
 
 
 
-Sinabi ni Moises kay Kora, "Bukas, ikaw at ang iyong mga tagasunod ay pupunta sa presensya ng Panginoon <i class="trans-change">sa Toldang Tipanan_, at pupunta rin doon si Aaron. 
+Sinabi ni Moises kay Kora, "Bukas, ikaw at ang iyong mga tagasunod ay pupunta sa presensya ng Panginoon sa Toldang Tipanan_, at pupunta rin doon si Aaron. 
 
 
 
@@ -735,7 +735,7 @@ Pinuntahan ni Moises si Datan at si Abiram, at sumunod sa kanya ang mga tagapama
 
 
 
-Pagkatapos, sinabi niya sa mga mamamayan, "Lumayo kayo sa mga tolda ng masasamang taong ito! Huwag kayong hahawak ng kahit anong pag-aari nila, dahil kapag ginawa ninyo ito parurusahan kayong <i class="trans-change">kasama nila_ dahil sa lahat ng kasalanan nila." 
+Pagkatapos, sinabi niya sa mga mamamayan, "Lumayo kayo sa mga tolda ng masasamang taong ito! Huwag kayong hahawak ng kahit anong pag-aari nila, dahil kapag ginawa ninyo ito parurusahan kayong kasama nila_ dahil sa lahat ng kasalanan nila." 
 
 
 
@@ -801,7 +801,7 @@ Kaya lumayo ang mga tao sa mga tolda nina Kora, Datan at Abiram. Lumabas sina Da
 
 
 
-Sinabi ni Moises <i class="trans-change">sa mga tao_, "Sa pamamagitan nito malalaman ninyo na ang Panginoon ang nagsugo sa akin para sa paggawa ng mga bagay na ito, at hindi ko ito sariling kagustuhan. 
+Sinabi ni Moises sa mga tao_, "Sa pamamagitan nito malalaman ninyo na ang Panginoon ang nagsugo sa akin para sa paggawa ng mga bagay na ito, at hindi ko ito sariling kagustuhan. 
 
 
 
@@ -1131,7 +1131,7 @@ Sinabi ng Panginoon kay Moises,
 
 
 
-ng mga lalagyang ito na galing sa mga taong nangamatay dahil sa kanilang mga kasalanan. Ipamartilyo ang mga ito hanggang sa mapitpit, at itakip sa altar dahil inihandog ito sa Panginoon at naging banal ito. Ang takip na ito sa altar ay magiging isang babala para sa mga Israelita." <sup class="versenum">39-40</sup>Kaya ayon sa iniutos ng Panginoon sa pamamagitan ni Moises, ipinakuha ng paring si Eleazar ang mga tansong lalagyan ng insenso na dinala ng mga taong nangasunog at minartilyo niya ito upang itakip sa altar. Isa itong babala para sa mga Israelita na walang sinumang makakalapit sa altar para magsunog ng insenso sa Panginoon maliban lang sa mga angkan ni Aaron upang hindi mangyari sa kanya ang nangyari kay Kora at sa mga tagasunod niya. 
+ng mga lalagyang ito na galing sa mga taong nangamatay dahil sa kanilang mga kasalanan. Ipamartilyo ang mga ito hanggang sa mapitpit, at itakip sa altar dahil inihandog ito sa Panginoon at naging banal ito. Ang takip na ito sa altar ay magiging isang babala para sa mga Israelita." 39-40Kaya ayon sa iniutos ng Panginoon sa pamamagitan ni Moises, ipinakuha ng paring si Eleazar ang mga tansong lalagyan ng insenso na dinala ng mga taong nangasunog at minartilyo niya ito upang itakip sa altar. Isa itong babala para sa mga Israelita na walang sinumang makakalapit sa altar para magsunog ng insenso sa Panginoon maliban lang sa mga angkan ni Aaron upang hindi mangyari sa kanya ang nangyari kay Kora at sa mga tagasunod niya. 
 
 
 

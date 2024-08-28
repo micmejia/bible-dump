@@ -205,7 +205,7 @@ Muli, may grupo ng mga propeta roon sa Jerico na pumunta kay Eliseo at nagtanong
 
 
 
-Pagkatapos, sinabi ni Elias kay Eliseo, "Maiwan ka na lang dito, dahil pinapapunta ako ng Panginoon sa <i class="trans-change">Ilog ng_ Jordan." Sumagot si Eliseo, "Sumusumpa ako sa buhay na Panginoon at sa iyo, hindi kita iiwan." Kaya nagpatuloy silang dalawa sa paglalakad. 
+Pagkatapos, sinabi ni Elias kay Eliseo, "Maiwan ka na lang dito, dahil pinapapunta ako ng Panginoon sa Ilog ng_ Jordan." Sumagot si Eliseo, "Sumusumpa ako sa buhay na Panginoon at sa iyo, hindi kita iiwan." Kaya nagpatuloy silang dalawa sa paglalakad. 
 
 
 
@@ -238,7 +238,7 @@ Pagkatapos, sinabi ni Elias kay Eliseo, "Maiwan ka na lang dito, dahil pinapapun
 
 
 
-May 50 miyembro ng mga propeta na nakatayo sa unahan, at nakaharap sila sa lugar na hinintuan nina Elias at Eliseo sa <i class="trans-change">ilog ng_ Jordan. 
+May 50 miyembro ng mga propeta na nakatayo sa unahan, at nakaharap sila sa lugar na hinintuan nina Elias at Eliseo sa ilog ng_ Jordan. 
 
 
 
@@ -370,7 +370,7 @@ Sinabi ni Elias, "Mahirap ang hinihiling mo. Pero, matatanggap mo ito kung makik
 
 
 
-Habang naglalakad sila na nagkukwentuhan, biglang may dumating na karwaheng apoy na hinihila ng mga kabayong apoy. Dumaan ito sa gitna nila na nagpahiwalay sa kanila, at biglang dinala si Elias papuntang langit sa pamamagitan ng isang ipu-ipo. <sup class="versenum">12-13</sup>Nakita ito ni Eliseo at sumigaw siya, "Ama ko! Ama ko! Ang mga karwahe at mangangabayo ng Israel!" At hindi na niya nakita si Elias. Pagkatapos, pinunit niya ang kanyang damit <i class="trans-change">bilang pagpapakita ng kalungkutan niya_. Dinampot niya ang balabal ni Elias na nahulog, at bumalik siya sa tabi <i class="trans-change">ng Ilog ng_ Jordan at tumayo roon. 
+Habang naglalakad sila na nagkukwentuhan, biglang may dumating na karwaheng apoy na hinihila ng mga kabayong apoy. Dumaan ito sa gitna nila na nagpahiwalay sa kanila, at biglang dinala si Elias papuntang langit sa pamamagitan ng isang ipu-ipo. 12-13Nakita ito ni Eliseo at sumigaw siya, "Ama ko! Ama ko! Ang mga karwahe at mangangabayo ng Israel!" At hindi na niya nakita si Elias. Pagkatapos, pinunit niya ang kanyang damit bilang pagpapakita ng kalungkutan niya_. Dinampot niya ang balabal ni Elias na nahulog, at bumalik siya sa tabi ng Ilog ng_ Jordan at tumayo roon. 
 
 
 
@@ -436,7 +436,7 @@ Hinampas niya ang tubig ng balabal ni Elias at sinabi, "Nasaan na ang Panginoon,
 
 
 
-Nang makita ito ng grupo ng mga propeta na galing sa Jerico, sinabi nila, "Ang kapangyarihan ni Elias ay sumasakanya." Kaya sinalubong nila si Eliseo at yumukod sila <i class="trans-change">bilang paggalang sa kanya_. 
+Nang makita ito ng grupo ng mga propeta na galing sa Jerico, sinabi nila, "Ang kapangyarihan ni Elias ay sumasakanya." Kaya sinalubong nila si Eliseo at yumukod sila bilang paggalang sa kanya_. 
 
 
 
@@ -502,7 +502,7 @@ Sinabi nila, "May kasama kaming 50 malalakas na tao. Hayaan mong hanapin nila an
 
 
 
-Pero nagpumilit sila hanggang sa nahiya na lang siya <i class="trans-change">na tumanggi_. Sinabi niya, "Sige, paalisin ninyo sila." Kaya pinaalis nila ang 50 tao at sa loob ng tatlong araw ay hinanap nila si Elias, pero hindi nila ito nakita. 
+Pero nagpumilit sila hanggang sa nahiya na lang siya na tumanggi_. Sinabi niya, "Sige, paalisin ninyo sila." Kaya pinaalis nila ang 50 tao at sa loob ng tatlong araw ay hinanap nila si Elias, pero hindi nila ito nakita. 
 
 
 
@@ -568,7 +568,7 @@ Pagbalik nila kay Eliseo, na nasa Jerico pa, sinabi ni Eliseo sa kanila, "Hindi 
 
 
 
-Ang mga tao sa lungsod <i class="trans-change">ng Jerico_ ay nagsabi kay Eliseo, "Ginoo, nakita naman po ninyo na mabuti ang kinatatayuan ng aming lugar, pero marumi ang tubig at hindi tinutubuan ng pananim ang lupa." 
+Ang mga tao sa lungsod ng Jerico_ ay nagsabi kay Eliseo, "Ginoo, nakita naman po ninyo na mabuti ang kinatatayuan ng aming lugar, pero marumi ang tubig at hindi tinutubuan ng pananim ang lupa." 
 
 
 

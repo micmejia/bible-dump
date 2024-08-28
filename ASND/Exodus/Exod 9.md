@@ -902,7 +902,7 @@ Pakiusapan ninyo ang Panginoon na itigil na niya ang matinding kulog na ito at a
 
 
 
-Sumagot si Moises, "Kapag nakalabas na ako ng lungsod, itataas ko ang aking kamay sa Panginoon <i class="trans-change">para manalangin_. At titigil ang kulog at hindi na uulan ng yelo, para malaman mo na pag-aari ng Panginoon ang mundo. 
+Sumagot si Moises, "Kapag nakalabas na ako ng lungsod, itataas ko ang aking kamay sa Panginoon para manalangin_. At titigil ang kulog at hindi na uulan ng yelo, para malaman mo na pag-aari ng Panginoon ang mundo. 
 
 
 
@@ -1034,7 +1034,7 @@ Pero hindi nasira ang mga trigo dahil hindi pa aanihin ang mga ito.)
 
 
 
-Umalis si Moises sa harapan ng Faraon at lumabas ng lungsod. Itinaas niya ang kanyang kamay sa Panginoon <i class="trans-change">para manalangin_ at huminto ang kulog, ang pag-ulan ng yelong parang bato at ang ulan. 
+Umalis si Moises sa harapan ng Faraon at lumabas ng lungsod. Itinaas niya ang kanyang kamay sa Panginoon para manalangin_ at huminto ang kulog, ang pag-ulan ng yelong parang bato at ang ulan. 
 
 
 

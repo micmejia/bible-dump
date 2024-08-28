@@ -469,7 +469,7 @@ Mula roon, nagpatuloy sila sa paglalakbay hanggang sa nakarating sila sa bahay n
 
 
 
-Pagkatapos, ang limang lalaking iyon na nagmanman sa Laish ay nagsabi sa mga kasama nila, "Alam nʼyo ba na ang isa sa mga bahay dito ay may espesyal na damit <i class="trans-change">ng pari_, may dios-diosan na nababalutan ng pilak, at iba pang dios-diosan. Ano kaya ang dapat nating gawin?" 
+Pagkatapos, ang limang lalaking iyon na nagmanman sa Laish ay nagsabi sa mga kasama nila, "Alam nʼyo ba na ang isa sa mga bahay dito ay may espesyal na damit ng pari_, may dios-diosan na nababalutan ng pilak, at iba pang dios-diosan. Ano kaya ang dapat nating gawin?" 
 
 
 
@@ -502,7 +502,7 @@ Pagkatapos, ang limang lalaking iyon na nagmanman sa Laish ay nagsabi sa mga kas
 
 
 
-<i class="trans-change">Matapos nilang magdesisyon kung ano ang gagawin,_ pumunta sila sa bahay ni Micas at nangumusta sa binatilyong Levita na nakatira roon. <sup class="versenum">16-17</sup>Habang nakatayo sa pintuan ng lungsod ang pari at ang 600 armadong lalaki na kalahi ni Dan, pumasok ang limang espiya sa bahay ni Micas at kinuha ang espesyal na damit, ang imahen na nababalutan ng pilak, at ang iba pang dios-diosan. 
+Matapos nilang magdesisyon kung ano ang gagawin,_ pumunta sila sa bahay ni Micas at nangumusta sa binatilyong Levita na nakatira roon. 16-17Habang nakatayo sa pintuan ng lungsod ang pari at ang 600 armadong lalaki na kalahi ni Dan, pumasok ang limang espiya sa bahay ni Micas at kinuha ang espesyal na damit, ang imahen na nababalutan ng pilak, at ang iba pang dios-diosan. 
 
 
 
@@ -667,7 +667,7 @@ Habang naglalakad sila, nauna sa kanila ang kanilang mga anak, mga hayop at mga 
 
 
 
-Hindi pa sila nakakalayo sa bahay ni Micas <i class="trans-change">ay nalaman na ni Micas ang nangyari_. <i class="trans-change">Kaya_ tinipon niya ang mga kapitbahay niya at hinabol nila ang mga kalahi ni Dan. 
+Hindi pa sila nakakalayo sa bahay ni Micas ay nalaman na ni Micas ang nangyari_. Kaya_ tinipon niya ang mga kapitbahay niya at hinabol nila ang mga kalahi ni Dan. 
 
 
 
@@ -733,7 +733,7 @@ Sinigawan nila sila, at lumingon ang mga ito at nagtanong kay Micas, "Ano ba ang
 
 
 
-Sumagot si Micas, "Nagtatanong pa kayo? Kinuha nʼyo ang mga dios na aking ipinagawa, pati ang pari <i class="trans-change">ko_. Wala nang natira sa akin." 
+Sumagot si Micas, "Nagtatanong pa kayo? Kinuha nʼyo ang mga dios na aking ipinagawa, pati ang pari ko_. Wala nang natira sa akin." 
 
 
 
@@ -931,7 +931,7 @@ Pinalitan nila ng Dan ang pangalan nito ayon sa pangalan ng ninuno nilang si Dan
 
 
 
-Ipinatayo nila roon ang dios-diosan <i class="trans-change">ni Micas_ at kanilang sinamba. Si Jonatan na anak ni Gershom at apo ni Moises ang ginawa nilang pari. Ang mga angkan ni Jonatan ang naglingkod bilang mga pari sa lahi ni Dan hanggang sa pagkabihag sa mga taga-Israel. 
+Ipinatayo nila roon ang dios-diosan ni Micas_ at kanilang sinamba. Si Jonatan na anak ni Gershom at apo ni Moises ang ginawa nilang pari. Ang mga angkan ni Jonatan ang naglingkod bilang mga pari sa lahi ni Dan hanggang sa pagkabihag sa mga taga-Israel. 
 
 
 

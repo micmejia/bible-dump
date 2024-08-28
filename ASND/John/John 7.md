@@ -40,7 +40,7 @@ next: ['John 8']
 
 
 
-Pagkatapos nito, nilibot ni Jesus ang Galilea. Iniwasan niyang pumunta sa Judea dahil gusto siyang patayin ng mga <i class="trans-change">pinuno ng mga_ Judio roon. 
+Pagkatapos nito, nilibot ni Jesus ang Galilea. Iniwasan niyang pumunta sa Judea dahil gusto siyang patayin ng mga pinuno ng mga_ Judio roon. 
 
 
 
@@ -238,7 +238,7 @@ Kaya sinabi ni Jesus sa kanila, "Hindi pa ngayon ang panahon para sa akin, pero 
 
 
 
-Hindi sa inyo napopoot ang <i class="trans-change">mga taong_ makamundo, ngunit sa akin sila napopoot, dahil inilalantad ko ang kasamaan nila. 
+Hindi sa inyo napopoot ang mga taong_ makamundo, ngunit sa akin sila napopoot, dahil inilalantad ko ang kasamaan nila. 
 
 
 
@@ -372,7 +372,7 @@ Pagkaalis ng mga kapatid ni Jesus papunta sa pista, pumunta rin si Jesus pero pa
 
 
 
-Doon sa pista, hinahanap siya <i class="trans-change">ng mga pinuno_ ng mga Judio. "Nasaan kaya siya?" tanong nila. 
+Doon sa pista, hinahanap siya ng mga pinuno_ ng mga Judio. "Nasaan kaya siya?" tanong nila. 
 
 
 
@@ -438,7 +438,7 @@ Maraming bulung-bulungan ang mga tao tungkol kay Jesus. May nagsasabi, "Mabuti s
 
 
 
-Pero walang nagsasalita tungkol sa kanya nang hayagan dahil sa takot sa mga <i class="trans-change">pinuno ng mga_ Judio. 
+Pero walang nagsasalita tungkol sa kanya nang hayagan dahil sa takot sa mga pinuno ng mga_ Judio. 
 
 
 
@@ -504,7 +504,7 @@ Nang kalagitnaan na ng pista, pumunta si Jesus sa templo at nangaral.
 
 
 
-Namangha sa kanya ang mga <i class="trans-change">pinuno ng mga_ Judio, at sinabi nila, "Paano niya nalaman ang mga bagay na ito, gayong hindi naman siya nakapag-aral?" 
+Namangha sa kanya ang mga pinuno ng mga_ Judio, at sinabi nila, "Paano niya nalaman ang mga bagay na ito, gayong hindi naman siya nakapag-aral?" 
 
 
 
@@ -1164,7 +1164,7 @@ Hahanapin nʼyo ako, pero hindi nʼyo makikita, dahil hindi kayo makakapunta sa 
 
 
 
-Nagtanungan ang mga <i class="trans-change">pinuno ng mga_ Judio, "Saan kaya niya balak pumunta at hindi na raw natin siya makikita? Pupunta kaya siya sa mga lugar ng mga Griego, kung saan nagsipangalat ang mga kapwa natin Judio, para mangaral sa mga Griego? 
+Nagtanungan ang mga pinuno ng mga_ Judio, "Saan kaya niya balak pumunta at hindi na raw natin siya makikita? Pupunta kaya siya sa mga lugar ng mga Griego, kung saan nagsipangalat ang mga kapwa natin Judio, para mangaral sa mga Griego? 
 
 
 
@@ -1296,7 +1296,7 @@ Sapagkat sinasabi sa Kasulatan na dadaloy ang tubig na nagbibigay-buhay mula sa 
 
 
 
-(Ang tubig na tinutukoy ni Jesus ay ang <i class="trans-change">Banal na_ Espiritu na malapit nang tanggapin ng mga sumasampalataya sa kanya. Hindi pa naipagkakaloob ang <i class="trans-change">Banal na_ Espiritu nang panahong iyon dahil hindi pa nakabalik sa langit si Jesus.) ## Ang Paniniwala ng mga Tao tungkol kay Jesus 
+(Ang tubig na tinutukoy ni Jesus ay ang Banal na_ Espiritu na malapit nang tanggapin ng mga sumasampalataya sa kanya. Hindi pa naipagkakaloob ang Banal na_ Espiritu nang panahong iyon dahil hindi pa nakabalik sa langit si Jesus.) ## Ang Paniniwala ng mga Tao tungkol kay Jesus 
 
 
 
@@ -1329,7 +1329,7 @@ Sapagkat sinasabi sa Kasulatan na dadaloy ang tubig na nagbibigay-buhay mula sa 
 
 
 
-Maraming tao ang nakarinig sa sinabing iyon ni Jesus, at sinabi ng ilan sa kanila, "Siya na nga ang Propeta <i class="trans-change">na hinihintay natin_!" 
+Maraming tao ang nakarinig sa sinabing iyon ni Jesus, at sinabi ng ilan sa kanila, "Siya na nga ang Propeta na hinihintay natin_!" 
 
 
 
@@ -1395,7 +1395,7 @@ Sinabi naman ng iba, "Siya na nga ang Cristo!" Pero may nagsabi rin, "Hindi siya
 
 
 
-Hindi baʼt sinasabi sa Kasulatan na ang Cristo ay manggagaling sa lahi ni <i class="trans-change">Haring_ David, at ipapanganak sa Betlehem na bayan ni David?" 
+Hindi baʼt sinasabi sa Kasulatan na ang Cristo ay manggagaling sa lahi ni Haring_ David, at ipapanganak sa Betlehem na bayan ni David?" 
 
 
 
@@ -1628,7 +1628,7 @@ May nakita na ba kayong mga pinuno o mga Pariseong sumasampalataya sa kanya?
 
 
 
-Wala! Mga tao lang na walang alam sa Kautusan <i class="trans-change">ni Moises_ ang sumasampalataya sa kanya. Sumpain sila ng Dios!" 
+Wala! Mga tao lang na walang alam sa Kautusan ni Moises_ ang sumasampalataya sa kanya. Sumpain sila ng Dios!" 
 
 
 
@@ -1727,7 +1727,7 @@ Isa sa mga Pariseong naroon ay si Nicodemus, na minsang dumalaw kay Jesus. Sinab
 
 
 
-Sumagot sila kay Nicodemus, "Taga-Galilea ka rin ba? Magsaliksik ka <i class="trans-change">sa Kasulatan_ at makikita mong walang propetang nanggagaling sa Galilea." 
+Sumagot sila kay Nicodemus, "Taga-Galilea ka rin ba? Magsaliksik ka sa Kasulatan_ at makikita mong walang propetang nanggagaling sa Galilea." 
 
 
 

@@ -40,7 +40,7 @@ next: ['Isa 29']
 
 
 
-Nakakaawa ang Samaria, na ang katulad ay koronang bulaklak na karangalan ng mga lasenggong <i class="trans-change">pinuno_ ng Israel. Ang lungsod ng Samaria ay nasa matabang lambak, pero ang kanyang kagandahan ay mawawala katulad ng bulaklak na nalalanta. 
+Nakakaawa ang Samaria, na ang katulad ay koronang bulaklak na karangalan ng mga lasenggong pinuno_ ng Israel. Ang lungsod ng Samaria ay nasa matabang lambak, pero ang kanyang kagandahan ay mawawala katulad ng bulaklak na nalalanta. 
 
 
 
@@ -106,7 +106,7 @@ Makinig kayo! Ang Panginoon ay may inihahandang malakas at makapangyarihang bans
 
 
 
-Tinapak-tapakan niya ang Samaria, ang koronang bulaklak na karangalan ng mga lasenggong <i class="trans-change">pinuno_ ng Israel. 
+Tinapak-tapakan niya ang Samaria, ang koronang bulaklak na karangalan ng mga lasenggong pinuno_ ng Israel. 
 
 
 
@@ -304,7 +304,7 @@ Ang mga mesa nilaʼy puno ng mga suka nila at walang parteng malinis.
 
 
 
-<i class="trans-change">Dumadaing sila at sinasabi,_ "Ano bang palagay niya sa atin, mga batang kaaawat pa lamang sa pagsuso? Bakit ganyan ang tinuturo niya sa atin? 
+Dumadaing sila at sinasabi,_ "Ano bang palagay niya sa atin, mga batang kaaawat pa lamang sa pagsuso? Bakit ganyan ang tinuturo niya sa atin? 
 
 
 
@@ -403,7 +403,7 @@ Dahil sa ayaw nilang makinig, makikipag-usap ang Panginoon sa mga taong ito sa p
 
 
 
-Ito ang sasabihin niya, "Mararanasan ninyo ang kapahingahan sa inyong lupain." Pero ayaw <i class="trans-change">pa rin_ nilang makinig. 
+Ito ang sasabihin niya, "Mararanasan ninyo ang kapahingahan sa inyong lupain." Pero ayaw pa rin_ nilang makinig. 
 
 
 
@@ -502,7 +502,7 @@ Kaya kayong mga nangungutyang mga pinuno ng mga mamamayan ng Jerusalem, pakingga
 
 
 
-Sapagkat nagmamalaki kayo at nagsasabing, "Nakipagkasundo kami sa kamatayan <i class="trans-change">para hindi kami mamatay_, at nakipagkasundo kami sa lugar ng mga patay <i class="trans-change">para hindi kami madala roon_. Kung kaya, hindi kami mapapahamak kahit na dumating ang mga sakuna na parang baha, dahil sa kami ay umaasang maliligtas sa pamamagitan ng aming pagsisinungaling at pandaraya." 
+Sapagkat nagmamalaki kayo at nagsasabing, "Nakipagkasundo kami sa kamatayan para hindi kami mamatay_, at nakipagkasundo kami sa lugar ng mga patay para hindi kami madala roon_. Kung kaya, hindi kami mapapahamak kahit na dumating ang mga sakuna na parang baha, dahil sa kami ay umaasang maliligtas sa pamamagitan ng aming pagsisinungaling at pandaraya." 
 
 
 

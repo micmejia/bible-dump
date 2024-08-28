@@ -40,7 +40,7 @@ next: ['Isa 56']
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Lumapit kayo, lahat kayong nauuhaw, narito ang tubig! Kahit wala kayong pera, lumapit kayo at kumain! Halikayo, kumuha kayo ng inumin at gatas ng walang bayad! 
+Sinabi ng Panginoon,_ "Lumapit kayo, lahat kayong nauuhaw, narito ang tubig! Kahit wala kayong pera, lumapit kayo at kumain! Halikayo, kumuha kayo ng inumin at gatas ng walang bayad! 
 
 
 
@@ -172,7 +172,7 @@ Ginawa ko siyang tagapamahala ng mga bansa, at sa pamamagitan niyaʼy ipinakita 
 
 
 
-Tatawagin ninyo ang mga bansang hindi ninyo kasama, at magmamadali silang lalapit sa inyo, dahil <i class="trans-change">ako,_ ang Panginoon na inyong Dios, ang Banal na Dios ng Israel, ang nagbigay sa inyo ng karangalan." 
+Tatawagin ninyo ang mga bansang hindi ninyo kasama, at magmamadali silang lalapit sa inyo, dahil ako,_ ang Panginoon na inyong Dios, ang Banal na Dios ng Israel, ang nagbigay sa inyo ng karangalan." 
 
 
 
@@ -403,7 +403,7 @@ Ganyan din ang aking mga salita, hindi ito mawawalan ng kabuluhan. Isasakatupara
 
 
 
-"<i class="trans-change">Mga Israelita,_ aalis kayo nang masaya <i class="trans-change">sa Babilonia_ at papatnubayan kayo ng Dios. Ang mga bundok at mga burol ay parang mga taong aawit sa tuwa. At ang lahat ng mga puno ay parang mga taong magpapalakpakan. 
+"Mga Israelita,_ aalis kayo nang masaya sa Babilonia_ at papatnubayan kayo ng Dios. Ang mga bundok at mga burol ay parang mga taong aawit sa tuwa. At ang lahat ng mga puno ay parang mga taong magpapalakpakan. 
 
 
 

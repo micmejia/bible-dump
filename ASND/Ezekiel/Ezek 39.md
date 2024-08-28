@@ -40,7 +40,7 @@ next: ['Ezek 40']
 
 
 
-<i class="trans-change">Sinabi sa akin ng Panginoon_, "Anak ng tao, magsalita ka laban kay Gog. Sabihin mo sa kanya na ako, ang Panginoong Dios, ay nagsasabi: Gog, kalaban kita, ikaw na pinuno ng Meshec at Tubal. 
+Sinabi sa akin ng Panginoon_, "Anak ng tao, magsalita ka laban kay Gog. Sabihin mo sa kanya na ako, ang Panginoong Dios, ay nagsasabi: Gog, kalaban kita, ikaw na pinuno ng Meshec at Tubal. 
 
 
 
@@ -238,7 +238,7 @@ Mamamatay kayo sa kapatagan dahil ako, ang Panginoong Dios, ang nagsasabi nito.
 
 
 
-Ipapakilala ko sa mga mamamayan kong Israelita na banal ang pangalan ko, at hindi ko na papayagang lapastanganin ito. At malalaman ng mga bansa na ako ang Panginoon, ang Banal <i class="trans-change">na Dios_ ng Israel. 
+Ipapakilala ko sa mga mamamayan kong Israelita na banal ang pangalan ko, at hindi ko na papayagang lapastanganin ito. At malalaman ng mga bansa na ako ang Panginoon, ang Banal na Dios_ ng Israel. 
 
 
 
@@ -337,7 +337,7 @@ Sinasabi ko na darating ang araw na iyon. Ako, ang Panginoong Dios, ang nagsasab
 
 
 
-Hindi na nila kailangang mangahoy pa sa mga parang o kagubatan dahil may mga sandata silang pagdigma na gagawing panggatong. Sasamsaman din nila silang mga sumamsam <i class="trans-change">sa mga ari-arian_ nila. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Hindi na nila kailangang mangahoy pa sa mga parang o kagubatan dahil may mga sandata silang pagdigma na gagawing panggatong. Sasamsaman din nila silang mga sumamsam sa mga ari-arian_ nila. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -370,7 +370,7 @@ Hindi na nila kailangang mangahoy pa sa mga parang o kagubatan dahil may mga san
 
 
 
-"Sa panahong iyon, ililibing ko si Gog at ang napakarami niyang tauhan doon sa Israel, sa lambak ng mga manlalakbay, sa gawing silangan ng Dagat <i class="trans-change">na Patay_. <i class="trans-change">Napakalawak_ ng libingang iyon. Kaya hindi na makakadaan doon ang mga naglalakbay. At tatawagin itong Lambak ng Hukbo ni Gog. 
+"Sa panahong iyon, ililibing ko si Gog at ang napakarami niyang tauhan doon sa Israel, sa lambak ng mga manlalakbay, sa gawing silangan ng Dagat na Patay_. Napakalawak_ ng libingang iyon. Kaya hindi na makakadaan doon ang mga naglalakbay. At tatawagin itong Lambak ng Hukbo ni Gog. 
 
 
 
@@ -436,7 +436,7 @@ Hindi na nila kailangang mangahoy pa sa mga parang o kagubatan dahil may mga san
 
 
 
-Ang lahat ng mga mamamayan ay tutulong sa paglilibing. Hinding-hindi makakalimutan ng mga Israelita ang araw na iyon dahil sa ganitong paraan ay mapaparangalan ako. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Ang lahat ng mga mamamayan ay tutulong sa paglilibing. Hinding-hindi makakalimutan ng mga Israelita ang araw na iyon dahil sa ganitong paraan ay mapaparangalan ako. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -535,7 +535,7 @@ Kapag may nakita pa silang mga kalansay ng tao, lalagyan nila ito ng tanda para 
 
 
 
-(May bayang malapit doon na tatawaging Homonah o Maraming Tao). Sa ganitong paraan nila lilinisin ang lupain." <sup class="versenum">17-18</sup>Sinabi pa ng Panginoong Dios <i class="trans-change">sa akin_, "Anak ng tao, tipunin mo ang lahat ng uri ng ibon at mababangis na hayop doon sa bundok ng Israel, dahil maghahanda ako ng isang piging at marami akong ihahandog doon na makakain nila. Kakain sila ng laman at iinom ng dugo ng matatapang na mga sundalo at pinuno na parang kumakain lang sila ng tupa, baka at kambing na pinataba mula sa Bashan. 
+(May bayang malapit doon na tatawaging Homonah o Maraming Tao). Sa ganitong paraan nila lilinisin ang lupain." 17-18Sinabi pa ng Panginoong Dios sa akin_, "Anak ng tao, tipunin mo ang lahat ng uri ng ibon at mababangis na hayop doon sa bundok ng Israel, dahil maghahanda ako ng isang piging at marami akong ihahandog doon na makakain nila. Kakain sila ng laman at iinom ng dugo ng matatapang na mga sundalo at pinuno na parang kumakain lang sila ng tupa, baka at kambing na pinataba mula sa Bashan. 
 
 
 
@@ -601,7 +601,7 @@ Sa piging na ito na ihahanda ko para sa kanila, magsasawa sila sa pagkain at pag
 
 
 
-Mananawa sila sa pagkain ng mga kabayo, mangangabayo, at matatapang na sundalo. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Mananawa sila sa pagkain ng mga kabayo, mangangabayo, at matatapang na sundalo. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -766,7 +766,7 @@ Ginawa ko lang sa kanila ang nararapat, ayon sa ginawa nilang kasamaan at kahala
 
 
 
-Sinabi pa ng Panginoong Dios, "Kahahabagan ko na ang mga mamamayan ng Israel, <i class="trans-change">ang lahi ni_ Jacob. Muli ko silang pauunlarin, para maparangalan ang banal kong pangalan. 
+Sinabi pa ng Panginoong Dios, "Kahahabagan ko na ang mga mamamayan ng Israel, ang lahi ni_ Jacob. Muli ko silang pauunlarin, para maparangalan ang banal kong pangalan. 
 
 
 
@@ -865,7 +865,7 @@ Ipapakita ko ang kabanalan ko sa mga bansa kapag nakuha ko na ang mga Israelita 
 
 
 
-At malalaman nila na ako ang Panginoon na kanilang Dios. Sapagkat kahit ipinabihag ko sila sa ibang mga bansa, ibinalik ko rin silang <i class="trans-change">lahat_ sa lupain nila at wala akong iniwan kahit isa. 
+At malalaman nila na ako ang Panginoon na kanilang Dios. Sapagkat kahit ipinabihag ko sila sa ibang mga bansa, ibinalik ko rin silang lahat_ sa lupain nila at wala akong iniwan kahit isa. 
 
 
 
@@ -898,4 +898,4 @@ At malalaman nila na ako ang Panginoon na kanilang Dios. Sapagkat kahit ipinabih
 
 
 
-Hindi ko na sila pababayaan dahil ipapadala ko ang aking Espiritu sa kanila. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito."
+Hindi ko na sila pababayaan dahil ipapadala ko ang aking Espiritu sa kanila. Ako,_ ang Panginoong Dios, ang nagsasabi nito."

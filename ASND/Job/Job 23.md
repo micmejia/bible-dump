@@ -238,7 +238,7 @@ Makikipagtalo kaya siya sa akin gamit ang kapangyarihan niya? Hindi! Hindi niya 
 
 
 
-Ang taong matuwid na tulad ko ay maaaring mangatuwiran sa harap ng <i class="trans-change">Dios na_ aking hukom, at palalayain niya ako nang lubusan.
+Ang taong matuwid na tulad ko ay maaaring mangatuwiran sa harap ng Dios na_ aking hukom, at palalayain niya ako nang lubusan.
 
 ###### 8-9 "Hinanap ko ang Dios sa kung saan-saan – sa silangan, kanluran, hilaga, at timog, pero hindi ko siya matagpuan. 
 

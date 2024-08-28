@@ -370,7 +370,7 @@ Kainin ninyo ito bilang isang pinakabanal na handog. Kailangang mga lalaki lang 
 
 
 
-Ang iba pang mga handog ng mga Israelita na itinataas <i class="trans-change">sa altar_ ay para rin sa inyo. Ibinibigay ko ito sa iyo at sa iyong mga angkan, bilang inyong bahagi magpakailanman. Makakakain nito ang sinuman sa iyong pamilya na itinuturing na malinis. 
+Ang iba pang mga handog ng mga Israelita na itinataas sa altar_ ay para rin sa inyo. Ibinibigay ko ito sa iyo at sa iyong mga angkan, bilang inyong bahagi magpakailanman. Makakakain nito ang sinuman sa iyong pamilya na itinuturing na malinis. 
 
 
 
@@ -568,7 +568,7 @@ Tubusin ninyo ito kung isang buwan na ang edad at kailangang tubusin ninyo ito s
 
 
 
-Pero huwag ninyong tutubusin ang panganay na toro, tupa o kambing dahil sa akin ito. <i class="trans-change">Katayin ninyo ito_ at iwisik ninyo ang dugo sa altar at sunugin ang mga taba bilang handog sa pamamagitan ng apoy. Ang mabangong samyo ng handog na ito ay makalulugod sa akin. 
+Pero huwag ninyong tutubusin ang panganay na toro, tupa o kambing dahil sa akin ito. Katayin ninyo ito_ at iwisik ninyo ang dugo sa altar at sunugin ang mga taba bilang handog sa pamamagitan ng apoy. Ang mabangong samyo ng handog na ito ay makalulugod sa akin. 
 
 
 
@@ -733,7 +733,7 @@ Sinabi pa ng Panginoon kay Aaron, "Kayong mga pari ay walang mamanahing lupa sa 
 
 
 
-Mula ngayon, wala nang iba pang Israelita na lalapit sa Toldang Tipanan <i class="trans-change">maliban sa mga pari at sa mga Levita_, dahil kung lalapit sila, mananagot sila sa kanilang mga kasalanan, at mamamatay. 
+Mula ngayon, wala nang iba pang Israelita na lalapit sa Toldang Tipanan maliban sa mga pari at sa mga Levita_, dahil kung lalapit sila, mananagot sila sa kanilang mga kasalanan, at mamamatay. 
 
 
 
@@ -931,7 +931,7 @@ Ituturing ko ito bilang inyong handog mula sa mga ani, na parang naghandog kayo 
 
 
 
-Sa pamamagitan nito, makapagbibigay din kayo ng handog sa akin galing sa lahat ng ikapu na inyong natanggap mula sa aking mga Israelita. At sa aking <i class="trans-change">bahagi na iyon, ang ikapu nito_ ay ibigay ninyo sa paring si Aaron. 
+Sa pamamagitan nito, makapagbibigay din kayo ng handog sa akin galing sa lahat ng ikapu na inyong natanggap mula sa aking mga Israelita. At sa aking bahagi na iyon, ang ikapu nito_ ay ibigay ninyo sa paring si Aaron. 
 
 
 
@@ -1063,4 +1063,4 @@ Maaari mong kainin at ng iyong pamilya ang inyong bahagi kahit saang lugar dahil
 
 
 
-Hindi kayo magkakasala sa pagkain ninyo nito kung naihandog na ninyo ang pinakamabuting bahagi sa Panginoon. Ngunit siguraduhin ninyo na hindi ninyo marurumihan ang banal na mga handog ng mga Israelita, <i class="trans-change">sa pamamagitan ng pagkain ng inyong bahagi nang hindi pa ninyo naibibigay ang aking bahagi_ para hindi kayo mamatay."
+Hindi kayo magkakasala sa pagkain ninyo nito kung naihandog na ninyo ang pinakamabuting bahagi sa Panginoon. Ngunit siguraduhin ninyo na hindi ninyo marurumihan ang banal na mga handog ng mga Israelita, sa pamamagitan ng pagkain ng inyong bahagi nang hindi pa ninyo naibibigay ang aking bahagi_ para hindi kayo mamatay."

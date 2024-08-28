@@ -106,7 +106,7 @@ Tinanong niya ako, "Amos, ano ang nakikita mo?" Sumagot ako, "Isang basket po ng
 
 
 
-Sa araw na iyon, ang <i class="trans-change">masasayang_ awitan sa templo ay magiging iyakan dahil kakalat ang patay kahit saan. At wala nang maririnig na ingay. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito." ## Ang Kasalanan ng mga Mayayamang Israelita 
+Sa araw na iyon, ang masasayang_ awitan sa templo ay magiging iyakan dahil kakalat ang patay kahit saan. At wala nang maririnig na ingay. Ako,_ ang Panginoong Dios, ang nagsasabi nito." ## Ang Kasalanan ng mga Mayayamang Israelita 
 
 
 
@@ -205,7 +205,7 @@ Inip na inip kayong matapos ang Pista ng Pagsisimula ng Buwan o Araw ng Pamamahi
 
 
 
-<i class="trans-change">Nagmamadali kayong_ makapagbenta ng mga butil na hinaluan ng ipa, para makabili kayo ng taong dukha na ipinagbibiling alipin dahil hindi siya makabayad ng kanyang utang, kahit ang utang niya ay kasinghalaga lamang ng isang pares ng sandalyas. 
+Nagmamadali kayong_ makapagbenta ng mga butil na hinaluan ng ipa, para makabili kayo ng taong dukha na ipinagbibiling alipin dahil hindi siya makabayad ng kanyang utang, kahit ang utang niya ay kasinghalaga lamang ng isang pares ng sandalyas. 
 
 
 
@@ -304,7 +304,7 @@ Dahil dito, palilindulin ko ang inyong lupain at mag-iiyakan kayo. Yayanigin ko 
 
 
 
-Sa araw na iyon, palulubugin ko ang araw sa katanghaliang tapat, kaya didilim ang buong lupain kahit araw pa. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Sa araw na iyon, palulubugin ko ang araw sa katanghaliang tapat, kaya didilim ang buong lupain kahit araw pa. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -337,7 +337,7 @@ Sa araw na iyon, palulubugin ko ang araw sa katanghaliang tapat, kaya didilim an
 
 
 
-Gagawin kong iyakan ang <i class="trans-change">kasayahan sa_ inyong pista, at ang inyong pag-aawitan ay magiging panaghoy. Pagdadamitin ko kayo ng sako at uutusang magpakalbo <i class="trans-change">para ipakita ang inyong pagdadalamhati_, katulad ng mga magulang na umiiyak sa pagkamatay ng kanilang kaisa-isang anak. Pero magiging mas masakit pa ang huling parusa." 
+Gagawin kong iyakan ang kasayahan sa_ inyong pista, at ang inyong pag-aawitan ay magiging panaghoy. Pagdadamitin ko kayo ng sako at uutusang magpakalbo para ipakita ang inyong pagdadalamhati_, katulad ng mga magulang na umiiyak sa pagkamatay ng kanilang kaisa-isang anak. Pero magiging mas masakit pa ang huling parusa." 
 
 
 
@@ -370,7 +370,7 @@ Gagawin kong iyakan ang <i class="trans-change">kasayahan sa_ inyong pista, at a
 
 
 
-Sinabi pa ng Panginoong Dios, "Darating ang araw na padadalhan ko ng taggutom ang inyong lupain. Pero hindi ito pagkagutom sa pagkain o pagkauhaw sa tubig, kundi pagkagutom <i class="trans-change">at pagkauhaw_ sa aking mga salita. 
+Sinabi pa ng Panginoong Dios, "Darating ang araw na padadalhan ko ng taggutom ang inyong lupain. Pero hindi ito pagkagutom sa pagkain o pagkauhaw sa tubig, kundi pagkagutom at pagkauhaw_ sa aking mga salita. 
 
 
 
@@ -403,7 +403,7 @@ Sinabi pa ng Panginoong Dios, "Darating ang araw na padadalhan ko ng taggutom an
 
 
 
-Pagod na pagod na kayo sa paghahanap <i class="trans-change">ng mga taong makakapagpahayag sa inyo_ ng aking salita, pero hindi ninyo matagpuan kahit saan kayo pumunta. 
+Pagod na pagod na kayo sa paghahanap ng mga taong makakapagpahayag sa inyo_ ng aking salita, pero hindi ninyo matagpuan kahit saan kayo pumunta. 
 
 
 
@@ -436,7 +436,7 @@ Pagod na pagod na kayo sa paghahanap <i class="trans-change">ng mga taong makaka
 
 
 
-Sa araw na iyon <i class="trans-change">na parurusahan ko kayo_, kahit na ang inyong magagandang dalaga at ang inyong <i class="trans-change">malalakas na_ mga binata ay mawawalan ng malay dahil sa matinding uhaw. 
+Sa araw na iyon na parurusahan ko kayo_, kahit na ang inyong magagandang dalaga at ang inyong malalakas na_ mga binata ay mawawalan ng malay dahil sa matinding uhaw. 
 
 
 

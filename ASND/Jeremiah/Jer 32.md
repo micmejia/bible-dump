@@ -139,7 +139,7 @@ Ikinulong siya roon ni Haring Zedekia dahil sa kanyang ipinahayag. Sapagkat sina
 
 
 
-Si Haring Zedekia ay hindi makakaligtas sa mga taga-Babilonia, kundi talagang ihaharap siya sa hari ng Babilonia <i class="trans-change">para hatulan_. 
+Si Haring Zedekia ay hindi makakaligtas sa mga taga-Babilonia, kundi talagang ihaharap siya sa hari ng Babilonia para hatulan_. 
 
 
 
@@ -172,7 +172,7 @@ Si Haring Zedekia ay hindi makakaligtas sa mga taga-Babilonia, kundi talagang ih
 
 
 
-Dadalhin ko si Zedekia sa Babilonia at mananatili siya roon hanggang sa matapos ang pagpaparusa sa kanya. Lumaban man kayo sa mga taga-Babilonia, hindi rin kayo magtatagumpay. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito." 
+Dadalhin ko si Zedekia sa Babilonia at mananatili siya roon hanggang sa matapos ang pagpaparusa sa kanya. Lumaban man kayo sa mga taga-Babilonia, hindi rin kayo magtatagumpay. Ako,_ ang Panginoon, ang nagsasabi nito." 
 
 
 
@@ -271,7 +271,7 @@ si Hanamel na anak ng tiyo kong si Shalum ay lalapit sa akin at magsasabi, 'Bilh
 
 
 
-"Gaya nga ng sinabi sa akin ng Panginoon, pumunta sa akin si Hanamel na pinsan ko roon sa himpilan ng mga guwardya. Sinabi niya sa akin, 'Bilhin mo ang bukid ko roon sa Anatot sa lupain <i class="trans-change">ng lahi_ ni Benjamin. May karapatan at tungkulin ka para mapasaiyo iyon, kaya bilhin mo na iyon.' " Alam kong kalooban ito ng Panginoon, 
+"Gaya nga ng sinabi sa akin ng Panginoon, pumunta sa akin si Hanamel na pinsan ko roon sa himpilan ng mga guwardya. Sinabi niya sa akin, 'Bilhin mo ang bukid ko roon sa Anatot sa lupain ng lahi_ ni Benjamin. May karapatan at tungkulin ka para mapasaiyo iyon, kaya bilhin mo na iyon.' " Alam kong kalooban ito ng Panginoon, 
 
 
 
@@ -502,7 +502,7 @@ na ito ang sinasabi ng Panginoong Makapangyarihan, ang Dios ng Israel, "Kunin mo
 
 
 
-<i class="trans-change">Sapagkat darating ang araw na muling magbibilihan ng mga ari-arian_ ang mga tao sa lugar na ito. Magbibilihan sila ng mga bahay, mga bukid, at mga ubasan. <i class="trans-change">Ako_, ang Panginoong Makapangyarihan, ang Dios ng Israel, ang nagsasabi nito." 
+Sapagkat darating ang araw na muling magbibilihan ng mga ari-arian_ ang mga tao sa lugar na ito. Magbibilihan sila ng mga bahay, mga bukid, at mga ubasan. Ako_, ang Panginoong Makapangyarihan, ang Dios ng Israel, ang nagsasabi nito." 
 
 
 
@@ -1195,7 +1195,7 @@ Nagtayo sila ng mga sambahan para kay Baal sa Lambak ng Ben Hinom at doon din ni
 
 
 
-"Jeremias, totoo ang sinabi mong ibibigay sa hari ng Babilonia ang lungsod na ito sa pamamagitan ng digmaan, taggutom at sakit. Pero ngayon <i class="trans-change">ako,_ ang Panginoon, ang Dios ng Israel, ay nagsasabi: 
+"Jeremias, totoo ang sinabi mong ibibigay sa hari ng Babilonia ang lungsod na ito sa pamamagitan ng digmaan, taggutom at sakit. Pero ngayon ako,_ ang Panginoon, ang Dios ng Israel, ay nagsasabi: 
 
 
 
@@ -1459,4 +1459,4 @@ At muling magbibilihan ng mga bukid sa lupaing ito na ngayon ay malungkot at wal
 
 
 
-"Muling magbibilihan ng mga bukid, na lalagdaan, tatatakan at sasaksihan ang mga kasulatan ng bilihan. Gagawin ito sa lupain ni Benjamin, sa mga lugar sa palibot ng Jerusalem, sa mga bayan ng Juda, sa mga bayan sa kabundukan at kaburulan sa kanluran, at sa Negev. <i class="trans-change">Mangyayari ito_ dahil pababalikin ko ang mga mamamayan ko sa lupain nila mula sa pagkakabihag. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito."
+"Muling magbibilihan ng mga bukid, na lalagdaan, tatatakan at sasaksihan ang mga kasulatan ng bilihan. Gagawin ito sa lupain ni Benjamin, sa mga lugar sa palibot ng Jerusalem, sa mga bayan ng Juda, sa mga bayan sa kabundukan at kaburulan sa kanluran, at sa Negev. Mangyayari ito_ dahil pababalikin ko ang mga mamamayan ko sa lupain nila mula sa pagkakabihag. Ako,_ ang Panginoon, ang nagsasabi nito."

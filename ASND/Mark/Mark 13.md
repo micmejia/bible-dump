@@ -106,7 +106,7 @@ Sinabi ni Jesus sa kanya, "Ang templong ito na nakikita ninyo ngayon, na gawa sa
 
 
 
-Habang nakaupo si Jesus sa <i class="trans-change">isang lugar_ sa Bundok ng mga Olibo na nakaharap sa templo, tinanong siya nang sarilinan nina Pedro, Santiago, Juan at Andres, 
+Habang nakaupo si Jesus sa isang lugar_ sa Bundok ng mga Olibo na nakaharap sa templo, tinanong siya nang sarilinan nina Pedro, Santiago, Juan at Andres, 
 
 
 
@@ -337,7 +337,7 @@ Sapagkat magdidigmaan ang mga bansa at mga kaharian. Lilindol sa ibaʼt ibang lu
 
 
 
-Dapat munang maipangaral ang Magandang Balita sa lahat ng bansa, <i class="trans-change">bago dumating ang katapusan._ 
+Dapat munang maipangaral ang Magandang Balita sa lahat ng bansa, bago dumating ang katapusan._ 
 
 
 
@@ -370,7 +370,7 @@ Dapat munang maipangaral ang Magandang Balita sa lahat ng bansa, <i class="trans
 
 
 
-Kapag dinakip kayo at iniharap <i class="trans-change">sa hukuman_, huwag kayong mag-alala kung ano ang sasabihin ninyo. Bastaʼt sabihin ninyo ang ipinapasabi <i class="trans-change">ng Banal na Espiritu_ sa oras na iyon. Sapagkat hindi kayo ang magsasalita kundi ang Banal na Espiritu <i class="trans-change">sa pamamagitan ninyo_. 
+Kapag dinakip kayo at iniharap sa hukuman_, huwag kayong mag-alala kung ano ang sasabihin ninyo. Bastaʼt sabihin ninyo ang ipinapasabi ng Banal na Espiritu_ sa oras na iyon. Sapagkat hindi kayo ang magsasalita kundi ang Banal na Espiritu sa pamamagitan ninyo_. 
 
 
 
@@ -403,7 +403,7 @@ Kapag dinakip kayo at iniharap <i class="trans-change">sa hukuman_, huwag kayong
 
 
 
-<i class="trans-change">Sa panahong iyon,_ may mga taong ipagkakanulo ang kanilang kapatid para patayin. Ganoon din ang mga ama sa kanilang mga anak, at ang mga anak sa kanilang mga magulang. 
+Sa panahong iyon,_ may mga taong ipagkakanulo ang kanilang kapatid para patayin. Ganoon din ang mga ama sa kanilang mga anak, at ang mga anak sa kanilang mga magulang. 
 
 
 
@@ -469,7 +469,7 @@ Kapopootan kayo ng lahat dahil sa pagsunod ninyo sa akin. Ngunit ang mananatilin
 
 
 
-"Makikita ninyo ang kasuklam-suklam <i class="trans-change">na darating na magiging dahilan_ ng pag-iwan <i class="trans-change">sa templo_, at nakatayo ito sa lugar na hindi dapat kalagyan nito." (Kayong mga bumabasa, unawain ninyo itong mabuti!) "Kapag nangyari na ito, ang mga nasa Judea ay dapat nang tumakas papunta sa kabundukan. 
+"Makikita ninyo ang kasuklam-suklam na darating na magiging dahilan_ ng pag-iwan sa templo_, at nakatayo ito sa lugar na hindi dapat kalagyan nito." (Kayong mga bumabasa, unawain ninyo itong mabuti!) "Kapag nangyari na ito, ang mga nasa Judea ay dapat nang tumakas papunta sa kabundukan. 
 
 
 
@@ -568,7 +568,7 @@ Ang nasa bukid ay huwag nang umuwi para kumuha ng damit.
 
 
 
-Kawawa ang mga buntis at ang mga nagpapasuso sa mga araw na iyon <i class="trans-change">dahil mahihirapan silang tumakas_. 
+Kawawa ang mga buntis at ang mga nagpapasuso sa mga araw na iyon dahil mahihirapan silang tumakas_. 
 
 
 
@@ -865,7 +865,7 @@ at mahuhulog ang mga bituin mula sa langit. Ang mga bagay sa kalawakan ay mayaya
 
 
 
-At makikita nila <i class="trans-change">ako na_ Anak ng Tao na dumarating mula sa mga ulap na taglay ang dakilang kapangyarihan at kaluwalhatian. 
+At makikita nila ako na_ Anak ng Tao na dumarating mula sa mga ulap na taglay ang dakilang kapangyarihan at kaluwalhatian. 
 
 
 
@@ -1063,7 +1063,7 @@ Sinasabi ko sa inyo ang totoo, matutupad ang lahat ng ito bago mawala ang henera
 
 
 
-"Tungkol sa araw o oras ng aking pagbabalik, walang nakakaalam nito, kahit ang mga anghel sa langit o <i class="trans-change">ako mismo na_ Anak <i class="trans-change">ng Dios_. Ang Ama lang ang nakakaalam nito. 
+"Tungkol sa araw o oras ng aking pagbabalik, walang nakakaalam nito, kahit ang mga anghel sa langit o ako mismo na_ Anak ng Dios_. Ang Ama lang ang nakakaalam nito. 
 
 
 
@@ -1129,7 +1129,7 @@ Kaya mag-ingat kayo at laging magbantay, dahil hindi ninyo alam kung kailan ako 
 
 
 
-Maaari natin itong ihambing sa isang taong papunta sa malayong lugar. Bago siya umalis ng bahay ay binigyan niya ng kanya-kanyang gawain ang bawat alipin at saka binilinan ang guwardya sa pintuan na maging handa <i class="trans-change">sa kanyang pagdating_. 
+Maaari natin itong ihambing sa isang taong papunta sa malayong lugar. Bago siya umalis ng bahay ay binigyan niya ng kanya-kanyang gawain ang bawat alipin at saka binilinan ang guwardya sa pintuan na maging handa sa kanyang pagdating_. 
 
 
 

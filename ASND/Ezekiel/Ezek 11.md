@@ -106,7 +106,7 @@ Sinabi sa akin ng Panginoon, "Anak ng tao, sila ang mga taong nagpaplano at nagp
 
 
 
-Sinasabi nila, 'Hindi baʼt malapit na ang panahon para magtayo ng mga bahay? Ang lungsod natin ay katulad ng kaldero at tayo naman ay parang mga karne sa loob <i class="trans-change">na hindi masusunog ng apoy_.' 
+Sinasabi nila, 'Hindi baʼt malapit na ang panahon para magtayo ng mga bahay? Ang lungsod natin ay katulad ng kaldero at tayo naman ay parang mga karne sa loob na hindi masusunog ng apoy_.' 
 
 
 
@@ -238,7 +238,7 @@ Marami kayong pinatay sa lungsod na ito at nagkalat ang mga bangkay sa lansangan
 
 
 
-Kaya <i class="trans-change">ako_, ang Panginoong Dios, ang nagsasabi nito sa inyo: Ang lungsod na ito ay natulad sa kaldero, at ang mga bangkay na inyong kinalat sa lungsod ay ang nagsilbing karne. At kayo naman ay papalayasin ko sa lungsod na ito. 
+Kaya ako_, ang Panginoong Dios, ang nagsasabi nito sa inyo: Ang lungsod na ito ay natulad sa kaldero, at ang mga bangkay na inyong kinalat sa lungsod ay ang nagsilbing karne. At kayo naman ay papalayasin ko sa lungsod na ito. 
 
 
 
@@ -271,7 +271,7 @@ Kaya <i class="trans-change">ako_, ang Panginoong Dios, ang nagsasabi nito sa in
 
 
 
-Natatakot kayo sa digmaan pero ipapalasap ko ito sa inyo. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Natatakot kayo sa digmaan pero ipapalasap ko ito sa inyo. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -535,7 +535,7 @@ Sinabi sa akin ng Panginoon,
 
 
 
-"Kaya sabihin mo <i class="trans-change">sa mga kasamahan mong bihag_ na <i class="trans-change">ako_, ang Panginoong Dios, ay nagsasabi 'Kahit ipinabihag ko kayo at ipinangalat sa ibaʼt ibang bansa, kasama nʼyo pa rin ako sa mga lugar na iyon. 
+"Kaya sabihin mo sa mga kasamahan mong bihag_ na ako_, ang Panginoong Dios, ay nagsasabi 'Kahit ipinabihag ko kayo at ipinangalat sa ibaʼt ibang bansa, kasama nʼyo pa rin ako sa mga lugar na iyon. 
 
 
 
@@ -568,7 +568,7 @@ Sinabi sa akin ng Panginoon,
 
 
 
-Kaya <i class="trans-change">ako_, ang Panginoong Dios, ay nagsasabing muli ko kayong titipunin mula sa mga bansa kung saan kayo nangalat at ibibigay kong muli sa inyo ang lupain ng Israel. 
+Kaya ako_, ang Panginoong Dios, ay nagsasabing muli ko kayong titipunin mula sa mga bansa kung saan kayo nangalat at ibibigay kong muli sa inyo ang lupain ng Israel. 
 
 
 
@@ -700,7 +700,7 @@ Tutuparin na ninyo ang mga utos koʼt mga tuntunin. Magiging mga mamamayan ko ka
 
 
 
-Pero ang mga sumasamba sa mga kasuklam-suklam na dios-diosan ay parurusahan ko ayon sa mga ginawa nila. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito.' " 
+Pero ang mga sumasamba sa mga kasuklam-suklam na dios-diosan ay parurusahan ko ayon sa mga ginawa nila. Ako,_ ang Panginoong Dios, ang nagsasabi nito.' " 
 
 
 
@@ -832,4 +832,4 @@ Pagkatapos, nakita ko sa pangitaing ibinigay sa akin ng Espiritu ng Dios, na ibi
 
 
 
-At isinalaysay ko sa mga bihag ang lahat ng <i class="trans-change">pangitain na_ ipinakita sa akin ng Panginoon.
+At isinalaysay ko sa mga bihag ang lahat ng pangitain na_ ipinakita sa akin ng Panginoon.

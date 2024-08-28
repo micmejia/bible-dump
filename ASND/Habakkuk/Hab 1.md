@@ -39,7 +39,7 @@ next: ['Hab 2']
 
 
 
-Ito ang mensahe ni Propeta Habakuk na ipinahayag sa kanya <i class="trans-change">ng Panginoon_.
+Ito ang mensahe ni Propeta Habakuk na ipinahayag sa kanya ng Panginoon_.
 
 ## Ang Unang Hinaing ni Habakuk 
 
@@ -74,7 +74,7 @@ Ito ang mensahe ni Propeta Habakuk na ipinahayag sa kanya <i class="trans-change
 
 
 
-<i class="trans-change">Sinabi ni Habakuk,_ "Panginoon, hanggang kailan po ako hihingi ng tulong sa inyo bago nʼyo ako dinggin? Kailan nʼyo po ba kami ililigtas sa mga karahasang ito? 
+Sinabi ni Habakuk,_ "Panginoon, hanggang kailan po ako hihingi ng tulong sa inyo bago nʼyo ako dinggin? Kailan nʼyo po ba kami ililigtas sa mga karahasang ito? 
 
 
 
@@ -173,7 +173,7 @@ Kaya naging walang kabuluhan ang kautusan. At wala ring katarungan dahil ang mga
 
 
 
-<i class="trans-change">Sumagot ang Dios,_ "Tingnan ninyong mabuti ang mga nangyayari sa mga bansa at talagang magtataka kayo sa inyong makikita. Sapagkat may gagawin ako sa inyong kapanahunan na hindi ninyo paniniwalaan kahit may magbalita pa nito sa inyo. 
+Sumagot ang Dios,_ "Tingnan ninyong mabuti ang mga nangyayari sa mga bansa at talagang magtataka kayo sa inyong makikita. Sapagkat may gagawin ako sa inyong kapanahunan na hindi ninyo paniniwalaan kahit may magbalita pa nito sa inyo. 
 
 
 
@@ -206,7 +206,7 @@ Kaya naging walang kabuluhan ang kautusan. At wala ring katarungan dahil ang mga
 
 
 
-Sapagkat pamamahalain ko ang mga taga-Babilonia, na kilala sa kalupitan at karahasan. Mabilis nilang sinasalakay ang <i class="trans-change">mga bansa sa_ buong mundo upang agawin ang mga lugar na hindi kanila. 
+Sapagkat pamamahalain ko ang mga taga-Babilonia, na kilala sa kalupitan at karahasan. Mabilis nilang sinasalakay ang mga bansa sa_ buong mundo upang agawin ang mga lugar na hindi kanila. 
 
 
 
@@ -338,7 +338,7 @@ Paparating ang kanilang mga sundalo na handang gumawa ng kalupitan. Para silang 
 
 
 
-Hinahamak nila ang mga hari at mga pinuno. Tinatawanan lamang nila ang mga napapaderang lungsod, dahil <i class="trans-change">kaya nila itong akyatin_ sa pamamagitan ng pagtambak ng lupa sa tabi nito. <i class="trans-change">Sa ganitong paraan, nakakapasok sila_ at nasasakop nila ang lungsod. 
+Hinahamak nila ang mga hari at mga pinuno. Tinatawanan lamang nila ang mga napapaderang lungsod, dahil kaya nila itong akyatin_ sa pamamagitan ng pagtambak ng lupa sa tabi nito. Sa ganitong paraan, nakakapasok sila_ at nasasakop nila ang lungsod. 
 
 
 
@@ -371,7 +371,7 @@ Hinahamak nila ang mga hari at mga pinuno. Tinatawanan lamang nila ang mga napap
 
 
 
-Pagkatapos, aalis sila na parang hangin lang na dumaan. Nagkasala sila, <i class="trans-change">dahil_ wala silang kinikilalang dios kundi ang sariling kakayahan." ## Ang Pangalawang Hinaing ni Habakuk 
+Pagkatapos, aalis sila na parang hangin lang na dumaan. Nagkasala sila, dahil_ wala silang kinikilalang dios kundi ang sariling kakayahan." ## Ang Pangalawang Hinaing ni Habakuk 
 
 
 
@@ -404,7 +404,7 @@ Pagkatapos, aalis sila na parang hangin lang na dumaan. Nagkasala sila, <i class
 
 
 
-<i class="trans-change">Sinabi ni Habakuk,_ "O Panginoon, kayo ay Dios mula pa noon. Kayo ang aking Dios, ang banal na Dios na walang kamatayan. O Panginoon, ang Bato <i class="trans-change">na kanlungan_, pinili nʼyo ang mga taga-Babilonia para magparusa sa amin. 
+Sinabi ni Habakuk,_ "O Panginoon, kayo ay Dios mula pa noon. Kayo ang aking Dios, ang banal na Dios na walang kamatayan. O Panginoon, ang Bato na kanlungan_, pinili nʼyo ang mga taga-Babilonia para magparusa sa amin. 
 
 
 
@@ -437,7 +437,7 @@ Pagkatapos, aalis sila na parang hangin lang na dumaan. Nagkasala sila, <i class
 
 
 
-Dahil banal kayo, hindi nʼyo matitiis na tingnan ang kasamaan at kaguluhan. Pero bakit nʼyo hinahayaan ang mga traydor <i class="trans-change">na taga-Babilonia_ na gawin ito sa amin? Bakit nʼyo hinahayaang pagmalupitan ang mga taong hindi gaanong masama kung ihahambing sa kanila? 
+Dahil banal kayo, hindi nʼyo matitiis na tingnan ang kasamaan at kaguluhan. Pero bakit nʼyo hinahayaan ang mga traydor na taga-Babilonia_ na gawin ito sa amin? Bakit nʼyo hinahayaang pagmalupitan ang mga taong hindi gaanong masama kung ihahambing sa kanila? 
 
 
 
@@ -470,7 +470,7 @@ Dahil banal kayo, hindi nʼyo matitiis na tingnan ang kasamaan at kaguluhan. Per
 
 
 
-Ang kanilang mga kalaban ay ginawa nʼyong parang mga isda na walang pinuno <i class="trans-change">na magtatanggol sa kanila_. 
+Ang kanilang mga kalaban ay ginawa nʼyong parang mga isda na walang pinuno na magtatanggol sa kanila_. 
 
 
 
@@ -536,7 +536,7 @@ Masayang nagdiriwang ang mga taga-Babilonia dahil sa pagbihag nila sa kanilang m
 
 
 
-At dahil marami silang nabihag, <i class="trans-change">ipinagmamalaki nila ang kanilang kakayahan katulad ng mangingisdang_ sinasamba ang kanyang bingwit o lambat sa pamamagitan ng paghahandog ng insenso bilang handog sa mga bagay na ito. Dahil sa pamamagitan ng bingwit o lambat ay yumaman siya at nagkaroon ng masaganang pagkain. 
+At dahil marami silang nabihag, ipinagmamalaki nila ang kanilang kakayahan katulad ng mangingisdang_ sinasamba ang kanyang bingwit o lambat sa pamamagitan ng paghahandog ng insenso bilang handog sa mga bagay na ito. Dahil sa pamamagitan ng bingwit o lambat ay yumaman siya at nagkaroon ng masaganang pagkain. 
 
 
 
@@ -569,4 +569,4 @@ At dahil marami silang nabihag, <i class="trans-change">ipinagmamalaki nila ang 
 
 
 
-Kaya <i class="trans-change">Panginoon_, magpapatuloy na lang po ba ang kanilang walang awang pagbihag at pagwasak sa mga bansa?"
+Kaya Panginoon_, magpapatuloy na lang po ba ang kanilang walang awang pagbihag at pagwasak sa mga bansa?"

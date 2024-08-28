@@ -205,7 +205,7 @@ Nagsuot sila ng mga lumang damit at mga sandalyas na pudpod at tagpi-tagpi. Nagb
 
 
 
-Pagkatapos, pumunta sila kay Josue sa kampo ng Israel sa Gilgal, at sinabi sa kanya at sa mga Israelita, "Pumunta kami rito galing sa malayong lugar para hilingin sa inyo na gumawa kayo ng kasunduan sa amin <i class="trans-change">na hindi nʼyo gagalawin ang mga mamamayan namin_." 
+Pagkatapos, pumunta sila kay Josue sa kampo ng Israel sa Gilgal, at sinabi sa kanya at sa mga Israelita, "Pumunta kami rito galing sa malayong lugar para hilingin sa inyo na gumawa kayo ng kasunduan sa amin na hindi nʼyo gagalawin ang mga mamamayan namin_." 
 
 
 
@@ -370,7 +370,7 @@ at sa dalawang hari na Amoreo sa silangan ng Jordan na sina Haring Sihon ng Hesh
 
 
 
-Kaya inutusan kami ng mga tagapamahala at mga kababayan namin na maghanda ng pagkain at pumunta rito, at makipagkita sa inyo para sabihin na handa kaming maglingkod sa inyo bastaʼt gumawa lang kayo ng kasunduan sa amin <i class="trans-change">na hindi nʼyo kami gagalawin_. 
+Kaya inutusan kami ng mga tagapamahala at mga kababayan namin na maghanda ng pagkain at pumunta rito, at makipagkita sa inyo para sabihin na handa kaming maglingkod sa inyo bastaʼt gumawa lang kayo ng kasunduan sa amin na hindi nʼyo kami gagalawin_. 
 
 
 
@@ -502,7 +502,7 @@ Naniwala at tinanggap ng mga Israelita ang mga ebidensya na dala nila, pero hind
 
 
 
-Gumawa si Josue ng kasunduan sa kanila, na hindi niya sila gagalawin o kayaʼy papatayin. At nanumpa ang mga pinuno ng mga kapulungan <i class="trans-change">ng Israel_ sa kasunduang ito. 
+Gumawa si Josue ng kasunduan sa kanila, na hindi niya sila gagalawin o kayaʼy papatayin. At nanumpa ang mga pinuno ng mga kapulungan ng Israel_ sa kasunduang ito. 
 
 
 
@@ -700,7 +700,7 @@ Ganito ang gagawin natin: Hindi natin sila papatayin dahil baka parusahan tayo n
 
 
 
-Pabayaan natin silang mabuhay, pero gawin natin silang tagapangahoy at tagaigib ng buong mamamayan." <i class="trans-change">At ganito nga ang nangyari sa mga taga-Gibeon_ ayon sa sinabi ng mga pinuno tungkol sa kanila. 
+Pabayaan natin silang mabuhay, pero gawin natin silang tagapangahoy at tagaigib ng buong mamamayan." At ganito nga ang nangyari sa mga taga-Gibeon_ ayon sa sinabi ng mga pinuno tungkol sa kanila. 
 
 
 
@@ -766,7 +766,7 @@ Ipinatawag ni Josue ang mga taga-Gibeon at sinabi, "Bakit nʼyo kami niloko? Bak
 
 
 
-Dahil sa ginawa nʼyo, isusumpa kayo <i class="trans-change">ng Dios_: Mula ngayon, maglilingkod kayo bilang tagapangahoy at tagaigib para sa bahay ng aking Dios." 
+Dahil sa ginawa nʼyo, isusumpa kayo ng Dios_: Mula ngayon, maglilingkod kayo bilang tagapangahoy at tagaigib para sa bahay ng aking Dios." 
 
 
 
@@ -898,4 +898,4 @@ Hindi pinahintulutan ni Josue na patayin sila ng mga Israelita.
 
 
 
-Pero ginawa niya silang mga tagapangahoy at tagaigib para sa mga Israelita at sa altar ng Panginoon. Hanggang ngayon, ginagawa nila ang gawaing ito sa lugar na pinili ng Panginoon <i class="trans-change">kung saan siya sasambahin_.
+Pero ginawa niya silang mga tagapangahoy at tagaigib para sa mga Israelita at sa altar ng Panginoon. Hanggang ngayon, ginagawa nila ang gawaing ito sa lugar na pinili ng Panginoon kung saan siya sasambahin_.

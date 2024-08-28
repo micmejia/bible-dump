@@ -40,7 +40,7 @@ next: ['Hos 14']
 
 
 
-"Noong una, kapag nagsalita ang lahi ni Efraim, nanginginig sa takot ang ibang mga lahi ng Israel dahil tinitingala nila ang lahi ni Efraim. Pero nagkasala ang mga mamamayan nito dahil sumamba sila sa <i class="trans-change">dios-diosang_ si Baal. Kaya nga namatay sila. 
+"Noong una, kapag nagsalita ang lahi ni Efraim, nanginginig sa takot ang ibang mga lahi ng Israel dahil tinitingala nila ang lahi ni Efraim. Pero nagkasala ang mga mamamayan nito dahil sumamba sila sa dios-diosang_ si Baal. Kaya nga namatay sila. 
 
 
 
@@ -73,7 +73,7 @@ next: ['Hos 14']
 
 
 
-Hanggang ngayon, kayo <i class="trans-change">na tinatawag na Efraim_ ay patuloy pa rin sa paggawa ng kasalanan. Gumagawa kayo ng mga dios-diosan mula sa inyong mga pilak upang sambahin. Pero ang lahat ng ito ay gawa lamang ng tao at ayon lang sa kanyang naisip. Sinasabi pa ninyo na maghahandog kayo ng tao sa mga dios-diosang baka at hahalik sa mga ito. 
+Hanggang ngayon, kayo na tinatawag na Efraim_ ay patuloy pa rin sa paggawa ng kasalanan. Gumagawa kayo ng mga dios-diosan mula sa inyong mga pilak upang sambahin. Pero ang lahat ng ito ay gawa lamang ng tao at ayon lang sa kanyang naisip. Sinasabi pa ninyo na maghahandog kayo ng tao sa mga dios-diosang baka at hahalik sa mga ito. 
 
 
 
@@ -139,7 +139,7 @@ Kaya mawawala kayo gaya ng ulap sa umaga o hamog, o gaya ng ipa sa giikan na tin
 
 
 
-"Ako ang Panginoon na inyong Dios <i class="trans-change">na naglabas sa inyo_ sa Egipto. Wala kayong kikilalaning Dios at Tagapagligtas maliban sa akin. 
+"Ako ang Panginoon na inyong Dios na naglabas sa inyo_ sa Egipto. Wala kayong kikilalaning Dios at Tagapagligtas maliban sa akin. 
 
 
 
@@ -207,7 +207,7 @@ Kinalinga ko kayo roon sa disyerto, sa tuyong lupain.
 
 Pero pagkatapos ko kayong pagpalain at paunlarin, naging mapagmataas kayo at kinalimutan na ninyo ako.
 
-###### 7-8 Kaya sasalakayin ko kayo at lalapain tulad ng ginagawa ng mabangis na hayop sa kanyang biktima. Lalapain ko kayo gaya ng ginagawa ng leon at ng osong inagawan ng anak. Babantayan ko kayo sa daan at sasalakayin tulad ng <i class="trans-change">hayop na_ leopardo. 
+###### 7-8 Kaya sasalakayin ko kayo at lalapain tulad ng ginagawa ng mabangis na hayop sa kanyang biktima. Lalapain ko kayo gaya ng ginagawa ng leon at ng osong inagawan ng anak. Babantayan ko kayo sa daan at sasalakayin tulad ng hayop na_ leopardo. 
 
 
 
@@ -240,7 +240,7 @@ Pero pagkatapos ko kayong pagpalain at paunlarin, naging mapagmataas kayo at kin
 
 
 
-Pupuksain ko kayong mga taga-Israel dahil ako na nagligtas sa inyo ay kinalaban ninyo. <sup class="versenum">10-11</sup>Nasaan na ngayon ang mga hari at mga pinuno na sa tingin ninyoʼy magliligtas sa inyo? Hiningi ninyo sila sa akin sa pag-aakalang maliligtas nila kayo, at sa galit ko sa inyoʼy ibinigay ko nga ang mga ito, at dahil din sa galit ko, silaʼy kinuha ko. 
+Pupuksain ko kayong mga taga-Israel dahil ako na nagligtas sa inyo ay kinalaban ninyo. 10-11Nasaan na ngayon ang mga hari at mga pinuno na sa tingin ninyoʼy magliligtas sa inyo? Hiningi ninyo sila sa akin sa pag-aakalang maliligtas nila kayo, at sa galit ko sa inyoʼy ibinigay ko nga ang mga ito, at dahil din sa galit ko, silaʼy kinuha ko. 
 
 
 
@@ -273,7 +273,7 @@ Pupuksain ko kayong mga taga-Israel dahil ako na nagligtas sa inyo ay kinalaban 
 
 
 
-<i class="trans-change">Hindi ko makakalimutan_ ang mga kasalanan ninyo. Para itong kasulatang binalot at itinago. 
+Hindi ko makakalimutan_ ang mga kasalanan ninyo. Para itong kasulatang binalot at itinago. 
 
 
 
@@ -372,7 +372,7 @@ Hindi ko kayo ililigtas sa kamatayan. Sa halip sasabihin ko sa kamatayan, 'O kam
 
 
 
-Kahit na mas maunlad kayo kaysa sa inyong kapwa, <i class="trans-change">lilipulin ko kayo_. Paiihipin ko ang mainit na hanging silangan na nagmumula sa disyerto at matutuyo ang inyong mga bukal at mga balon. At sasamsamin ang inyong mahahalagang pag-aari. 
+Kahit na mas maunlad kayo kaysa sa inyong kapwa, lilipulin ko kayo_. Paiihipin ko ang mainit na hanging silangan na nagmumula sa disyerto at matutuyo ang inyong mga bukal at mga balon. At sasamsamin ang inyong mahahalagang pag-aari. 
 
 
 

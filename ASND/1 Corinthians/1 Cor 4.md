@@ -40,7 +40,7 @@ next: ['1 Cor 5']
 
 
 
-Kaya dapat ituring ninyo kami ni Apolos bilang mga lingkod ni Cristo na pinagkatiwalaan ng Dios na mangaral ng katotohanang inilihim niya <i class="trans-change">noong una_. 
+Kaya dapat ituring ninyo kami ni Apolos bilang mga lingkod ni Cristo na pinagkatiwalaan ng Dios na mangaral ng katotohanang inilihim niya noong una_. 
 
 
 
@@ -172,7 +172,7 @@ Kung sabagay, malinis ang aking konsensya, pero hindi ito nangangahulugan na wal
 
 
 
-Kaya huwag kayong humatol nang wala sa takdang panahon. Hintayin ninyo ang pagbabalik ng Panginoon. Pagdating niya, ilalantad niya ang lahat ng mga sekreto at motibo ng bawat isa. At sa panahong iyon, tatanggapin ng bawat isa ang papuring mula sa Dios <i class="trans-change">na ayon sa kanyang ginawa_. 
+Kaya huwag kayong humatol nang wala sa takdang panahon. Hintayin ninyo ang pagbabalik ng Panginoon. Pagdating niya, ilalantad niya ang lahat ng mga sekreto at motibo ng bawat isa. At sa panahong iyon, tatanggapin ng bawat isa ang papuring mula sa Dios na ayon sa kanyang ginawa_. 
 
 
 
@@ -271,7 +271,7 @@ Bakit sinasabi ninyong nakakahigit kayo sa iba? Ano ba ang mayroon kayo na hindi
 
 
 
-Inaakala ninyo na nasa inyo na ang lahat ng inyong kailangan, na mayayaman na kayo at naghahari na <i class="trans-change">sa kaharian ng Dios_ nang wala kami. Sana ngaʼy naghahari na kayo nang makapaghari naman kaming kasama ninyo. 
+Inaakala ninyo na nasa inyo na ang lahat ng inyong kailangan, na mayayaman na kayo at naghahari na sa kaharian ng Dios_ nang wala kami. Sana ngaʼy naghahari na kayo nang makapaghari naman kaming kasama ninyo. 
 
 
 
@@ -337,7 +337,7 @@ Sa tingin ko, kaming mga apostol ay ginawa ng Dios na parang pinakahamak sa laha
 
 
 
-Dahil <i class="trans-change">sa pangangaral namin tungkol_ kay Cristo, <i class="trans-change">itinuturing_ kaming mga hangal. Ngunit kayo naman ay <i class="trans-change">nag-aakalang_ marurunong dahil nakay Cristo kayo. Kami ay mahihina, at <i class="trans-change">sa palagay ninyo ay_ malalakas kayo. Iginagalang kayo <i class="trans-change">ng mga tao_, habang kami naman ay hinahamak. 
+Dahil sa pangangaral namin tungkol_ kay Cristo, itinuturing_ kaming mga hangal. Ngunit kayo naman ay nag-aakalang_ marurunong dahil nakay Cristo kayo. Kami ay mahihina, at sa palagay ninyo ay_ malalakas kayo. Iginagalang kayo ng mga tao_, habang kami naman ay hinahamak. 
 
 
 
@@ -403,7 +403,7 @@ Maging sa oras na ito, kami ay nagugutom at nauuhaw, hindi makapanamit nang maay
 
 
 
-Nagtatrabaho kami nang husto <i class="trans-change">upang mabuhay_. Kung nilalait kami ng mga tao, pinagpapala namin sila. Kung kami ay inuusig, tinitiis na lang namin ito. 
+Nagtatrabaho kami nang husto upang mabuhay_. Kung nilalait kami ng mga tao, pinagpapala namin sila. Kung kami ay inuusig, tinitiis na lang namin ito. 
 
 
 
@@ -502,7 +502,7 @@ Hindi ko sinusulat ang mga ito upang ipahiya kayo, kundi upang paalalahanan kayo
 
 
 
-Sapagkat kahit marami ang nag-aalaga sa inyong pamumuhay Cristiano, iisa lamang ang inyong ama sa pananampalataya. <i class="trans-change">At ako ang inyong ama,_ dahil naging anak ko kayo sa pananampalataya kay Cristo Jesus sa pamamagitan ng Magandang Balita <i class="trans-change">na ipinangaral ko sa inyo_. 
+Sapagkat kahit marami ang nag-aalaga sa inyong pamumuhay Cristiano, iisa lamang ang inyong ama sa pananampalataya. At ako ang inyong ama,_ dahil naging anak ko kayo sa pananampalataya kay Cristo Jesus sa pamamagitan ng Magandang Balita na ipinangaral ko sa inyo_. 
 
 
 

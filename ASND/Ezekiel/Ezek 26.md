@@ -40,7 +40,7 @@ next: ['Ezek 27']
 
 
 
-Noong unang araw ng buwan, nang ika-11 taon <i class="trans-change">ng aming pagkabihag_, sinabi ng Panginoon sa akin, 
+Noong unang araw ng buwan, nang ika-11 taon ng aming pagkabihag_, sinabi ng Panginoon sa akin, 
 
 
 
@@ -73,7 +73,7 @@ Noong unang araw ng buwan, nang ika-11 taon <i class="trans-change">ng aming pag
 
 
 
-"Anak ng tao, natuwa ang mga taga-Tyre nang mawasak ang Jerusalem. Ang sabi nila, 'Nawasak na ang <i class="trans-change">pangunahing_ pinupuntahan <i class="trans-change">ng mga mangangalakal_ kaya dito na sila pupunta sa atin at tayo naman ang uunlad.' 
+"Anak ng tao, natuwa ang mga taga-Tyre nang mawasak ang Jerusalem. Ang sabi nila, 'Nawasak na ang pangunahing_ pinupuntahan ng mga mangangalakal_ kaya dito na sila pupunta sa atin at tayo naman ang uunlad.' 
 
 
 
@@ -106,7 +106,7 @@ Noong unang araw ng buwan, nang ika-11 taon <i class="trans-change">ng aming pag
 
 
 
-Kaya <i class="trans-change">ako,_ ang Panginoong Dios, ay nagsasabing kakalabanin ko ang Tyre. Ipasasalakay ko sila sa maraming bansa, darating ang mga ito na parang rumaragasang alon. 
+Kaya ako,_ ang Panginoong Dios, ay nagsasabing kakalabanin ko ang Tyre. Ipasasalakay ko sila sa maraming bansa, darating ang mga ito na parang rumaragasang alon. 
 
 
 
@@ -172,7 +172,7 @@ Gigibain ang mga pader niya at wawasakin ang kanyang mga tore. Kakalkalin nila a
 
 
 
-At magiging bilaran na lang ito ng mga lambat <i class="trans-change">ng mangingisda_. <i class="trans-change">Mangyayari ito_ dahil ako, ang Panginoong Dios, ang nagsasabi nito. Ipauubaya ko ang Tyre sa ibang mga bansa at sasamsamin nila ang mga ari-arian niya. 
+At magiging bilaran na lang ito ng mga lambat ng mangingisda_. Mangyayari ito_ dahil ako, ang Panginoong Dios, ang nagsasabi nito. Ipauubaya ko ang Tyre sa ibang mga bansa at sasamsamin nila ang mga ari-arian niya. 
 
 
 
@@ -469,7 +469,7 @@ Patitigilin ko ang mga awitan ninyo at pagtugtog ng alpa.
 
 
 
-Ang lugar ninyo ay gagawin kong isang malapad na bato at magiging tuyuan na lang ng lambat <i class="trans-change">ng mga mangingisda_. Hindi na maitatayong muli <i class="trans-change">ang lungsod ninyo_. <i class="trans-change">Mangyayari ito_ dahil ako, ang Panginoong Dios, ang nagsasabi nito." 
+Ang lugar ninyo ay gagawin kong isang malapad na bato at magiging tuyuan na lang ng lambat ng mga mangingisda_. Hindi na maitatayong muli ang lungsod ninyo_. Mangyayari ito_ dahil ako, ang Panginoong Dios, ang nagsasabi nito." 
 
 
 
@@ -634,7 +634,7 @@ At ngayon, ang mga nakatira sa tabing-dagat ay nanginginig sa takot dahil sa iyo
 
 
 
-Sinabi pa ng Panginoong Dios, "<i class="trans-change">O Tyre,_ magiging mapanglaw kang lungsod, isang lungsod na walang nakatira. Ibabaon kita sa malalim na tubig. 
+Sinabi pa ng Panginoong Dios, "O Tyre,_ magiging mapanglaw kang lungsod, isang lungsod na walang nakatira. Ibabaon kita sa malalim na tubig. 
 
 
 
@@ -700,4 +700,4 @@ Ililibing kita sa kailaliman kasama ng mga tao noong unang panahon. Mananatili k
 
 
 
-Tatapusin na kita, at nakakatakot ang magiging katapusan mo. Mawawala ka na at kahit hanapin ka, hindi ka na matatagpuan. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito."
+Tatapusin na kita, at nakakatakot ang magiging katapusan mo. Mawawala ka na at kahit hanapin ka, hindi ka na matatagpuan. Ako,_ ang Panginoong Dios, ang nagsasabi nito."

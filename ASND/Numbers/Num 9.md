@@ -238,7 +238,7 @@ Pero may iba sa kanila na hindi nakapagdiwang ng Pistang ito dahil nang araw na 
 
 
 
-at sinabi nila, "Naging marumi kami dahil nakahipo kami ng patay, pero bakit ba hindi kami pinapayagan sa <i class="trans-change">pagdiriwang ng pistang ito at_ sa pag-aalay ng mga handog sa Panginoon kasama ng ibang mga Israelita sa naitakdang panahon?" 
+at sinabi nila, "Naging marumi kami dahil nakahipo kami ng patay, pero bakit ba hindi kami pinapayagan sa pagdiriwang ng pistang ito at_ sa pag-aalay ng mga handog sa Panginoon kasama ng ibang mga Israelita sa naitakdang panahon?" 
 
 
 
@@ -370,7 +370,7 @@ Sinabi ng Panginoon kay Moises,
 
 
 
-Ipagdiriwang nila ito <i class="trans-change">pagkalipas ng isang buwan,_ simula sa paglubog ng araw sa ika-14 na araw ng ikalawang buwan. Kakain sila ng tupa kasama ng tinapay na walang pampaalsa at ng mapait na halaman. 
+Ipagdiriwang nila ito pagkalipas ng isang buwan,_ simula sa paglubog ng araw sa ika-14 na araw ng ikalawang buwan. Kakain sila ng tupa kasama ng tinapay na walang pampaalsa at ng mapait na halaman. 
 
 
 
@@ -502,7 +502,7 @@ Kailangang wala silang iiwanang pagkain kinaumagahan, at hindi rin nila babaliin
 
 
 
-Nang araw na ipinatayo ang Toldang Sambahan <i class="trans-change">na tinatawag ding_ Toldang Tipanan, natakpan ito ng ulap. Ang ulap na ito ay nagliliwanag na parang apoy mula gabi hanggang umaga. 
+Nang araw na ipinatayo ang Toldang Sambahan na tinatawag ding_ Toldang Tipanan, natakpan ito ng ulap. Ang ulap na ito ay nagliliwanag na parang apoy mula gabi hanggang umaga. 
 
 
 
@@ -535,7 +535,7 @@ Nang araw na ipinatayo ang Toldang Sambahan <i class="trans-change">na tinatawag
 
 
 
-Ganito palagi ang nangyayari – ang ulap ay bumabalot sa Toldang Tipanan <i class="trans-change">kung araw_ at nagliliwanag naman ito na parang apoy kung gabi. 
+Ganito palagi ang nangyayari – ang ulap ay bumabalot sa Toldang Tipanan kung araw_ at nagliliwanag naman ito na parang apoy kung gabi. 
 
 
 

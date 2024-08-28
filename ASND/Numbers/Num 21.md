@@ -273,7 +273,7 @@ Pumunta ang mga tao kay Moises at sinabi, "Nagkasala kami nang magsalita kami la
 
 
 
-Sinabi ng Panginoon kay Moises, "Gumawa ka ng <i class="trans-change">tansong_ ahas at ilagay ito sa dulo ng isang tukod. Ang sinumang nakagat ng ahas na titingin sa <i class="trans-change">tansong_ ahas na ito ay hindi mamamatay." 
+Sinabi ng Panginoon kay Moises, "Gumawa ka ng tansong_ ahas at ilagay ito sa dulo ng isang tukod. Ang sinumang nakagat ng ahas na titingin sa tansong_ ahas na ito ay hindi mamamatay." 
 
 
 
@@ -440,7 +440,7 @@ Mula roon, naglakbay sila at nagkampo sa Lambak ng Zered.
 
 
 
-At mula sa Zered naglakbay na naman sila at nagkampo sa kabila ng <i class="trans-change">Lambak ng_ Arnon, na nasa ilang na malapit sa teritoryo ng mga Amoreo. Ang Arnon ang hangganan sa gitna ng lupain ng mga Moabita at lupain ng mga Amoreo. 
+At mula sa Zered naglakbay na naman sila at nagkampo sa kabila ng Lambak ng_ Arnon, na nasa ilang na malapit sa teritoryo ng mga Amoreo. Ang Arnon ang hangganan sa gitna ng lupain ng mga Moabita at lupain ng mga Amoreo. 
 
 
 
@@ -473,7 +473,7 @@ At mula sa Zered naglakbay na naman sila at nagkampo sa kabila ng <i class="tran
 
 
 
-Iyan ang dahilan kung bakit nakasulat sa Aklat ng Pakikipaglaban ng Panginoon ang <i class="trans-change">bayan ng_ Waheb na sakop ng Sufa, ang mga lambak ng Arnon, 
+Iyan ang dahilan kung bakit nakasulat sa Aklat ng Pakikipaglaban ng Panginoon ang bayan ng_ Waheb na sakop ng Sufa, ang mga lambak ng Arnon, 
 
 
 
@@ -539,7 +539,7 @@ pati ang gilid ng mga lambak na umaabot sa bayan ng Ar na nasa hangganan ng Moab
 
 
 
-Mula roon <i class="trans-change">sa Arnon_, nagpatuloy ang mga Israelita sa Beer, ang balon na kung saan sinabi ng Panginoon kay Moises, "Tipunin ninyo ang mga tao at bibigyan ko sila ng tubig." 
+Mula roon sa Arnon_, nagpatuloy ang mga Israelita sa Beer, ang balon na kung saan sinabi ng Panginoon kay Moises, "Tipunin ninyo ang mga tao at bibigyan ko sila ng tubig." 
 
 
 
@@ -572,7 +572,7 @@ Mula roon <i class="trans-change">sa Arnon_, nagpatuloy ang mga Israelita sa Bee
 
 
 
-At doon umawit ang mga Israelita ng awit na ito: Patuloy na magbibigay ng tubig ang balong ito! Aawit tayo tungkol sa balong ito <sup class="versenum mid-line">18</sup>na ipinahukay ng mga pinuno at mararangal na tao sa pamamagitan ng kanilang kapangyarihan. Mula sa disyerto nagpunta sila sa Matana; 
+At doon umawit ang mga Israelita ng awit na ito: Patuloy na magbibigay ng tubig ang balong ito! Aawit tayo tungkol sa balong ito 18na ipinahukay ng mga pinuno at mararangal na tao sa pamamagitan ng kanilang kapangyarihan. Mula sa disyerto nagpunta sila sa Matana; 
 
 
 
@@ -772,7 +772,7 @@ Pero hindi pumayag si Sihon na dumaan ang mga Israelita sa kanyang teritoryo. Sa
 
 
 
-Pero pinagpapatay sila ng mga Israelita, at inagaw nila ang kanilang lupain mula sa Arnon papunta sa <i class="trans-change">Ilog ng_ Jabok. Pero hanggang sa hangganan lang sila ng lupain ng mga Ammonita dahil ang kanilang hangganan ay napapaderan. 
+Pero pinagpapatay sila ng mga Israelita, at inagaw nila ang kanilang lupain mula sa Arnon papunta sa Ilog ng_ Jabok. Pero hanggang sa hangganan lang sila ng lupain ng mga Ammonita dahil ang kanilang hangganan ay napapaderan. 
 
 
 
@@ -871,7 +871,7 @@ Ang Heshbon ang kabisera ng lungsod ni Sihon na hari ng mga Amoreo. Natalo niya 
 
 
 
-Iyan ang dahilan kung bakit sinasabi ng mga makata na, "Pumunta kayo sa Heshbon, ang lungsod ni Sihon, at <i class="trans-change">muli_ nʼyo itong ipatayo. 
+Iyan ang dahilan kung bakit sinasabi ng mga makata na, "Pumunta kayo sa Heshbon, ang lungsod ni Sihon, at muli_ nʼyo itong ipatayo. 
 
 
 

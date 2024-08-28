@@ -106,7 +106,7 @@ Inaagaw ninyo ang mga bukid at mga bahay na inyong nagugustuhan. Dinadaya ninyo 
 
 
 
-Kaya ito ang sinasabi ng Panginoon <i class="trans-change">sa inyo_, "Makinig kayo! Pinaplano kong parusahan kayo at hindi kayo makakaligtas. Hindi na kayo makapagmamalaki dahil sa panahong iyon ay lilipulin kayo. 
+Kaya ito ang sinasabi ng Panginoon sa inyo_, "Makinig kayo! Pinaplano kong parusahan kayo at hindi kayo makakaligtas. Hindi na kayo makapagmamalaki dahil sa panahong iyon ay lilipulin kayo. 
 
 
 
@@ -172,7 +172,7 @@ Sa araw na iyon, kukutyain kayo ng mga tao sa pamamagitan ng malungkot na kasabi
 
 
 
-Kaya wala na kayong angkan na magmamana ng inyong bahagi sa oras na hatiin ng sambayanan ng Panginoon ang lupain <i class="trans-change">na ibabalik sa kanila_. 
+Kaya wala na kayong angkan na magmamana ng inyong bahagi sa oras na hatiin ng sambayanan ng Panginoon ang lupain na ibabalik sa kanila_. 
 
 
 
@@ -205,7 +205,7 @@ Kaya wala na kayong angkan na magmamana ng inyong bahagi sa oras na hatiin ng sa
 
 
 
-<i class="trans-change">Ngayon,_ pinapangaralan pa ninyo kami. <i class="trans-change">Sinasabi ninyo,_ "Huwag na ninyo kaming pangaralan tungkol sa kapahamakang iyon, dahil hinding-hindi kami mapapahiya. 
+Ngayon,_ pinapangaralan pa ninyo kami. Sinasabi ninyo,_ "Huwag na ninyo kaming pangaralan tungkol sa kapahamakang iyon, dahil hinding-hindi kami mapapahiya. 
 
 
 
@@ -238,7 +238,7 @@ Kaya wala na kayong angkan na magmamana ng inyong bahagi sa oras na hatiin ng sa
 
 
 
-Bakit, isinusumpa na ba ng Panginoon ang lahi ni Jacob? Ubos na ba ang kanyang pasensya? Gawain ba niya ang pumuksa?" <i class="trans-change">Ito ang sagot ng Panginoon,_ "Kung ginagawa lang sana ninyo ang mabuti, matatanggap ninyo ang aking mga pangako. 
+Bakit, isinusumpa na ba ng Panginoon ang lahi ni Jacob? Ubos na ba ang kanyang pasensya? Gawain ba niya ang pumuksa?" Ito ang sagot ng Panginoon,_ "Kung ginagawa lang sana ninyo ang mabuti, matatanggap ninyo ang aking mga pangako. 
 
 
 
@@ -271,7 +271,7 @@ Bakit, isinusumpa na ba ng Panginoon ang lahi ni Jacob? Ubos na ba ang kanyang p
 
 
 
-Pero nilulusob ninyo ang aking <i class="trans-change">mahihirap na_ mamamayan na para bang mga kaaway. Akala nila, pag-uwi nila sa kanilang bayan mula sa digmaan ay ligtas na sila, pero iyon palaʼy aagawan ninyo sila ng kanilang balabal. 
+Pero nilulusob ninyo ang aking mahihirap na_ mamamayan na para bang mga kaaway. Akala nila, pag-uwi nila sa kanilang bayan mula sa digmaan ay ligtas na sila, pero iyon palaʼy aagawan ninyo sila ng kanilang balabal. 
 
 
 
@@ -337,7 +337,7 @@ Pinapalayas ninyo ang kanilang mga kababaihan sa mga tahanang minamahal nila. At
 
 
 
-Kaya ngayon, umalis na kayo rito <i class="trans-change">sa Israel_ dahil ang lugar na ito ay hindi na makapagbibigay sa inyo ng kapahingahan, sapagkat dinungisan ninyo ito <i class="trans-change">ng inyong mga kasalanan_. Masisira ang lugar na ito at hindi na mapapakinabangan. 
+Kaya ngayon, umalis na kayo rito sa Israel_ dahil ang lugar na ito ay hindi na makapagbibigay sa inyo ng kapahingahan, sapagkat dinungisan ninyo ito ng inyong mga kasalanan_. Masisira ang lugar na ito at hindi na mapapakinabangan. 
 
 
 
@@ -403,7 +403,7 @@ Ang gusto ninyong mangangaral ay iyong nangangaral nang walang kabuluhan, manlil
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Kayong natitirang mga mamamayan ng Israel at Juda, titipunin ko kayo gaya ng mga tupa sa kulungan o kawan ng mga hayop sa pastulan. Mapupuno ng mga tao ang inyong lupain. 
+Sinabi ng Panginoon,_ "Kayong natitirang mga mamamayan ng Israel at Juda, titipunin ko kayo gaya ng mga tupa sa kulungan o kawan ng mga hayop sa pastulan. Mapupuno ng mga tao ang inyong lupain. 
 
 
 

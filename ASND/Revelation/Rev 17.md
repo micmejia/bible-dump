@@ -73,7 +73,7 @@ Pagkatapos, lumapit sa akin ang isa sa pitong anghel na may sisidlan at sinabi, 
 
 
 
-Nakipagrelasyon sa kanya ang mga hari sa buong mundo <i class="trans-change">sa pamamagitan ng pagsunod sa mga itinuro niya_, at ang mga tao naman sa mundo ay parang nalasing sa mga itinuro niyang kasamaan." 
+Nakipagrelasyon sa kanya ang mga hari sa buong mundo sa pamamagitan ng pagsunod sa mga itinuro niya_, at ang mga tao naman sa mundo ay parang nalasing sa mga itinuro niyang kasamaan." 
 
 
 
@@ -106,7 +106,7 @@ Nakipagrelasyon sa kanya ang mga hari sa buong mundo <i class="trans-change">sa 
 
 
 
-Pagkatapos, napuspos ako ng <i class="trans-change">Banal na_ Espiritu at dinala ng anghel sa ilang. Nakita ko roon ang isang babaeng nakasakay sa pulang halimaw. Ang halimaw na iyon ay may pitong ulo at sampung sungay. At sa buong katawan ay nakasulat ang mga pangalang lumalapastangan sa Dios. 
+Pagkatapos, napuspos ako ng Banal na_ Espiritu at dinala ng anghel sa ilang. Nakita ko roon ang isang babaeng nakasakay sa pulang halimaw. Ang halimaw na iyon ay may pitong ulo at sampung sungay. At sa buong katawan ay nakasulat ang mga pangalang lumalapastangan sa Dios. 
 
 
 
@@ -205,7 +205,7 @@ Nakasulat sa noo niya ang pangalang ito na may lihim na kahulugan: "Ang sikat na
 
 
 
-At nakita kong lasing ang babaeng iyon sa dugo ng mga pinabanal <i class="trans-change">ng Dios_ na <i class="trans-change">ipinapatay_ niya dahil sa pagsunod nila kay Jesus. Namangha ako nang makita ko siya. 
+At nakita kong lasing ang babaeng iyon sa dugo ng mga pinabanal ng Dios_ na ipinapatay_ niya dahil sa pagsunod nila kay Jesus. Namangha ako nang makita ko siya. 
 
 
 
@@ -271,7 +271,7 @@ Pero sinabi sa akin ng anghel, "Huwag kang mamangha. Sasabihin ko sa iyo ang lih
 
 
 
-Ang halimaw na nakita mo ay buhay noon, pero patay na ngayon. Pero muli siyang lalabas mula sa kailaliman, at agad namang mapupunta sa walang hanggang kapahamakan. Makikita siya ng mga taong hindi nakasulat ang mga pangalan sa aklat <i class="trans-change">na listahan ng mga taong binigyan_ ng buhay <i class="trans-change">na walang hanggan_. Bago pa man likhain ang mundo, ang pangalan nila ay hindi na nakasulat sa aklat na ito. At kapag nakita nila ang halimaw, mamamangha sila dahil buhay siya noon, at namatay na, ngunit nabuhay na naman. 
+Ang halimaw na nakita mo ay buhay noon, pero patay na ngayon. Pero muli siyang lalabas mula sa kailaliman, at agad namang mapupunta sa walang hanggang kapahamakan. Makikita siya ng mga taong hindi nakasulat ang mga pangalan sa aklat na listahan ng mga taong binigyan_ ng buhay na walang hanggan_. Bago pa man likhain ang mundo, ang pangalan nila ay hindi na nakasulat sa aklat na ito. At kapag nakita nila ang halimaw, mamamangha sila dahil buhay siya noon, at namatay na, ngunit nabuhay na naman. 
 
 
 
@@ -535,7 +535,7 @@ Sinabi rin sa akin ng anghel, "Ang tubig na nakita mo na inuupuan ng babaeng bay
 
 
 
-Ang sampung sungay at ang halimaw na nakita mo ay mapopoot sa babaeng bayaran. Kukunin nila ang mga ari-arian niya pati na ang suot niyang damit at walang maiiwan sa kanya. Kakainin nila ang kanyang laman at susunugin <i class="trans-change">ang matitira_. 
+Ang sampung sungay at ang halimaw na nakita mo ay mapopoot sa babaeng bayaran. Kukunin nila ang mga ari-arian niya pati na ang suot niyang damit at walang maiiwan sa kanya. Kakainin nila ang kanyang laman at susunugin ang matitira_. 
 
 
 

@@ -106,7 +106,7 @@ Si Kish ay may anak na ang pangalan ay Saul. Bata pa si Saul at siya ang pinakag
 
 
 
-<i class="trans-change">Isang araw_, nawala ang mga asno ni Kish, kaya sinabi niya sa anak niyang si Saul, "Magsama ka ng isang utusan at hanapin ninyo ang mga asno." 
+Isang araw_, nawala ang mga asno ni Kish, kaya sinabi niya sa anak niyang si Saul, "Magsama ka ng isang utusan at hanapin ninyo ang mga asno." 
 
 
 
@@ -139,7 +139,7 @@ Si Kish ay may anak na ang pangalan ay Saul. Bata pa si Saul at siya ang pinakag
 
 
 
-Kaya lumakad si Saul at ang utusan. Nakarating sila sa mga burol ng Efraim hanggang sa lugar ng Shalisha, pero wala silang nakitang mga asno. Kaya tumuloy sila sa lugar ng Shaalim hanggang sa mga lugar ng Benjamin pero hindi rin nila nakita <i class="trans-change">ang mga asno_ doon. 
+Kaya lumakad si Saul at ang utusan. Nakarating sila sa mga burol ng Efraim hanggang sa lugar ng Shalisha, pero wala silang nakitang mga asno. Kaya tumuloy sila sa lugar ng Shaalim hanggang sa mga lugar ng Benjamin pero hindi rin nila nakita ang mga asno_ doon. 
 
 
 
@@ -271,7 +271,7 @@ Sinabi ni Saul sa utusan, "Kung pupunta tayo, ano ang ibibigay natin sa kanya? W
 
 
 
-Sumagot ang utusan, "Mayroon pa po akong isang pirasong pilak. Ibibigay ko po ito sa lingkod ng Dios para sabihin niya sa atin kung saan natin makikita ang mga asno." <sup class="versenum">9-10</sup>"Mabuti," ang sabi ni Saul. "Halika na, pumunta na tayo <i class="trans-change">sa manghuhula_." (Noon sa Israel, kung may taong gustong makatanggap ng mensahe galing sa Dios sinasabi niya, "Halika, pumunta tayo sa manghuhula," dahil ang mga tinatawag na propeta ngayon ay tinatawag na manghuhula noon.) Pumunta si Saul at ang utusan sa bayan kung saan naroon ang propeta ng Dios. 
+Sumagot ang utusan, "Mayroon pa po akong isang pirasong pilak. Ibibigay ko po ito sa lingkod ng Dios para sabihin niya sa atin kung saan natin makikita ang mga asno." 9-10"Mabuti," ang sabi ni Saul. "Halika na, pumunta na tayo sa manghuhula_." (Noon sa Israel, kung may taong gustong makatanggap ng mensahe galing sa Dios sinasabi niya, "Halika, pumunta tayo sa manghuhula," dahil ang mga tinatawag na propeta ngayon ay tinatawag na manghuhula noon.) Pumunta si Saul at ang utusan sa bayan kung saan naroon ang propeta ng Dios. 
 
 
 
@@ -469,7 +469,7 @@ Isang araw bago dumating si Saul, sinabi na ng Panginoon kay Samuel,
 
 
 
-"Bukas sa ganito ring oras, papupuntahin ko sa iyo ang isang tao na galing sa lugar ng Benjamin. Pahiran mo ng langis ang kanyang ulo bilang <i class="trans-change">tanda na siya ang pinili kong_ magiging pinuno ng mga mamamayan kong Israelita. Ililigtas niya ang aking mga mamamayan sa kamay ng mga Filisteo dahil nakita ko ang paghihirap nila at narinig ko ang paghingi nila ng tulong." 
+"Bukas sa ganito ring oras, papupuntahin ko sa iyo ang isang tao na galing sa lugar ng Benjamin. Pahiran mo ng langis ang kanyang ulo bilang tanda na siya ang pinili kong_ magiging pinuno ng mga mamamayan kong Israelita. Ililigtas niya ang aking mga mamamayan sa kamay ng mga Filisteo dahil nakita ko ang paghihirap nila at narinig ko ang paghingi nila ng tulong." 
 
 
 
@@ -667,7 +667,7 @@ Sumagot si Saul, "Pero galing lang po ako sa lahi ni Benjamin, ang pinakamaliit 
 
 
 
-<i class="trans-change">Nang makarating na sila sa sambahan sa mataas na lugar,_ dinala ni Samuel si Saul at ang kanyang utusan sa malaking kwarto kung saan nakaupo ang 30 tao na inimbita. Pagkatapos, pinaupo niya si Saul at ang kanyang utusan sa upuang para sa pangunahing bisita. 
+Nang makarating na sila sa sambahan sa mataas na lugar,_ dinala ni Samuel si Saul at ang kanyang utusan sa malaking kwarto kung saan nakaupo ang 30 tao na inimbita. Pagkatapos, pinaupo niya si Saul at ang kanyang utusan sa upuang para sa pangunahing bisita. 
 
 
 
@@ -733,7 +733,7 @@ Sinabi ni Samuel sa tagapagluto, "Dalhin mo rito ang karneng ipinatabi ko sa iyo
 
 
 
-Kaya kinuha ng tagapagluto ang hita at inilagay sa harapan ni Saul. Sinabi ni Samuel <i class="trans-change">kay Saul_, "Kainin mo, itinabi ko talaga iyan bago ko inimbitahan ang mga taong ito para sa ganitong mahalagang okasyon." Kaya kumain si Saul kasama si Samuel nang araw na iyon. 
+Kaya kinuha ng tagapagluto ang hita at inilagay sa harapan ni Saul. Sinabi ni Samuel kay Saul_, "Kainin mo, itinabi ko talaga iyan bago ko inimbitahan ang mga taong ito para sa ganitong mahalagang okasyon." Kaya kumain si Saul kasama si Samuel nang araw na iyon. 
 
 
 
@@ -766,7 +766,7 @@ Kaya kinuha ng tagapagluto ang hita at inilagay sa harapan ni Saul. Sinabi ni Sa
 
 
 
-Pagbalik nila sa bayan galing sa sambahan sa mataas na lugar, ipinaghanda siya ni Samuel ng matutulugan doon sa <i class="trans-change">patag na_ bubong ng kanyang bahay, 
+Pagbalik nila sa bayan galing sa sambahan sa mataas na lugar, ipinaghanda siya ni Samuel ng matutulugan doon sa patag na_ bubong ng kanyang bahay, 
 
 
 

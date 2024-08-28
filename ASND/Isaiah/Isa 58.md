@@ -40,7 +40,7 @@ next: ['Isa 59']
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Sumigaw kayo nang malakas na kasinglakas ng trumpeta! Huwag ninyong pigilan! Sabihin ninyo sa aking mga mamamayan na lahi ni Jacob ang kanilang mga kasalanan at mga pagsuway. 
+Sinabi ng Panginoon,_ "Sumigaw kayo nang malakas na kasinglakas ng trumpeta! Huwag ninyong pigilan! Sabihin ninyo sa aking mga mamamayan na lahi ni Jacob ang kanilang mga kasalanan at mga pagsuway. 
 
 
 
@@ -205,7 +205,7 @@ Kapag nag-aayuno kayo, nagpepenitensya kayo. Yumuyuko kayo na parang mga damong 
 
 
 
-Ang ayunong makapagpapalugod sa akin ay ang ayunong <i class="trans-change">may kasamang matuwid na pag-uugali_. Tigilan ninyo ang paggawa ng kasamaan, pairalin nʼyo na ang katarungan, palayain ninyo ang mga inaalipin at ang inaapi ay inyong tulungan. 
+Ang ayunong makapagpapalugod sa akin ay ang ayunong may kasamang matuwid na pag-uugali_. Tigilan ninyo ang paggawa ng kasamaan, pairalin nʼyo na ang katarungan, palayain ninyo ang mga inaalipin at ang inaapi ay inyong tulungan. 
 
 
 
@@ -469,4 +469,4 @@ Muling itatayo ng inyong mga lahi ang mga lungsod ninyong matagal nang wasak at 
 
 
 
-Kapag ginawa ninyo ito, magiging maligaya kayo sa inyong paglilingkod sa akin. Pararangalan ko kayo sa buong mundo. Pasasaganain ko ang ani ng lupaing inyong minana sa inyong ninunong si Jacob." <i class="trans-change">Mangyayari nga ito_ dahil sinabi ng Panginoon.
+Kapag ginawa ninyo ito, magiging maligaya kayo sa inyong paglilingkod sa akin. Pararangalan ko kayo sa buong mundo. Pasasaganain ko ang ani ng lupaing inyong minana sa inyong ninunong si Jacob." Mangyayari nga ito_ dahil sinabi ng Panginoon.

@@ -40,7 +40,7 @@ next: ['Acts 3']
 
 
 
-Pagdating ng araw ng pista na <i class="trans-change">tinatawag na_ Pentecostes, nagtipon ang lahat ng mananampalataya sa isang bahay. 
+Pagdating ng araw ng pista na tinatawag na_ Pentecostes, nagtipon ang lahat ng mananampalataya sa isang bahay. 
 
 
 
@@ -139,7 +139,7 @@ Pagkatapos, may nakita silang mga ningas ng apoy na parang mga dila na kumalat a
 
 
 
-Napuspos silang lahat ng Banal na Espiritu, at nakapagsalita ng ibaʼt ibang wika na hindi nila natutunan. Ang <i class="trans-change">Banal na_ Espiritu ang siyang nagbigay sa kanila ng kakayahang makapagsalita nang ganoon. 
+Napuspos silang lahat ng Banal na Espiritu, at nakapagsalita ng ibaʼt ibang wika na hindi nila natutunan. Ang Banal na_ Espiritu ang siyang nagbigay sa kanila ng kakayahang makapagsalita nang ganoon. 
 
 
 
@@ -469,7 +469,7 @@ Pero tinuya ng iba ang mga mananampalataya. Sinabi nila, "Lasing lang ang mga iy
 
 
 
-Kaya tumayo si Pedro kasama ang 11 <i class="trans-change">apostol_, at nagsalita nang malakas, "Mga kababayan kong mga Judio, at kayong lahat na nakatira sa Jerusalem, makinig kayo sa akin, dahil ipapaliwanag ko kung ano ang ibig sabihin ng mga nangyayaring ito. 
+Kaya tumayo si Pedro kasama ang 11 apostol_, at nagsalita nang malakas, "Mga kababayan kong mga Judio, at kayong lahat na nakatira sa Jerusalem, makinig kayo sa akin, dahil ipapaliwanag ko kung ano ang ibig sabihin ng mga nangyayaring ito. 
 
 
 
@@ -634,7 +634,7 @@ Oo, sa mga araw na iyon, ibubuhos ko ang aking Espiritu sa aking mga lingkod na 
 
 
 
-Magpapakita ako ng mga himala sa langit at sa lupa <i class="trans-change">sa pamamagitan ng_ dugo, apoy, at makapal na usok. 
+Magpapakita ako ng mga himala sa langit at sa lupa sa pamamagitan ng_ dugo, apoy, at makapal na usok. 
 
 
 
@@ -667,7 +667,7 @@ Magpapakita ako ng mga himala sa langit at sa lupa <i class="trans-change">sa pa
 
 
 
-Magdidilim ang araw, at ang buwan ay pupula katulad ng dugo. Mangyayari ito bago dumating ang kamangha-manghang araw ng <i class="trans-change">paghahatol ng_ Panginoon. 
+Magdidilim ang araw, at ang buwan ay pupula katulad ng dugo. Mangyayari ito bago dumating ang kamangha-manghang araw ng paghahatol ng_ Panginoon. 
 
 
 
@@ -700,7 +700,7 @@ Magdidilim ang araw, at ang buwan ay pupula katulad ng dugo. Mangyayari ito bago
 
 
 
-Ngunit ang sinumang tatawag sa Panginoon ay maliligtas <i class="trans-change">sa parusang darating_." ' " 
+Ngunit ang sinumang tatawag sa Panginoon ay maliligtas sa parusang darating_." ' " 
 
 
 
@@ -733,7 +733,7 @@ Ngunit ang sinumang tatawag sa Panginoon ay maliligtas <i class="trans-change">s
 
 
 
-<i class="trans-change">Nagpatuloy si Pedro sa pagsasalita,_ "Mga <i class="trans-change">kababayan kong_ Israelita, makinig kayo sa akin! Si Jesus na taga-Nazaret ay sinugo ng Dios sa inyo, at pinatotohanan ito ng Dios sa pamamagitan ng mga himala at kamangha-manghang ginawa niya sa pamamagitan ni Jesus. Alam nʼyo mismo ang mga ito dahil ang lahat ng itoʼy nangyari rito sa inyo. 
+Nagpatuloy si Pedro sa pagsasalita,_ "Mga kababayan kong_ Israelita, makinig kayo sa akin! Si Jesus na taga-Nazaret ay sinugo ng Dios sa inyo, at pinatotohanan ito ng Dios sa pamamagitan ng mga himala at kamangha-manghang ginawa niya sa pamamagitan ni Jesus. Alam nʼyo mismo ang mga ito dahil ang lahat ng itoʼy nangyari rito sa inyo. 
 
 
 
@@ -766,7 +766,7 @@ Ngunit ang sinumang tatawag sa Panginoon ay maliligtas <i class="trans-change">s
 
 
 
-Alam na noon pa ng Dios na itong si Jesus ay ibibigay sa inyo at ganito na talaga ang kanyang plano. Ipinapatay ninyo siya sa mga makasalanang tao na nagpako <i class="trans-change">sa kanya_ sa krus. 
+Alam na noon pa ng Dios na itong si Jesus ay ibibigay sa inyo at ganito na talaga ang kanyang plano. Ipinapatay ninyo siya sa mga makasalanang tao na nagpako sa kanya_ sa krus. 
 
 
 
@@ -832,7 +832,7 @@ Ngunit binuhay siya ng Dios at iniligtas mula sa kapangyarihan ng kamatayan, dah
 
 
 
-Ito ang sinabi ni David na para <i class="trans-change">rin_ sa kanya, 'Alam kong ang Panginoon ay lagi kong kasama at hindi niya ako pinapabayaan, kaya hindi ako nangangamba. 
+Ito ang sinabi ni David na para rin_ sa kanya, 'Alam kong ang Panginoon ay lagi kong kasama at hindi niya ako pinapabayaan, kaya hindi ako nangangamba. 
 
 
 
@@ -1096,7 +1096,7 @@ Ang kanyang tinutukoy ay walang iba kundi si Jesus na muling binuhay ng Dios, at
 
 
 
-Itinaas siya sa kanan ng Dios. At ibinigay sa kanya ng Ama ang Banal na Espiritung ipinangako sa kanya. Ang Banal na Espiritung ito ay ipinadala naman ni Jesus sa amin, <i class="trans-change">at ang kanyang kapangyarihan_ ang siyang nakikita ninyo at naririnig ngayon. <sup class="versenum">34-35</sup>Hindi si David ang itinaas sa langit, pero sinabi niya, 'Nagsalita ang Panginoon sa aking Panginoon: Umupo ka rito sa kanan ko hanggang sa mapasuko ko sa iyo ang iyong mga kaaway.' 
+Itinaas siya sa kanan ng Dios. At ibinigay sa kanya ng Ama ang Banal na Espiritung ipinangako sa kanya. Ang Banal na Espiritung ito ay ipinadala naman ni Jesus sa amin, at ang kanyang kapangyarihan_ ang siyang nakikita ninyo at naririnig ngayon. 34-35Hindi si David ang itinaas sa langit, pero sinabi niya, 'Nagsalita ang Panginoon sa aking Panginoon: Umupo ka rito sa kanan ko hanggang sa mapasuko ko sa iyo ang iyong mga kaaway.' 
 
 
 
@@ -1228,7 +1228,7 @@ Sumagot si Pedro sa kanila, "Magsisi ang bawat isa sa inyong mga kasalanan at ma
 
 
 
-Sapagkat <i class="trans-change">ang Banal na Espiritung_ ito ay ipinangako para sa inyo, at sa inyong mga anak, at sa lahat ng taong nasa malayo – sa lahat ng tatawagin ng Panginoon nating Dios na magsisilapit sa kanya." 
+Sapagkat ang Banal na Espiritung_ ito ay ipinangako para sa inyo, at sa inyong mga anak, at sa lahat ng taong nasa malayo – sa lahat ng tatawagin ng Panginoon nating Dios na magsisilapit sa kanya." 
 
 
 
@@ -1294,7 +1294,7 @@ Marami pang ipinahayag si Pedro para patunayan sa kanila ang kanyang sinabi. At 
 
 
 
-Marami ang naniwala sa kanyang mensahe at nagpabautismo agad sila. Nang araw na iyon, mga 3,000 tao ang nadagdag <i class="trans-change">sa mga mananampalataya_. 
+Marami ang naniwala sa kanyang mensahe at nagpabautismo agad sila. Nang araw na iyon, mga 3,000 tao ang nadagdag sa mga mananampalataya_. 
 
 
 
@@ -1362,7 +1362,7 @@ Naging masigasig sila sa pag-aaral ng mga itinuturo ng mga apostol, sa pagtitipo
 
 
 
-Maraming himala at kamangha-manghang ginawa <i class="trans-change">ang Dios_ sa pamamagitan ng mga apostol. Kaya namuhay ang mga tao nang may paggalang at takot sa Dios. 
+Maraming himala at kamangha-manghang ginawa ang Dios_ sa pamamagitan ng mga apostol. Kaya namuhay ang mga tao nang may paggalang at takot sa Dios. 
 
 
 

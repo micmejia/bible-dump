@@ -502,7 +502,7 @@ pero ang ikapitong araw, ang Araw ng Pamamahinga ay ilaan ninyo para sa akin, an
 
 
 
-Alalahanin ninyo na mga alipin din kayo noon sa Egipto, at ako ang Panginoon na inyong Dios ang naglabas sa inyo roon sa pamamagitan ng aking dakilang kapangyarihan. Kaya <i class="trans-change">ako_, ang Panginoon na inyong Dios ay nag-uutos sa inyo na sundin ninyo ang Araw ng Pamamahinga. 
+Alalahanin ninyo na mga alipin din kayo noon sa Egipto, at ako ang Panginoon na inyong Dios ang naglabas sa inyo roon sa pamamagitan ng aking dakilang kapangyarihan. Kaya ako_, ang Panginoon na inyong Dios ay nag-uutos sa inyo na sundin ninyo ang Araw ng Pamamahinga. 
 
 
 

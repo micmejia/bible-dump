@@ -73,7 +73,7 @@ Isang araw, pumunta ang grupo ng mga propeta kay Eliseo at sinabi, "Nakikita po 
 
 
 
-Kaya pumunta po tayo sa <i class="trans-change">Ilog ng_ Jordan kung saan maraming punongkahoy, at doon tayo gumawa ng lugar na pagtitipunan natin." Sinabi ni Eliseo, "Sige, lumakad na kayo." 
+Kaya pumunta po tayo sa Ilog ng_ Jordan kung saan maraming punongkahoy, at doon tayo gumawa ng lugar na pagtitipunan natin." Sinabi ni Eliseo, "Sige, lumakad na kayo." 
 
 
 
@@ -139,7 +139,7 @@ Pero sinabi ng isa sa kanila, "Kung maaari po, Guro, sumama na lang kayo sa amin
 
 
 
-Kaya sumama siya sa kanila. Pumunta nga sila sa <i class="trans-change">Ilog ng_ Jordan at pumutol ng mga punongkahoy. 
+Kaya sumama siya sa kanila. Pumunta nga sila sa Ilog ng_ Jordan at pumutol ng mga punongkahoy. 
 
 
 
@@ -636,7 +636,7 @@ Habang papunta ang mga kaaway kay Eliseo, nanalangin siya, "Panginoon, bulagin p
 
 
 
-Sinabi ni Eliseo sa mga kaaway, "Hindi ito ang tamang daan at hindi ito ang lungsod <i class="trans-change">ng Dotan_. Sumunod kayo sa akin, dadalhin ko kayo sa taong hinahanap ninyo." Kaya dinala sila ni Eliseo sa Samaria. 
+Sinabi ni Eliseo sa mga kaaway, "Hindi ito ang tamang daan at hindi ito ang lungsod ng Dotan_. Sumunod kayo sa akin, dadalhin ko kayo sa taong hinahanap ninyo." Kaya dinala sila ni Eliseo sa Samaria. 
 
 
 
@@ -836,7 +836,7 @@ Kinalaunan, tinipon ni Haring Ben Hadad ng Aram ang kanyang buong hukbo, at nilu
 
 
 
-Dahil dito, nagkaroon ng malaking taggutom sa lungsod, hanggang <i class="trans-change">sa nagsitaasan ang mga bilihin_. Ang halaga ng ulo ng asno ay 80 pirasong pilak at ang isang gatang na dumi ng kalapati ay limang pirasong pilak. 
+Dahil dito, nagkaroon ng malaking taggutom sa lungsod, hanggang sa nagsitaasan ang mga bilihin_. Ang halaga ng ulo ng asno ay 80 pirasong pilak at ang isang gatang na dumi ng kalapati ay limang pirasong pilak. 
 
 
 
@@ -1001,7 +1001,7 @@ Kaya niluto po namin ang aking anak at kinain. Nang sumunod na araw sinabi ko sa
 
 
 
-Nang marinig ng hari ang sinabi ng babae, pinunit niya ang damit niya <i class="trans-change">sa sobrang kalungkutan_. Habang naglalakad siya sa gilid ng pader, nakita siya ng mga tao na nakasuot ng sako na nakasuson sa kanyang damit <i class="trans-change">dahil sa pagluluksa niya_. 
+Nang marinig ng hari ang sinabi ng babae, pinunit niya ang damit niya sa sobrang kalungkutan_. Habang naglalakad siya sa gilid ng pader, nakita siya ng mga tao na nakasuot ng sako na nakasuson sa kanyang damit dahil sa pagluluksa niya_. 
 
 
 
@@ -1067,7 +1067,7 @@ Sinabi niya, "Parusahan sana ako nang matindi ng Panginoon kung hindi ko mapaput
 
 
 
-Nakaupo si Eliseo sa bahay niya na nakikipag-usap sa mga tagapamahala <i class="trans-change">ng Israel_ nang magsugo ang hari ng mensahero para mauna sa kanya <i class="trans-change">doon_ kay <i class="trans-change">Eliseo_. Pero bago dumating ang mensahero ng hari, sinabi ni Eliseo sa mga tagapamahala, "Tingnan ninyo, isang mamamatay-tao ang nagpadala ng tao para pugutan ako. Kapag dumating na ang taong iyon, isara ninyo ang pinto at huwag siyang papapasukin. Ang <i class="trans-change">hari mismo na_ kanyang amo ay kasunod niya." 
+Nakaupo si Eliseo sa bahay niya na nakikipag-usap sa mga tagapamahala ng Israel_ nang magsugo ang hari ng mensahero para mauna sa kanya doon_ kay Eliseo_. Pero bago dumating ang mensahero ng hari, sinabi ni Eliseo sa mga tagapamahala, "Tingnan ninyo, isang mamamatay-tao ang nagpadala ng tao para pugutan ako. Kapag dumating na ang taong iyon, isara ninyo ang pinto at huwag siyang papapasukin. Ang hari mismo na_ kanyang amo ay kasunod niya." 
 
 
 

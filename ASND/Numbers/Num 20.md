@@ -139,7 +139,7 @@ Nakipagtalo sila kay Moises at sinabi, "Mabuti pang namatay na lang kami kasama 
 
 
 
-Bakit dinala mo <i class="trans-change">kaming_ mga mamamayan ng Panginoon dito sa disyerto? Para ba mamatay kasama ng aming mga alagang hayop? 
+Bakit dinala mo kaming_ mga mamamayan ng Panginoon dito sa disyerto? Para ba mamatay kasama ng aming mga alagang hayop? 
 
 
 
@@ -205,7 +205,7 @@ Bakit ba pinalabas mo pa kami sa Egipto at dinala kami rito sa walang kwentang l
 
 
 
-Kaya iniwan nina Moises at Aaron ang mga mamamayan, at nagpunta sila sa Toldang Tipanan at nagpatirapa sila <i class="trans-change">para manalangin_. Pagkatapos, nagpakita sa kanila ang makapangyarihang presensya ng Panginoon. 
+Kaya iniwan nina Moises at Aaron ang mga mamamayan, at nagpunta sila sa Toldang Tipanan at nagpatirapa sila para manalangin_. Pagkatapos, nagpakita sa kanila ang makapangyarihang presensya ng Panginoon. 
 
 
 
@@ -271,7 +271,7 @@ Sinabi ng Panginoon kay Moises,
 
 
 
-"Kunin mo ang iyong baston at tipunin ninyo ni Aaron ang <i class="trans-change">buong_ mamamayan. At habang nakatingin sila, utusan mo ang bato na maglabas ng tubig, at mula dito aagos ang tubig. Sa pamamagitan nito, mabibigyan ninyo ng tubig ang mamamayan para makainom sila at ang kanilang mga hayop." 
+"Kunin mo ang iyong baston at tipunin ninyo ni Aaron ang buong_ mamamayan. At habang nakatingin sila, utusan mo ang bato na maglabas ng tubig, at mula dito aagos ang tubig. Sa pamamagitan nito, mabibigyan ninyo ng tubig ang mamamayan para makainom sila at ang kanilang mga hayop." 
 
 
 
@@ -304,7 +304,7 @@ Sinabi ng Panginoon kay Moises,
 
 
 
-Kaya kinuha ni Moises ang baston sa presensya ng Panginoon, <i class="trans-change">doon sa may Toldang Tipanan_, ayon sa iniutos ng Panginoon sa kanya. 
+Kaya kinuha ni Moises ang baston sa presensya ng Panginoon, doon sa may Toldang Tipanan_, ayon sa iniutos ng Panginoon sa kanya. 
 
 
 
@@ -337,7 +337,7 @@ Kaya kinuha ni Moises ang baston sa presensya ng Panginoon, <i class="trans-chan
 
 
 
-Pagkatapos, tinipon nina Aaron ang <i class="trans-change">buong_ mamamayan sa harapan ng bato, at sinabi ni Moises sa kanila, "Makinig kayong mga suwail, dapat ba namin kayong bigyan ng tubig mula sa batong ito?" 
+Pagkatapos, tinipon nina Aaron ang buong_ mamamayan sa harapan ng bato, at sinabi ni Moises sa kanila, "Makinig kayong mga suwail, dapat ba namin kayong bigyan ng tubig mula sa batong ito?" 
 
 
 
@@ -370,7 +370,7 @@ Pagkatapos, tinipon nina Aaron ang <i class="trans-change">buong_ mamamayan sa h
 
 
 
-Pagkatapos, itinaas ni Moises ang kanyang baston, pinalo ng dalawang beses ang bato, at bumulwak ang tubig <i class="trans-change">mula rito_, at uminom ang mamamayan at ang kanilang mga hayop. 
+Pagkatapos, itinaas ni Moises ang kanyang baston, pinalo ng dalawang beses ang bato, at bumulwak ang tubig mula rito_, at uminom ang mamamayan at ang kanilang mga hayop. 
 
 
 

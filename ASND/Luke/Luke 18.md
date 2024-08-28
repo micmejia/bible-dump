@@ -271,7 +271,7 @@ Ang Dios pa kaya ang hindi magbigay ng katarungan sa mga pinili niya na tumatawa
 
 
 
-Tinitiyak ko sa inyo na bibigyan niya agad sila ng katarungan. Ngunit kung <i class="trans-change">ako na_ Anak ng Tao ay bumalik na rito sa mundo, may makikita kaya akong mga taong sumasampalataya <i class="trans-change">sa akin_?" ## Ang Kwento tungkol sa Pariseo at sa Maniningil ng Buwis 
+Tinitiyak ko sa inyo na bibigyan niya agad sila ng katarungan. Ngunit kung ako na_ Anak ng Tao ay bumalik na rito sa mundo, may makikita kaya akong mga taong sumasampalataya sa akin_?" ## Ang Kwento tungkol sa Pariseo at sa Maniningil ng Buwis 
 
 
 
@@ -469,7 +469,7 @@ Ang maniningil naman ng buwis ay nakatayo sa malayo, at hindi man lang makatinga
 
 
 
-Sinasabi ko sa inyo na ang maniningil ng buwis na iyon ay umuwing itinuring nang matuwid <i class="trans-change">ng Dios_, ngunit ang Pariseo ay hindi. Sapagkat ang nagpapakataas ng kanyang sarili ay ibababa, at ang nagpapakababa ay itataas." ## Pinagpala ni Jesus ang Maliliit na Bata 
+Sinasabi ko sa inyo na ang maniningil ng buwis na iyon ay umuwing itinuring nang matuwid ng Dios_, ngunit ang Pariseo ay hindi. Sapagkat ang nagpapakataas ng kanyang sarili ay ibababa, at ang nagpapakababa ay itataas." ## Pinagpala ni Jesus ang Maliliit na Bata 
 
 
 
@@ -502,7 +502,7 @@ Sinasabi ko sa inyo na ang maniningil ng buwis na iyon ay umuwing itinuring nang
 
 
 
-Dinala ng mga tao ang kanilang maliliit na anak kay Jesus upang patungan niya ng kamay <i class="trans-change">at pagpalain_. Nang makita iyon ng mga tagasunod ni Jesus, sinaway nila ang mga tao. 
+Dinala ng mga tao ang kanilang maliliit na anak kay Jesus upang patungan niya ng kamay at pagpalain_. Nang makita iyon ng mga tagasunod ni Jesus, sinaway nila ang mga tao. 
 
 
 
@@ -535,7 +535,7 @@ Dinala ng mga tao ang kanilang maliliit na anak kay Jesus upang patungan niya ng
 
 
 
-Pero tinawag ni Jesus ang mga bata, at sinabihan niya <i class="trans-change">ang mga tagasunod niya_, "Hayaan ninyong lumapit sa akin ang mga bata. Huwag ninyo silang pigilan, dahil ang mga katulad nila ay kabilang sa kaharian ng Dios. 
+Pero tinawag ni Jesus ang mga bata, at sinabihan niya ang mga tagasunod niya_, "Hayaan ninyong lumapit sa akin ang mga bata. Huwag ninyo silang pigilan, dahil ang mga katulad nila ay kabilang sa kaharian ng Dios. 
 
 
 
@@ -1030,7 +1030,7 @@ ay tatanggap sa panahong ito ng mas marami pa kaysa sa mga iniwan niya, at tatan
 
 
 
-Tinawag ni Jesus ang 12 <i class="trans-change">apostol_ at sinabi sa kanila, "Makinig kayo! Pupunta tayo sa Jerusalem, at matutupad na ang lahat ng isinulat ng mga propeta tungkol sa <i class="trans-change">akin na_ Anak ng Tao. 
+Tinawag ni Jesus ang 12 apostol_ at sinabi sa kanila, "Makinig kayo! Pupunta tayo sa Jerusalem, at matutupad na ang lahat ng isinulat ng mga propeta tungkol sa akin na_ Anak ng Tao. 
 
 
 

@@ -238,7 +238,7 @@ Sa bandang huli, wala na siyang maisugo. Kaya isinugo niya ang pinakamamahal niy
 
 
 
-Pero <i class="trans-change">nang makita ng_ mga magsasaka <i class="trans-change">ang kanyang anak_, sinabi nila, 'Narito na ang tagapagmana. Halikayo, patayin natin siya para mapasaatin na ang lupang mamanahin niya.' 
+Pero nang makita ng_ mga magsasaka ang kanyang anak_, sinabi nila, 'Narito na ang tagapagmana. Halikayo, patayin natin siya para mapasaatin na ang lupang mamanahin niya.' 
 
 
 
@@ -304,7 +304,7 @@ Kaya sinunggaban nila ang anak, pinatay at itinapon sa labas ng ubasan."
 
 
 
-<i class="trans-change">Pagkatapos, nagtanong si Jesus,_ "Ano kaya ang gagawin ng may-ari ng ubasan? Tiyak na pupuntahan niya ang mga magsasaka at papatayin. Pagkatapos, pauupahan niya sa iba ang kanyang ubasan. 
+Pagkatapos, nagtanong si Jesus,_ "Ano kaya ang gagawin ng may-ari ng ubasan? Tiyak na pupuntahan niya ang mga magsasaka at papatayin. Pagkatapos, pauupahan niya sa iba ang kanyang ubasan. 
 
 
 
@@ -438,7 +438,7 @@ Alam ng mga pinuno ng mga Judio na sila ang pinatatamaan ni Jesus sa talinghaga 
 
 
 
-Pinapunta ng mga pinuno ng mga Judio kay Jesus ang ilang Pariseo at ilang tauhan ni Herodes upang subaybayan ang mga sinasabi niya <i class="trans-change">para may maiparatang sila laban sa kanya_. 
+Pinapunta ng mga pinuno ng mga Judio kay Jesus ang ilang Pariseo at ilang tauhan ni Herodes upang subaybayan ang mga sinasabi niya para may maiparatang sila laban sa kanya_. 
 
 
 
@@ -471,7 +471,7 @@ Pinapunta ng mga pinuno ng mga Judio kay Jesus ang ilang Pariseo at ilang tauhan
 
 
 
-Kaya lumapit sila kay Jesus at nagtanong, "Guro, alam po naming totoo ang mga sinasabi nʼyo, at wala kayong pinapaboran. Sapagkat hindi kayo tumitingin sa katayuan ng tao, kundi kung ano ang katotohanan tungkol sa kalooban ng Dios ang siyang itinuturo ninyo. Ngayon, tama po ba na <i class="trans-change">tayong mga Judio ay_ magbayad ng buwis sa Emperador ng Roma? Dapat po ba tayong magbayad o hindi?" 
+Kaya lumapit sila kay Jesus at nagtanong, "Guro, alam po naming totoo ang mga sinasabi nʼyo, at wala kayong pinapaboran. Sapagkat hindi kayo tumitingin sa katayuan ng tao, kundi kung ano ang katotohanan tungkol sa kalooban ng Dios ang siyang itinuturo ninyo. Ngayon, tama po ba na tayong mga Judio ay_ magbayad ng buwis sa Emperador ng Roma? Dapat po ba tayong magbayad o hindi?" 
 
 
 
@@ -537,7 +537,7 @@ Pero alam ni Jesus na nagkukunwari sila, kaya sinabi niya, "Bakit ninyo ako sinu
 
 
 
-Dinalhan nga nila <i class="trans-change">ng pera si Jesus_. Nagtanong si Jesus, "Kaninong mukha at pangalan ang nakaukit sa pera?" Sumagot sila, "Sa Emperador." 
+Dinalhan nga nila ng pera si Jesus_. Nagtanong si Jesus, "Kaninong mukha at pangalan ang nakaukit sa pera?" Sumagot sila, "Sa Emperador." 
 
 
 
@@ -638,7 +638,7 @@ May mga Saduceo na lumapit kay Jesus at nagtanong. (Ang mga taong ito ay hindi n
 
 
 
-Sinabi nila, "Guro, ayon po sa <i class="trans-change">batas na_ isinulat ni Moises, kapag ang isang lalaki ay namatay na walang anak sa kanyang asawa, dapat ay pakasalan ng kapatid niyang lalaki ang naiwan niyang asawa, para magkaanak sila para sa kanya. 
+Sinabi nila, "Guro, ayon po sa batas na_ isinulat ni Moises, kapag ang isang lalaki ay namatay na walang anak sa kanyang asawa, dapat ay pakasalan ng kapatid niyang lalaki ang naiwan niyang asawa, para magkaanak sila para sa kanya. 
 
 
 
@@ -1168,7 +1168,7 @@ Nang marinig ni Jesus na may katuturan ang mga sagot nito, sinabi niya rito, "Ma
 
 
 
-Nang minsang nangangaral si Jesus sa templo, tinanong niya <i class="trans-change">ang mga tao_, "Bakit sinasabi ng mga tagapagturo ng Kautusan na ang Cristo raw ay lahi <i class="trans-change">lang_ ni David? 
+Nang minsang nangangaral si Jesus sa templo, tinanong niya ang mga tao_, "Bakit sinasabi ng mga tagapagturo ng Kautusan na ang Cristo raw ay lahi lang_ ni David? 
 
 
 
@@ -1234,7 +1234,7 @@ Samantalang si David na mismo na pinatnubayan ng Banal na Espiritu ang nagsabing
 
 
 
-Ngayon, kung tinawag siya ni David na Panginoon, paano siyang naging lahi <i class="trans-change">lang_ ni David?" Wiling-wili sa pakikinig ang mga tao kay Jesus.
+Ngayon, kung tinawag siya ni David na Panginoon, paano siyang naging lahi lang_ ni David?" Wiling-wili sa pakikinig ang mga tao kay Jesus.
 
 ## Babala Laban sa mga Tagapagturo ng Kautusan 
 

@@ -370,7 +370,7 @@ Samantala, patuloy na isinisigaw ng mga namamahalang pari at ng mga tagapagturo 
 
 
 
-Hinamak at ininsulto ni Herodes at ng mga sundalo niya si Jesus. Sinuotan nila siya ng magandang damit <i class="trans-change">bilang pagkutya sa kanya_, at saka ibinalik kay Pilato. 
+Hinamak at ininsulto ni Herodes at ng mga sundalo niya si Jesus. Sinuotan nila siya ng magandang damit bilang pagkutya sa kanya_, at saka ibinalik kay Pilato. 
 
 
 
@@ -801,7 +801,7 @@ Pero lalo nilang iginigiit at ipinagsisigawan na ipako siya sa krus. Sa wakas ay
 
 
 
-Kaya pinagbigyan ni Pilato ang kahilingan ng mga tao <i class="trans-change">na ipako sa krus si Jesus_. 
+Kaya pinagbigyan ni Pilato ang kahilingan ng mga tao na ipako sa krus si Jesus_. 
 
 
 
@@ -1430,7 +1430,7 @@ Pagkatapos ay sinabi niya, "Jesus, alalahanin nʼyo ako kapag naghahari na kayo.
 
 
 
-Sumagot si Jesus, "Sasabihin ko sa iyo ang totoo, ngayon din ay makakasama kita sa Paraiso." ## Ang Pagkamatay ni Jesus <sup class="versenum">44-45</sup>Nang mag-aalas dose na ng tanghali, nawala ang liwanag ng araw, at dumilim sa buong lupain sa loob ng tatlong oras. At ang kurtina sa loob ng templo ay nahati <i class="trans-change">mula sa itaas hanggang sa ibaba_. 
+Sumagot si Jesus, "Sasabihin ko sa iyo ang totoo, ngayon din ay makakasama kita sa Paraiso." ## Ang Pagkamatay ni Jesus 44-45Nang mag-aalas dose na ng tanghali, nawala ang liwanag ng araw, at dumilim sa buong lupain sa loob ng tatlong oras. At ang kurtina sa loob ng templo ay nahati mula sa itaas hanggang sa ibaba_. 
 
 
 
@@ -1529,7 +1529,7 @@ Nang makita ng kapitan ng mga sundalo ang nangyari, pinuri niya ang Dios at sina
 
 
 
-Ang mga taong pumunta roon at nakasaksi sa lahat ng nangyari ay umuwi nang <i class="trans-change">malungkot at_ dinadagukan ang kanilang mga dibdib. 
+Ang mga taong pumunta roon at nakasaksi sa lahat ng nangyari ay umuwi nang malungkot at_ dinadagukan ang kanilang mga dibdib. 
 
 
 
@@ -1564,7 +1564,7 @@ Ang mga taong pumunta roon at nakasaksi sa lahat ng nangyari ay umuwi nang <i cl
 
 Sa di-kalayuan ay nakatayo ang mga kaibigan ni Jesus, pati ang mga babaeng sumama sa kanya mula sa Galilea. At nakita rin nila ang lahat ng nangyari.
 
-## Ang Paglilibing kay Jesus <sup class="versenum">50-51</sup>May isang lalaki na ang pangalan ay Jose. Siya ay taga-Arimatea na sakop ng Judea. Kahit na miyembro siya ng korte ng mga Judio, hindi niya sinang-ayunan ang kanilang ginawa kay Jesus. Mabuting tao siya, matuwid at kabilang sa mga naghihintay sa paghahari ng Dios. 
+## Ang Paglilibing kay Jesus 50-51May isang lalaki na ang pangalan ay Jose. Siya ay taga-Arimatea na sakop ng Judea. Kahit na miyembro siya ng korte ng mga Judio, hindi niya sinang-ayunan ang kanilang ginawa kay Jesus. Mabuting tao siya, matuwid at kabilang sa mga naghihintay sa paghahari ng Dios. 
 
 
 

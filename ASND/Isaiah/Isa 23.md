@@ -139,7 +139,7 @@ sa mga karagatan para bumili at magbenta ng mga ani mula sa Shihor na bahagi ng 
 
 
 
-Mahiya ka, <i class="trans-change">lungsod_ ng Sidon, ikaw na kanlungan ng mga taong nakatira sa tabing-dagat. Itinatakwil ka na ng karagatan. Sinabi niya, "Wala na akong anak; wala akong inalagaang anak, babae man o lalaki." 
+Mahiya ka, lungsod_ ng Sidon, ikaw na kanlungan ng mga taong nakatira sa tabing-dagat. Itinatakwil ka na ng karagatan. Sinabi niya, "Wala na akong anak; wala akong inalagaang anak, babae man o lalaki." 
 
 
 
@@ -568,7 +568,7 @@ Kaya kunin mo ang iyong alpa at tugtugin mong mabuti habang nililibot mo ang lun
 
 
 
-Pagkatapos ng 70 taon, aalalahanin ng Panginoon ang Tyre. Pero muling gagawin ng Tyre ang ginawa niya noon, na katulad ng ginawa ng babaeng bayaran. Gagawa siya ng masama sa lahat ng kaharian ng mundo <i class="trans-change">para magkapera_. 
+Pagkatapos ng 70 taon, aalalahanin ng Panginoon ang Tyre. Pero muling gagawin ng Tyre ang ginawa niya noon, na katulad ng ginawa ng babaeng bayaran. Gagawa siya ng masama sa lahat ng kaharian ng mundo para magkapera_. 
 
 
 

@@ -139,7 +139,7 @@ Kaya ayon sa iniutos ng Panginoon, binigyan ang mga Levita ng mga bayan at mga p
 
 
 
-Ang unang nakatanggap ng lupain ay ang mga angkan ni Kohat. Ang mga Levita na mula sa angkan ni Aaron <i class="trans-change">ay kabilang sa angkan ni Kohat_. Nakatanggap sila ng 13 bayan na galing sa lupain ng mga lahi nina Juda, Simeon at Benjamin. 
+Ang unang nakatanggap ng lupain ay ang mga angkan ni Kohat. Ang mga Levita na mula sa angkan ni Aaron ay kabilang sa angkan ni Kohat_. Nakatanggap sila ng 13 bayan na galing sa lupain ng mga lahi nina Juda, Simeon at Benjamin. 
 
 
 
@@ -271,7 +271,7 @@ Ang mga angkan ni Merari ay binigyan ng 12 bayan mula sa lupain ng mga lahi nina
 
 
 
-Kaya sa paraan ng palabunutan, binigyan ng mga Israelita ang mga Levita ng mga bayan at mga pastulan, ayon sa iniutos ng Panginoon kay Moises. <sup class="versenum">9-10</sup>Ito ang mga pangalan ng mga bayan na mula sa lupain ng mga lahi nina Simeon at Juda na ibinigay sa mga angkan ni Aaron. Sila ang mga angkan ni Kohat na mga Levita. Sila ang unang nabunot na bibigyan ng mga bayan. 
+Kaya sa paraan ng palabunutan, binigyan ng mga Israelita ang mga Levita ng mga bayan at mga pastulan, ayon sa iniutos ng Panginoon kay Moises. 9-10Ito ang mga pangalan ng mga bayan na mula sa lupain ng mga lahi nina Simeon at Juda na ibinigay sa mga angkan ni Aaron. Sila ang mga angkan ni Kohat na mga Levita. Sila ang unang nabunot na bibigyan ng mga bayan. 
 
 
 
@@ -370,7 +370,7 @@ Pero ang mga bukirin ng lungsod at ang mga baryo sa paligid nito ay ibinigay na 
 
 
 
-Kaya ibinigay sa mga angkan ni Aaron ang Hebron na isa sa mga lungsod na tanggulan, kung saan makakapagtago ang taong nakapatay <i class="trans-change">nang hindi sinasadya_. Ibinigay din sa kanila ang Libna, 
+Kaya ibinigay sa mga angkan ni Aaron ang Hebron na isa sa mga lungsod na tanggulan, kung saan makakapagtago ang taong nakapatay nang hindi sinasadya_. Ibinigay din sa kanila ang Libna, 
 
 
 
@@ -469,7 +469,7 @@ Holon, Debir,
 
 
 
-Ayin, Juta at Bet Shemesh, kasama ang mga pastulan nila. Siyam na bayan lahat mula sa lupain ng mga lahi nina Simeon at Juda. <sup class="versenum">17-18</sup>Binigyan din sila ng apat na bayan mula sa lupain ng lahi ni Benjamin. Ito ay ang Gibeon, Geba, Anatot at Almon, kasama ang mga pastulan nito. 
+Ayin, Juta at Bet Shemesh, kasama ang mga pastulan nila. Siyam na bayan lahat mula sa lupain ng mga lahi nina Simeon at Juda. 17-18Binigyan din sila ng apat na bayan mula sa lupain ng lahi ni Benjamin. Ito ay ang Gibeon, Geba, Anatot at Almon, kasama ang mga pastulan nito. 
 
 
 
@@ -502,7 +502,7 @@ Ayin, Juta at Bet Shemesh, kasama ang mga pastulan nila. Siyam na bayan lahat mu
 
 
 
-Ang natanggap ng mga pari na angkan ni Aaron ay 13 bayan lahat, kasama ang mga pastulan nito. <sup class="versenum">20-22</sup>Ang ibang angkan ni Kohat na mga Levita ay nakatanggap ng apat na bayan mula sa lupain ng lahi ni Efraim. Ito ay ang Shekem (sa kabundukan ng Efraim na isa sa mga lungsod na tanggulan, kung saan makakapagtago ang tao na nakapatay <i class="trans-change">nang hindi sinasadya_), ang Gezer, Kibzaim at Bet Horon, kasama ang mga pastulan nito. <sup class="versenum">23-24</sup>Binigyan din sila ng apat na bayan mula sa lupain ng lahi ni Dan. Ito ay ang Elteke, Gibeton, Ayalon at Gat Rimon, kasama ang mga pastulan nito. <sup class="versenum">25-26</sup>At mula naman sa lupain ng kalahating lahi ni Manase <i class="trans-change">sa kanluran_, natanggap nila ang dalawang bayan: ang Taanac at Gat Rimon, kasama ang mga pastulan ng nito. Ang natanggap ng ibang mga angkan ni Kohat ay 10 bayan lahat, kasama ang mga pastulan nito. 
+Ang natanggap ng mga pari na angkan ni Aaron ay 13 bayan lahat, kasama ang mga pastulan nito. 20-22Ang ibang angkan ni Kohat na mga Levita ay nakatanggap ng apat na bayan mula sa lupain ng lahi ni Efraim. Ito ay ang Shekem (sa kabundukan ng Efraim na isa sa mga lungsod na tanggulan, kung saan makakapagtago ang tao na nakapatay nang hindi sinasadya_), ang Gezer, Kibzaim at Bet Horon, kasama ang mga pastulan nito. 23-24Binigyan din sila ng apat na bayan mula sa lupain ng lahi ni Dan. Ito ay ang Elteke, Gibeton, Ayalon at Gat Rimon, kasama ang mga pastulan nito. 25-26At mula naman sa lupain ng kalahating lahi ni Manase sa kanluran_, natanggap nila ang dalawang bayan: ang Taanac at Gat Rimon, kasama ang mga pastulan ng nito. Ang natanggap ng ibang mga angkan ni Kohat ay 10 bayan lahat, kasama ang mga pastulan nito. 
 
 
 
@@ -535,7 +535,7 @@ Ang natanggap ng mga pari na angkan ni Aaron ay 13 bayan lahat, kasama ang mga p
 
 
 
-Ang mga angkan ni Gershon na mga Levita ay nakatanggap ng dalawang bayan mula sa lupain ng kalahating lahi ni Manase <i class="trans-change">sa silangan_. Ito ay ang Golan sa Bashan (na isa sa mga lungsod na tanggulan, kung saan makakapagtago ang taong nakapatay <i class="trans-change">nang hindi sinasadya_) at ang Be Eshtara, kasama ang mga pastulan nito. <sup class="versenum">28-29</sup>Binigyan din sila ng apat na bayan mula sa lupain ng lahi ni Isacar. Ito ay ang Kishion, Daberat, Jarmut, En Ganim, kasama ang mga pastulan nito. <sup class="versenum">30-31</sup>At mula sa lupain ng lahi ni Asher, natanggap nila ang apat na bayan: ang Mishal, Abdon, Helkat at Rehob, kasama ang mga pastulan nito. <sup class="versenum">32-33</sup>Binigyan pa sila ng tatlong bayan mula sa lupain ng lahi ni Naftali. Ito ay ang Kedesh sa Galilea (isa ito sa mga lungsod na tanggulan, kung saan makakapagtago ang taong nakapatay <i class="trans-change">nang hindi sinasadya_), ang Hamot Dor at ang Kartan kasama ang mga pastulan nito. Ang natanggap ng mga angkan ni Gershon ay 13 bayan lahat, kasama ang mga pastulan nito. <sup class="versenum">34-35</sup>Ang mga natirang Levita – ang mga angkan ni Merari – ay nakatanggap ng apat na bayan mula sa lupain ng lahi ni Zebulun. Ito ay ang Jokneam, Karta, Dimna at Nahalal kasama ang mga pastulan nito. <sup class="versenum">36-37</sup>Binigyan din sila ng apat na bayan mula sa lupain ng lahi ni Reuben. Ito ay ang Bezer, Jahaz, Kedemot at Mefaat, kasama ang mga pastulan nito. <sup class="versenum">38-39</sup>Binigyan din sila ng apat na bayan mula sa lupain ng lahi ni Gad. Ito ay ang Ramot sa Gilead (na isa sa mga lungsod na tanggulan, kung saan makakapagtago ang taong nakapatay <i class="trans-change">nang hindi sinasadya_), ang Mahanaim, Heshbon at Jazer, kasama ang mga pastulan nito. 
+Ang mga angkan ni Gershon na mga Levita ay nakatanggap ng dalawang bayan mula sa lupain ng kalahating lahi ni Manase sa silangan_. Ito ay ang Golan sa Bashan (na isa sa mga lungsod na tanggulan, kung saan makakapagtago ang taong nakapatay nang hindi sinasadya_) at ang Be Eshtara, kasama ang mga pastulan nito. 28-29Binigyan din sila ng apat na bayan mula sa lupain ng lahi ni Isacar. Ito ay ang Kishion, Daberat, Jarmut, En Ganim, kasama ang mga pastulan nito. 30-31At mula sa lupain ng lahi ni Asher, natanggap nila ang apat na bayan: ang Mishal, Abdon, Helkat at Rehob, kasama ang mga pastulan nito. 32-33Binigyan pa sila ng tatlong bayan mula sa lupain ng lahi ni Naftali. Ito ay ang Kedesh sa Galilea (isa ito sa mga lungsod na tanggulan, kung saan makakapagtago ang taong nakapatay nang hindi sinasadya_), ang Hamot Dor at ang Kartan kasama ang mga pastulan nito. Ang natanggap ng mga angkan ni Gershon ay 13 bayan lahat, kasama ang mga pastulan nito. 34-35Ang mga natirang Levita – ang mga angkan ni Merari – ay nakatanggap ng apat na bayan mula sa lupain ng lahi ni Zebulun. Ito ay ang Jokneam, Karta, Dimna at Nahalal kasama ang mga pastulan nito. 36-37Binigyan din sila ng apat na bayan mula sa lupain ng lahi ni Reuben. Ito ay ang Bezer, Jahaz, Kedemot at Mefaat, kasama ang mga pastulan nito. 38-39Binigyan din sila ng apat na bayan mula sa lupain ng lahi ni Gad. Ito ay ang Ramot sa Gilead (na isa sa mga lungsod na tanggulan, kung saan makakapagtago ang taong nakapatay nang hindi sinasadya_), ang Mahanaim, Heshbon at Jazer, kasama ang mga pastulan nito. 
 
 
 
@@ -568,7 +568,7 @@ Ang mga angkan ni Gershon na mga Levita ay nakatanggap ng dalawang bayan mula sa
 
 
 
-Ang natanggap ng mga angkan ni Merari na Levita ay 12 bayan lahat kasama ang mga pastulan nito. <sup class="versenum">41-42</sup>Ang natanggap ng mga Levita na mula sa lupain na pagmamay-ari ng mga Israelita ay 48 bayan lahat, kasama ang kani-kanilang pastulan. 
+Ang natanggap ng mga angkan ni Merari na Levita ay 12 bayan lahat kasama ang mga pastulan nito. 41-42Ang natanggap ng mga Levita na mula sa lupain na pagmamay-ari ng mga Israelita ay 48 bayan lahat, kasama ang kani-kanilang pastulan. 
 
 
 
@@ -634,7 +634,7 @@ Kaya ibinigay ng Panginoon sa Israel ang lahat ng lupain na ipinangako niya sa m
 
 
 
-Binigyan sila ng Panginoon ng kapahingahan sa <i class="trans-change">mga kalaban nila sa_ paligid ayon sa ipinangako ng Panginoon sa mga ninuno nila. Hindi sila natalo ng mga kalaban nila dahil pinagtagumpay sila ng Panginoon sa lahat ng kalaban nila. 
+Binigyan sila ng Panginoon ng kapahingahan sa mga kalaban nila sa_ paligid ayon sa ipinangako ng Panginoon sa mga ninuno nila. Hindi sila natalo ng mga kalaban nila dahil pinagtagumpay sila ng Panginoon sa lahat ng kalaban nila. 
 
 
 

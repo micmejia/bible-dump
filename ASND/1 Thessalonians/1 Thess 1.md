@@ -39,7 +39,7 @@ next: ['1 Thess 2']
 
 
 
-<i class="trans-change">Mula kay_ Pablo, <i class="trans-change">kasama_ sina Silas at Timoteo. <i class="trans-change">Mahal kong mga kapatid_ sa iglesya diyan sa Tesalonica na nasa Dios Ama at sa Panginoong Jesu-Cristo: Sumainyo nawa ang biyaya at kapayapaan. 
+Mula kay_ Pablo, kasama_ sina Silas at Timoteo. Mahal kong mga kapatid_ sa iglesya diyan sa Tesalonica na nasa Dios Ama at sa Panginoong Jesu-Cristo: Sumainyo nawa ang biyaya at kapayapaan. 
 
 
 
@@ -72,7 +72,7 @@ next: ['1 Thess 2']
 
 
 
-<i class="trans-change">Mga kapatid,_ lagi kaming nagpapasalamat sa Dios dahil sa inyong lahat, at lagi namin kayong binabanggit sa mga panalangin namin. 
+Mga kapatid,_ lagi kaming nagpapasalamat sa Dios dahil sa inyong lahat, at lagi namin kayong binabanggit sa mga panalangin namin. 
 
 
 
@@ -105,7 +105,7 @@ next: ['1 Thess 2']
 
 
 
-<i class="trans-change">Nagpapasalamat kami_ kapag inaalaala namin ang mabubuti ninyong gawa na bunga ng inyong pananampalataya. Inaalaala rin namin ang pagsisikap na bunga ng pag-ibig ninyo, at ang katatagan na bunga ng matibay ninyong pag-asa sa <i class="trans-change">pagbabalik ng_ ating Panginoong Jesu-Cristo. Ginagawa nʼyo ang lahat ng ito sa paningin ng Dios na ating Ama. 
+Nagpapasalamat kami_ kapag inaalaala namin ang mabubuti ninyong gawa na bunga ng inyong pananampalataya. Inaalaala rin namin ang pagsisikap na bunga ng pag-ibig ninyo, at ang katatagan na bunga ng matibay ninyong pag-asa sa pagbabalik ng_ ating Panginoong Jesu-Cristo. Ginagawa nʼyo ang lahat ng ito sa paningin ng Dios na ating Ama. 
 
 
 
@@ -138,7 +138,7 @@ next: ['1 Thess 2']
 
 
 
-Mga kapatid na minamahal ng Dios, <i class="trans-change">nagpapasalamat din kami dahil_ alam naming pinili niya kayo para sa kanya, 
+Mga kapatid na minamahal ng Dios, nagpapasalamat din kami dahil_ alam naming pinili niya kayo para sa kanya, 
 
 
 
@@ -204,7 +204,7 @@ dahil tinanggap nʼyo ang Magandang Balita na ipinahayag namin sa inyo. Dumating
 
 
 
-Tinularan nʼyo ang pamumuhay namin at ng Panginoon, dahil tinanggap nʼyo ang salita <i class="trans-change">ng Dios_ kahit dumanas kayo ng hirap. <i class="trans-change">Ganoon pa man, tinanggap nʼyo ito_ nang may kagalakan na galing sa Banal na Espiritu. 
+Tinularan nʼyo ang pamumuhay namin at ng Panginoon, dahil tinanggap nʼyo ang salita ng Dios_ kahit dumanas kayo ng hirap. Ganoon pa man, tinanggap nʼyo ito_ nang may kagalakan na galing sa Banal na Espiritu. 
 
 
 

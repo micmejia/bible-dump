@@ -570,7 +570,7 @@ Pero ang Dios ni Jacob ay hindi katulad ng mga iyon. Siya ang lumikha ng lahat n
 
 
 
-<i class="trans-change">Mga taga-Jerusalem,_ tipunin na ninyo ang mga kagamitan at umalis, dahil malapit nang salakayin ang lungsod ninyo. 
+Mga taga-Jerusalem,_ tipunin na ninyo ang mga kagamitan at umalis, dahil malapit nang salakayin ang lungsod ninyo. 
 
 
 
@@ -636,7 +636,7 @@ Sapagkat ito ang sinasabi ng Panginoon, "Makinig kayo! Paaalisin ko kayo sa lupa
 
 
 
-<i class="trans-change">Sinabi ng mga taga-Jerusalem,_ "Nakakaawa tayo dahil sa kapahamakan natin. Malubha ang kalagayan natin, pero kailangan natin itong tiisin. 
+Sinabi ng mga taga-Jerusalem,_ "Nakakaawa tayo dahil sa kapahamakan natin. Malubha ang kalagayan natin, pero kailangan natin itong tiisin. 
 
 
 
@@ -702,7 +702,7 @@ Wasak na ang mga tolda natin; nalagot na ang mga tali nito. Iniwan na tayo ng mg
 
 
 
-<i class="trans-change">Nangyari ito sa atin dahil_ hangal ang mga pinuno natin. Hindi sila lumapit sa Panginoon para sumangguni. Kaya hindi sila nagtagumpay, at nangalat ang mga taong nasasakupan nila. 
+Nangyari ito sa atin dahil_ hangal ang mga pinuno natin. Hindi sila lumapit sa Panginoon para sumangguni. Kaya hindi sila nagtagumpay, at nangalat ang mga taong nasasakupan nila. 
 
 
 

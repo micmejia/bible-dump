@@ -469,7 +469,7 @@ Sinunod ito nina Nebuzaradan na pinuno ng mga guwardya, Nebushazban, Nergal Shar
 
 
 
-Ipinakuha nila si Jeremias doon sa himpilan ng mga guwardya ng palasyo at ibinigay kay Gedalia na anak ni Ahikam na apo ni Shafan, at dinala niya si Jeremias sa kanyang bahay. Kaya naiwan si Jeremias <i class="trans-change">sa Juda_ kasama ang iba pa niyang mga kababayan. 
+Ipinakuha nila si Jeremias doon sa himpilan ng mga guwardya ng palasyo at ibinigay kay Gedalia na anak ni Ahikam na apo ni Shafan, at dinala niya si Jeremias sa kanyang bahay. Kaya naiwan si Jeremias sa Juda_ kasama ang iba pa niyang mga kababayan. 
 
 
 
@@ -601,4 +601,4 @@ Pero ililigtas kita sa mga panahong iyon. Hindi kita ibibigay sa mga taong kinat
 
 
 
-Ililigtas kita. Hindi ka mamamatay sa digmaan. Maliligtas ka dahil nagtitiwala ka sa akin. <i class="trans-change">Ako_, ang Panginoon, ang nagsasabi nito.' "
+Ililigtas kita. Hindi ka mamamatay sa digmaan. Maliligtas ka dahil nagtitiwala ka sa akin. Ako_, ang Panginoon, ang nagsasabi nito.' "

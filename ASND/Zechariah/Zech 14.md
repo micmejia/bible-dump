@@ -39,7 +39,7 @@ up: ['Zechariah']
 
 
 
-Darating ang araw na hahatol ang Panginoon. Paghahatian <i class="trans-change">ng mga kalaban_ ang mga ari-ariang sinamsam nila sa inyo <i class="trans-change">na mga taga-Jerusalem_ habang nakatingin kayo. 
+Darating ang araw na hahatol ang Panginoon. Paghahatian ng mga kalaban_ ang mga ari-ariang sinamsam nila sa inyo na mga taga-Jerusalem_ habang nakatingin kayo. 
 
 
 
@@ -171,7 +171,7 @@ Sa araw na iyon, tatayo siya sa Bundok ng mga Olibo, sa silangan ng Jerusalem. M
 
 
 
-Dito kayo dadaan <i class="trans-change">mga taga-Jerusalem_ sa inyong pagtakas, dahil ang lambak na ito ay aabot hanggang sa Azel. Tatakas kayo katulad ng ginawa ng inyong mga ninuno noong lumindol sa panahon ni haring Uzia ng Juda. At darating ang Panginoon kong Dios kasama ang lahat niyang mga anghel. 
+Dito kayo dadaan mga taga-Jerusalem_ sa inyong pagtakas, dahil ang lambak na ito ay aabot hanggang sa Azel. Tatakas kayo katulad ng ginawa ng inyong mga ninuno noong lumindol sa panahon ni haring Uzia ng Juda. At darating ang Panginoon kong Dios kasama ang lahat niyang mga anghel. 
 
 
 
@@ -303,7 +303,7 @@ Sa araw na iyon, dadaloy ang sariwang tubig mula sa Jerusalem. Ang kalahati nito
 
 
 
-Ang Panginoon ang maghahari sa buong mundo. Siya lamang ang kikilalaning Dios at wala nang iba. <sup class="versenum">10-11</sup>Gagawing kapatagan ang buong lupain mula sa Geba <i class="trans-change">sa hilaga_ hanggang sa Rimon sa timog ng Jerusalem. Kaya mananatiling mataas ang Jerusalem sa kinaroroonan nito. At titirhan ito mula sa Pintuan ni Benjamin hanggang sa lugar na kinaroroonan ng Unang Pintuan, at hanggang sa Sulok na Pintuan; at mula sa Tore ni Hananel hanggang sa pisaan ng ubas ng hari. Ang Jerusalem ay hindi na muling wawasakin, at ang mga mamamayan nito ay mamumuhay nang ligtas sa panganib. 
+Ang Panginoon ang maghahari sa buong mundo. Siya lamang ang kikilalaning Dios at wala nang iba. 10-11Gagawing kapatagan ang buong lupain mula sa Geba sa hilaga_ hanggang sa Rimon sa timog ng Jerusalem. Kaya mananatiling mataas ang Jerusalem sa kinaroroonan nito. At titirhan ito mula sa Pintuan ni Benjamin hanggang sa lugar na kinaroroonan ng Unang Pintuan, at hanggang sa Sulok na Pintuan; at mula sa Tore ni Hananel hanggang sa pisaan ng ubas ng hari. Ang Jerusalem ay hindi na muling wawasakin, at ang mga mamamayan nito ay mamumuhay nang ligtas sa panganib. 
 
 
 
@@ -336,7 +336,7 @@ Ang Panginoon ang maghahari sa buong mundo. Siya lamang ang kikilalaning Dios at
 
 
 
-Ang mga bansang sumalakay sa Jerusalem ay padadalhan ng mga salot na ito: Mabubulok ang kanilang mga katawan, mata, at dila kahit buhay pa sila. <sup class="versenum">13-15</sup>Ganito ring salot ang darating sa lahat ng mga hayop sa kanilang kampo, pati na sa kanilang mga kabayo, mola, kamelyo, at asno. Sa araw na iyon, lubhang lilituhin ng Panginoon ang mga taong iyon. Ang bawat isa sa kanila ay sasalakay sa kanilang kapwa, at sila mismo ay maglalaban-laban. Makikipaglaban din ang ibang mga lungsod ng Juda. Sasamsamin at titipunin nila ang mga kayamanan ng mga bansa sa palibot nila – ang napakaraming ginto, pilak at mga damit. 
+Ang mga bansang sumalakay sa Jerusalem ay padadalhan ng mga salot na ito: Mabubulok ang kanilang mga katawan, mata, at dila kahit buhay pa sila. 13-15Ganito ring salot ang darating sa lahat ng mga hayop sa kanilang kampo, pati na sa kanilang mga kabayo, mola, kamelyo, at asno. Sa araw na iyon, lubhang lilituhin ng Panginoon ang mga taong iyon. Ang bawat isa sa kanila ay sasalakay sa kanilang kapwa, at sila mismo ay maglalaban-laban. Makikipaglaban din ang ibang mga lungsod ng Juda. Sasamsamin at titipunin nila ang mga kayamanan ng mga bansa sa palibot nila – ang napakaraming ginto, pilak at mga damit. 
 
 
 
@@ -435,7 +435,7 @@ Ang mga taong hindi pupunta sa Jerusalem upang sumamba sa Hari, ang Panginoong M
 
 
 
-Ang mga taga-Egipto na hindi pupunta <i class="trans-change">sa Jerusalem_ ay padadalhan ng Panginoon ng salot na katulad ng salot na kanyang ipapadala sa mga bansang hindi pupunta para ipagdiwang ang Pista ng Pagtatayo ng mga Kubol. 
+Ang mga taga-Egipto na hindi pupunta sa Jerusalem_ ay padadalhan ng Panginoon ng salot na katulad ng salot na kanyang ipapadala sa mga bansang hindi pupunta para ipagdiwang ang Pista ng Pagtatayo ng mga Kubol. 
 
 
 
@@ -468,7 +468,7 @@ Ang mga taga-Egipto na hindi pupunta <i class="trans-change">sa Jerusalem_ ay pa
 
 
 
-Iyan ang parusa sa Egipto at sa lahat ng bansang hindi pupunta <i class="trans-change">sa Jerusalem_ para ipagdiwang ang Pista ng Pagtatayo ng mga Kubol. 
+Iyan ang parusa sa Egipto at sa lahat ng bansang hindi pupunta sa Jerusalem_ para ipagdiwang ang Pista ng Pagtatayo ng mga Kubol. 
 
 
 

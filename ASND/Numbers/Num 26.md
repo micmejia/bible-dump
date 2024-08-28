@@ -139,7 +139,7 @@ Kaya nakipag-usap sina Moises at Eleazar na pari sa mga Israelita roon sa kapata
 
 
 
-<i class="trans-change">Sinabi niya sa kanila_, "Isensus ninyo ang mga taong may edad na 20 taon pataas, ayon sa iniutos ng Panginoon kay Moises." Ito ang mga Israelitang lumabas sa Egipto: 
+Sinabi niya sa kanila_, "Isensus ninyo ang mga taong may edad na 20 taon pataas, ayon sa iniutos ng Panginoon kay Moises." Ito ang mga Israelitang lumabas sa Egipto: 
 
 
 
@@ -601,7 +601,7 @@ Arod at Areli.
 
 
 
-Sila ang mga pamilya na nanggaling kay Gad; 40,500 silang lahat. <sup class="versenum">19-20</sup>May dalawang anak na lalaki si Juda na sina Er at Onan, na namatay sa lupain ng Canaan. Pero may mga lahi rin naman si Juda na siyang pamilya nina Shela, Perez at Zera. 
+Sila ang mga pamilya na nanggaling kay Gad; 40,500 silang lahat. 19-20May dalawang anak na lalaki si Juda na sina Er at Onan, na namatay sa lupain ng Canaan. Pero may mga lahi rin naman si Juda na siyang pamilya nina Shela, Perez at Zera. 
 
 
 
@@ -1723,7 +1723,7 @@ Pagkatapos, sinabi ng Panginoon kay Moises,
 
 
 
-Ang malaking lahi, bigyan ng mas malaki at ang maliit na lahi bigyan ng maliit. <sup class="versenum">55-56</sup>Ang lupain ay kailangang hatiin sa pamamagitan ng palabunutan para malaman kung aling bahagi ang makukuha ng malaki at maliit na angkan ayon sa sensus." 
+Ang malaking lahi, bigyan ng mas malaki at ang maliit na lahi bigyan ng maliit. 55-56Ang lupain ay kailangang hatiin sa pamamagitan ng palabunutan para malaman kung aling bahagi ang makukuha ng malaki at maliit na angkan ayon sa sensus." 
 
 
 

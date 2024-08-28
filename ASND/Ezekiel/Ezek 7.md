@@ -73,7 +73,7 @@ Sinabi sa akin ng Panginoon,
 
 
 
-"Anak ng tao, <i class="trans-change">ako,_ ang Panginoong Dios, ay nagsasabi sa bansang Israel, 'Ito na ang katapusan ng buong lupain <i class="trans-change">ng Israel_. 
+"Anak ng tao, ako,_ ang Panginoong Dios, ay nagsasabi sa bansang Israel, 'Ito na ang katapusan ng buong lupain ng Israel_. 
 
 
 
@@ -172,7 +172,7 @@ Hindi ko na kayo kahahabagan. Hahatulan ko kayo sa inyong pamumuhay at sa inyong
 
 
 
-"<i class="trans-change">Ako,_ ang Panginoong Dios, ay nagsasabi: Darating sa inyo ang sunod-sunod na kapahamakan. 
+"Ako,_ ang Panginoong Dios, ay nagsasabi: Darating sa inyo ang sunod-sunod na kapahamakan. 
 
 
 
@@ -238,7 +238,7 @@ Ito na ang wakas! Ang katapusan ninyo,
 
 
 
-kayong mga nakatira sa lupain <i class="trans-change">ng Israel_. Dumating na sa inyo ang kapahamakan. Malapit na ang oras na magkakagulo kayo. Tapos na ang maliligayang araw ninyo sa mga kabundukan. 
+kayong mga nakatira sa lupain ng Israel_. Dumating na sa inyo ang kapahamakan. Malapit na ang oras na magkakagulo kayo. Tapos na ang maliligayang araw ninyo sa mga kabundukan. 
 
 
 
@@ -403,7 +403,7 @@ Ang kalupitan nilaʼy babalik sa kanila bilang parusa sa kasamaan nila. Walang m
 
 
 
-<i class="trans-change">Oo_, malapit na ang araw <i class="trans-change">ng pagpaparusa_. Hindi na ikatutuwa ng mga mamimili <i class="trans-change">ang naitawad nila_ at hindi na rin malulungkot ang mga <i class="trans-change">naluging_ nagbebenta, dahil mararanasan ng lahat ang galit ko. 
+Oo_, malapit na ang araw ng pagpaparusa_. Hindi na ikatutuwa ng mga mamimili ang naitawad nila_ at hindi na rin malulungkot ang mga naluging_ nagbebenta, dahil mararanasan ng lahat ang galit ko. 
 
 
 
@@ -436,7 +436,7 @@ Ang kalupitan nilaʼy babalik sa kanila bilang parusa sa kasamaan nila. Walang m
 
 
 
-Kung may mga nagbebenta mang makakabawi, hindi na sila makakabalik sa pagtitinda dahil ang mga sinabi ko tungkol sa buong bansa <i class="trans-change">ng Israel_ ay hindi na mababago. Hindi maililigtas ng bawat gumagawa ng kasamaan ang kanyang buhay. 
+Kung may mga nagbebenta mang makakabawi, hindi na sila makakabalik sa pagtitinda dahil ang mga sinabi ko tungkol sa buong bansa ng Israel_ ay hindi na mababago. Hindi maililigtas ng bawat gumagawa ng kasamaan ang kanyang buhay. 
 
 
 
@@ -601,7 +601,7 @@ Manghihina ang mga kamay nila at mangangatog ang kanilang mga tuhod.
 
 
 
-Magsusuot sila ng damit na sako at aahitin ang kanilang buhok <i class="trans-change">para ipahayag ang kanilang pagdadalamhati_. Takot at kahihiyan ang makikita sa mukha nila. 
+Magsusuot sila ng damit na sako at aahitin ang kanilang buhok para ipahayag ang kanilang pagdadalamhati_. Takot at kahihiyan ang makikita sa mukha nila. 
 
 
 
@@ -865,7 +865,7 @@ Darating sa kanila ang takot at maghahanap sila ng kapayapaan pero hindi nila it
 
 
 
-Darating sa kanila ang sunud-sunod na panganib at masasamang balita. Magtatanong sila sa mga propeta, <i class="trans-change">pero wala silang matatanggap na kasagutan_. Magpapaturo sila sa mga pari at hihingi ng payo sa mga tagapamahala, pero hindi sila tuturuan at papayuhan. 
+Darating sa kanila ang sunud-sunod na panganib at masasamang balita. Magtatanong sila sa mga propeta, pero wala silang matatanggap na kasagutan_. Magpapaturo sila sa mga pari at hihingi ng payo sa mga tagapamahala, pero hindi sila tuturuan at papayuhan. 
 
 
 

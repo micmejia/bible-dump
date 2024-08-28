@@ -703,7 +703,7 @@ Purihin natin ang ating Dios at Ama magpakailanman. Amen.
 
 
 
-Ikumusta nʼyo ako sa lahat ng mga pinabanal diyan <i class="trans-change">ng Dios_ na nakay Cristo Jesus. Kinukumusta kayo ng mga kapatid <i class="trans-change">kay Cristo_ na kasama ko rito. 
+Ikumusta nʼyo ako sa lahat ng mga pinabanal diyan ng Dios_ na nakay Cristo Jesus. Kinukumusta kayo ng mga kapatid kay Cristo_ na kasama ko rito. 
 
 
 
@@ -736,7 +736,7 @@ Ikumusta nʼyo ako sa lahat ng mga pinabanal diyan <i class="trans-change">ng Di
 
 
 
-Kinukumusta rin kayo ng lahat ng mga pinabanal <i class="trans-change">ng Dios dito_, lalung-lalo na ang mga naglilingkod sa palasyo ng Emperador. 
+Kinukumusta rin kayo ng lahat ng mga pinabanal ng Dios dito_, lalung-lalo na ang mga naglilingkod sa palasyo ng Emperador. 
 
 
 

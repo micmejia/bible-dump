@@ -372,7 +372,7 @@ ay makakaranas ng galit ng Dios. Sapagkat parurusahan sila sa nagniningas na apo
 
 
 
-Ang usok ng apoy na magpapahirap sa kanila ay papailanlang magpakailanman. Araw-gabi ay wala silang pahinga <i class="trans-change">sa kanilang paghihirap_, dahil sinamba nila ang halimaw at ang imahen nito at nagpatatak ng pangalan nito." 
+Ang usok ng apoy na magpapahirap sa kanila ay papailanlang magpakailanman. Araw-gabi ay wala silang pahinga sa kanilang paghihirap_, dahil sinamba nila ang halimaw at ang imahen nito at nagpatatak ng pangalan nito." 
 
 
 
@@ -405,7 +405,7 @@ Ang usok ng apoy na magpapahirap sa kanila ay papailanlang magpakailanman. Araw-
 
 
 
-Kaya kayong mga pinabanal <i class="trans-change">ng Dios_ na sumusunod sa kanyang mga utos at patuloy na sumasampalataya kay Jesus, kinakailangang maging matiisin kayo. 
+Kaya kayong mga pinabanal ng Dios_ na sumusunod sa kanyang mga utos at patuloy na sumasampalataya kay Jesus, kinakailangang maging matiisin kayo. 
 
 
 
@@ -438,7 +438,7 @@ Kaya kayong mga pinabanal <i class="trans-change">ng Dios_ na sumusunod sa kanya
 
 
 
-Pagkatapos, may narinig akong tinig mula sa langit na nagsasabi, "Isulat mo ito: Mapalad ang mga taong namatay na naglilingkod sa Panginoon. Mula ngayon, makakapagpahinga na sila sa mga paghihirap nila, dahil tatanggapin na nila ang gantimpala para sa <i class="trans-change">mabubuti_ nilang gawa. At ito ay pinatotohanan mismo ng <i class="trans-change">Banal na_ Espiritu." ## Ang Pag-ani sa Mundo 
+Pagkatapos, may narinig akong tinig mula sa langit na nagsasabi, "Isulat mo ito: Mapalad ang mga taong namatay na naglilingkod sa Panginoon. Mula ngayon, makakapagpahinga na sila sa mga paghihirap nila, dahil tatanggapin na nila ang gantimpala para sa mabubuti_ nilang gawa. At ito ay pinatotohanan mismo ng Banal na_ Espiritu." ## Ang Pag-ani sa Mundo 
 
 
 

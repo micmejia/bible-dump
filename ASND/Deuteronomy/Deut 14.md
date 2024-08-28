@@ -372,7 +372,7 @@ Pero huwag ninyong kainin ang walang palikpik at kaliskis. Ituring ninyo itong m
 
 
 
-Pwede ninyong kainin ang anumang klase ng ibon na itinuturing na malinis. <sup class="versenum">12-18</sup>Pero huwag ninyong kakainin ang mga ibon katulad ng agila, uwak, ibon na kumakain ng bangkay ng tao o hayop, lawin, kuwago, ibong naninila, ibong dumadagit ng isda, tagak, at paniki. 
+Pwede ninyong kainin ang anumang klase ng ibon na itinuturing na malinis. 12-18Pero huwag ninyong kakainin ang mga ibon katulad ng agila, uwak, ibon na kumakain ng bangkay ng tao o hayop, lawin, kuwago, ibong naninila, ibong dumadagit ng isda, tagak, at paniki. 
 
 
 
@@ -471,7 +471,7 @@ Pero pwede ninyong kainin ang mga insektong itinuturing na malinis.
 
 
 
-"Huwag ninyong kakainin ang anumang hayop na patay na. Maaari ninyo itong ipagbili sa mga dayuhan o ibigay sa mga dayuhang naninirahang sa bayan nʼyo, at kakainin nila ito. <i class="trans-change">Pero huwag kayong kakain nito,_ dahil ibinukod kayo bilang mamamayan ng Panginoon na inyong Dios. "Huwag ninyong lulutuin ang batang kambing sa gatas ng kanyang ina.
+"Huwag ninyong kakainin ang anumang hayop na patay na. Maaari ninyo itong ipagbili sa mga dayuhan o ibigay sa mga dayuhang naninirahang sa bayan nʼyo, at kakainin nila ito. Pero huwag kayong kakain nito,_ dahil ibinukod kayo bilang mamamayan ng Panginoon na inyong Dios. "Huwag ninyong lulutuin ang batang kambing sa gatas ng kanyang ina.
 
 ## Ang Ikapu 
 
@@ -737,4 +737,4 @@ At huwag ninyong kalilimutan ang mga Levita na naninirahan sa bayan ninyo, dahil
 
 
 
-Ibigay ninyo ito sa mga Levita na walang lupang minana, sa mga dayuhan <i class="trans-change">na naninirahang kasama ninyo_, sa mga ulila at sa mga biyuda sa bayan ninyo para makakain din sila at mabusog. <i class="trans-change">Kung gagawin ninyo ito_, pagpapalain kayo ng Panginoon na inyong Dios sa lahat ng ginagawa ninyo.
+Ibigay ninyo ito sa mga Levita na walang lupang minana, sa mga dayuhan na naninirahang kasama ninyo_, sa mga ulila at sa mga biyuda sa bayan ninyo para makakain din sila at mabusog. Kung gagawin ninyo ito_, pagpapalain kayo ng Panginoon na inyong Dios sa lahat ng ginagawa ninyo.

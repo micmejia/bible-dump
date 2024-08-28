@@ -40,7 +40,7 @@ next: ['Isa 64']
 
 
 
-Sino itong dumarating mula sa Bozra na sakop ng Edom, na ang maganda niyang damit ay namantsahan ng pula? Dumarating siya na taglay ang kapangyarihan. Siya ang <i class="trans-change">Panginoon na_ nagpapapahayag ng tagumpay ng kanyang mga mamamayan at may kapangyarihang magligtas. 
+Sino itong dumarating mula sa Bozra na sakop ng Edom, na ang maganda niyang damit ay namantsahan ng pula? Dumarating siya na taglay ang kapangyarihan. Siya ang Panginoon na_ nagpapapahayag ng tagumpay ng kanyang mga mamamayan at may kapangyarihang magligtas. 
 
 
 
@@ -106,7 +106,7 @@ Bakit napakapula ng kanyang damit, kasimpula ng damit ng taong nagpipisa ng ubas
 
 
 
-<i class="trans-change">Sumagot ang Panginoon,_ "Sa aking galit, pinisa ko na parang ubas ang mga bansa. Mag-isa akong nagpisa; wala akong kasama. Ang dugo nila ay tumalsik sa aking damit; kaya namantsahan ang damit ko. 
+Sumagot ang Panginoon,_ "Sa aking galit, pinisa ko na parang ubas ang mga bansa. Mag-isa akong nagpisa; wala akong kasama. Ang dugo nila ay tumalsik sa aking damit; kaya namantsahan ang damit ko. 
 
 
 
@@ -436,7 +436,7 @@ Nasaan na ang Panginoon na nagbigay ng kapangyarihan kay Moises, at naghati ng d
 
 
 
-<i class="trans-change">Nasaan na siya_ na gumabay sa atin nang tumawid tayo sa dagat? Ni hindi tayo natisod katulad ng mga kabayong dumadaan sa malinis na lugar. 
+Nasaan na siya_ na gumabay sa atin nang tumawid tayo sa dagat? Ni hindi tayo natisod katulad ng mga kabayong dumadaan sa malinis na lugar. 
 
 
 

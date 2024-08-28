@@ -207,7 +207,7 @@ Pinatibay niya ang itaas at ilalim na bahagi ng Bet Horon. Pinaligiran niya ito 
 
 Ganito rin ang ginawa niya sa Baalat at sa iba pang mga lungsod na lagayan ng kanyang mga pangangailangan, mga karwahe at mga kabayo. Ipinatayo niya ang lahat ng gusto niyang ipatayo sa Jerusalem, Lebanon at sa lahat ng lupaing sakop niya.
 
-###### 7-8 May mga tao pang naiwan sa Israel na hindi mga Israelita. Sila ang mga lahi ng mga Heteo, Amoreo, Perezeo, Hiveo at mga Jebuseo, na hindi nalipol ng mga Israelita <i class="trans-change">nang agawin nila ang lupain ng Canaan_. Ginawa silang alipin ni Solomon at pinilit na gumawa, at nanatili silang alipin hanggang ngayon. 
+###### 7-8 May mga tao pang naiwan sa Israel na hindi mga Israelita. Sila ang mga lahi ng mga Heteo, Amoreo, Perezeo, Hiveo at mga Jebuseo, na hindi nalipol ng mga Israelita nang agawin nila ang lupain ng Canaan_. Ginawa silang alipin ni Solomon at pinilit na gumawa, at nanatili silang alipin hanggang ngayon. 
 
 
 
@@ -405,7 +405,7 @@ Tinupad niya ang utos ni Moises na maghandog ayon sa nararapat na ihandog araw-a
 
 
 
-At ayon sa tuntunin ng ama niyang si David, pinagbukod-bukod niya ang mga pari at mga Levita para sa kanilang mga gawain. Ang mga Levita ang nangunguna sa mga tao sa pagpupuri <i class="trans-change">sa Dios_ at sila ang tumutulong sa mga pari sa kanilang gawain <i class="trans-change">sa templo_ araw-araw. Ibinukod din niya ang mga guwardya ng bawat pintuan <i class="trans-change">sa templo_, dahil ito ang utos ni David na lingkod ng Dios. 
+At ayon sa tuntunin ng ama niyang si David, pinagbukod-bukod niya ang mga pari at mga Levita para sa kanilang mga gawain. Ang mga Levita ang nangunguna sa mga tao sa pagpupuri sa Dios_ at sila ang tumutulong sa mga pari sa kanilang gawain sa templo_ araw-araw. Ibinukod din niya ang mga guwardya ng bawat pintuan sa templo_, dahil ito ang utos ni David na lingkod ng Dios. 
 
 
 
@@ -438,7 +438,7 @@ At ayon sa tuntunin ng ama niyang si David, pinagbukod-bukod niya ang mga pari a
 
 
 
-Sinunod ni Solomon ang lahat ng utos ni Haring <i class="trans-change">David_ tungkol sa mga pari at mga Levita at sa mga bodega. 
+Sinunod ni Solomon ang lahat ng utos ni Haring David_ tungkol sa mga pari at mga Levita at sa mga bodega. 
 
 
 
@@ -504,7 +504,7 @@ Natapos ang lahat ng ipinagawa ni Solomon sa templo, mula sa paglalagay ng punda
 
 
 
-Pagkatapos, pumunta si Solomon sa Ezion Geber at Elat, sa baybayin ng <i class="trans-change">Dagat na Pula, sa lupain ng_ Edom. 
+Pagkatapos, pumunta si Solomon sa Ezion Geber at Elat, sa baybayin ng Dagat na Pula, sa lupain ng_ Edom. 
 
 
 

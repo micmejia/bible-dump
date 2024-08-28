@@ -73,7 +73,7 @@ Si Zelofehad ay may mga anak na babae na sina Mahlah, Noe, Hogla, Milca at Tirza
 
 
 
-Ngayon, nagpunta ang mga babaeng ito sa pintuan ng Toldang Tipanan at tumayo sa harapan nina Moises, Eleazar, ng mga pinuno at ng buong kapulungan <i class="trans-change">ng Israel_. Sinabi ng mga babae, 
+Ngayon, nagpunta ang mga babaeng ito sa pintuan ng Toldang Tipanan at tumayo sa harapan nina Moises, Eleazar, ng mga pinuno at ng buong kapulungan ng Israel_. Sinabi ng mga babae, 
 
 
 

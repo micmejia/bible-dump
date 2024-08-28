@@ -73,7 +73,7 @@ Ito ang ibig kong sabihin: Mayroon na tayo ngayong punong pari na nakaupo sa kan
 
 
 
-Naglilingkod siya bilang punong pari sa Pinakabanal na Lugar na hindi tao ang gumawa kundi ang Panginoon <i class="trans-change">mismo_. 
+Naglilingkod siya bilang punong pari sa Pinakabanal na Lugar na hindi tao ang gumawa kundi ang Panginoon mismo_. 
 
 
 
@@ -172,7 +172,7 @@ Kung nandito pa siya sa lupa, hindi siya maaaring maging pari dahil mayroon nang
 
 
 
-Ang pag-aalay na ginagawa nila ay anino lang ng mga bagay na nangyayari roon sa langit. Sapagkat nang itatayo na ni Moises ang Toldang Sambahan, mahigpit siyang pinagbilinan <i class="trans-change">ng Dios_, "Kailangang sundin mo ang planong ipinakita ko sa iyo sa bundok." 
+Ang pag-aalay na ginagawa nila ay anino lang ng mga bagay na nangyayari roon sa langit. Sapagkat nang itatayo na ni Moises ang Toldang Sambahan, mahigpit siyang pinagbilinan ng Dios_, "Kailangang sundin mo ang planong ipinakita ko sa iyo sa bundok." 
 
 
 
@@ -205,7 +205,7 @@ Ang pag-aalay na ginagawa nila ay anino lang ng mga bagay na nangyayari roon sa 
 
 
 
-Ngunit higit na dakila ang mga gawain ni Jesus bilang punong pari <i class="trans-change">kaysa sa mga gawain ng mga pari_, dahil siya ang tagapamagitan ng isang kasunduang higit na mabuti <i class="trans-change">kaysa sa nauna_. At nakasalalay ito sa mas mabubuting pangako <i class="trans-change">ng Dios_. 
+Ngunit higit na dakila ang mga gawain ni Jesus bilang punong pari kaysa sa mga gawain ng mga pari_, dahil siya ang tagapamagitan ng isang kasunduang higit na mabuti kaysa sa nauna_. At nakasalalay ito sa mas mabubuting pangako ng Dios_. 
 
 
 
@@ -271,7 +271,7 @@ Kung walang kakulangan ang unang kasunduan, hindi na sana kailangan pang palitan
 
 
 
-Ngunit nakita <i class="trans-change">ng Dios_ ang pagkukulang ng mga taong <i class="trans-change">sumusunod sa unang kasunduan, kaya_ sinabi niya, "Darating ang panahon na gagawa ako ng bagong kasunduan sa mga taga-Israel at taga-Juda. 
+Ngunit nakita ng Dios_ ang pagkukulang ng mga taong sumusunod sa unang kasunduan, kaya_ sinabi niya, "Darating ang panahon na gagawa ako ng bagong kasunduan sa mga taga-Israel at taga-Juda. 
 
 
 
@@ -304,7 +304,7 @@ Ngunit nakita <i class="trans-change">ng Dios_ ang pagkukulang ng mga taong <i c
 
 
 
-Hindi ito katulad ng kasunduang ginawa ko sa mga ninuno nila noong akayin ko sila palabas sa Egipto. Hindi nila sinunod ang <i class="trans-change">unang_ kasunduang ibinigay ko sa kanila, kaya pinabayaan ko sila." 
+Hindi ito katulad ng kasunduang ginawa ko sa mga ninuno nila noong akayin ko sila palabas sa Egipto. Hindi nila sinunod ang unang_ kasunduang ibinigay ko sa kanila, kaya pinabayaan ko sila." 
 
 
 
@@ -337,7 +337,7 @@ Hindi ito katulad ng kasunduang ginawa ko sa mga ninuno nila noong akayin ko sil
 
 
 
-Sinabi pa ng Panginoon, "Ito ang <i class="trans-change">bagong_ kasunduan na gagawin ko sa mga mamamayan ng Israel pagdating ng araw na iyon: Itatanim ko sa isipan nila ang mga utos ko, at isusulat ko ang mga ito sa mga puso nila. Ako ang magiging Dios nila, at sila naman ang magiging bayan ko. 
+Sinabi pa ng Panginoon, "Ito ang bagong_ kasunduan na gagawin ko sa mga mamamayan ng Israel pagdating ng araw na iyon: Itatanim ko sa isipan nila ang mga utos ko, at isusulat ko ang mga ito sa mga puso nila. Ako ang magiging Dios nila, at sila naman ang magiging bayan ko. 
 
 
 

@@ -73,7 +73,7 @@ next: ['Exod 31']
 
 
 
-Kailangang kwadrado ito-18 pulgada ang haba at ang lapad, at tatlong talampakan ang taas. Kailangang mayroon itong <i class="trans-change">parang_ sungay sa mga sulok na kasamang ginawa nang gawin ang altar. 
+Kailangang kwadrado ito-18 pulgada ang haba at ang lapad, at tatlong talampakan ang taas. Kailangang mayroon itong parang_ sungay sa mga sulok na kasamang ginawa nang gawin ang altar. 
 
 
 
@@ -106,7 +106,7 @@ Kailangang kwadrado ito-18 pulgada ang haba at ang lapad, at tatlong talampakan 
 
 
 
-Balutin mo ng purong ginto ang ibabaw nito, ang apat na gilid, at ang <i class="trans-change">parang_ sungay sa mga sulok nito. At lagyan mo ito ng hinulmang ginto sa palibot. 
+Balutin mo ng purong ginto ang ibabaw nito, ang apat na gilid, at ang parang_ sungay sa mga sulok nito. At lagyan mo ito ng hinulmang ginto sa palibot. 
 
 
 
@@ -337,7 +337,7 @@ Huwag kayong mag-aalay sa altar na ito ng ibang insenso, o kahit anong handog na
 
 
 
-Isang beses sa bawat taon, kailangang linisin ni Aaron ang altar sa pamamagitan ng pagpapahid ng dugo sa <i class="trans-change">parang_ mga sungay na sulok nito. Ang dugong ipapahid ay galing sa handog sa paglilinis. Dapat itong gawin bawat taon ng susunod pang mga henerasyon, dahil ang altar na ito ay napakabanal para sa akin." 
+Isang beses sa bawat taon, kailangang linisin ni Aaron ang altar sa pamamagitan ng pagpapahid ng dugo sa parang_ mga sungay na sulok nito. Ang dugong ipapahid ay galing sa handog sa paglilinis. Dapat itong gawin bawat taon ng susunod pang mga henerasyon, dahil ang altar na ito ay napakabanal para sa akin." 
 
 
 
@@ -634,7 +634,7 @@ Sinabi ng Panginoon kay Moises,
 
 
 
-Ito ang gagamitin ni Aaron at ng mga anak niya sa paghuhugas ng mga kamay at paa nila, <sup class="versenum">20-21</sup>bago sila pumasok sa Toldang Tipanan, at bago sila lumapit sa altar para mag-alay sa akin ng mga handog sa pamamagitan ng apoy. Kailangan nilang hugasan ang mga kamay at paa nila para hindi sila mamatay. Dapat sundin ni Aaron at ng mga angkan niya ang mga tuntuning ito hanggang sa susunod pang mga henerasyon." ## Ang Langis na Pamahid 
+Ito ang gagamitin ni Aaron at ng mga anak niya sa paghuhugas ng mga kamay at paa nila, 20-21bago sila pumasok sa Toldang Tipanan, at bago sila lumapit sa altar para mag-alay sa akin ng mga handog sa pamamagitan ng apoy. Kailangan nilang hugasan ang mga kamay at paa nila para hindi sila mamatay. Dapat sundin ni Aaron at ng mga angkan niya ang mga tuntuning ito hanggang sa susunod pang mga henerasyon." ## Ang Langis na Pamahid 
 
 
 
@@ -766,7 +766,7 @@ anim na kilong kasia (kailangan ang bigat nitoʼy ayon sa timbangang ginagamit n
 
 
 
-Sa pamamagitan nito, makakagawa ka ng banal na mabangong langis na pamahid. <sup class="versenum">26-28</sup>Pahiran mo ng langis na ito ang Toldang Tipanan, ang Kahon ng Kasunduan, ang mesa at ang lahat ng kagamitan nito, ang lalagyan ng ilaw at ang lahat ng kagamitan nito, ang altar na pagsusunugan ng insenso, ang altar na pinagsusunugan ng mga handog na sinusunog at ang lahat ng kagamitan nito, at ang planggana at ang patungan nito. 
+Sa pamamagitan nito, makakagawa ka ng banal na mabangong langis na pamahid. 26-28Pahiran mo ng langis na ito ang Toldang Tipanan, ang Kahon ng Kasunduan, ang mesa at ang lahat ng kagamitan nito, ang lalagyan ng ilaw at ang lahat ng kagamitan nito, ang altar na pagsusunugan ng insenso, ang altar na pinagsusunugan ng mga handog na sinusunog at ang lahat ng kagamitan nito, at ang planggana at ang patungan nito. 
 
 
 
@@ -832,7 +832,7 @@ Italaga mo ang mga bagay na ito para maging napakabanal nito. Ibubukod ang sinum
 
 
 
-"Pahiran mo rin <i class="trans-change">ng langis_ si Aaron at ang mga anak niya bilang pag-oordina sa kanila, para makapaglingkod sila sa akin bilang mga pari. 
+"Pahiran mo rin ng langis_ si Aaron at ang mga anak niya bilang pag-oordina sa kanila, para makapaglingkod sila sa akin bilang mga pari. 
 
 
 
@@ -1030,7 +1030,7 @@ Sa pamamagitan ng mga ito, gumawa ka ng napakabangong insenso. Pagkatapos, lagya
 
 
 
-Dikdikin nang pino ang iba sa mga ito at iwisik sa harap <i class="trans-change">ng Kahon_ ng Kasunduan na nasa Toldang Tipanan, kung saan ako makikipagkita sa iyo. Dapat mo itong ituring na pinakabanal. 
+Dikdikin nang pino ang iba sa mga ito at iwisik sa harap ng Kahon_ ng Kasunduan na nasa Toldang Tipanan, kung saan ako makikipagkita sa iyo. Dapat mo itong ituring na pinakabanal. 
 
 
 

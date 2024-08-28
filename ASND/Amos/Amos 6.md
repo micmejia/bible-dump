@@ -40,7 +40,7 @@ next: ['Amos 7']
 
 
 
-Nakakaawa kayong mga pinuno ng Zion at Samaria na nagpapasarap sa buhay at walang pakialam. Itinuturing ninyo ang inyong mga sarili na mararangal na tao ng nangungunang bansa, at sa inyo lumalapit ang inyong mga mamamayan <i class="trans-change">na nangangailangan_. 
+Nakakaawa kayong mga pinuno ng Zion at Samaria na nagpapasarap sa buhay at walang pakialam. Itinuturing ninyo ang inyong mga sarili na mararangal na tao ng nangungunang bansa, at sa inyo lumalapit ang inyong mga mamamayan na nangangailangan_. 
 
 
 
@@ -73,7 +73,7 @@ Nakakaawa kayong mga pinuno ng Zion at Samaria na nagpapasarap sa buhay at walan
 
 
 
-Tingnan ninyo kung ano ang nangyari sa <i class="trans-change">lungsod ng_ Calne, ang malaking lungsod ng Hamat, at ang <i class="trans-change">lungsod ng_ Gat sa Filistia. Mas makapangyarihan ba kayo kaysa sa mga kahariang iyon? Mas malawak ba ang inyong lupain kaysa sa kanila? 
+Tingnan ninyo kung ano ang nangyari sa lungsod ng_ Calne, ang malaking lungsod ng Hamat, at ang lungsod ng_ Gat sa Filistia. Mas makapangyarihan ba kayo kaysa sa mga kahariang iyon? Mas malawak ba ang inyong lupain kaysa sa kanila? 
 
 
 
@@ -106,7 +106,7 @@ Tingnan ninyo kung ano ang nangyari sa <i class="trans-change">lungsod ng_ Calne
 
 
 
-<i class="trans-change">Kawawa kayong_ nag-aakala na hindi darating sa inyo ang araw ng pagpaparusa. Dahil sa ginagawa ninyong kasamaan, lalo ninyong pinadadali ang araw na iyon na maghahari ang karahasan. 
+Kawawa kayong_ nag-aakala na hindi darating sa inyo ang araw ng pagpaparusa. Dahil sa ginagawa ninyong kasamaan, lalo ninyong pinadadali ang araw na iyon na maghahari ang karahasan. 
 
 
 
@@ -139,7 +139,7 @@ Tingnan ninyo kung ano ang nangyari sa <i class="trans-change">lungsod ng_ Calne
 
 
 
-<i class="trans-change">Kawawa kayong_ mga pahiga-higa lang sa inyong mga mamahaling kama at nagpapakabusog sa masasarap na pagkaing karne ng batang tupa at ng pinatabang guya. 
+Kawawa kayong_ mga pahiga-higa lang sa inyong mga mamahaling kama at nagpapakabusog sa masasarap na pagkaing karne ng batang tupa at ng pinatabang guya. 
 
 
 
@@ -172,7 +172,7 @@ Tingnan ninyo kung ano ang nangyari sa <i class="trans-change">lungsod ng_ Calne
 
 
 
-<i class="trans-change">Kawawa kayong_ mga kumakatha ng mga awit habang tumutugtog ng alpa at mahilig tumugtog ng mga tugtugin katulad ni David. 
+Kawawa kayong_ mga kumakatha ng mga awit habang tumutugtog ng alpa at mahilig tumugtog ng mga tugtugin katulad ni David. 
 
 
 
@@ -205,7 +205,7 @@ Tingnan ninyo kung ano ang nangyari sa <i class="trans-change">lungsod ng_ Calne
 
 
 
-<i class="trans-change">Kawawa kayong_ malalakas uminom ng alak at gumagamit ng mamahaling pabango, pero hindi nagdadalamhati sa sasapiting pagbagsak ng inyong bansa. 
+Kawawa kayong_ malalakas uminom ng alak at gumagamit ng mamahaling pabango, pero hindi nagdadalamhati sa sasapiting pagbagsak ng inyong bansa. 
 
 
 
@@ -273,7 +273,7 @@ Kaya kayong mga pinuno ang unang bibihagin at matitigil na ang inyong mga pagpip
 
 
 
-Sumumpa ang Panginoong Dios, ang Dios na Makapangyarihan. Sinabi niya, "Kinamumuhian ko ang pagmamataas <i class="trans-change">ng mga lahi_ ni Jacob, at kinasusuklaman ang matitibay na bahagi ng kanilang lungsod. Kaya ipapasakop ko sa kaaway ang kanilang lungsod at ang lahat ng naroroon." 
+Sumumpa ang Panginoong Dios, ang Dios na Makapangyarihan. Sinabi niya, "Kinamumuhian ko ang pagmamataas ng mga lahi_ ni Jacob, at kinasusuklaman ang matitibay na bahagi ng kanilang lungsod. Kaya ipapasakop ko sa kaaway ang kanilang lungsod at ang lahat ng naroroon." 
 
 
 
@@ -306,7 +306,7 @@ Sumumpa ang Panginoong Dios, ang Dios na Makapangyarihan. Sinabi niya, "Kinamumu
 
 
 
-Kung may sampung tao na matitira sa isang bahay, <i class="trans-change">lahat_ sila ay mamamatay. 
+Kung may sampung tao na matitira sa isang bahay, lahat_ sila ay mamamatay. 
 
 
 
@@ -339,7 +339,7 @@ Kung may sampung tao na matitira sa isang bahay, <i class="trans-change">lahat_ 
 
 
 
-Ang bangkay ng namatay ay kukunin ng kanyang kamag-anak upang sunugin. Tatanungin niya ang nagtatago sa kaloob-looban ng bahay, "May kasama ka pa riyan?" Kapag sumagot siya ng wala, sasabihin ng nagtanong, "Tumahimik ka na! Baka mabanggit mo pa ang pangalan ng Panginoon <i class="trans-change">at maparusahan tayo_." 
+Ang bangkay ng namatay ay kukunin ng kanyang kamag-anak upang sunugin. Tatanungin niya ang nagtatago sa kaloob-looban ng bahay, "May kasama ka pa riyan?" Kapag sumagot siya ng wala, sasabihin ng nagtanong, "Tumahimik ka na! Baka mabanggit mo pa ang pangalan ng Panginoon at maparusahan tayo_." 
 
 
 
@@ -372,7 +372,7 @@ Ang bangkay ng namatay ay kukunin ng kanyang kamag-anak upang sunugin. Tatanungi
 
 
 
-Ang totoo, kapag ang Panginoon na ang nag-uutos, mawawasak ang <i class="trans-change">lahat ng_ bahay, malaki man o maliit. 
+Ang totoo, kapag ang Panginoon na ang nag-uutos, mawawasak ang lahat ng_ bahay, malaki man o maliit. 
 
 
 
@@ -405,7 +405,7 @@ Ang totoo, kapag ang Panginoon na ang nag-uutos, mawawasak ang <i class="trans-c
 
 
 
-Makakatakbo ba ang kabayo sa batuhan? Makakapag-araro ba ang baka roon? <i class="trans-change">Siyempre hindi!_ Pero binaliktad ninyo ang katarungan para mapahamak ang tao, at ang katarungan ay ginawa ninyong masama. 
+Makakatakbo ba ang kabayo sa batuhan? Makakapag-araro ba ang baka roon? Siyempre hindi!_ Pero binaliktad ninyo ang katarungan para mapahamak ang tao, at ang katarungan ay ginawa ninyong masama. 
 
 
 
@@ -438,7 +438,7 @@ Makakatakbo ba ang kabayo sa batuhan? Makakapag-araro ba ang baka roon? <i class
 
 
 
-Tuwang-tuwa kayo nang nasakop ninyo ang <i class="trans-change">mga bayan ng_ Lo Debar at Karnaim, at sinasabi ninyo, "Natalo natin sila sa pamamagitan ng sarili nating kalakasan." 
+Tuwang-tuwa kayo nang nasakop ninyo ang mga bayan ng_ Lo Debar at Karnaim, at sinasabi ninyo, "Natalo natin sila sa pamamagitan ng sarili nating kalakasan." 
 
 
 

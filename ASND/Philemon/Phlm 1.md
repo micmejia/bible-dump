@@ -38,7 +38,7 @@ up: ['Philemon']
 
 
 
-<i class="trans-change">Mula kay_ Pablo na nakabilanggo dahil kay Cristo Jesus, <i class="trans-change">kasama si_ Timoteo na <i class="trans-change">ating_ kapatid. Filemon, aming minamahal na kamanggagawa <i class="trans-change">sa Panginoon_, 
+Mula kay_ Pablo na nakabilanggo dahil kay Cristo Jesus, kasama si_ Timoteo na ating_ kapatid. Filemon, aming minamahal na kamanggagawa sa Panginoon_, 
 
 
 
@@ -71,7 +71,7 @@ up: ['Philemon']
 
 
 
-kasama si Afia na <i class="trans-change">ating_ kapatid, si Arkipus na kapwa natin sundalo <i class="trans-change">ni Cristo_, at ang mga mananampalatayang nagtitipon sa iyong tahanan <i class="trans-change">sa pagsamba sa Dios_: 
+kasama si Afia na ating_ kapatid, si Arkipus na kapwa natin sundalo ni Cristo_, at ang mga mananampalatayang nagtitipon sa iyong tahanan sa pagsamba sa Dios_: 
 
 
 
@@ -172,7 +172,7 @@ Lagi akong nagpapasalamat sa Dios sa tuwing ipinapanalangin kita,
 
 
 
-dahil nabalitaan ko ang iyong pananampalataya sa Panginoong Jesus at ang pagmamahal mo sa lahat ng mga pinabanal <i class="trans-change">ng Dios_. 
+dahil nabalitaan ko ang iyong pananampalataya sa Panginoong Jesus at ang pagmamahal mo sa lahat ng mga pinabanal ng Dios_. 
 
 
 
@@ -205,7 +205,7 @@ dahil nabalitaan ko ang iyong pananampalataya sa Panginoong Jesus at ang pagmama
 
 
 
-Idinadalangin ko na sana ang pagiging mapagbigay mo, <i class="trans-change">na bunga_ ng iyong pananampalataya, ay magpatuloy habang lumalago ang iyong pang-unawa sa lahat ng mabubuting bagay na ibinigay sa atin dahil tayoʼy nakay Cristo. 
+Idinadalangin ko na sana ang pagiging mapagbigay mo, na bunga_ ng iyong pananampalataya, ay magpatuloy habang lumalago ang iyong pang-unawa sa lahat ng mabubuting bagay na ibinigay sa atin dahil tayoʼy nakay Cristo. 
 
 
 
@@ -238,7 +238,7 @@ Idinadalangin ko na sana ang pagiging mapagbigay mo, <i class="trans-change">na 
 
 
 
-<i class="trans-change">Minamahal kong_ kapatid, labis na nagbigay kagalakan at kaaliwan sa akin ang iyong pagmamahal sa mga mananampalataya na nagpasigla sa kanila.
+Minamahal kong_ kapatid, labis na nagbigay kagalakan at kaaliwan sa akin ang iyong pagmamahal sa mga mananampalataya na nagpasigla sa kanila.
 
 ## Ang Hiling ni Pablo para kay Onesimus 
 
@@ -339,7 +339,7 @@ pero dahil mahal kita, minarapat kong makiusap na lamang sa iyo. Kaya bilang isa
 
 
 
-nakikiusap ako sa iyo para kay Onesimus, <i class="trans-change">na sana patawarin mo na siya._ Siyaʼy naging anak ko sa pananampalataya rito sa bilangguan. 
+nakikiusap ako sa iyo para kay Onesimus, na sana patawarin mo na siya._ Siyaʼy naging anak ko sa pananampalataya rito sa bilangguan. 
 
 
 
@@ -570,7 +570,7 @@ Kahit na alipin mo siya, isa na rin siyang minamahal na kapatid. Napamahal siya 
 
 
 
-Kaya kung itinuturing mo akong kamanggagawa <i class="trans-change">sa Panginoon,_ tanggapin mo siya na parang ako ang iyong tinatanggap. 
+Kaya kung itinuturing mo akong kamanggagawa sa Panginoon,_ tanggapin mo siya na parang ako ang iyong tinatanggap. 
 
 
 

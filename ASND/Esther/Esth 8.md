@@ -306,7 +306,7 @@ Ipinasulat ni Mordecai sa pangalan ni Haring Ahasuerus at tinatakan ng singsing 
 
 
 
-Ayon sa sulat na iyon, binigyan ng pahintulot ang lahat ng Judio na magsama-sama at ipagtanggol ang kanilang sarili, <i class="trans-change">pati na ang kanilang_ mga babae at mga bata. Maaari nilang patayin ang sinumang sasalakay sa kanila mula sa kahit anong bansa o probinsya. Pinahintulutan din silang samsamin ang mga ari-arian ng kanilang mga kaaway. 
+Ayon sa sulat na iyon, binigyan ng pahintulot ang lahat ng Judio na magsama-sama at ipagtanggol ang kanilang sarili, pati na ang kanilang_ mga babae at mga bata. Maaari nilang patayin ang sinumang sasalakay sa kanila mula sa kahit anong bansa o probinsya. Pinahintulutan din silang samsamin ang mga ari-arian ng kanilang mga kaaway. 
 
 
 

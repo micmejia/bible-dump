@@ -139,7 +139,7 @@ Makapagpapatotoo ako sa inyo na kusang-loob silang nagbigay at higit pa nga sa k
 
 
 
-Sapagkat sila na mismo ang paulit-ulit na nakiusap sa amin na bigyan sila ng pagkakataong makatulong sa <i class="trans-change">mahihirap na_ mga mananampalataya. 
+Sapagkat sila na mismo ang paulit-ulit na nakiusap sa amin na bigyan sila ng pagkakataong makatulong sa mahihirap na_ mga mananampalataya. 
 
 
 
@@ -205,7 +205,7 @@ At higit pa nga sa aming inaasahan ang kanilang ginawa, dahil una sa lahat, inia
 
 
 
-Dahil sa kanilang ginawa ay pinakiusapan namin si Tito na bumalik sa inyo, at tapusin ang inumpisahan niyang pangongolekta ng inyong tulong <i class="trans-change">para sa mga kapatid sa Judea_. 
+Dahil sa kanilang ginawa ay pinakiusapan namin si Tito na bumalik sa inyo, at tapusin ang inumpisahan niyang pangongolekta ng inyong tulong para sa mga kapatid sa Judea_. 
 
 
 
@@ -238,7 +238,7 @@ Dahil sa kanilang ginawa ay pinakiusapan namin si Tito na bumalik sa inyo, at ta
 
 
 
-Kayong mga nasa Corinto ay nangunguna sa lahat ng bagay – malakas ang inyong pananampalataya, magaling kayong magturo, marami kayong alam, masipag <i class="trans-change">sa paglilingkod sa Dios_, at malaki ang inyong pag-ibig sa amin. Kaya gusto namin na manguna rin kayo sa pagbibigay. 
+Kayong mga nasa Corinto ay nangunguna sa lahat ng bagay – malakas ang inyong pananampalataya, magaling kayong magturo, marami kayong alam, masipag sa paglilingkod sa Dios_, at malaki ang inyong pag-ibig sa amin. Kaya gusto namin na manguna rin kayo sa pagbibigay. 
 
 
 
@@ -271,7 +271,7 @@ Kayong mga nasa Corinto ay nangunguna sa lahat ng bagay – malakas ang inyong p
 
 
 
-Hindi sa inuutusan ko kayo; sinasabi ko lamang sa inyo ang ginagawang pagtulong ng iba para maipakita <i class="trans-change">rin ninyo sa amin_ na tunay ang inyong pagmamahal. 
+Hindi sa inuutusan ko kayo; sinasabi ko lamang sa inyo ang ginagawang pagtulong ng iba para maipakita rin ninyo sa amin_ na tunay ang inyong pagmamahal. 
 
 
 
@@ -304,7 +304,7 @@ Hindi sa inuutusan ko kayo; sinasabi ko lamang sa inyo ang ginagawang pagtulong 
 
 
 
-Sapagkat alam naman ninyo ang biyayang ipinakita ng ating Panginoong Jesu-Cristo, na kahit na mayaman siya <i class="trans-change">doon sa langit_ ay nagpakadukha siya <i class="trans-change">dito sa mundo_ alang-alang sa atin, para sa pamamagitan ng kanyang kahirapan ay maging mayaman tayo. 
+Sapagkat alam naman ninyo ang biyayang ipinakita ng ating Panginoong Jesu-Cristo, na kahit na mayaman siya doon sa langit_ ay nagpakadukha siya dito sa mundo_ alang-alang sa atin, para sa pamamagitan ng kanyang kahirapan ay maging mayaman tayo. 
 
 
 
@@ -436,7 +436,7 @@ Sapagkat kung kusang-loob ang inyong pagbibigay, tatanggapin ng Dios ang anumang
 
 
 
-Hindi <i class="trans-change">ko sinasabi_ na magbigay kayo para guminhawa ang iba at kayo naman ang maghirap, kundi para magkaroon ng pagkakapantay-pantay <i class="trans-change">sa ating kalagayan_. 
+Hindi ko sinasabi_ na magbigay kayo para guminhawa ang iba at kayo naman ang maghirap, kundi para magkaroon ng pagkakapantay-pantay sa ating kalagayan_. 
 
 
 
@@ -469,7 +469,7 @@ Hindi <i class="trans-change">ko sinasabi_ na magbigay kayo para guminhawa ang i
 
 
 
-Sa ngayon ay masagana kayo, kaya nararapat lamang na tulungan ninyo ang nangangailangan. Sa panahon na kayo naman ang mangailangan, at sila ang masagana, sila naman ang tutulong sa inyo. Sa ganoon, magkakapantay-pantay <i class="trans-change">ang kalagayan ng isaʼt isa_. 
+Sa ngayon ay masagana kayo, kaya nararapat lamang na tulungan ninyo ang nangangailangan. Sa panahon na kayo naman ang mangailangan, at sila ang masagana, sila naman ang tutulong sa inyo. Sa ganoon, magkakapantay-pantay ang kalagayan ng isaʼt isa_. 
 
 
 
@@ -634,7 +634,7 @@ Pasasamahin namin sa kanya ang isa sa mga kapatid natin na kilala sa lahat ng ig
 
 
 
-Hindi lang iyan, siya rin ang pinili ng mga iglesya na sumama sa amin para magdala ng tulong sa mga nangangailangan, nang sa ganoon ay maparangalan ang Panginoon at maipakita namin na talagang gusto naming <i class="trans-change">makatulong_. 
+Hindi lang iyan, siya rin ang pinili ng mga iglesya na sumama sa amin para magdala ng tulong sa mga nangangailangan, nang sa ganoon ay maparangalan ang Panginoon at maipakita namin na talagang gusto naming makatulong_. 
 
 
 
@@ -667,7 +667,7 @@ Hindi lang iyan, siya rin ang pinili ng mga iglesya na sumama sa amin para magda
 
 
 
-<i class="trans-change">Isinusugo namin siya kasama si Tito dahil_ nais naming maiwasang may masabi ang iba tungkol sa pangangasiwa namin sa malaking tulong na ito. 
+Isinusugo namin siya kasama si Tito dahil_ nais naming maiwasang may masabi ang iba tungkol sa pangangasiwa namin sa malaking tulong na ito. 
 
 
 
@@ -733,7 +733,7 @@ Sapagkat sinisikap naming gawin ang tama, hindi lamang sa paningin ng Panginoon,
 
 
 
-Kasama nila sa pagpunta riyan ang isa pang kapatid <i class="trans-change">sa pananampalataya_, na subok na namin sa maraming bagay at nakita namin ang kanyang sigasig sa pagtulong. At higit pa nga ang kanyang sigasig ngayon, dahil malaki ang kanyang tiwala sa inyo. 
+Kasama nila sa pagpunta riyan ang isa pang kapatid sa pananampalataya_, na subok na namin sa maraming bagay at nakita namin ang kanyang sigasig sa pagtulong. At higit pa nga ang kanyang sigasig ngayon, dahil malaki ang kanyang tiwala sa inyo. 
 
 
 
@@ -766,7 +766,7 @@ Kasama nila sa pagpunta riyan ang isa pang kapatid <i class="trans-change">sa pa
 
 
 
-Tungkol naman kay Tito, siya ang kasama at katulong ko sa aking mga gawain diyan sa inyo. Tungkol naman sa mga kapatid <i class="trans-change">na kasama niya_, sila ang mga kinatawan ng mga iglesya. Ang kanilang pamumuhay ay isang karangalan para kay Cristo. 
+Tungkol naman kay Tito, siya ang kasama at katulong ko sa aking mga gawain diyan sa inyo. Tungkol naman sa mga kapatid na kasama niya_, sila ang mga kinatawan ng mga iglesya. Ang kanilang pamumuhay ay isang karangalan para kay Cristo. 
 
 
 
@@ -799,4 +799,4 @@ Tungkol naman kay Tito, siya ang kasama at katulong ko sa aking mga gawain diyan
 
 
 
-Kaya ipakita ninyo sa kanila ang inyong pagmamahal para mapatunayan nila na talagang totoo ang pagmamalaki namin sa inyo, at malaman din ito ng ibang iglesya <i class="trans-change">sa pamamagitan nila_.
+Kaya ipakita ninyo sa kanila ang inyong pagmamahal para mapatunayan nila na talagang totoo ang pagmamalaki namin sa inyo, at malaman din ito ng ibang iglesya sa pamamagitan nila_.

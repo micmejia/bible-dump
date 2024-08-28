@@ -73,7 +73,7 @@ May mga tuntunin ang unang kasunduan tungkol sa pagsamba at may sambahang gawa n
 
 
 
-Itong Toldang Sambahan na ginawa nila <i class="trans-change">ay may dalawang silid_. Ang unang silid ay ang Banal na Lugar, kung saan naroon ang ilawan, ang mesa, at ang tinapay na handog sa Dios. 
+Itong Toldang Sambahan na ginawa nila ay may dalawang silid_. Ang unang silid ay ang Banal na Lugar, kung saan naroon ang ilawan, ang mesa, at ang tinapay na handog sa Dios. 
 
 
 
@@ -271,7 +271,7 @@ Ngunit ang punong pari lang ang nakakapasok sa Pinakabanal na Lugar at minsan la
 
 
 
-Sa ginagawa nilang ito, ipinapakita ng Banal na Espiritu na hindi makakapasok sa Pinakabanal na Lugar <i class="trans-change">ang karaniwang tao_ hanggaʼt naroon pa ang dating Toldang Sambahan. 
+Sa ginagawa nilang ito, ipinapakita ng Banal na Espiritu na hindi makakapasok sa Pinakabanal na Lugar ang karaniwang tao_ hanggaʼt naroon pa ang dating Toldang Sambahan. 
 
 
 
@@ -337,7 +337,7 @@ Ang Toldang iyon ay larawan lang ng kasalukuyang panahon. Sapagkat ang mga hando
 
 
 
-Ang mga ginagawa nilang itoʼy nauukol lang sa mga pagkain at inumin at mga seremonya ng paglilinis. Mga tuntuning panlabas lamang ito na ipinapatupad hanggang sa dumating ang bagong pamamaraan <i class="trans-change">ng Dios_. 
+Ang mga ginagawa nilang itoʼy nauukol lang sa mga pagkain at inumin at mga seremonya ng paglilinis. Mga tuntuning panlabas lamang ito na ipinapatupad hanggang sa dumating ang bagong pamamaraan ng Dios_. 
 
 
 
@@ -403,7 +403,7 @@ Ngunit dumating na si Cristo na punong pari ng bagong pamamaraan na higit na mab
 
 
 
-Minsan lang pumasok si Cristo sa Pinakabanal na Lugar. At hindi dugo ng kambing o ng guya ang dala niya kundi ang sarili niyang dugo. At sa pamamagitan ng kanyang dugo, tinubos niya tayo <i class="trans-change">sa mga kasalanan natin_ magpakailanman. 
+Minsan lang pumasok si Cristo sa Pinakabanal na Lugar. At hindi dugo ng kambing o ng guya ang dala niya kundi ang sarili niyang dugo. At sa pamamagitan ng kanyang dugo, tinubos niya tayo sa mga kasalanan natin_ magpakailanman. 
 
 
 
@@ -436,7 +436,7 @@ Minsan lang pumasok si Cristo sa Pinakabanal na Lugar. At hindi dugo ng kambing 
 
 
 
-<i class="trans-change">Ayon sa Kautusan,_ kung itinuturing na marumi ang isang tao, kailangan siyang wisikan ng dugo ng kambing at toro, at ng abo ng guya para maging malinis. 
+Ayon sa Kautusan,_ kung itinuturing na marumi ang isang tao, kailangan siyang wisikan ng dugo ng kambing at toro, at ng abo ng guya para maging malinis. 
 
 
 
@@ -469,7 +469,7 @@ Minsan lang pumasok si Cristo sa Pinakabanal na Lugar. At hindi dugo ng kambing 
 
 
 
-<i class="trans-change">Kung nakakalinis ang mga ito,_ di lalo na ang dugo ni Cristo. Sa pamamagitan ng walang hanggang <i class="trans-change">Banal na_ Espiritu, inialay ni Cristo ang sarili niya bilang handog na walang kapintasan sa Dios. <i class="trans-change">Ang dugo niya_ ang lilinis sa ating pusoʼt isipan para matalikuran natin ang mga gawaing walang kabuluhan at paglingkuran ang Dios na buhay. 
+Kung nakakalinis ang mga ito,_ di lalo na ang dugo ni Cristo. Sa pamamagitan ng walang hanggang Banal na_ Espiritu, inialay ni Cristo ang sarili niya bilang handog na walang kapintasan sa Dios. Ang dugo niya_ ang lilinis sa ating pusoʼt isipan para matalikuran natin ang mga gawaing walang kabuluhan at paglingkuran ang Dios na buhay. 
 
 
 
@@ -502,7 +502,7 @@ Minsan lang pumasok si Cristo sa Pinakabanal na Lugar. At hindi dugo ng kambing 
 
 
 
-Kaya si Cristo ang ginawang tagapamagitan <i class="trans-change">sa atin at sa Dios_ sa bagong kasunduan. Sapagkat sa pamamagitan ng kanyang kamatayan, tinubos niya ang mga taong lumabag sa unang kasunduan. Dahil dito, matatanggap ng mga tinawag <i class="trans-change">ng Dios_ ang walang hanggang pagpapala na ipinangako niya. 
+Kaya si Cristo ang ginawang tagapamagitan sa atin at sa Dios_ sa bagong kasunduan. Sapagkat sa pamamagitan ng kanyang kamatayan, tinubos niya ang mga taong lumabag sa unang kasunduan. Dahil dito, matatanggap ng mga tinawag ng Dios_ ang walang hanggang pagpapala na ipinangako niya. 
 
 
 
@@ -634,7 +634,7 @@ Kaya maging ang unang kasunduan ay kinailangang pagtibayin sa pamamagitan ng dug
 
 
 
-Sapagkat nang ipahayag ni Moises ang Kautusan sa mga tao, kumuha siya ng dugo ng mga guyaʼt kambing, at hinaluan ng tubig. Isinawsaw niya rito ang balahibo ng tupa na kinulayan ng pula na nakatali sa sanga ng isopo. Pagkatapos, winisikan niya ang aklat <i class="trans-change">ng Kautusan_ at ang mga tao. 
+Sapagkat nang ipahayag ni Moises ang Kautusan sa mga tao, kumuha siya ng dugo ng mga guyaʼt kambing, at hinaluan ng tubig. Isinawsaw niya rito ang balahibo ng tupa na kinulayan ng pula na nakatali sa sanga ng isopo. Pagkatapos, winisikan niya ang aklat ng Kautusan_ at ang mga tao. 
 
 
 
@@ -667,7 +667,7 @@ Sapagkat nang ipahayag ni Moises ang Kautusan sa mga tao, kumuha siya ng dugo ng
 
 
 
-At sinabi niya: "Ito ang dugong nagpapatibay sa kasunduang <i class="trans-change">ibinigay at_ ipinatutupad sa inyo ng Dios." 
+At sinabi niya: "Ito ang dugong nagpapatibay sa kasunduang ibinigay at_ ipinatutupad sa inyo ng Dios." 
 
 
 
@@ -733,7 +733,7 @@ Winisikan din niya ng dugo ang Toldang Sambahan at ang lahat ng bagay doon na gi
 
 
 
-Ayon sa Kautusan, nililinis sa pamamagitan ng dugo ang halos lahat ng bagay na ginagamit sa pagsamba. At kung walang pagbubuhos ng dugo <i class="trans-change">bilang handog sa Dios_, wala ring kapatawaran ng mga kasalanan. 
+Ayon sa Kautusan, nililinis sa pamamagitan ng dugo ang halos lahat ng bagay na ginagamit sa pagsamba. At kung walang pagbubuhos ng dugo bilang handog sa Dios_, wala ring kapatawaran ng mga kasalanan. 
 
 
 
@@ -766,7 +766,7 @@ Ayon sa Kautusan, nililinis sa pamamagitan ng dugo ang halos lahat ng bagay na g
 
 
 
-Kaya kailangang linisin sa pamamagitan ng ganitong paraan ng paghahandog ang mga <i class="trans-change">bagay sa sambahang ito na_ larawan lang ng mga bagay na nasa langit. Pero nangangailangan ng mas mabuting handog ang mga bagay na nasa langit. 
+Kaya kailangang linisin sa pamamagitan ng ganitong paraan ng paghahandog ang mga bagay sa sambahang ito na_ larawan lang ng mga bagay na nasa langit. Pero nangangailangan ng mas mabuting handog ang mga bagay na nasa langit. 
 
 
 
@@ -832,7 +832,7 @@ Sapagkat hindi pumasok si Cristo sa isang banal na lugar na gawa ng tao at laraw
 
 
 
-Ang punong pari <i class="trans-change">ng mga Judio_ ay pumapasok sa Pinakabanal na Lugar bawat taon, na may dalang dugo ng hayop. Ngunit si Cristo ay minsan lamang naghandog ng kanyang sarili, at hindi na niya ito inulit-ulit pa. 
+Ang punong pari ng mga Judio_ ay pumapasok sa Pinakabanal na Lugar bawat taon, na may dalang dugo ng hayop. Ngunit si Cristo ay minsan lamang naghandog ng kanyang sarili, at hindi na niya ito inulit-ulit pa. 
 
 
 
@@ -865,7 +865,7 @@ Ang punong pari <i class="trans-change">ng mga Judio_ ay pumapasok sa Pinakabana
 
 
 
-Dahil kung kailangang ulit-ulitin, maraming beses sanang nagdusa si Cristo mula pa nang likhain ang mundo. Pero minsan lamang siya naparito <i class="trans-change">sa mundo_ para alisin ang mga kasalanan <i class="trans-change">natin_ sa pamamagitan ng paghahandog ng kanyang sarili. Ginawa niya ito nitong mga huling araw. 
+Dahil kung kailangang ulit-ulitin, maraming beses sanang nagdusa si Cristo mula pa nang likhain ang mundo. Pero minsan lamang siya naparito sa mundo_ para alisin ang mga kasalanan natin_ sa pamamagitan ng paghahandog ng kanyang sarili. Ginawa niya ito nitong mga huling araw. 
 
 
 
@@ -898,7 +898,7 @@ Dahil kung kailangang ulit-ulitin, maraming beses sanang nagdusa si Cristo mula 
 
 
 
-Itinakda sa mga tao ang mamatay nang minsan at pagkatapos nitoʼy ang paghuhukom <i class="trans-change">ng Dios_. 
+Itinakda sa mga tao ang mamatay nang minsan at pagkatapos nitoʼy ang paghuhukom ng Dios_. 
 
 
 
@@ -931,4 +931,4 @@ Itinakda sa mga tao ang mamatay nang minsan at pagkatapos nitoʼy ang paghuhukom
 
 
 
-Ganoon din naman, minsan lang namatay si Cristo nang inihandog niya ang kanyang sarili para alisin ang kasalanan ng mga tao. At muli siyang babalik <i class="trans-change">dito sa mundo_, hindi na para akuing muli ang kasalanan <i class="trans-change">ng mga tao_, kundi para iligtas ang mga taong naghihintay sa kanya.
+Ganoon din naman, minsan lang namatay si Cristo nang inihandog niya ang kanyang sarili para alisin ang kasalanan ng mga tao. At muli siyang babalik dito sa mundo_, hindi na para akuing muli ang kasalanan ng mga tao_, kundi para iligtas ang mga taong naghihintay sa kanya.

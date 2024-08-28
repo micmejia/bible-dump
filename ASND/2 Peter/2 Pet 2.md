@@ -271,7 +271,7 @@ Pero iniligtas ng Dios si Lot, isang taong matuwid na nababahala sa malaswang pa
 
 
 
-Habang naninirahan doon si Lot, araw-araw niyang nasasaksihan ang masasama nilang gawain at labis na naghihirap ang kalooban niya. <sup class="versenum">9-10</sup>Kaya makikita natin na alam ng Panginoon kung paano iligtas sa mga pagsubok ang mga matuwid, at kung paano parusahan ang masasama. Parurusahan niya lalo na ang mga sumusunod sa masasamang nasa ng kanilang laman at ayaw magpasakop sa kanya, hanggang sa pagdating ng Araw ng Paghuhukom. Ang binabanggit kong mga huwad na guro ay mayayabang at mapangahas. Hindi sila natatakot lapastanganin ang mga makapangyarihang nilalang. 
+Habang naninirahan doon si Lot, araw-araw niyang nasasaksihan ang masasama nilang gawain at labis na naghihirap ang kalooban niya. 9-10Kaya makikita natin na alam ng Panginoon kung paano iligtas sa mga pagsubok ang mga matuwid, at kung paano parusahan ang masasama. Parurusahan niya lalo na ang mga sumusunod sa masasamang nasa ng kanilang laman at ayaw magpasakop sa kanya, hanggang sa pagdating ng Araw ng Paghuhukom. Ang binabanggit kong mga huwad na guro ay mayayabang at mapangahas. Hindi sila natatakot lapastanganin ang mga makapangyarihang nilalang. 
 
 
 

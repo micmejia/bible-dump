@@ -238,7 +238,7 @@ Ang karwaheng hinihila ng mga itim na kabayo ay papunta sa isang lugar sa hilaga
 
 
 
-Nang papalabas pa lang ang malalakas na kabayo, nagmamadali na silang lumibot sa buong mundo. Sinabi ng anghel <i class="trans-change">sa kanila_, "Sige, libutin na ninyo ang buong mundo." Kaya nilibot nila ang buong mundo. 
+Nang papalabas pa lang ang malalakas na kabayo, nagmamadali na silang lumibot sa buong mundo. Sinabi ng anghel sa kanila_, "Sige, libutin na ninyo ang buong mundo." Kaya nilibot nila ang buong mundo. 
 
 
 
@@ -337,7 +337,7 @@ Sinabi ng Panginoon sa akin,
 
 
 
-"Kunin mo <i class="trans-change">ang mga regalong pilak at ginto_ nina Heldai, Tobia, at Jedaya, at pumunta ka agad sa bahay ni Josia na anak ni Zefanias. Silang <i class="trans-change">apat_ ay nakabalik mula sa Babilonia kung saan sila binihag. 
+"Kunin mo ang mga regalong pilak at ginto_ nina Heldai, Tobia, at Jedaya, at pumunta ka agad sa bahay ni Josia na anak ni Zefanias. Silang apat_ ay nakabalik mula sa Babilonia kung saan sila binihag. 
 
 
 
@@ -370,7 +370,7 @@ Sinabi ng Panginoon sa akin,
 
 
 
-Ipagawa mong korona ang mga pilak at ginto, at isuot ito sa ulo ng punong pari na si Josue na anak ni Jehozadak. <sup class="versenum">12-13</sup>Sabihin mo sa kanya na <i class="trans-change">ako,_ ang Panginoong Makapangyarihan, ay nagsasabi, 'Ang taong tinatawag na Sanga ay lalago sa kalagayan niya ngayon, at itatayo niyang muli ang aking templo. Pararangalan siya bilang hari at mamamahala siya. Ang pari ay tatayo sa tabi ng kanyang trono at magkakaroon sila ng mabuting relasyon.' 
+Ipagawa mong korona ang mga pilak at ginto, at isuot ito sa ulo ng punong pari na si Josue na anak ni Jehozadak. 12-13Sabihin mo sa kanya na ako,_ ang Panginoong Makapangyarihan, ay nagsasabi, 'Ang taong tinatawag na Sanga ay lalago sa kalagayan niya ngayon, at itatayo niyang muli ang aking templo. Pararangalan siya bilang hari at mamamahala siya. Ang pari ay tatayo sa tabi ng kanyang trono at magkakaroon sila ng mabuting relasyon.' 
 
 
 

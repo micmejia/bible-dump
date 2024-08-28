@@ -7,7 +7,7 @@ next: ['Isa 52']
 # Isaiah 51
 
 ***
-###### 1-2 <i class="trans-change">Sinabi ng Panginoon,_ "Makinig kayo sa akin, kayong mga gustong maligtas at humihingi ng tulong sa akin. Alalahanin ninyo sina Abraham at Sara na inyong mga ninuno. Katulad sila ng batong pinagtibagan sa inyo o pinaghukayan sa inyo. Noong tinawag ko si Abraham, nag-iisa siya, pero pinagpala ko siya at binigyan ng maraming lahi. 
+###### 1-2 Sinabi ng Panginoon,_ "Makinig kayo sa akin, kayong mga gustong maligtas at humihingi ng tulong sa akin. Alalahanin ninyo sina Abraham at Sara na inyong mga ninuno. Katulad sila ng batong pinagtibagan sa inyo o pinaghukayan sa inyo. Noong tinawag ko si Abraham, nag-iisa siya, pero pinagpala ko siya at binigyan ng maraming lahi. 
 
 
 

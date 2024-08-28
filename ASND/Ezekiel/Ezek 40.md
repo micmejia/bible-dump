@@ -40,7 +40,7 @@ next: ['Ezek 41']
 
 
 
-Dinala ako roon ng Panginoon at may nakita akong isang tao na ang mukha ay parang <i class="trans-change">kumikinang na_ tanso. Nakatayo siya malapit sa pintuan ng bayan at may hawak na panukat. Ang isa ay lubid na <i class="trans-change">gawa sa telang_ linen at ang isa ay kahoy. 
+Dinala ako roon ng Panginoon at may nakita akong isang tao na ang mukha ay parang kumikinang na_ tanso. Nakatayo siya malapit sa pintuan ng bayan at may hawak na panukat. Ang isa ay lubid na gawa sa telang_ linen at ang isa ay kahoy. 
 
 
 
@@ -139,7 +139,7 @@ Nakita ko ang templo na napapaligiran ng pader. Kinuha ng tao ang panukat niyang
 
 
 
-Pagkatapos, pumunta ang tao sa daanan <i class="trans-change">sa templo_ na nakaharap sa silangan. Umakyat siya sa mga baitang at sinukat niya ang pasukan ng daanan, at sampung talampakan ang luwang nito. 
+Pagkatapos, pumunta ang tao sa daanan sa templo_ na nakaharap sa silangan. Umakyat siya sa mga baitang at sinukat niya ang pasukan ng daanan, at sampung talampakan ang luwang nito. 
 
 
 
@@ -273,7 +273,7 @@ Sinukat din ng tao ang taas ng daanan papunta sa bakuran sa labas at itoʼy 22 t
 
 
 
-Sa harap ng bawat silid na kinaroroonan ng mga guwardyang nagbabantay ay may <i class="trans-change">mababang_ pader na 20 pulgada ang <i class="trans-change">taas_ at 20 pulgada rin ang <i class="trans-change">kapal_. At ang mga silid na itoʼy sampung talampakan ang haba at ganoon din ang luwang. 
+Sa harap ng bawat silid na kinaroroonan ng mga guwardyang nagbabantay ay may mababang_ pader na 20 pulgada ang taas_ at 20 pulgada rin ang kapal_. At ang mga silid na itoʼy sampung talampakan ang haba at ganoon din ang luwang. 
 
 
 
@@ -506,7 +506,7 @@ Ang daanang bato na ito sa bandang ibaba ay umaabot hanggang sa gilid ng mga daa
 
 
 
-Pagkatapos, sinukat ng tao ang layo mula sa daanang papasok sa bakuran sa labas <i class="trans-change">ng templo_ hanggang sa daanang papunta sa loob ng bakuran <i class="trans-change">ng templo_ at ang layo ay 170 talampakan.
+Pagkatapos, sinukat ng tao ang layo mula sa daanang papasok sa bakuran sa labas ng templo_ hanggang sa daanang papunta sa loob ng bakuran ng templo_ at ang layo ay 170 talampakan.
 
 ## Ang Daanan sa Hilaga 
 
@@ -908,7 +908,7 @@ Mayroon din itong mga silid na kinaroroonan ng mga guwardya na nagbabantay. Ang 
 
 
 
-Ang balkonahe ng daanan <i class="trans-change">sa bandang timog_ ay nakaharap sa bakuran sa labas, at napapalamutian ito ng puno ng palma na nakaukit sa mga pader. May walong baitang paitaas sa daanang ito. 
+Ang balkonahe ng daanan sa bandang timog_ ay nakaharap sa bakuran sa labas, at napapalamutian ito ng puno ng palma na nakaukit sa mga pader. May walong baitang paitaas sa daanang ito. 
 
 
 
@@ -941,7 +941,7 @@ Ang balkonahe ng daanan <i class="trans-change">sa bandang timog_ ay nakaharap s
 
 
 
-Pagkatapos, <i class="trans-change">muli_ akong dinala ng tao sa bakuran sa loob. Sa gawing silangan kami dumaan. Sinukat niya ang daanan at katulad din ito ng iba. 
+Pagkatapos, muli_ akong dinala ng tao sa bakuran sa loob. Sa gawing silangan kami dumaan. Sinukat niya ang daanan at katulad din ito ng iba. 
 
 
 

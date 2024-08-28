@@ -304,7 +304,7 @@ Kaya buong lakas na nilusob ni Samson ang mga Filisteo at marami ang napatay niy
 
 
 
-Nagkampo ang mga Filisteo sa Juda, at nilusob nila ang <i class="trans-change">bayan ng_ Lehi. 
+Nagkampo ang mga Filisteo sa Juda, at nilusob nila ang bayan ng_ Lehi. 
 
 
 
@@ -601,7 +601,7 @@ Pagkatapos niyang magsalita, itinapon niya ang panga ng asno. Ang lugar na iyon 
 
 
 
-Labis ang pagkauhaw ni Samson. Kaya tumawag siya sa Panginoon. Sinabi niya, "Pinagtagumpay nʼyo po ako, pero ngayon parang mamamatay na ako sa uhaw at mabibihag ng mga <i class="trans-change">Filisteo na_ hindi nakakakilala sa inyo." 
+Labis ang pagkauhaw ni Samson. Kaya tumawag siya sa Panginoon. Sinabi niya, "Pinagtagumpay nʼyo po ako, pero ngayon parang mamamatay na ako sa uhaw at mabibihag ng mga Filisteo na_ hindi nakakakilala sa inyo." 
 
 
 
@@ -667,4 +667,4 @@ Kaya pinalabas ng Dios ang tubig sa may butas ng lupa sa Lehi. Uminom si Samson 
 
 
 
-Pinamunuan ni Samson ang mga Israelita sa loob ng 20 taon. Nang panahong iyon, sakop pa rin ng mga Filisteo <i class="trans-change">ang kanilang lupain_.
+Pinamunuan ni Samson ang mga Israelita sa loob ng 20 taon. Nang panahong iyon, sakop pa rin ng mga Filisteo ang kanilang lupain_.

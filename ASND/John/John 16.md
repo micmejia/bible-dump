@@ -40,7 +40,7 @@ next: ['John 17']
 
 
 
-"Sinasabi ko na sa inyo ang mga bagay na ito para hindi manghina ang inyong pananampalataya <i class="trans-change">pagdating ng pag-uusig_. 
+"Sinasabi ko na sa inyo ang mga bagay na ito para hindi manghina ang inyong pananampalataya pagdating ng pag-uusig_. 
 
 
 
@@ -73,7 +73,7 @@ next: ['John 17']
 
 
 
-Hindi na kayo tatanggapin <i class="trans-change">ng mga kapwa nʼyo Judio_ sa mga sambahan nila. Sa katunayan, darating ang panahon na ang sinumang papatay sa inyo ay mag-aakalang naglilingkod siya sa Dios. 
+Hindi na kayo tatanggapin ng mga kapwa nʼyo Judio_ sa mga sambahan nila. Sa katunayan, darating ang panahon na ang sinumang papatay sa inyo ay mag-aakalang naglilingkod siya sa Dios. 
 
 
 
@@ -273,7 +273,7 @@ Pero ang totoo, para sa ikabubuti nʼyo ang pag-alis ko, dahil hindi paparito sa
 
 
 
-Pagdating niya, ipapakita niya sa <i class="trans-change">mga taong_ makamundo na makasalanan sila at ako namaʼy matuwid. At ipapakita rin niya na hahatulan sila ng Dios. 
+Pagdating niya, ipapakita niya sa mga taong_ makamundo na makasalanan sila at ako namaʼy matuwid. At ipapakita rin niya na hahatulan sila ng Dios. 
 
 
 
@@ -372,7 +372,7 @@ Ipapakita niya na ako ay matuwid dahil pupunta ako sa Ama at hindi nʼyo na maki
 
 
 
-Ipapakita rin niya sa kanila na hahatulan sila ng Dios dahil hinatulan na <i class="trans-change">si Satanas na_ siyang naghahari sa <i class="trans-change">mga taong_ makamundo. 
+Ipapakita rin niya sa kanila na hahatulan sila ng Dios dahil hinatulan na si Satanas na_ siyang naghahari sa mga taong_ makamundo. 
 
 
 
@@ -438,7 +438,7 @@ Ipapakita rin niya sa kanila na hahatulan sila ng Dios dahil hinatulan na <i cla
 
 
 
-Pero pagdating ng <i class="trans-change">Banal na_ Espiritu <i class="trans-change">na siyang tagapagturo_ ng katotohanan, tutulungan niya kayo para maintindihan nʼyo ang lahat ng katotohanan. Ang ituturo niya ay hindi galing sa kanya; sasabihin niya kung ano lang ang narinig niya at ipapahayag din niya sa inyo ang tungkol sa mga bagay na darating. 
+Pero pagdating ng Banal na_ Espiritu na siyang tagapagturo_ ng katotohanan, tutulungan niya kayo para maintindihan nʼyo ang lahat ng katotohanan. Ang ituturo niya ay hindi galing sa kanya; sasabihin niya kung ano lang ang narinig niya at ipapahayag din niya sa inyo ang tungkol sa mga bagay na darating. 
 
 
 
@@ -572,7 +572,7 @@ Ang lahat ng nasa Ama ay nasa akin, kaya sinabi kong sa akin manggagaling ang la
 
 
 
-Nagtanungan ang ilan sa mga tagasunod niya, "Ano kaya ang ibig niyang sabihin? Bakit niya sinabing sandaling panahon na lang at hindi na natin siya makikita, at pagkatapos ng kaunti pang panahon ay makikita natin siyang muli? Sinabi pa niya na <i class="trans-change">ang dahilan kung bakit hindi na natin siya makikita ay_ dahil babalik na siya sa kanyang Ama. 
+Nagtanungan ang ilan sa mga tagasunod niya, "Ano kaya ang ibig niyang sabihin? Bakit niya sinabing sandaling panahon na lang at hindi na natin siya makikita, at pagkatapos ng kaunti pang panahon ay makikita natin siyang muli? Sinabi pa niya na ang dahilan kung bakit hindi na natin siya makikita ay_ dahil babalik na siya sa kanyang Ama. 
 
 
 
@@ -671,7 +671,7 @@ Alam ni Jesus na gusto sana nilang magtanong, kaya sinabi niya sa kanila, "Nagta
 
 
 
-Sinasabi ko sa inyo ang totoo, iiyak kayoʼt magdadalamhati <i class="trans-change">sa mangyayari sa akin_, pero sasaya ang <i class="trans-change">mga taong_ makamundo. Malulungkot kayo, pero ang kalungkutan ninyo ay mapapalitan ng kagalakan. 
+Sinasabi ko sa inyo ang totoo, iiyak kayoʼt magdadalamhati sa mangyayari sa akin_, pero sasaya ang mga taong_ makamundo. Malulungkot kayo, pero ang kalungkutan ninyo ay mapapalitan ng kagalakan. 
 
 
 
@@ -871,7 +871,7 @@ Hanggang ngayon ay wala pa kayong hinihingi sa kanya sa aking pangalan. Humingi 
 
 
 
-Sa araw ding iyon, kayo na mismo ang hihingi sa Ama sa <i class="trans-change">pamamagitan ng_ aking pangalan. Hindi na kailangang ako pa ang humingi sa Ama para sa inyo. 
+Sa araw ding iyon, kayo na mismo ang hihingi sa Ama sa pamamagitan ng_ aking pangalan. Hindi na kailangang ako pa ang humingi sa Ama para sa inyo. 
 
 
 
@@ -1036,7 +1036,7 @@ Ngayon alam na namin na alam nʼyo ang lahat ng bagay, dahil kahit hindi namin k
 
 
 
-Sumagot si Jesus sa kanila, "Kung ganoon, sumasampalataya na ba kayo ngayon <i class="trans-change">sa akin_? 
+Sumagot si Jesus sa kanila, "Kung ganoon, sumasampalataya na ba kayo ngayon sa akin_? 
 
 
 

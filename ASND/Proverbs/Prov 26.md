@@ -172,7 +172,7 @@ Huwag mong sagutin ang hangal kung nakikipag-usap siya sa iyo ng kahangalan, at 
 
 
 
-Ngunit <i class="trans-change">kung minsan, kailangang_ sagutin din siya, para malaman niya na hindi siya marunong tulad ng kanyang inaakala. 
+Ngunit kung minsan, kailangang_ sagutin din siya, para malaman niya na hindi siya marunong tulad ng kanyang inaakala. 
 
 
 
@@ -238,7 +238,7 @@ Kapag nagpadala ka ng mensahe sa pamamagitan ng isang mangmang, para mo na ring 
 
 
 
-Ang pilay na paa ay <i class="trans-change">walang kabuluhan,_ katulad ng kawikaan sa bibig ng hangal. 
+Ang pilay na paa ay walang kabuluhan,_ katulad ng kawikaan sa bibig ng hangal. 
 
 
 
@@ -304,7 +304,7 @@ Ang isang papuri na sa hangal iniuukol ay parang batong nakatali sa tirador.
 
 
 
-Ang kasabihang sinasabi ng hangal ay <i class="trans-change">makapipinsala_ tulad ng matinik na kahoy na hawak ng lasing. 
+Ang kasabihang sinasabi ng hangal ay makapipinsala_ tulad ng matinik na kahoy na hawak ng lasing. 
 
 
 
@@ -568,7 +568,7 @@ Ang akala ng batugan mas marunong pa siya kaysa sa pitong tao na tamang mangatuw
 
 
 
-Mapanganib ang nanghihimasok sa gulo ng may gulo, ito ay tulad ng pagdakma sa tainga ng aso. <sup class="versenum">18-19</sup>Ang taong nandaraya sa kanyang kapwa, at saka sasabihing nagbibiro lang siya ay tulad ng isang baliw na pumapana sa mga tao sa pamamagitan ng nakamamatay na palaso. 
+Mapanganib ang nanghihimasok sa gulo ng may gulo, ito ay tulad ng pagdakma sa tainga ng aso. 18-19Ang taong nandaraya sa kanyang kapwa, at saka sasabihing nagbibiro lang siya ay tulad ng isang baliw na pumapana sa mga tao sa pamamagitan ng nakamamatay na palaso. 
 
 
 
@@ -832,7 +832,7 @@ Maaaring ang galit ay kanyang maitago, ngunit malalantad din sa karamihan ang ma
 
 
 
-Ang humuhukay ng patibong <i class="trans-change">para mahulog ang iba_ ay siya rin ang mahuhulog doon. Ang nagpapagulong ng malaking bato <i class="trans-change">para magulungan ang iba_ ay siya rin ang magugulungan nito. 
+Ang humuhukay ng patibong para mahulog ang iba_ ay siya rin ang mahuhulog doon. Ang nagpapagulong ng malaking bato para magulungan ang iba_ ay siya rin ang magugulungan nito. 
 
 
 

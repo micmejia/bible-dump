@@ -39,7 +39,7 @@ next: ['1 John 2']
 
 
 
-Ipinapahayag namin sa inyo ang tungkol sa kanya na mula pa sa simula ay nariyan na. Narinig namin siya, nakitaʼt napagmasdan ng sarili naming mga mata, at nahawakan pa namin siya. Siya ang Salita ng Dios na nagbibigay ng buhay <i class="trans-change">na walang hanggan_. 
+Ipinapahayag namin sa inyo ang tungkol sa kanya na mula pa sa simula ay nariyan na. Narinig namin siya, nakitaʼt napagmasdan ng sarili naming mga mata, at nahawakan pa namin siya. Siya ang Salita ng Dios na nagbibigay ng buhay na walang hanggan_. 
 
 
 

@@ -271,7 +271,7 @@ Nang marinig ito ni Jotam, umakyat siya sa ibabaw ng Bundok ng Gerizim at sumiga
 
 
 
-<i class="trans-change">Isasalaysay ko sa inyo ang isang kwento tungkol_ sa mga kahoy na naghahanap ng maghahari sa kanila. Sinabi nila sa kahoy na olibo, 'Ikaw ang maghari sa amin.' 
+Isasalaysay ko sa inyo ang isang kwento tungkol_ sa mga kahoy na naghahanap ng maghahari sa kanila. Sinabi nila sa kahoy na olibo, 'Ikaw ang maghari sa amin.' 
 
 
 
@@ -304,7 +304,7 @@ Nang marinig ito ni Jotam, umakyat siya sa ibabaw ng Bundok ng Gerizim at sumiga
 
 
 
-Sumagot ang olibo, 'Mas pipiliin ko ba ang maghari sa inyo kaysa sa magbigay ng langis na ginagamit sa pagpaparangal sa mga dios at sa mga tao? <i class="trans-change">Hindi!_' 
+Sumagot ang olibo, 'Mas pipiliin ko ba ang maghari sa inyo kaysa sa magbigay ng langis na ginagamit sa pagpaparangal sa mga dios at sa mga tao? Hindi!_' 
 
 
 
@@ -370,7 +370,7 @@ Sumagot ang olibo, 'Mas pipiliin ko ba ang maghari sa inyo kaysa sa magbigay ng 
 
 
 
-Sumagot ang igos, 'Mas pipiliin ko pa ba ang maghari sa inyo kaysa sa magbigay ng masarap na bunga? <i class="trans-change">Hindi!_' 
+Sumagot ang igos, 'Mas pipiliin ko pa ba ang maghari sa inyo kaysa sa magbigay ng masarap na bunga? Hindi!_' 
 
 
 
@@ -436,7 +436,7 @@ Sumagot ang igos, 'Mas pipiliin ko pa ba ang maghari sa inyo kaysa sa magbigay n
 
 
 
-Sumagot ang ubas, 'Mas pipiliin ko pa ba ang maghari sa inyo kaysa sa magbigay ng alak na makapagpapasaya sa mga dios at sa mga tao? <i class="trans-change">Hindi!_' 
+Sumagot ang ubas, 'Mas pipiliin ko pa ba ang maghari sa inyo kaysa sa magbigay ng alak na makapagpapasaya sa mga dios at sa mga tao? Hindi!_' 
 
 
 
@@ -535,7 +535,7 @@ Sumagot ang halamang may tinik, 'Kung gusto nʼyong ako ang maghari sa inyo, lum
 
 
 
-<i class="trans-change">At sinabi ni Jotam,_ "Tunay at tapat ba ang paghirang ninyo kay Abimelec na hari? Matuwid ba ang ginawa ninyo sa aking amang si Gideon at sa kanyang pamilya? At nababagay ba ito sa ginawa niya? 
+At sinabi ni Jotam,_ "Tunay at tapat ba ang paghirang ninyo kay Abimelec na hari? Matuwid ba ang ginawa ninyo sa aking amang si Gideon at sa kanyang pamilya? At nababagay ba ito sa ginawa niya? 
 
 
 
@@ -700,7 +700,7 @@ Pero kung hindi, matupok sana kayo ni Abimelec na parang lalamunin kayo ng apoy.
 
 
 
-<i class="trans-change">At pagkatapos ay_ tumakas si Jotam papunta sa Beer at doon tumira dahil natakot siya sa kapatid niyang si Abimelec. 
+At pagkatapos ay_ tumakas si Jotam papunta sa Beer at doon tumira dahil natakot siya sa kapatid niyang si Abimelec. 
 
 
 
@@ -733,7 +733,7 @@ Pero kung hindi, matupok sana kayo ni Abimelec na parang lalamunin kayo ng apoy.
 
 
 
-Pagkatapos ng tatlong taon na pamamahala ni Abimelec <i class="trans-change">sa mga Israelita_, 
+Pagkatapos ng tatlong taon na pamamahala ni Abimelec sa mga Israelita_, 
 
 
 
@@ -964,7 +964,7 @@ Sinabi ni Gaal, "Anong klase tayong mga tao sa Shekem. Bakit nagpapasakop tayo k
 
 
 
-Kung pinamumunuan ko lang kayo, tiyak na mapapaalis ko si Abimelec. Sasabihin ko sa kanya na ihanda niya ang mga sundalo niya at makipaglaban <i class="trans-change">sa atin_." 
+Kung pinamumunuan ko lang kayo, tiyak na mapapaalis ko si Abimelec. Sasabihin ko sa kanya na ihanda niya ang mga sundalo niya at makipaglaban sa atin_." 
 
 
 
@@ -1063,7 +1063,7 @@ Kaya palihim siyang nag-utos sa mga mensahero na pumunta kay Abimelec. Ito ang i
 
 
 
-Kaya ngayong gabi, isama mo ang mga tauhan mo at magtago muna kayo sa parang, <i class="trans-change">sa labas ng lungsod_. 
+Kaya ngayong gabi, isama mo ang mga tauhan mo at magtago muna kayo sa parang, sa labas ng lungsod_. 
 
 
 
@@ -1129,7 +1129,7 @@ Bukas, pagsikat ng araw, bigla kayong lumusob sa lungsod. Kung makikipaglaban si
 
 
 
-Kinagabihan, umalis si Abimelec at ang mga tauhan niya. Naghati sila sa apat na grupo at nagtago sa <i class="trans-change">labas lang ng_ Shekem. 
+Kinagabihan, umalis si Abimelec at ang mga tauhan niya. Naghati sila sa apat na grupo at nagtago sa labas lang ng_ Shekem. 
 
 
 
@@ -1624,7 +1624,7 @@ dinala niya ang mga tauhan niya sa Bundok ng Zalmon. Pagdating nila roon, kumuha
 
 
 
-Bawat isa sa kanila ay pumasan ng kahoy at iniligay sa paligid ng pader <i class="trans-change">ng templo ng El Berit_ at sinindihan ito. Kaya namatay ang lahat ng tao na nakatira roon sa Tore ng Shekem. Mga 1,000 silang lahat pati mga babae. 
+Bawat isa sa kanila ay pumasan ng kahoy at iniligay sa paligid ng pader ng templo ng El Berit_ at sinindihan ito. Kaya namatay ang lahat ng tao na nakatira roon sa Tore ng Shekem. Mga 1,000 silang lahat pati mga babae. 
 
 
 

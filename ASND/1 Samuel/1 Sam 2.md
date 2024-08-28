@@ -73,7 +73,7 @@ At nanalangin si Hanna, "Nagagalak ako sa Panginoon! Dahil sa kanyang ginawa, hi
 
 
 
-Walang ibang banal maliban sa Panginoon. Wala siyang katulad. Walang Bato <i class="trans-change">na kanlungan_ tulad ng ating Dios. 
+Walang ibang banal maliban sa Panginoon. Wala siyang katulad. Walang Bato na kanlungan_ tulad ng ating Dios. 
 
 
 
@@ -370,7 +370,7 @@ Dudurugin niya ang kanyang mga kaaway. Padadagundungin niya ang langit laban sa 
 
 
 
-Pagkatapos, umuwi si Elkana <i class="trans-change">at ang sambahayan niya_ sa Rama. Pero iniwan nila si Samuel para maglingkod sa Panginoon sa ilalim ng pangangalaga ni Eli na pari.
+Pagkatapos, umuwi si Elkana at ang sambahayan niya_ sa Rama. Pero iniwan nila si Samuel para maglingkod sa Panginoon sa ilalim ng pangangalaga ni Eli na pari.
 
 ## Ang Kasalanan ng Dalawang anak ni Eli 
 
@@ -603,7 +603,7 @@ Malaking kasalanan sa paningin ng Panginoon ang ginagawa ng mga anak ni Eli dahi
 
 
 
-Samantala, patuloy na naglilingkod sa Panginoon ang batang si Samuel. Suot-suot niya ang espesyal na damit na gawa sa <i class="trans-change">telang_ linen. 
+Samantala, patuloy na naglilingkod sa Panginoon ang batang si Samuel. Suot-suot niya ang espesyal na damit na gawa sa telang_ linen. 
 
 
 
@@ -937,7 +937,7 @@ Lumapit ang isang lingkod ng Dios kay Eli at sinabi sa kanya, "Ito ang sinasabi 
 
 
 
-Sa lahat ng lahi ng Israel, ang pamilya niya ang pinili ko na maging aking pari na maglilingkod sa aking altar, sa pagsusunog ng insenso, sa pagsusuot ng espesyal na damit <i class="trans-change">ng pari_ sa aking presensya. Binigyan ko rin sila ng bahagi sa mga handog sa pamamagitan ng apoy na iniaalay ng mga Israelita. 
+Sa lahat ng lahi ng Israel, ang pamilya niya ang pinili ko na maging aking pari na maglilingkod sa aking altar, sa pagsusunog ng insenso, sa pagsusuot ng espesyal na damit ng pari_ sa aking presensya. Binigyan ko rin sila ng bahagi sa mga handog sa pamamagitan ng apoy na iniaalay ng mga Israelita. 
 
 
 
@@ -970,7 +970,7 @@ Sa lahat ng lahi ng Israel, ang pamilya niya ang pinili ko na maging aking pari 
 
 
 
-Bakit pinag-iinteresan pa ninyo ang mga handog na para sa akin? Bakit mas iginagalang mo pa, <i class="trans-change">Eli,_ ang mga anak mo kaysa sa akin? Hinahayaan mong patabain nila ang kanilang mga sarili ng mga pinakamagandang bahagi ng handog ng mga mamamayan kong Israelita. 
+Bakit pinag-iinteresan pa ninyo ang mga handog na para sa akin? Bakit mas iginagalang mo pa, Eli,_ ang mga anak mo kaysa sa akin? Hinahayaan mong patabain nila ang kanilang mga sarili ng mga pinakamagandang bahagi ng handog ng mga mamamayan kong Israelita. 
 
 
 
@@ -1003,7 +1003,7 @@ Bakit pinag-iinteresan pa ninyo ang mga handog na para sa akin? Bakit mas iginag
 
 
 
-Ako na inyong Panginoon, ang Dios ng Israel ay nangako noon na kayo lang at ang lahi ng inyong mga ninuno ang makapaglilingkod sa akin magpakailanman bilang pari. Ngunit hindi na ngayon, dahil pararangalan ko ang nagpaparangal sa akin, ngunit hahamakin ko ang humahamak sa akin. <sup class="versenum">31-32</sup>Tandaan ninyo ito: Darating ang panahon na lilipulin ko ang lahat ng kabataan sa inyo at sa iba pang lahi ng inyong mga ninuno. Magdurusa kayo at hindi ninyo mararanasan ang kasaganaang ibibigay ko sa Israel. Magiging maikli ang inyong buhay. 
+Ako na inyong Panginoon, ang Dios ng Israel ay nangako noon na kayo lang at ang lahi ng inyong mga ninuno ang makapaglilingkod sa akin magpakailanman bilang pari. Ngunit hindi na ngayon, dahil pararangalan ko ang nagpaparangal sa akin, ngunit hahamakin ko ang humahamak sa akin. 31-32Tandaan ninyo ito: Darating ang panahon na lilipulin ko ang lahat ng kabataan sa inyo at sa iba pang lahi ng inyong mga ninuno. Magdurusa kayo at hindi ninyo mararanasan ang kasaganaang ibibigay ko sa Israel. Magiging maikli ang inyong buhay. 
 
 
 

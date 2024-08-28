@@ -1228,7 +1228,7 @@ Ibinukod niya ito kay Jacob sa layo na tatlong araw kung lalakarin. Ang naiwang 
 
 
 
-Kumuha si Jacob ng mga sanga ng almendro, abilyano, at kastanyo, at binalat-balatan niya ito. Pero hindi niya lubos na binalatan, kaya may batik-batik na puti kapag tiningnan ang mga sanga. <sup class="versenum">38-39</sup>Inilagay niya ang mga sangang iyon sa harapan ng painuman ng mga hayop para makita ng mga ito kapag iinom sila. Doon sa harapan ng mga sanga nagkakastahan ang mga kambing kapag umiinom sila. Batik-batik ang mga anak nila kapag nanganganak sila. 
+Kumuha si Jacob ng mga sanga ng almendro, abilyano, at kastanyo, at binalat-balatan niya ito. Pero hindi niya lubos na binalatan, kaya may batik-batik na puti kapag tiningnan ang mga sanga. 38-39Inilagay niya ang mga sangang iyon sa harapan ng painuman ng mga hayop para makita ng mga ito kapag iinom sila. Doon sa harapan ng mga sanga nagkakastahan ang mga kambing kapag umiinom sila. Batik-batik ang mga anak nila kapag nanganganak sila. 
 
 
 
@@ -1261,7 +1261,7 @@ Kumuha si Jacob ng mga sanga ng almendro, abilyano, at kastanyo, at binalat-bala
 
 
 
-Pero iba ang ginawa ni Jacob sa mga tupa: <i class="trans-change">Habang nagkakastahan ang mga hayop na ito,_ pinapaharap niya sila sa mga batik-batik na kambing niya at sa itim na mga kambing ni Laban. Kaya nakaipon din si Jacob ng sarili niyang mga hayop at hindi niya ito isinama sa mga hayop ni Laban. 
+Pero iba ang ginawa ni Jacob sa mga tupa: Habang nagkakastahan ang mga hayop na ito,_ pinapaharap niya sila sa mga batik-batik na kambing niya at sa itim na mga kambing ni Laban. Kaya nakaipon din si Jacob ng sarili niyang mga hayop at hindi niya ito isinama sa mga hayop ni Laban. 
 
 
 

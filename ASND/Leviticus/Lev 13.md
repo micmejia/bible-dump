@@ -370,7 +370,7 @@ Kung sa tingin ng pari ay namumuti ang namamagang balat o namumuti ang balahibo,
 
 
 
-itoʼy isang sakit na paulit-ulit at nakakahawa. Kaya ipapahayag ng pari na marumi siya. Hindi na kailangang ibukod pa siya <i class="trans-change">para suriin_ dahil tiyak nang marumi siya. 
+itoʼy isang sakit na paulit-ulit at nakakahawa. Kaya ipapahayag ng pari na marumi siya. Hindi na kailangang ibukod pa siya para suriin_ dahil tiyak nang marumi siya. 
 
 
 
@@ -436,7 +436,7 @@ Kung sa pagsusuri ng pari ay kumalat na ang sakit sa buong katawan ng tao,
 
 
 
-kailangan pa rin niya itong suriing mabuti. At kung talagang kumalat na nga sa buong katawan ang sakit, at namumuti na ang lahat ng kanyang balat, ipapahayag ng pari na siyaʼy malinis. <sup class="versenum">14-15</sup>Pero kung sa pagsusuri ng pari ay nagkakasugat na ang kanyang sakit sa balat, ipapahayag niya na ang taong itoʼy marumi at may sakit sa balat na nakakahawa. At ang lumalabas sa sugat ay ituturing na marumi. 
+kailangan pa rin niya itong suriing mabuti. At kung talagang kumalat na nga sa buong katawan ang sakit, at namumuti na ang lahat ng kanyang balat, ipapahayag ng pari na siyaʼy malinis. 14-15Pero kung sa pagsusuri ng pari ay nagkakasugat na ang kanyang sakit sa balat, ipapahayag niya na ang taong itoʼy marumi at may sakit sa balat na nakakahawa. At ang lumalabas sa sugat ay ituturing na marumi. 
 
 
 
@@ -667,7 +667,7 @@ Pero kung sa pagsusuri ng pari ay nakita niyang hindi naman nagkakasugat ang bal
 
 
 
-Ngunit kung itoʼy kumalat sa ibang bahagi ng balat, ipapahayag ng pari na siyaʼy marumi dahil iyon ay tanda <i class="trans-change">na may sakit siya sa balat na nakakahawa_. 
+Ngunit kung itoʼy kumalat sa ibang bahagi ng balat, ipapahayag ng pari na siyaʼy marumi dahil iyon ay tanda na may sakit siya sa balat na nakakahawa_. 
 
 
 
@@ -898,7 +898,7 @@ Pero kung hindi naman kumakalat at medyo gumagaling na, pamamaga lang iyon ng na
 
 
 
-Kung ang isang tao ay may tanda <i class="trans-change">ng nakakahawang sakit sa balat_ sa ulo o sa baba, 
+Kung ang isang tao ay may tanda ng nakakahawang sakit sa balat_ sa ulo o sa baba, 
 
 
 
@@ -1030,7 +1030,7 @@ At sa ikapitong araw, muling susuriin ng pari ang kanyang sakit sa balat. At kun
 
 
 
-dapat niyang kalbuhin ang kanyang buhok o ahitin ang kanyang balbas, maliban sa bahaging may sakit sa balat. At <i class="trans-change">muli_ siyang ibubukod ng pari ng pitong araw pa. 
+dapat niyang kalbuhin ang kanyang buhok o ahitin ang kanyang balbas, maliban sa bahaging may sakit sa balat. At muli_ siyang ibubukod ng pari ng pitong araw pa. 
 
 
 
@@ -1228,7 +1228,7 @@ Kung may namumuti sa balat ng isang tao,
 
 
 
-kinakailangang magpasuri siya sa pari. At kung ang mga namumuting balat ay maputla, iyon ay mga butlig lang na tumutubo sa balat. Kaya ang taong iyon ay ituturing na malinis. <sup class="versenum">40-41</sup>Kung ang isang tao ay nakakalbo sa bandang noo o sa gitna ng ulo, malinis siya. <sup class="versenum">42-44</sup>Pero kung may namumula at namamaga sa nakakalbong bahagi ng kanyang ulo, dapat siyang magpatingin sa pari. At kung ang namumula at namamaga ay katulad sa nakakahawang sakit sa balat na tumutubo sa ibang bahagi ng katawan, ipapahayag ng pari na marumi siya. 
+kinakailangang magpasuri siya sa pari. At kung ang mga namumuting balat ay maputla, iyon ay mga butlig lang na tumutubo sa balat. Kaya ang taong iyon ay ituturing na malinis. 40-41Kung ang isang tao ay nakakalbo sa bandang noo o sa gitna ng ulo, malinis siya. 42-44Pero kung may namumula at namamaga sa nakakalbong bahagi ng kanyang ulo, dapat siyang magpatingin sa pari. At kung ang namumula at namamaga ay katulad sa nakakahawang sakit sa balat na tumutubo sa ibang bahagi ng katawan, ipapahayag ng pari na marumi siya. 
 
 
 
@@ -1296,7 +1296,7 @@ Ang taong may sakit sa balat na nakakahawa ay dapat magsuot ng punit na damit, g
 
 Siyaʼy ituturing na marumi habang siyaʼy hindi gumagaling sa sakit niyang iyon. At dapat siyang tumirang nag-iisa sa labas ng kampo.
 
-## Mga Tuntunin Tungkol sa Amag sa Damit <sup class="versenum">47-50</sup>Kung ang may sakit sa balat na nakakahawa ay magkakaroon ng amag sa damit na lana o linen o anumang gamit na yari sa balat, itoʼy dapat ipasuri sa pari. Pagkatapos suriin ng pari ang damit o balat, ibubukod niya iyon sa loob ng pitong araw. <sup class="versenum">51-52</sup>Sa ikapitong araw, muli itong titingnan ng pari. At kung kumalat pa ang amag, ituturing na marumi ang damit o balat na iyon, at dapat sunugin dahil ang amag na ito ay kumakalat 
+## Mga Tuntunin Tungkol sa Amag sa Damit 47-50Kung ang may sakit sa balat na nakakahawa ay magkakaroon ng amag sa damit na lana o linen o anumang gamit na yari sa balat, itoʼy dapat ipasuri sa pari. Pagkatapos suriin ng pari ang damit o balat, ibubukod niya iyon sa loob ng pitong araw. 51-52Sa ikapitong araw, muli itong titingnan ng pari. At kung kumalat pa ang amag, ituturing na marumi ang damit o balat na iyon, at dapat sunugin dahil ang amag na ito ay kumakalat 
 
 
 

@@ -73,7 +73,7 @@ Nalalapit na noon ang Pista ng Tinapay na Walang Pampaalsa na tinatawag ding Pis
 
 
 
-Ang mga namamahalang pari at ang mga tagapagturo ng Kautusan ay naghahanap ng paraan upang maipapatay si Jesus <i class="trans-change">ng hindi magkakagulo_, dahil natatakot sila sa mga tao.
+Ang mga namamahalang pari at ang mga tagapagturo ng Kautusan ay naghahanap ng paraan upang maipapatay si Jesus ng hindi magkakagulo_, dahil natatakot sila sa mga tao.
 
 ## Nakipagkasundo si Judas sa mga Kaaway ni Jesus 
 
@@ -108,7 +108,7 @@ Ang mga namamahalang pari at ang mga tagapagturo ng Kautusan ay naghahanap ng pa
 
 
 
-Pumasok si Satanas kay Judas na tinatawag na Iscariote. Isa siya sa 12 <i class="trans-change">tagasunod ni Jesus_. 
+Pumasok si Satanas kay Judas na tinatawag na Iscariote. Isa siya sa 12 tagasunod ni Jesus_. 
 
 
 
@@ -242,7 +242,7 @@ Pumayag naman si Judas sa kasunduan, at mula noon, humanap siya ng pagkakataon u
 
 
 
-Dumating ang Pista ng Tinapay na Walang Pampaalsa. At sa araw na ito, kailangang maghandog <i class="trans-change">ang mga Judio_ ng tupa <i class="trans-change">na kakainin nila_ sa Pista ng Paglampas ng Anghel. 
+Dumating ang Pista ng Tinapay na Walang Pampaalsa. At sa araw na ito, kailangang maghandog ang mga Judio_ ng tupa na kakainin nila_ sa Pista ng Paglampas ng Anghel. 
 
 
 
@@ -341,7 +341,7 @@ Nagtanong sila, "Saan nʼyo po kami gustong maghanda?"
 
 
 
-Sumagot si Jesus, "Pagpasok ninyo sa lungsod <i class="trans-change">ng Jerusalem_, sasalubungin kayo ng isang lalaking may pasan na banga ng tubig. Sundan ninyo siya sa bahay na papasukan niya, 
+Sumagot si Jesus, "Pagpasok ninyo sa lungsod ng Jerusalem_, sasalubungin kayo ng isang lalaking may pasan na banga ng tubig. Sundan ninyo siya sa bahay na papasukan niya, 
 
 
 
@@ -673,7 +673,7 @@ Pagkatapos, kumuha siya ng tinapay, at matapos magpasalamat sa Dios ay hinati-ha
 
 
 
-Pagkatapos nilang kumain, ganoon din ang ginawa niya sa inumin: kinuha niya ito <i class="trans-change">at nagpasalamat sa Dios,_ at sinabi, "Ang inuming ito ang bagong kasunduan na pinagtibay ng dugo kong mabubuhos ng dahil sa inyo. 
+Pagkatapos nilang kumain, ganoon din ang ginawa niya sa inumin: kinuha niya ito at nagpasalamat sa Dios,_ at sinabi, "Ang inuming ito ang bagong kasunduan na pinagtibay ng dugo kong mabubuhos ng dahil sa inyo. 
 
 
 
@@ -739,7 +739,7 @@ Pagkatapos nilang kumain, ganoon din ang ginawa niya sa inumin: kinuha niya ito 
 
 
 
-Sapagkat ayon sa itinalaga ng Dios, <i class="trans-change">Ako na_ Anak ng Tao ay papatayin, ngunit nakakaawa ang taong magtatraydor sa akin." 
+Sapagkat ayon sa itinalaga ng Dios, Ako na_ Anak ng Tao ay papatayin, ngunit nakakaawa ang taong magtatraydor sa akin." 
 
 
 
@@ -906,7 +906,7 @@ Ngunit hindi kayo dapat maging ganoon. Ang mas mataas ay dapat magpakababa, at a
 
 
 
-Sapagkat sino ba ang mas mataas, ang pinaglilingkuran o ang naglilingkod? Siyempre, ang pinaglilingkuran. Ngunit naglilingkod ako sa inyo <i class="trans-change">kahit na ako ang Panginoon ninyo_." 
+Sapagkat sino ba ang mas mataas, ang pinaglilingkuran o ang naglilingkod? Siyempre, ang pinaglilingkuran. Ngunit naglilingkod ako sa inyo kahit na ako ang Panginoon ninyo_." 
 
 
 
@@ -1038,7 +1038,7 @@ Makakasalo ko kayo sa aking mesa sa aking kaharian, at uupo kayo sa mga trono up
 
 
 
-<i class="trans-change">Sinabi ni Jesus kay Pedro._ "Simon, makinig kang mabuti! Humingi ng pahintulot si Satanas sa Dios na subukin niya kayong lahat tulad ng pag-aalis ng ipa sa mga trigo. 
+Sinabi ni Jesus kay Pedro._ "Simon, makinig kang mabuti! Humingi ng pahintulot si Satanas sa Dios na subukin niya kayong lahat tulad ng pag-aalis ng ipa sa mga trigo. 
 
 
 
@@ -1568,7 +1568,7 @@ Kaya sinabi niya sa kanila, "Bakit kayo natutulog? Bumangon kayo at manalangin, 
 
 
 
-Nagsasalita pa si Jesus nang dumating ang maraming tao. Si Judas na isa sa 12 <i class="trans-change">tagasunod_ ang nangunguna sa kanila. Nilapitan niya si Jesus at hinalikan. 
+Nagsasalita pa si Jesus nang dumating ang maraming tao. Si Judas na isa sa 12 tagasunod_ ang nangunguna sa kanila. Nilapitan niya si Jesus at hinalikan. 
 
 
 
@@ -1601,7 +1601,7 @@ Nagsasalita pa si Jesus nang dumating ang maraming tao. Si Judas na isa sa 12 <i
 
 
 
-Sinabi ni Jesus sa kanya, "Judas, tinatraydor mo ba <i class="trans-change">ako, na_ Anak ng Tao, sa pamamagitan ng isang halik?" 
+Sinabi ni Jesus sa kanya, "Judas, tinatraydor mo ba ako, na_ Anak ng Tao, sa pamamagitan ng isang halik?" 
 
 
 
@@ -1634,7 +1634,7 @@ Sinabi ni Jesus sa kanya, "Judas, tinatraydor mo ba <i class="trans-change">ako,
 
 
 
-Nang makita ng mga kasamahan ni Jesus ang mga nangyayari, sinabi nila, "Panginoon, tatagain na ba namin <i class="trans-change">sila_?" 
+Nang makita ng mga kasamahan ni Jesus ang mga nangyayari, sinabi nila, "Panginoon, tatagain na ba namin sila_?" 
 
 
 
@@ -1766,7 +1766,7 @@ Pagkatapos, kinausap ni Jesus ang mga namamahalang pari, mga opisyal ng mga guwa
 
 
 
-Araw-araw akong nasa templo, at naroon din kayo. Bakit hindi nʼyo ako dinakip? Ngunit ito na ang pagkakataong ibinigay sa inyo <i class="trans-change">upang dakpin ako_. At sa sandaling ito ay naghahari ang kadiliman." ## Ipinagkaila ni Pedro na Kilala Niya si Jesus 
+Araw-araw akong nasa templo, at naroon din kayo. Bakit hindi nʼyo ako dinakip? Ngunit ito na ang pagkakataong ibinigay sa inyo upang dakpin ako_. At sa sandaling ito ay naghahari ang kadiliman." ## Ipinagkaila ni Pedro na Kilala Niya si Jesus 
 
 
 
@@ -2131,7 +2131,7 @@ Samantala, kinutya at binugbog si Jesus ng mga nagbabantay sa kanya.
 
 
 
-Piniringan nila siya <i class="trans-change">at sinuntok_, at tinanong, "Hulaan mo, sino ang sumuntok sa iyo?" 
+Piniringan nila siya at sinuntok_, at tinanong, "Hulaan mo, sino ang sumuntok sa iyo?" 
 
 
 
@@ -2298,7 +2298,7 @@ At kung tatanungin ko kayo, hindi naman kayo sasagot.
 
 
 
-Ngunit mula ngayon, <i class="trans-change">ako na_ Anak ng Tao ay uupo na sa kanan ng makapangyarihang Dios." 
+Ngunit mula ngayon, ako na_ Anak ng Tao ay uupo na sa kanan ng makapangyarihang Dios." 
 
 
 

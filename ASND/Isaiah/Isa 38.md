@@ -700,7 +700,7 @@ Panginoon, iniligtas nʼyo po ako, kaya sa saliw ng tugtog, aawit kami sa inyong
 
 
 
-<i class="trans-change">Noong hindi pa gumagaling si Hezekia,_ sinabi sa kanya ni Isaias na patapalan niya sa kanyang mga katulong ng dinikdik na bunga ng igos ang bukol niya para gumaling. 
+Noong hindi pa gumagaling si Hezekia,_ sinabi sa kanya ni Isaias na patapalan niya sa kanyang mga katulong ng dinikdik na bunga ng igos ang bukol niya para gumaling. 
 
 
 
@@ -733,4 +733,4 @@ Panginoon, iniligtas nʼyo po ako, kaya sa saliw ng tugtog, aawit kami sa inyong
 
 
 
-Nagtanong si Hezekia, "Ano ang palatandaan na magpapatunay na ako ngaʼy <i class="trans-change">gagaling at_ makakapunta sa templo ng Panginoon?"
+Nagtanong si Hezekia, "Ano ang palatandaan na magpapatunay na ako ngaʼy gagaling at_ makakapunta sa templo ng Panginoon?"

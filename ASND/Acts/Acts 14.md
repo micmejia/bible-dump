@@ -40,7 +40,7 @@ next: ['Acts 15']
 
 
 
-Ang nangyari sa Iconium ay katulad din <i class="trans-change">ng nangyari sa Antioc_. Pumunta sina Pablo at Bernabe sa sambahan ng mga Judio. At dahil sa kanilang pangangaral, maraming Judio at hindi Judio ang sumampalataya kay Jesus. 
+Ang nangyari sa Iconium ay katulad din ng nangyari sa Antioc_. Pumunta sina Pablo at Bernabe sa sambahan ng mga Judio. At dahil sa kanilang pangangaral, maraming Judio at hindi Judio ang sumampalataya kay Jesus. 
 
 
 
@@ -636,7 +636,7 @@ Pero kahit ganito ang sinasabi ng mga apostol, nahirapan pa rin silang pigilan a
 
 
 
-May mga Judiong dumating mula sa Antioc <i class="trans-change">na sakop ng Pisidia_ at sa Iconium. Kinumbinsi nila ang mga tao na kumampi sa kanila. Pagkatapos, pinagbabato nila si Pablo at kinaladkad palabas ng lungsod sa pag-aakalang siyaʼy patay na. 
+May mga Judiong dumating mula sa Antioc na sakop ng Pisidia_ at sa Iconium. Kinumbinsi nila ang mga tao na kumampi sa kanila. Pagkatapos, pinagbabato nila si Pablo at kinaladkad palabas ng lungsod sa pag-aakalang siyaʼy patay na. 
 
 
 
@@ -669,7 +669,7 @@ May mga Judiong dumating mula sa Antioc <i class="trans-change">na sakop ng Pisi
 
 
 
-Pero nang paligiran siya ng mga tagasunod <i class="trans-change">ni Jesus_, bumangon siya at bumalik sa lungsod. Kinabukasan, pumunta silang dalawa ni Bernabe sa Derbe.
+Pero nang paligiran siya ng mga tagasunod ni Jesus_, bumangon siya at bumalik sa lungsod. Kinabukasan, pumunta silang dalawa ni Bernabe sa Derbe.
 
 ## Bumalik sina Pablo at Bernabe sa Antioc na Sakop ng Syria 
 
@@ -704,7 +704,7 @@ Pero nang paligiran siya ng mga tagasunod <i class="trans-change">ni Jesus_, bum
 
 
 
-Ipinangaral nina Pablo at Bernabe ang Magandang Balita sa Derbe at marami silang nahikayat na sumunod kay Jesu-Cristo. Pagkatapos, bumalik na naman sila sa Lystra, Iconium, at sa Antioc <i class="trans-change">na sakop ng Pisidia_. 
+Ipinangaral nina Pablo at Bernabe ang Magandang Balita sa Derbe at marami silang nahikayat na sumunod kay Jesu-Cristo. Pagkatapos, bumalik na naman sila sa Lystra, Iconium, at sa Antioc na sakop ng Pisidia_. 
 
 
 
@@ -737,7 +737,7 @@ Ipinangaral nina Pablo at Bernabe ang Magandang Balita sa Derbe at marami silang
 
 
 
-Pinatatag nila ang mga tagasunod <i class="trans-change">ni Jesus_ at pinayuhang magpatuloy sa kanilang pananampalataya. Sinabi pa nila, "Maraming kahirapan ang dapat nating danasin para mapabilang sa paghahari ng Dios." 
+Pinatatag nila ang mga tagasunod ni Jesus_ at pinayuhang magpatuloy sa kanilang pananampalataya. Sinabi pa nila, "Maraming kahirapan ang dapat nating danasin para mapabilang sa paghahari ng Dios." 
 
 
 
@@ -869,7 +869,7 @@ Nangaral sila roon sa Perga at pagkatapos ay bumaba sila sa Atalia.
 
 
 
-Mula roon, bumiyahe sila pabalik sa Antioc <i class="trans-change">na sakop ng Syria_. Ito ang lugar na kanilang pinanggalingan, at dito rin sila ipinanalangin ng mga mananampalataya na pagpalain ng Dios ang kanilang gawain na ngayon ay natapos na nila. 
+Mula roon, bumiyahe sila pabalik sa Antioc na sakop ng Syria_. Ito ang lugar na kanilang pinanggalingan, at dito rin sila ipinanalangin ng mga mananampalataya na pagpalain ng Dios ang kanilang gawain na ngayon ay natapos na nila. 
 
 
 
@@ -935,4 +935,4 @@ Nang dumating sina Pablo at Bernabe sa Antioc, tinipon nila ang mga mananampalat
 
 
 
-At nanatili sila nang matagal sa Antioc kasama ang mga tagasunod <i class="trans-change">ni Jesus_ doon.
+At nanatili sila nang matagal sa Antioc kasama ang mga tagasunod ni Jesus_ doon.

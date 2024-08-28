@@ -39,7 +39,7 @@ next: ['2 Tim 2']
 
 
 
-<i class="trans-change">Mula kay_ Pablo na apostol ni Cristo Jesus ayon sa kalooban ng Dios. <i class="trans-change">Sinugo ako ng Dios_ para ipahayag ang tungkol sa buhay na ipinangako niyang makakamtan nating mga nakay Cristo Jesus. 
+Mula kay_ Pablo na apostol ni Cristo Jesus ayon sa kalooban ng Dios. Sinugo ako ng Dios_ para ipahayag ang tungkol sa buhay na ipinangako niyang makakamtan nating mga nakay Cristo Jesus. 
 
 
 
@@ -107,7 +107,7 @@ Timoteo, minamahal kong anak: Sumaiyo nawa ang biyaya, awa at kapayapaang galing
 
 
 
-Nagpapasalamat ako sa Dios na pinaglilingkuran ko nang may malinis na konsensya, tulad ng ginawa ng mga ninuno ko. <i class="trans-change">Nagpapasalamat ako sa kanya_ sa tuwing inaalala kita sa panalangin araw at gabi. 
+Nagpapasalamat ako sa Dios na pinaglilingkuran ko nang may malinis na konsensya, tulad ng ginawa ng mga ninuno ko. Nagpapasalamat ako sa kanya_ sa tuwing inaalala kita sa panalangin araw at gabi. 
 
 
 
@@ -140,7 +140,7 @@ Nagpapasalamat ako sa Dios na pinaglilingkuran ko nang may malinis na konsensya,
 
 
 
-Kapag naaalala ko ang pag-iyak mo <i class="trans-change">noong umalis ako_, kaya nasasabik akong makita ka para maging lubos ang kagalakan ko. 
+Kapag naaalala ko ang pag-iyak mo noong umalis ako_, kaya nasasabik akong makita ka para maging lubos ang kagalakan ko. 
 
 
 
@@ -371,7 +371,7 @@ Ngunit nahayag lang ito nang dumating si Cristo Jesus na ating Tagapagligtas. Ti
 
 
 
-Pinili ako <i class="trans-change">ng Dios_ na maging apostol at guro para ipahayag ang Magandang Balitang ito. 
+Pinili ako ng Dios_ na maging apostol at guro para ipahayag ang Magandang Balitang ito. 
 
 
 
@@ -437,7 +437,7 @@ Ito ang dahilan kaya ako dumaranas ng mga paghihirap. Ngunit hindi ko ito ikinak
 
 
 
-Ituro mo ang tamang aral na natutunan mo sa akin, nang may pananampalataya at pag-ibig dahil ito ang karapat-dapat gawin ng <i class="trans-change">mga_ nakay Cristo Jesus. 
+Ituro mo ang tamang aral na natutunan mo sa akin, nang may pananampalataya at pag-ibig dahil ito ang karapat-dapat gawin ng mga_ nakay Cristo Jesus. 
 
 
 
@@ -503,7 +503,7 @@ Sa tulong ng Banal na Espiritu na nasa atin, ingatan mo ang tamang aral na ipina
 
 
 
-Alam mong tinalikuran ako ng halos lahat <i class="trans-change">ng mga kapatid_ sa <i class="trans-change">probinsya ng_ Asia, pati na sina Figelus at Hermogenes. 
+Alam mong tinalikuran ako ng halos lahat ng mga kapatid_ sa probinsya ng_ Asia, pati na sina Figelus at Hermogenes. 
 
 
 

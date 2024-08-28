@@ -436,7 +436,7 @@ Nakatitiyak akong hindi maaaring gumawa ang Makapangyarihang Dios ng masama. Hin
 
 
 
-May nagtalaga ba sa kanya para pamunuan ang mundo? May nagbilin ba sa kanya ng mundo? <i class="trans-change">Wala!_ 
+May nagtalaga ba sa kanya para pamunuan ang mundo? May nagbilin ba sa kanya ng mundo? Wala!_ 
 
 
 
@@ -535,7 +535,7 @@ lahat ng taoʼy mamamatay at babalik sa lupa.
 
 
 
-"<i class="trans-change">Job,_ kung may pang-unawa ka, pakinggan mo ang sasabihin ko: 
+"Job,_ kung may pang-unawa ka, pakinggan mo ang sasabihin ko: 
 
 
 
@@ -997,7 +997,7 @@ Pero kahit na tumahimik ang Dios at magtago, walang sinuman ang makapagsasabing 
 
 
 
-para patigilin ang pamumuno ng mga hindi makadios, na siyang bitag <i class="trans-change">na pipinsala_ sa mga tao. 
+para patigilin ang pamumuno ng mga hindi makadios, na siyang bitag na pipinsala_ sa mga tao. 
 
 
 
@@ -1030,7 +1030,7 @@ para patigilin ang pamumuno ng mga hindi makadios, na siyang bitag <i class="tra
 
 
 
-"<i class="trans-change">Job,_ bakit ayaw mong lumapit sa Dios at sabihin sa kanya, 'Nagkasala po ako, pero hindi na ako magkakasala pa!' 
+"Job,_ bakit ayaw mong lumapit sa Dios at sabihin sa kanya, 'Nagkasala po ako, pero hindi na ako magkakasala pa!' 
 
 
 

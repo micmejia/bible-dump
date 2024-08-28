@@ -106,9 +106,9 @@ na sabihin ito kay Aaron at sa mga anak niyang lalaki: Huwag ninyong lapastangan
 
 
 
-Ang sinumang anak <i class="trans-change">ni Aaron_ ngayon at sa susunod pang mga henerasyon na hihipo ng handog para sa akin ngunit siyaʼy itinuturing na marumi, ay hindi na makapaglilingkod bilang pari. Ako ang Panginoon.
+Ang sinumang anak ni Aaron_ ngayon at sa susunod pang mga henerasyon na hihipo ng handog para sa akin ngunit siyaʼy itinuturing na marumi, ay hindi na makapaglilingkod bilang pari. Ako ang Panginoon.
 
-###### 4-7 Walang sinuman sa inyo ang maaaring kumain ng handog kung siyaʼy may malubhang sakit sa balat, o may sakit na tulo o nakahipo ng anumang bagay na marumi dahil nadikit ito sa patay, o nilabasan ng binhi, o nakahipo ng hayop o tao na itinuturing na marumi. Siyaʼy maaari lamang kumain ng mga handog kung siyaʼy nakapaligo na. Pero maghihintay siya hanggang sa paglubog ng araw at saka pa lang siya makakakain ng mga handog na pagkain niya <i class="trans-change">bilang pari_. 
+###### 4-7 Walang sinuman sa inyo ang maaaring kumain ng handog kung siyaʼy may malubhang sakit sa balat, o may sakit na tulo o nakahipo ng anumang bagay na marumi dahil nadikit ito sa patay, o nilabasan ng binhi, o nakahipo ng hayop o tao na itinuturing na marumi. Siyaʼy maaari lamang kumain ng mga handog kung siyaʼy nakapaligo na. Pero maghihintay siya hanggang sa paglubog ng araw at saka pa lang siya makakakain ng mga handog na pagkain niya bilang pari_. 
 
 
 
@@ -704,7 +704,7 @@ Huwag kayong maghahandog sa akin ng hayop na kinapon o may kapansanan ang itlog.
 
 
 
-Huwag din kayong bumili ng mga hayop na ganoong uri mula sa ibang lugar at ihandog sa akin, dahil hindi ko iyon tatanggapin. <sup class="versenum">26-27</sup>Ang bagong ipinanganak na baka, tupa, o kambing ay dapat manatili sa kanyang ina sa loob ng pitong araw. Pero mula sa ikawalong araw, maaari na itong ialay sa akin bilang handog sa pamamagitan ng apoy. 
+Huwag din kayong bumili ng mga hayop na ganoong uri mula sa ibang lugar at ihandog sa akin, dahil hindi ko iyon tatanggapin. 26-27Ang bagong ipinanganak na baka, tupa, o kambing ay dapat manatili sa kanyang ina sa loob ng pitong araw. Pero mula sa ikawalong araw, maaari na itong ialay sa akin bilang handog sa pamamagitan ng apoy. 
 
 
 

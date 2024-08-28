@@ -7,7 +7,7 @@ next: ['Ezr 8']
 # Ezra 7
 
 ***
-###### 1-6 Pagkalipas ng maraming taon, nang si Artaserses ang hari ng Persia, dumating si Ezra <i class="trans-change">sa Jerusalem_ galing sa Babilonia. Si Ezra ay anak ni Seraya. Si Seraya ay anak ni Azaria. Si Azaria ay anak ni Hilkia. Si Hilkia ay anak ni Shalum. Si Shalum ay anak ni Zadok. Si Zadok ay anak ni Ahitub. Si Ahitub ay anak ni Amaria. Si Amaria ay anak ni Azaria. Si Azaria ay anak ni Merayot. Si Merayot ay anak ni Zerahia. Si Zerahia ay anak ni Uzi. Si Uzi ay anak ni Buki. Si Buki ay anak ni Abishua. Si Abishua ay anak ni Finehas. Si Finehas ay anak ni Eleazar. Si Eleazar ay anak ni Aaron na punong pari. Si Ezra ay isang tagapagturo na lubos ang kaalaman sa Kasulatan na ibinigay kay Moises ng Panginoon, ang Dios ng Israel. Ibinigay ng hari ang lahat ng hiniling niya dahil tinutulungan siya ng Panginoon na kanyang Dios. 
+###### 1-6 Pagkalipas ng maraming taon, nang si Artaserses ang hari ng Persia, dumating si Ezra sa Jerusalem_ galing sa Babilonia. Si Ezra ay anak ni Seraya. Si Seraya ay anak ni Azaria. Si Azaria ay anak ni Hilkia. Si Hilkia ay anak ni Shalum. Si Shalum ay anak ni Zadok. Si Zadok ay anak ni Ahitub. Si Ahitub ay anak ni Amaria. Si Amaria ay anak ni Azaria. Si Azaria ay anak ni Merayot. Si Merayot ay anak ni Zerahia. Si Zerahia ay anak ni Uzi. Si Uzi ay anak ni Buki. Si Buki ay anak ni Abishua. Si Abishua ay anak ni Finehas. Si Finehas ay anak ni Eleazar. Si Eleazar ay anak ni Aaron na punong pari. Si Ezra ay isang tagapagturo na lubos ang kaalaman sa Kasulatan na ibinigay kay Moises ng Panginoon, ang Dios ng Israel. Ibinigay ng hari ang lahat ng hiniling niya dahil tinutulungan siya ng Panginoon na kanyang Dios. 
 
 
 
@@ -40,7 +40,7 @@ next: ['Ezr 8']
 
 
 
-May sumama ring mga Israelita sa kanya nang bumalik siya sa Jerusalem noong ikapitong taon ng paghahari ni Artaserses. Kabilang sa mga sumama ay ang mga pari, mga Levita, mga mang-aawit, mga guwardya ng mga pintuan <i class="trans-change">ng templo_, at mga utusan sa templo.
+May sumama ring mga Israelita sa kanya nang bumalik siya sa Jerusalem noong ikapitong taon ng paghahari ni Artaserses. Kabilang sa mga sumama ay ang mga pari, mga Levita, mga mang-aawit, mga guwardya ng mga pintuan ng templo_, at mga utusan sa templo.
 
 ###### 8-9 Umalis si Ezra sa Babilonia nang unang araw ng unang buwan. At sa tulong ng Dios, nakarating siya sa Jerusalem nang unang araw ng ikalimang buwan, nang ikapitong taon ng paghahari ni Artaserses. 
 
@@ -75,7 +75,7 @@ May sumama ring mga Israelita sa kanya nang bumalik siya sa Jerusalem noong ikap
 
 
 
-<i class="trans-change">Tinulungan siya ng Dios_ dahil itinalaga niya ang sarili niya sa pag-aaral at pagtupad ng Kautusan ng Panginoon, at sa pagtuturo ng mga tuntunin at mga utos nito sa mga Israelita.
+Tinulungan siya ng Dios_ dahil itinalaga niya ang sarili niya sa pag-aaral at pagtupad ng Kautusan ng Panginoon, at sa pagtuturo ng mga tuntunin at mga utos nito sa mga Israelita.
 
 ## Ang Sulat ni Artaserses kay Ezra 
 
@@ -110,7 +110,7 @@ May sumama ring mga Israelita sa kanya nang bumalik siya sa Jerusalem noong ikap
 
 
 
-Ito ang <i class="trans-change">nilalaman ng_ sulat na ibinigay ni Haring Artaserses kay Ezra na pari at tagapagturo, na lubos na nakakaalam ng mga utos at mga tuntunin na ibinigay ng Panginoon sa mga taga-Israel: 
+Ito ang nilalaman ng_ sulat na ibinigay ni Haring Artaserses kay Ezra na pari at tagapagturo, na lubos na nakakaalam ng mga utos at mga tuntunin na ibinigay ng Panginoon sa mga taga-Israel: 
 
 
 
@@ -242,7 +242,7 @@ Inuutusan kita at ng aking pitong tagapayo na alamin mo ang mga nangyayari sa Ju
 
 
 
-<i class="trans-change">Inuutusan din kita na_ dalhin mo ang mga ginto at pilak na kusang-loob kong ibinibigay at ng mga tagapayo ko sa Dios ng Israel na nananahan sa Jerusalem. 
+Inuutusan din kita na_ dalhin mo ang mga ginto at pilak na kusang-loob kong ibinibigay at ng mga tagapayo ko sa Dios ng Israel na nananahan sa Jerusalem. 
 
 
 
@@ -275,7 +275,7 @@ Inuutusan kita at ng aking pitong tagapayo na alamin mo ang mga nangyayari sa Ju
 
 
 
-Dalhin mo rin ang lahat ng pilak at ginto na matatanggap mo galing sa lalawigan ng Babilonia, pati na rin ang mga kusang-loob na tulong ng mga mamamayan <i class="trans-change">ng Israel_ at ng mga pari nila para sa templo ng kanilang Dios sa Jerusalem. 
+Dalhin mo rin ang lahat ng pilak at ginto na matatanggap mo galing sa lalawigan ng Babilonia, pati na rin ang mga kusang-loob na tulong ng mga mamamayan ng Israel_ at ng mga pari nila para sa templo ng kanilang Dios sa Jerusalem. 
 
 
 
@@ -440,7 +440,7 @@ Kung may iba ka pang kailangan para sa templo, kumuha ka lang ng panggastos sa p
 
 
 
-"Ako, si Haring Artaserses, ang nag-uutos sa lahat ng ingat-yaman ng <i class="trans-change">lalawigan sa_ kanluran ng Eufrates na ibigay nʼyo ang anumang hilingin sa inyo ni Ezra na pari at tagapagturo ng Kautusan ng Dios ng kalangitan. 
+"Ako, si Haring Artaserses, ang nag-uutos sa lahat ng ingat-yaman ng lalawigan sa_ kanluran ng Eufrates na ibigay nʼyo ang anumang hilingin sa inyo ni Ezra na pari at tagapagturo ng Kautusan ng Dios ng kalangitan. 
 
 
 
@@ -539,7 +539,7 @@ Ibigay nʼyo rin ang lahat ng kinakailangan sa templo ayon sa iniutos ng Dios ng
 
 
 
-Ipinapaalam din namin sa inyo na huwag ninyong pagbayarin ng buwis at ng iba pang bayarin ang mga pari, mga Levita, mga musikero, mga guwardya ng mga pintuan <i class="trans-change">ng templo_, mga utusan sa templo, at iba pang nagtatrabaho sa templo ng Dios. 
+Ipinapaalam din namin sa inyo na huwag ninyong pagbayarin ng buwis at ng iba pang bayarin ang mga pari, mga Levita, mga musikero, mga guwardya ng mga pintuan ng templo_, mga utusan sa templo, at iba pang nagtatrabaho sa templo ng Dios. 
 
 
 
@@ -572,7 +572,7 @@ Ipinapaalam din namin sa inyo na huwag ninyong pagbayarin ng buwis at ng iba pan
 
 
 
-"At ikaw, Ezra, ayon sa karunungang ibinigay sa iyo ng Dios, pumili ka ng mga tagapamahala at mga hukom na nakakaalam ng Kautusan ng iyong Dios at sila ang mangangasiwa sa lahat ng tao sa <i class="trans-change">lalawigan sa_ kanluran ng Eufrates. At ang mga tao na hindi nakakaalam ng Kautusan ay turuan mo. 
+"At ikaw, Ezra, ayon sa karunungang ibinigay sa iyo ng Dios, pumili ka ng mga tagapamahala at mga hukom na nakakaalam ng Kautusan ng iyong Dios at sila ang mangangasiwa sa lahat ng tao sa lalawigan sa_ kanluran ng Eufrates. At ang mga tao na hindi nakakaalam ng Kautusan ay turuan mo. 
 
 
 
@@ -638,7 +638,7 @@ Sinumang hindi tumupad sa Kautusan ng iyong Dios o kayaʼy sa kautusan ng hari a
 
 
 
-<i class="trans-change">Sinabi ni Ezra,_ "Purihin ang Panginoon, ang Dios ng mga ninuno natin, na humipo ng puso ng hari na parangalan niya ang templo ng Panginoon sa Jerusalem. 
+Sinabi ni Ezra,_ "Purihin ang Panginoon, ang Dios ng mga ninuno natin, na humipo ng puso ng hari na parangalan niya ang templo ng Panginoon sa Jerusalem. 
 
 
 

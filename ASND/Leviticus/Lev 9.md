@@ -40,7 +40,7 @@ next: ['Lev 10']
 
 
 
-Nang ikawalong araw, <i class="trans-change">pagkatapos ng pagtatalaga,_ ipinatawag ni Moises si Aaron at ang mga anak niyang lalaki at ang mga tagapamahala ng Israel. 
+Nang ikawalong araw, pagkatapos ng pagtatalaga,_ ipinatawag ni Moises si Aaron at ang mga anak niyang lalaki at ang mga tagapamahala ng Israel. 
 
 
 
@@ -205,7 +205,7 @@ Kaya dinala nila roon sa harap ng Toldang Tipanan ang lahat ng dadalhin ayon sa 
 
 
 
-Sinabi ni Moises <i class="trans-change">sa kanila_, "Inuutusan kayo ng Panginoon na gawin ninyo ang paghahandog na ito para ipakita niya sa inyo ang kanyang kapangyarihan." 
+Sinabi ni Moises sa kanila_, "Inuutusan kayo ng Panginoon na gawin ninyo ang paghahandog na ito para ipakita niya sa inyo ang kanyang kapangyarihan." 
 
 
 
@@ -304,7 +304,7 @@ Kaya lumapit si Aaron sa altar at pinatay niya ang handog na batang toro bilang 
 
 
 
-Ang dugo nitoʼy dinala sa kanya ng kanyang mga anak, at inilubog niya ang kanyang daliri sa dugo at iwinisik sa <i class="trans-change">parang_ sungay sa mga sulok ng altar, at ang natirang dugo ay ibinuhos niya sa ilalim ng altar. 
+Ang dugo nitoʼy dinala sa kanya ng kanyang mga anak, at inilubog niya ang kanyang daliri sa dugo at iwinisik sa parang_ sungay sa mga sulok ng altar, at ang natirang dugo ay ibinuhos niya sa ilalim ng altar. 
 
 
 
@@ -502,7 +502,7 @@ Hinugasan niya ang lamang-loob, at mga paa, at sinunog niya ang mga ito sa altar
 
 
 
-Pagkatapos, dinala niya sa gitna ang mga handog na para sa mga tao. Pinatay niya ang kambing na handog sa paglilinis ng mga tao katulad ng kanyang ginawa sa una niyang handog na inialay <i class="trans-change">para maging malinis siya sa kanyang mga kasalanan_. 
+Pagkatapos, dinala niya sa gitna ang mga handog na para sa mga tao. Pinatay niya ang kambing na handog sa paglilinis ng mga tao katulad ng kanyang ginawa sa una niyang handog na inialay para maging malinis siya sa kanyang mga kasalanan_. 
 
 
 
@@ -535,7 +535,7 @@ Pagkatapos, dinala niya sa gitna ang mga handog na para sa mga tao. Pinatay niya
 
 
 
-Pagkatapos, dinala rin niya sa gitna ang <i class="trans-change">hayop para sa_ handog na sinusunog, at inihandog niya ayon sa paraan ng paghahandog nito. 
+Pagkatapos, dinala rin niya sa gitna ang hayop para sa_ handog na sinusunog, at inihandog niya ayon sa paraan ng paghahandog nito. 
 
 
 
@@ -733,4 +733,4 @@ Ayon din sa utos ni Moises, itinaas ni Aaron ang pitso at ang kanang hita ng hay
 
 
 
-Pagkatapos maihandog ni Aaron ang lahat ng ito, itinaas niya ang kanyang mga kamay sa mga tao at binasbasan niya, at pagkatapos, bumaba siya mula sa altar. <sup class="versenum">23-24</sup>At pumasok sina Moises at Aaron sa loob ng Toldang Tipanan. Paglabas nila, muli nilang binasbasan ang mga tao. At ipinakita ng Panginoon ang kanyang kapangyarihan sa mga tao sa pamamagitan ng apoy na sumunog sa mga handog na nasa altar. Nang itoʼy makita ng mga tao, nagsigawan sila sa tuwa at nagpatirapa <i class="trans-change">para sambahin ang Panginoon_.
+Pagkatapos maihandog ni Aaron ang lahat ng ito, itinaas niya ang kanyang mga kamay sa mga tao at binasbasan niya, at pagkatapos, bumaba siya mula sa altar. 23-24At pumasok sina Moises at Aaron sa loob ng Toldang Tipanan. Paglabas nila, muli nilang binasbasan ang mga tao. At ipinakita ng Panginoon ang kanyang kapangyarihan sa mga tao sa pamamagitan ng apoy na sumunog sa mga handog na nasa altar. Nang itoʼy makita ng mga tao, nagsigawan sila sa tuwa at nagpatirapa para sambahin ang Panginoon_.

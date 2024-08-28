@@ -405,7 +405,7 @@ Nang marinig iyon ng hari, nagalit siya nang husto. Kaya ipinatawag niya sina Sh
 
 
 
-<i class="trans-change">Nang dumating sila,_ tinanong sila ng hari, "Totoo bang hindi ninyo iginagalang ang aking mga dios at hindi kayo sumasamba sa rebultong ginto na ipinatayo ko? 
+Nang dumating sila,_ tinanong sila ng hari, "Totoo bang hindi ninyo iginagalang ang aking mga dios at hindi kayo sumasamba sa rebultong ginto na ipinatayo ko? 
 
 
 
@@ -735,7 +735,7 @@ At silang tatlo na nakagapos ay bumagsak sa naglalagablab na hurno.
 
 
 
-<i class="trans-change">Habang nakatingin_ si Haring Nebucadnezar bigla siyang tumayo sa laki ng kanyang pagkamangha. Tinanong niya ang kanyang mga opisyal, "Hindi baʼt tatlo lang ang itinapon sa apoy?" Sumagot sila, "Opo, Mahal na Hari." 
+Habang nakatingin_ si Haring Nebucadnezar bigla siyang tumayo sa laki ng kanyang pagkamangha. Tinanong niya ang kanyang mga opisyal, "Hindi baʼt tatlo lang ang itinapon sa apoy?" Sumagot sila, "Opo, Mahal na Hari." 
 
 
 

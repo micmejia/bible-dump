@@ -108,7 +108,7 @@ Walang matitira sa inyo. Mabibihag o mamamatay kayo, pero ang galit ng Panginoon
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Nakakaawa ang mga taga-Asiria. Sila ang gagamitin kong pamalo para parusahan ang mga kinamumuhian ko. 
+Sinabi ng Panginoon,_ "Nakakaawa ang mga taga-Asiria. Sila ang gagamitin kong pamalo para parusahan ang mga kinamumuhian ko. 
 
 
 
@@ -207,7 +207,7 @@ Pero hindi malalaman ng hari ng Asiria na ginagamit lang siya ng Panginoon. Akal
 
 
 
-Buong pagmamalaki niyang sinabi, "Ang mga kumander ng mga sundalo ko ay <i class="trans-change">parang_ mga hari. 
+Buong pagmamalaki niyang sinabi, "Ang mga kumander ng mga sundalo ko ay parang_ mga hari. 
 
 
 
@@ -240,7 +240,7 @@ Buong pagmamalaki niyang sinabi, "Ang mga kumander ng mga sundalo ko ay <i class
 
 
 
-Anong pagkakaiba ng Carkemish at Calno, ng Arpad at Hamat, at ng Damascus at Samaria? <i class="trans-change">Silang lahat ay pare-pareho kong winasak_. 
+Anong pagkakaiba ng Carkemish at Calno, ng Arpad at Hamat, at ng Damascus at Samaria? Silang lahat ay pare-pareho kong winasak_. 
 
 
 
@@ -570,7 +570,7 @@ Kung paanong sinisira ng sakit ang katawan ng tao, sisirain din ng Panginoon ang
 
 
 
-Iilan lang ang matitirang puno sa kanyang kagubatan. Mabibilang ito kahit ng batang paslit. <sup class="versenum">20-21</sup>Darating ang araw na ang mga natitirang Israelitang lahi ni Jacob ay hindi na magtitiwala sa Asiria na nagpahirap sa kanila. Magtitiwala na sila sa Panginoon, ang Banal na Dios ng Israel. Magbabalik-loob sila sa Makapangyarihang Dios. <sup class="versenum">22-23</sup>Kahit na kasindami ng buhangin sa tabing-dagat ang mga Israelita, iilan lang ang makakabalik. Nakatakda na ang parusang nararapat para sa buong Israel. At tiyak na gagawin ito ng Panginoong Dios na Makapangyarihan. 
+Iilan lang ang matitirang puno sa kanyang kagubatan. Mabibilang ito kahit ng batang paslit. 20-21Darating ang araw na ang mga natitirang Israelitang lahi ni Jacob ay hindi na magtitiwala sa Asiria na nagpahirap sa kanila. Magtitiwala na sila sa Panginoon, ang Banal na Dios ng Israel. Magbabalik-loob sila sa Makapangyarihang Dios. 22-23Kahit na kasindami ng buhangin sa tabing-dagat ang mga Israelita, iilan lang ang makakabalik. Nakatakda na ang parusang nararapat para sa buong Israel. At tiyak na gagawin ito ng Panginoong Dios na Makapangyarihan. 
 
 
 
@@ -768,7 +768,7 @@ Nilusob ng Asiria ang Ayat. Doon sila dumaan sa Migron at iniwan nila sa Micmash
 
 
 
-Dumaan sila sa tawiran, at doon natulog sa Geba. Natakot ang mga taga-Rama, at tumakas ang mga mamamayan ng Gibea na bayan ni <i class="trans-change">Haring_ Saul. 
+Dumaan sila sa tawiran, at doon natulog sa Geba. Natakot ang mga taga-Rama, at tumakas ang mga mamamayan ng Gibea na bayan ni Haring_ Saul. 
 
 
 

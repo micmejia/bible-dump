@@ -40,7 +40,7 @@ next: ['Matt 8']
 
 
 
-"Huwag ninyong husgahan ang iba, para hindi rin kayo husgahan <i class="trans-change">ng Dios_. 
+"Huwag ninyong husgahan ang iba, para hindi rin kayo husgahan ng Dios_. 
 
 
 
@@ -238,7 +238,7 @@ Mapagkunwari! Alisin mo muna ang mala-trosong puwing sa iyong mata, nang sa gano
 
 
 
-"Humingi kayo <i class="trans-change">sa Dios_, at bibigyan kayo. Hanapin ninyo <i class="trans-change">sa kanya ang hinahanap nʼyo_, at makikita ninyo. Kumatok kayo <i class="trans-change">sa kanya_, at pagbubuksan kayo. 
+"Humingi kayo sa Dios_, at bibigyan kayo. Hanapin ninyo sa kanya ang hinahanap nʼyo_, at makikita ninyo. Kumatok kayo sa kanya_, at pagbubuksan kayo. 
 
 
 
@@ -403,7 +403,7 @@ Kung kayong masasama ay marunong magbigay ng mabubuting bagay sa inyong mga anak
 
 
 
-"Gawin ninyo sa inyong kapwa ang gusto ninyong gawin nila sa inyo. Ganyan ang tamang pagsunod sa Kautusan <i class="trans-change">ni Moises_ at sa mga <i class="trans-change">isinulat ng mga_ propeta." ## Ang Makipot na Pintuan 
+"Gawin ninyo sa inyong kapwa ang gusto ninyong gawin nila sa inyo. Ganyan ang tamang pagsunod sa Kautusan ni Moises_ at sa mga isinulat ng mga_ propeta." ## Ang Makipot na Pintuan 
 
 
 
@@ -502,7 +502,7 @@ Ngunit makipot ang pintuan at mahirap ang daan patungo sa buhay na walang hangga
 
 
 
-"Mag-ingat kayo sa mga huwad na propeta. Lumalapit sila sa inyo na parang mga <i class="trans-change">maamong_ tupa, pero ang totoo, tulad sila ng mga gutom na lobo. 
+"Mag-ingat kayo sa mga huwad na propeta. Lumalapit sila sa inyo na parang mga maamong_ tupa, pero ang totoo, tulad sila ng mga gutom na lobo. 
 
 
 

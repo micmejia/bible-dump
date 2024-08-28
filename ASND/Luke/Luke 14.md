@@ -106,7 +106,7 @@ Doon ay may isang lalaking minamanas.
 
 
 
-Tinanong ni Jesus ang mga tagapagturo ng Kautusan at mga Pariseo, "Ipinapahintulot ba ng Kautusan ang magpagaling <i class="trans-change">ng may sakit_ sa Araw ng Pamamahinga o hindi?" 
+Tinanong ni Jesus ang mga tagapagturo ng Kautusan at mga Pariseo, "Ipinapahintulot ba ng Kautusan ang magpagaling ng may sakit_ sa Araw ng Pamamahinga o hindi?" 
 
 
 
@@ -834,7 +834,7 @@ Tinitiyak ko sa inyo, ni isa man sa mga una kong inimbita ay hindi makakatikim n
 
 
 
-Maraming tao ang sumunod kay Jesus sa paglalakbay niya <i class="trans-change">papuntang Jerusalem_. Lumingon siya at sinabi sa kanila, 
+Maraming tao ang sumunod kay Jesus sa paglalakbay niya papuntang Jerusalem_. Lumingon siya at sinabi sa kanila, 
 
 
 

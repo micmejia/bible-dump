@@ -506,7 +506,7 @@ Pero hindi pa rin sumagot si Jesus, kaya nagtaka ang gobernador.
 
 
 
-Tuwing Pista <i class="trans-change">ng Paglampas ng Anghel_, nakaugalian na ng Gobernador na magpalaya ng isang bilanggo na gustong palayain ng mga tao. 
+Tuwing Pista ng Paglampas ng Anghel_, nakaugalian na ng Gobernador na magpalaya ng isang bilanggo na gustong palayain ng mga tao. 
 
 
 
@@ -869,7 +869,7 @@ Sumagot ang mga tao, "Kami at ang mga anak namin ang mananagot sa kanyang kamata
 
 
 
-Pagkatapos, pinalaya ni Pilato si Barabas. Pero si Jesus ay ipinahagupit niya at saka ibinigay <i class="trans-change">sa mga sundalo_ upang ipako sa krus.
+Pagkatapos, pinalaya ni Pilato si Barabas. Pero si Jesus ay ipinahagupit niya at saka ibinigay sa mga sundalo_ upang ipako sa krus.
 
 ## Pinahirapan ng mga Sundalo si Jesus 
 
@@ -970,7 +970,7 @@ Hinubaran nila siya at sinuotan ng pulang kapa.
 
 
 
-Gumawa sila ng koronang tinik at ipinutong sa kanya, at ipinahawak ang tungkod sa kanyang kanang kamay <i class="trans-change">bilang setro_ <i class="trans-change">niya._ Lumuhod sila sa harap niya at pakutyang sinabi, "Mabuhay ang Hari ng mga Judio!" 
+Gumawa sila ng koronang tinik at ipinutong sa kanya, at ipinahawak ang tungkod sa kanyang kanang kamay bilang setro_ niya._ Lumuhod sila sa harap niya at pakutyang sinabi, "Mabuhay ang Hari ng mga Judio!" 
 
 
 
@@ -1003,7 +1003,7 @@ Gumawa sila ng koronang tinik at ipinutong sa kanya, at ipinahawak ang tungkod s
 
 
 
-Dinuraan nila si Jesus at kinuha ang tungkod <i class="trans-change">sa kanyang kamay_ at paulit-ulit nilang inihampas sa kanyang ulo. 
+Dinuraan nila si Jesus at kinuha ang tungkod sa kanyang kamay_ at paulit-ulit nilang inihampas sa kanyang ulo. 
 
 
 
@@ -1036,7 +1036,7 @@ Dinuraan nila si Jesus at kinuha ang tungkod <i class="trans-change">sa kanyang 
 
 
 
-Matapos nilang kutyain si Jesus, hinubad nila sa kanya ang kapa at isinuot muli sa kanya ang damit niya. Pagkatapos, dinala nila siya <i class="trans-change">sa labas ng lungsod_ upang ipako sa krus.
+Matapos nilang kutyain si Jesus, hinubad nila sa kanya ang kapa at isinuot muli sa kanya ang damit niya. Pagkatapos, dinala nila siya sa labas ng lungsod_ upang ipako sa krus.
 
 ## Ipinako sa Krus si Jesus 
 
@@ -1966,7 +1966,7 @@ Pumunta siya kay Pilato at hiningi ang bangkay ni Jesus. At iniutos naman ni Pil
 
 
 
-Kaya kinuha ni Jose ang bangkay at binalot ng malinis na <i class="trans-change">telang_ linen. 
+Kaya kinuha ni Jose ang bangkay at binalot ng malinis na telang_ linen. 
 
 
 
@@ -2199,4 +2199,4 @@ Sumagot si Pilato sa kanila, "May mga guwardya kayo. Kayo na ang magpabantay ayo
 
 
 
-Kaya pumunta sila sa libingan, at tinatakan nila ang bato <i class="trans-change">na nakatakip sa libingan_ upang malaman nila kung may nagbukas, at nag-iwan sila roon ng ilang mga bantay.
+Kaya pumunta sila sa libingan, at tinatakan nila ang bato na nakatakip sa libingan_ upang malaman nila kung may nagbukas, at nag-iwan sila roon ng ilang mga bantay.

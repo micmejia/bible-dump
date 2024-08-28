@@ -73,7 +73,7 @@ At sinabi ng Panginoon kay Josue,
 
 
 
-"Sabihin mo sa mga Israelita na pumili sila ng mga lungsod na tanggulan ayon sa sinabi ko noon <i class="trans-change">sa inyo_ sa pamamagitan ni Moises. 
+"Sabihin mo sa mga Israelita na pumili sila ng mga lungsod na tanggulan ayon sa sinabi ko noon sa inyo_ sa pamamagitan ni Moises. 
 
 
 
@@ -271,7 +271,7 @@ Kaya pinili nila ang Kedesh sa Galilea sa kabundukan ng Naftali, ang Shekem sa k
 
 
 
-Sa silangan ng <i class="trans-change">Ilog ng_ Jordan at ng Jerico, pinili nila ang Bezer sa disyerto sa talampas na sakop ng lahi ni Reuben, ang Ramot sa Gilead na sakop ng lahi ni Gad at ang Golan sa Bashan na sakop ng lahi ni Manase. 
+Sa silangan ng Ilog ng_ Jordan at ng Jerico, pinili nila ang Bezer sa disyerto sa talampas na sakop ng lahi ni Reuben, ang Ramot sa Gilead na sakop ng lahi ni Gad at ang Golan sa Bashan na sakop ng lahi ni Manase. 
 
 
 

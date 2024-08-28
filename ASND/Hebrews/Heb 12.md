@@ -40,7 +40,7 @@ next: ['Heb 13']
 
 
 
-Napapaligiran tayo ng maraming tao na nagpapatotoo <i class="trans-change">tungkol sa pananampalataya nila sa Dios_. Kaya talikuran na natin ang kasalanang pumipigil sa atin at alisin ang anumang hadlang sa pagtakbo natin. Buong tiyaga tayong magpatuloy sa takbuhing itinakda <i class="trans-change">ng Dios_ para sa atin. 
+Napapaligiran tayo ng maraming tao na nagpapatotoo tungkol sa pananampalataya nila sa Dios_. Kaya talikuran na natin ang kasalanang pumipigil sa atin at alisin ang anumang hadlang sa pagtakbo natin. Buong tiyaga tayong magpatuloy sa takbuhing itinakda ng Dios_ para sa atin. 
 
 
 
@@ -238,7 +238,7 @@ Sapagkat dinidisiplina ng Panginoon ang mga minamahal niya, at pinapalo niya ang
 
 
 
-Tiisin nʼyo <i class="trans-change">ang lahat ng paghihirap_ bilang pagdidisiplina ng Dios sa inyo dahil itinuturing niya kayong mga anak. Sino bang anak ang hindi dinidisiplina ng ama? 
+Tiisin nʼyo ang lahat ng paghihirap_ bilang pagdidisiplina ng Dios sa inyo dahil itinuturing niya kayong mga anak. Sino bang anak ang hindi dinidisiplina ng ama? 
 
 
 
@@ -304,7 +304,7 @@ Kung hindi kayo dinidisiplina ng Dios gaya ng pagdidisiplina niya sa lahat ng an
 
 
 
-Kahit ang mga ama natin dito sa lupa ay dinidisiplina tayo, at sa kabila nito, iginagalang natin sila. Kaya lalong dapat tayong magpasakop sa <i class="trans-change">pagdidisiplina ng_ ating Ama na nasa langit, para maging mabuti ang pamumuhay natin. 
+Kahit ang mga ama natin dito sa lupa ay dinidisiplina tayo, at sa kabila nito, iginagalang natin sila. Kaya lalong dapat tayong magpasakop sa pagdidisiplina ng_ ating Ama na nasa langit, para maging mabuti ang pamumuhay natin. 
 
 
 
@@ -504,7 +504,7 @@ Pagsikapan ninyong mamuhay nang may mabuting relasyon sa lahat ng tao, at magpak
 
 
 
-Ingatan nʼyo na walang sinuman <i class="trans-change">sa inyo_ ang tatalikod sa biyaya ng Dios. At huwag ninyong hayaang umiral ang samaan ng loob sa inyo at marami ang madamay. 
+Ingatan nʼyo na walang sinuman sa inyo_ ang tatalikod sa biyaya ng Dios. At huwag ninyong hayaang umiral ang samaan ng loob sa inyo at marami ang madamay. 
 
 
 
@@ -537,7 +537,7 @@ Ingatan nʼyo na walang sinuman <i class="trans-change">sa inyo_ ang tatalikod s
 
 
 
-<i class="trans-change">Ingatan din ninyo na_ walang sinuman <i class="trans-change">sa inyo_ ang gagawa ng sekswal na imoralidad o mamumuhay nang gaya ni Esau, na hindi pinahalagahan ang mga espiritwal na bagay, dahil ipinagpalit niya ang karapatan niya bilang panganay sa isang kainan. 
+Ingatan din ninyo na_ walang sinuman sa inyo_ ang gagawa ng sekswal na imoralidad o mamumuhay nang gaya ni Esau, na hindi pinahalagahan ang mga espiritwal na bagay, dahil ipinagpalit niya ang karapatan niya bilang panganay sa isang kainan. 
 
 
 
@@ -603,7 +603,7 @@ At alam nʼyo na rin na pagkatapos ay hiningi ni Esau sa kanyang ama ang pagpapa
 
 
 
-Ang paglapit nʼyo <i class="trans-change">sa Dios_ ay hindi katulad ng paglapit <i class="trans-change">ng mga Israelita noon. Lumapit sila_ sa isang bundok na nakikita nila – <i class="trans-change">ang Bundok ng Sinai_ na may nagliliyab na apoy, may kadiliman at malakas na hangin. 
+Ang paglapit nʼyo sa Dios_ ay hindi katulad ng paglapit ng mga Israelita noon. Lumapit sila_ sa isang bundok na nakikita nila – ang Bundok ng Sinai_ na may nagliliyab na apoy, may kadiliman at malakas na hangin. 
 
 
 
@@ -735,7 +735,7 @@ Tunay na kakila-kilabot ang tanawing iyon, kaya maging si Moises ay nagsabi, "Na
 
 
 
-<i class="trans-change">Ngunit hindi ganito ang paglapit nʼyo sa Panginoon. Dahil_ ang nilapitan ninyo ay ang Bundok ng Zion, ang lungsod ng Dios na buhay, ang Jerusalem na nasa langit na may libu-libong anghel na nagtitipon nang may kagalakan. 
+Ngunit hindi ganito ang paglapit nʼyo sa Panginoon. Dahil_ ang nilapitan ninyo ay ang Bundok ng Zion, ang lungsod ng Dios na buhay, ang Jerusalem na nasa langit na may libu-libong anghel na nagtitipon nang may kagalakan. 
 
 
 
@@ -768,7 +768,7 @@ Tunay na kakila-kilabot ang tanawing iyon, kaya maging si Moises ay nagsabi, "Na
 
 
 
-Lumapit kayo sa pagtitipon ng mga itinuturing na mga panganay <i class="trans-change">ng Dios_, na ang mga pangalan nila ay nakasulat sa langit. Lumapit kayo sa Dios na siyang hukom ng lahat, at sa mga espiritu <i class="trans-change">ng mga taong_ itinuring na matuwid <i class="trans-change">ng Dios_ at ginawa na <i class="trans-change">niyang_ ganap. 
+Lumapit kayo sa pagtitipon ng mga itinuturing na mga panganay ng Dios_, na ang mga pangalan nila ay nakasulat sa langit. Lumapit kayo sa Dios na siyang hukom ng lahat, at sa mga espiritu ng mga taong_ itinuring na matuwid ng Dios_ at ginawa na niyang_ ganap. 
 
 
 
@@ -801,7 +801,7 @@ Lumapit kayo sa pagtitipon ng mga itinuturing na mga panganay <i class="trans-ch
 
 
 
-Lumapit kayo kay Jesus na siyang tagapamagitan <i class="trans-change">natin sa Dios_ sa bagong kasunduan. <i class="trans-change">Ang kasunduang itoʼy pinagtibay_ ng kanyang dugo na higit na mabuti kaysa sa dugo ni Abel <i class="trans-change">na humihingi ng katarungan_. 
+Lumapit kayo kay Jesus na siyang tagapamagitan natin sa Dios_ sa bagong kasunduan. Ang kasunduang itoʼy pinagtibay_ ng kanyang dugo na higit na mabuti kaysa sa dugo ni Abel na humihingi ng katarungan_. 
 
 
 
@@ -834,7 +834,7 @@ Lumapit kayo kay Jesus na siyang tagapamagitan <i class="trans-change">natin sa 
 
 
 
-Kaya mag-ingat kayo at huwag tanggihan ang <i class="trans-change">Dios na_ nagsasalita <i class="trans-change">sa atin_. Ang mga tao noon na hindi nakinig sa mga propeta rito sa lupa ay hindi nakaligtas <i class="trans-change">sa parusa_. Paano kaya tayo <i class="trans-change">makakaligtas_ kung hindi natin pakikinggan ang nagsasalita mula sa langit? 
+Kaya mag-ingat kayo at huwag tanggihan ang Dios na_ nagsasalita sa atin_. Ang mga tao noon na hindi nakinig sa mga propeta rito sa lupa ay hindi nakaligtas sa parusa_. Paano kaya tayo makakaligtas_ kung hindi natin pakikinggan ang nagsasalita mula sa langit? 
 
 
 
@@ -966,4 +966,4 @@ Kaya magpasalamat tayo sa Dios dahil kabilang na tayo sa kaharian niya na hindi 
 
 
 
-dahil <i class="trans-change">kapag nagparusa_ ang ating Dios, itoʼy parang apoy na nakakatupok.
+dahil kapag nagparusa_ ang ating Dios, itoʼy parang apoy na nakakatupok.

@@ -106,7 +106,7 @@ Bago kayo pumunta sa digmaan, dapat lumapit muna ang pari sa harapan ng mga sund
 
 
 
-'Makinig kayo, <i class="trans-change">O mamamayan ng_ Israel! Sa araw na ito ay makikipagdigma kayo sa inyong mga kaaway. Lakasan ninyo ang inyong loob at huwag kayong matakot. 
+'Makinig kayo, O mamamayan ng_ Israel! Sa araw na ito ay makikipagdigma kayo sa inyong mga kaaway. Lakasan ninyo ang inyong loob at huwag kayong matakot. 
 
 
 

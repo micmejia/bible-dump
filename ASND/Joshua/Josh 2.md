@@ -40,7 +40,7 @@ next: ['Josh 3']
 
 
 
-Pagkatapos, lihim na nagpadala si Josue ng dalawang tao mula <i class="trans-change">sa kampo ng mga Israelita_ sa Shitim para mag-espiya sa lupain ng Canaan, lalung-lalo na sa lungsod ng Jerico. Nang makarating ang dalawang espiya sa Jerico, nakituloy sila sa bahay ni Rahab na isang babaeng bayaran. 
+Pagkatapos, lihim na nagpadala si Josue ng dalawang tao mula sa kampo ng mga Israelita_ sa Shitim para mag-espiya sa lupain ng Canaan, lalung-lalo na sa lungsod ng Jerico. Nang makarating ang dalawang espiya sa Jerico, nakituloy sila sa bahay ni Rahab na isang babaeng bayaran. 
 
 
 
@@ -106,7 +106,7 @@ Nabalitaan ng hari ng Jerico na may dumating na mga Israelita nang gabing iyon p
 
 
 
-Kaya nagpadala ng mensahe ang hari kay Rahab, na sinasabi: "Palabasin mo ang mga taong nakituloy sa bahay mo, dahil nandito sila para mag-espiya sa lupain natin." ###### 4-6 Sinabi ni Rahab, "Totoo pong may mga taong nakituloy dito, pero hindi ko po alam kung taga saan sila. Umalis sila nang madilim na at pasara na ang pintuan ng lungsod. Hindi ko alam kung saan sila pupunta, pero kung susundan nʼyo agad sila, maaabutan nʼyo pa sila." (Pero ang totoo, itinago ni Rahab ang dalawang espiya sa bubong ng bahay niya at tinakpan niya sila ng mga pinagputol-putol na halaman na ginagawang <i class="trans-change">telang_ linen na pinapatuyo niya roon.) Umalis ang mga tauhan ng hari para habulin ang dalawang espiya. 
+Kaya nagpadala ng mensahe ang hari kay Rahab, na sinasabi: "Palabasin mo ang mga taong nakituloy sa bahay mo, dahil nandito sila para mag-espiya sa lupain natin." ###### 4-6 Sinabi ni Rahab, "Totoo pong may mga taong nakituloy dito, pero hindi ko po alam kung taga saan sila. Umalis sila nang madilim na at pasara na ang pintuan ng lungsod. Hindi ko alam kung saan sila pupunta, pero kung susundan nʼyo agad sila, maaabutan nʼyo pa sila." (Pero ang totoo, itinago ni Rahab ang dalawang espiya sa bubong ng bahay niya at tinakpan niya sila ng mga pinagputol-putol na halaman na ginagawang telang_ linen na pinapatuyo niya roon.) Umalis ang mga tauhan ng hari para habulin ang dalawang espiya. 
 
 
 
@@ -139,7 +139,7 @@ Kaya nagpadala ng mensahe ang hari kay Rahab, na sinasabi: "Palabasin mo ang mga
 
 
 
-Paglabas nila sa lungsod, isinara agad ang pintuan nito. Sa paghabol nila nakarating sila hanggang sa tawiran ng <i class="trans-change">Ilog ng_ Jordan. 
+Paglabas nila sa lungsod, isinara agad ang pintuan nito. Sa paghabol nila nakarating sila hanggang sa tawiran ng Ilog ng_ Jordan. 
 
 
 
@@ -634,7 +634,7 @@ Sumagot si Rahab, "Oo, payag ako." Pagkatapos, pinaalis sila ni Rahab, at itinal
 
 
 
-Nang makaalis na ang dalawang espiya, pumunta sila sa kabundukan. Doon sila nagtago sa loob ng tatlong araw habang hinahanap sila ng mga tauhan <i class="trans-change">ng hari_ sa mga daanan. Hindi sila nakita, kaya umuwi na lang ang mga tauhan ng hari. 
+Nang makaalis na ang dalawang espiya, pumunta sila sa kabundukan. Doon sila nagtago sa loob ng tatlong araw habang hinahanap sila ng mga tauhan ng hari_ sa mga daanan. Hindi sila nakita, kaya umuwi na lang ang mga tauhan ng hari. 
 
 
 

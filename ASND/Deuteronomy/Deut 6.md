@@ -40,7 +40,7 @@ next: ['Deut 7']
 
 
 
-"Ito ang mga utos, katuruan at tuntunin na iniutos ng Panginoon na inyong Dios sa akin na ituro sa inyo. Sundin ninyo ito sa lupaing inyong aariin doon sa kabila <i class="trans-change">ng Jordan_, 
+"Ito ang mga utos, katuruan at tuntunin na iniutos ng Panginoon na inyong Dios sa akin na ituro sa inyo. Sundin ninyo ito sa lupaing inyong aariin doon sa kabila ng Jordan_, 
 
 
 
@@ -106,7 +106,7 @@ para kayo at ang mga anak at mga apo ninyo ay gumalang sa Panginoon na inyong Di
 
 
 
-Makinig <i class="trans-change">kayo, O mamamayan ng_ Israel, at sundin ninyo ang kanyang mga utos para maging mabuti ang inyong kalagayan at upang lalo pa kayong dumami sa maganda at masaganang lupain, ayon sa ipinangako ng Panginoon, ang Dios ng inyong mga ninuno. 
+Makinig kayo, O mamamayan ng_ Israel, at sundin ninyo ang kanyang mga utos para maging mabuti ang inyong kalagayan at upang lalo pa kayong dumami sa maganda at masaganang lupain, ayon sa ipinangako ng Panginoon, ang Dios ng inyong mga ninuno. 
 
 
 
@@ -139,7 +139,7 @@ Makinig <i class="trans-change">kayo, O mamamayan ng_ Israel, at sundin ninyo an
 
 
 
-"Makinig <i class="trans-change">kayo, O mga mamamayan ng_ Israel: Ang Panginoon na ating Dios ay iisang Panginoon lang. 
+"Makinig kayo, O mga mamamayan ng_ Israel: Ang Panginoon na ating Dios ay iisang Panginoon lang. 
 
 
 
@@ -304,7 +304,7 @@ Itali ninyo ito sa inyong mga braso o ilagay sa inyong mga noo bilang paalala sa
 
 
 
-Isulat ninyo ito sa mga hamba ng inyong bahay at sa bukana ng pintuan <i class="trans-change">ng inyong mga lungsod_. 
+Isulat ninyo ito sa mga hamba ng inyong bahay at sa bukana ng pintuan ng inyong mga lungsod_. 
 
 
 
@@ -502,7 +502,7 @@ Huwag kayong susunod sa ibang mga dios, ang mga dios ng mga mamamayan sa inyong 
 
 
 
-dahil ang Panginoon na inyong Dios na kasama nʼyo ay ayaw na may sinasamba kayong iba. <i class="trans-change">Kung sasamba kayo sa ibang dios,_ ipadarama ng Panginoon ang kanyang galit sa inyo at lilipulin niya kayo sa mundo. 
+dahil ang Panginoon na inyong Dios na kasama nʼyo ay ayaw na may sinasamba kayong iba. Kung sasamba kayo sa ibang dios,_ ipadarama ng Panginoon ang kanyang galit sa inyo at lilipulin niya kayo sa mundo. 
 
 
 
@@ -733,7 +733,7 @@ Sabihin ninyo sa kanila, 'Mga alipin kami noon ng hari ng Egipto, pero inilabas 
 
 
 
-Nakita namin ang mga dakilang himala at mga kamangha-manghang bagay na ginawa niya sa pagpaparusa sa <i class="trans-change">mga mamamayan ng_ Egipto, kasama ng Faraon at ng buong sambahayan niya. 
+Nakita namin ang mga dakilang himala at mga kamangha-manghang bagay na ginawa niya sa pagpaparusa sa mga mamamayan ng_ Egipto, kasama ng Faraon at ng buong sambahayan niya. 
 
 
 

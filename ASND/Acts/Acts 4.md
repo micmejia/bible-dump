@@ -106,7 +106,7 @@ Nagalit sila dahil nangangaral ang dalawa na muling nabuhay si Jesus, at itoʼy 
 
 
 
-Kaya dinakip nila sina Pedro at Juan. <i class="trans-change">Iimbestigahan pa sana ang dalawa,_ pero dahil gabi na, ipinasok na lang muna sila sa bilangguan hanggang sa kinaumagahan. 
+Kaya dinakip nila sina Pedro at Juan. Iimbestigahan pa sana ang dalawa,_ pero dahil gabi na, ipinasok na lang muna sila sa bilangguan hanggang sa kinaumagahan. 
 
 
 
@@ -139,7 +139,7 @@ Kaya dinakip nila sina Pedro at Juan. <i class="trans-change">Iimbestigahan pa s
 
 
 
-Pero <i class="trans-change">kahit ganito ang nangyari sa kanila_, marami sa mga nakarinig ng kanilang pagtuturo ang sumampalataya. Ang mga lalaki na sumampalataya ay 5,000. 
+Pero kahit ganito ang nangyari sa kanila_, marami sa mga nakarinig ng kanilang pagtuturo ang sumampalataya. Ang mga lalaki na sumampalataya ay 5,000. 
 
 
 
@@ -370,7 +370,7 @@ dapat malaman ninyong lahat at ng lahat ng taga-Israel, na ang taong ito na naka
 
 
 
-Si Jesus <i class="trans-change">ang tinutukoy na bato sa talatang ito ng Kasulatan_: 'Ang bato na itinakwil ninyong mga tagapagtayo ng bahay ang siyang naging batong pundasyon.' 
+Si Jesus ang tinutukoy na bato sa talatang ito ng Kasulatan_: 'Ang bato na itinakwil ninyong mga tagapagtayo ng bahay ang siyang naging batong pundasyon.' 
 
 
 
@@ -733,7 +733,7 @@ Pero mahigpit pa rin silang binawalan na mangaral bago sila pinakawalan. Gusto s
 
 
 
-Sapagkat ang taong pinagaling sa pamamagitan ng himala ay mahigit 40 taon nang <i class="trans-change">lumpo_.
+Sapagkat ang taong pinagaling sa pamamagitan ng himala ay mahigit 40 taon nang lumpo_.
 
 ## Ang Panalangin ng mga Mananampalataya 
 
@@ -900,7 +900,7 @@ Ang mga hari at mga pinuno sa mundo ay nagsama-sama, at nagsipaghanda sa pakikip
 
 
 
-Natupad na ngayon ang sinabi ninyo noon, dahil dito mismo sa Jerusalem, ang mga Judio at hindi Judio, pati si <i class="trans-change">Haring_ Herodes at si <i class="trans-change">Gobernador_ Pilato, ay nagkaisang kalabanin ang inyong banal na lingkod na si Jesus na inyong pinili na maging Hari. 
+Natupad na ngayon ang sinabi ninyo noon, dahil dito mismo sa Jerusalem, ang mga Judio at hindi Judio, pati si Haring_ Herodes at si Gobernador_ Pilato, ay nagkaisang kalabanin ang inyong banal na lingkod na si Jesus na inyong pinili na maging Hari. 
 
 
 
@@ -1199,7 +1199,7 @@ at ang peraʼy ibinigay nila sa mga apostol. At ibinigay naman ito ng mga aposto
 
 
 
-<i class="trans-change">Ganyan din ang_ ginawa ng Levitang si Jose na taga-Cyprus. Tinatawag siya ng mga apostol na Bernabe, na ang ibig sabihin ay "Tagapagpalakas ng Loob." 
+Ganyan din ang_ ginawa ng Levitang si Jose na taga-Cyprus. Tinatawag siya ng mga apostol na Bernabe, na ang ibig sabihin ay "Tagapagpalakas ng Loob." 
 
 
 

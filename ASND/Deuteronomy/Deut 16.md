@@ -708,7 +708,7 @@ Dapat mangibabaw ang tamang hustisya para mabuhay kayo at makapanirahan sa lupai
 
 
 
-"Huwag kayong magpapatayo ng poste na <i class="trans-change">simbolo ng diosang si_ Ashera sa tabi ng altar na ginawa ninyo para sa Panginoon na inyong Dios, 
+"Huwag kayong magpapatayo ng poste na simbolo ng diosang si_ Ashera sa tabi ng altar na ginawa ninyo para sa Panginoon na inyong Dios, 
 
 
 
@@ -741,4 +741,4 @@ Dapat mangibabaw ang tamang hustisya para mabuhay kayo at makapanirahan sa lupai
 
 
 
-at huwag kayong magpapatayo ng mga alaalang bato <i class="trans-change">para sambahin_, dahil kinasusuklaman ito ng Panginoon na inyong Dios.
+at huwag kayong magpapatayo ng mga alaalang bato para sambahin_, dahil kinasusuklaman ito ng Panginoon na inyong Dios.

@@ -139,7 +139,7 @@ Sabihin mo sa kanila na ako, ang Panginoong Dios, ang nagsasabi nito: Kalaban ko
 
 
 
-<i class="trans-change">Oo,_ papatayin ko kayong lahat mula sa timog hanggang sa hilaga. 
+Oo,_ papatayin ko kayong lahat mula sa timog hanggang sa hilaga. 
 
 
 
@@ -172,7 +172,7 @@ Sabihin mo sa kanila na ako, ang Panginoong Dios, ang nagsasabi nito: Kalaban ko
 
 
 
-At malalaman ng lahat na ako ang Panginoon. Binunot ko na ang aking espada at hindi ko ito ibabalik sa lalagyan <i class="trans-change">hanggaʼt hindi natatapos ang pagpatay nito_. 
+At malalaman ng lahat na ako ang Panginoon. Binunot ko na ang aking espada at hindi ko ito ibabalik sa lalagyan hanggaʼt hindi natatapos ang pagpatay nito_. 
 
 
 
@@ -238,7 +238,7 @@ At malalaman ng lahat na ako ang Panginoon. Binunot ko na ang aking espada at hi
 
 
 
-Kapag tinanong ka nila kung bakit ka umiiyak, sabihin mong dahil sa balitang lubhang nakakatakot, nakakapanghina, nakakayanig at nakakahimatay. Hindi magtatagal at mangyayari ito. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito." 
+Kapag tinanong ka nila kung bakit ka umiiyak, sabihin mong dahil sa balitang lubhang nakakatakot, nakakapanghina, nakakayanig at nakakahimatay. Hindi magtatagal at mangyayari ito. Ako,_ ang Panginoong Dios, ang nagsasabi nito." 
 
 
 
@@ -271,7 +271,7 @@ Kapag tinanong ka nila kung bakit ka umiiyak, sabihin mong dahil sa balitang lub
 
 
 
-Sinabi pa ng Panginoon sa akin, <sup class="versenum">9-10</sup>"Anak ng tao, sabihin mo ang ipinapasabi ko sa mga tao. Sabihin mong <i class="trans-change">ako,_ ang Panginoon, ang nagsasabi nito: Hinasa ko na ang espada ko para patayin kayo. Pinakintab ko ito nang husto para kuminang na parang kidlat. Ngayon, matutuwa pa ba kayo? Kukutyain nʼyo pa ba ang mga turo at pagdidisiplina ko sa inyo? 
+Sinabi pa ng Panginoon sa akin, 9-10"Anak ng tao, sabihin mo ang ipinapasabi ko sa mga tao. Sabihin mong ako,_ ang Panginoon, ang nagsasabi nito: Hinasa ko na ang espada ko para patayin kayo. Pinakintab ko ito nang husto para kuminang na parang kidlat. Ngayon, matutuwa pa ba kayo? Kukutyain nʼyo pa ba ang mga turo at pagdidisiplina ko sa inyo? 
 
 
 
@@ -370,7 +370,7 @@ Hinasa ko naʼt pinakintab ang espada, at nakahanda na itong gamitin sa pagpatay
 
 
 
-Isang pagsubok ito sa mga mamamayan ko. Huwag nilang iisipin na hindi ko gagawin ang pagdidisiplinang ito na kinukutya nila. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Isang pagsubok ito sa mga mamamayan ko. Huwag nilang iisipin na hindi ko gagawin ang pagdidisiplinang ito na kinukutya nila. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -403,7 +403,7 @@ Isang pagsubok ito sa mga mamamayan ko. Huwag nilang iisipin na hindi ko gagawin
 
 
 
-Kaya, anak ng tao, sabihin mo ang ipinasasabi ko sa iyo. Isuntok mo ang iyong kamao sa iyong palad <i class="trans-change">sa galit,_ at kumuha ka ng espada at itaga ito ng dalawa o tatlong ulit. Ito ang tanda na marami sa kanila ang mamamatay sa digmaan. 
+Kaya, anak ng tao, sabihin mo ang ipinasasabi ko sa iyo. Isuntok mo ang iyong kamao sa iyong palad sa galit,_ at kumuha ka ng espada at itaga ito ng dalawa o tatlong ulit. Ito ang tanda na marami sa kanila ang mamamatay sa digmaan. 
 
 
 
@@ -634,7 +634,7 @@ Ang isa ay papuntang Rabba, ang kabisera ng Ammon at ang isa naman ay papuntang 
 
 
 
-Sapagkat tatayo ang hari ng Babilonia sa kanto ng dalawang daan na naghiwalay at aalamin niya kung aling daan ang dadaanan niya sa pamamagitan ng palabunutan ng mga palaso, pagtatanong sa mga dios-diosan, at pagsusuri sa atay <i class="trans-change">ng hayop na inihandog_. 
+Sapagkat tatayo ang hari ng Babilonia sa kanto ng dalawang daan na naghiwalay at aalamin niya kung aling daan ang dadaanan niya sa pamamagitan ng palabunutan ng mga palaso, pagtatanong sa mga dios-diosan, at pagsusuri sa atay ng hayop na inihandog_. 
 
 
 
@@ -733,7 +733,7 @@ Hindi makapaniwala ang mga taga-Jerusalem na mangyayari ito sa kanila dahil may 
 
 
 
-"Kaya <i class="trans-change">ako,_ ang Panginoong Dios ay nagsasabi: Ang inyong kasalanan ay nahayag at ipinakita ninyo ang inyong pagiging rebelde at makasalanan. At dahil sa ginagawa ninyong ito, ipapabihag ko kayo. 
+"Kaya ako,_ ang Panginoong Dios ay nagsasabi: Ang inyong kasalanan ay nahayag at ipinakita ninyo ang inyong pagiging rebelde at makasalanan. At dahil sa ginagawa ninyong ito, ipapabihag ko kayo. 
 
 
 
@@ -799,7 +799,7 @@ Hindi makapaniwala ang mga taga-Jerusalem na mangyayari ito sa kanila dahil may 
 
 
 
-<i class="trans-change">Ako,_ ang Panginoong Dios, ay nagsasabi: Alisin mo ang turban at korona mo dahil ngayon, magbabago na ang lahat. Ang mga hamak ay magiging makapangyarihan at ang mga makapangyarihan ay magiging hamak. 
+Ako,_ ang Panginoong Dios, ay nagsasabi: Alisin mo ang turban at korona mo dahil ngayon, magbabago na ang lahat. Ang mga hamak ay magiging makapangyarihan at ang mga makapangyarihan ay magiging hamak. 
 
 
 
@@ -931,7 +931,7 @@ Hindi totoo ang pangitain nila tungkol sa espada. Ang totoo, handang-handa na an
 
 
 
-Ibabalik ko kaya ang espada sa lalagyan nito nang hindi ko kayo napaparusahan? <i class="trans-change">Hindi!_ Parurusahan ko kayo sa sarili ninyong bansa, sa lugar na kung saan kayo ipinanganak. 
+Ibabalik ko kaya ang espada sa lalagyan nito nang hindi ko kayo napaparusahan? Hindi!_ Parurusahan ko kayo sa sarili ninyong bansa, sa lugar na kung saan kayo ipinanganak. 
 
 
 

@@ -73,7 +73,7 @@ next: ['Hos 3']
 
 
 
-"<i class="trans-change">Mga anak,_ sawayin ninyo ang inyong ina dahil iniwan na niya ako na kanyang asawa. Sabihin ninyo na dapat tigilan na niya ang pangangalunya. 
+"Mga anak,_ sawayin ninyo ang inyong ina dahil iniwan na niya ako na kanyang asawa. Sabihin ninyo na dapat tigilan na niya ang pangangalunya. 
 
 
 
@@ -207,7 +207,7 @@ Habulin man niya ang kanyang mga lalaki, hindi niya maaabutan. Hahanapin niya si
 
 
 
-"Hindi niya naisip na ako ang nagbigay sa kanya ng mga butil, ng bagong katas ng ubas, langis, at maraming pilak at ginto na ginawang <i class="trans-change">rebulto ni_ Baal <i class="trans-change">na kanilang dios-diosan_. 
+"Hindi niya naisip na ako ang nagbigay sa kanya ng mga butil, ng bagong katas ng ubas, langis, at maraming pilak at ginto na ginawang rebulto ni_ Baal na kanilang dios-diosan_. 
 
 
 
@@ -372,7 +372,7 @@ Sisirain ko ang mga ubasan niya at mga puno ng igos na ibinayad daw sa kanya ng 
 
 
 
-Parurusahan ko siya dahil may mga panahong nagsusunog siya ng mga insenso sa <i class="trans-change">dios-diosang si_ Baal. Nagsuot siya ng mga alahas at humabol sa kanyang mga lalaki, at kinalimutan niya ako. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+Parurusahan ko siya dahil may mga panahong nagsusunog siya ng mga insenso sa dios-diosang si_ Baal. Nagsuot siya ng mga alahas at humabol sa kanyang mga lalaki, at kinalimutan niya ako. Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -405,7 +405,7 @@ Parurusahan ko siya dahil may mga panahong nagsusunog siya ng mga insenso sa <i 
 
 
 
-"Pero masdan mo, dadalhin ko siya sa ilang at <i class="trans-change">muling_ liligawan hanggang sa mapaibig ko siyang <i class="trans-change">muli_. 
+"Pero masdan mo, dadalhin ko siya sa ilang at muling_ liligawan hanggang sa mapaibig ko siyang muli_. 
 
 
 
@@ -471,7 +471,7 @@ Pagbalik namin, ibabalik ko sa kanya ang mga ubasan niya, at ang Lambak ng Acor 
 
 
 
-Sinabi ng Panginoon <i class="trans-change">sa mga Israelita_, "Sa araw na iyon <i class="trans-change">ng inyong pagbabalik sa akin_, tatawagin ninyo ako na inyong asawa at hindi na ninyo ako tatawaging Baal. 
+Sinabi ng Panginoon sa mga Israelita_, "Sa araw na iyon ng inyong pagbabalik sa akin_, tatawagin ninyo ako na inyong asawa at hindi na ninyo ako tatawaging Baal. 
 
 
 
@@ -537,7 +537,7 @@ Hindi ko na hahayaang banggitin ninyo ang mga pangalan ni Baal.
 
 
 
-Sa araw na iyon, makikipagkasundo ako sa lahat ng uri ng hayop <i class="trans-change">na huwag nila kayong sasaktan_. Aalisin ko sa lupain ng Israel ang <i class="trans-change">lahat ng sandata tulad ng mga_ pana at espada. At dahil wala nang digmaan, matutulog kayong ligtas at payapa. 
+Sa araw na iyon, makikipagkasundo ako sa lahat ng uri ng hayop na huwag nila kayong sasaktan_. Aalisin ko sa lupain ng Israel ang lahat ng sandata tulad ng mga_ pana at espada. At dahil wala nang digmaan, matutulog kayong ligtas at payapa. 
 
 
 
@@ -603,7 +603,7 @@ Sa araw na iyon, makikipagkasundo ako sa lahat ng uri ng hayop <i class="trans-c
 
 
 
-Itatalaga ko sa inyo ang aking sarili nang buong katapatan, at kikilalanin <i class="trans-change">na_ ninyo <i class="trans-change">ako bilang_ Panginoon. 
+Itatalaga ko sa inyo ang aking sarili nang buong katapatan, at kikilalanin na_ ninyo ako bilang_ Panginoon. 
 
 
 
@@ -636,7 +636,7 @@ Itatalaga ko sa inyo ang aking sarili nang buong katapatan, at kikilalanin <i cl
 
 
 
-Sa araw na iyon, sasagutin ko ang mga dalangin ninyo. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. Magpapadala ako ng ulan upang tumubo sa lupa 
+Sa araw na iyon, sasagutin ko ang mga dalangin ninyo. Ako,_ ang Panginoon, ang nagsasabi nito. Magpapadala ako ng ulan upang tumubo sa lupa 
 
 
 

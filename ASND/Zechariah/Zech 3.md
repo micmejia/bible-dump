@@ -73,7 +73,7 @@ Ipinakita sa akin ng Panginoon ang punong pari na si Josue na nakatayo sa harapa
 
 
 
-Pero sinabi ng <i class="trans-change">anghel ng_ Panginoon kay Satanas, "Ayon sa Panginoon na pumili sa Jerusalem, mali ka Satanas. Sapagkat ang taong ito <i class="trans-change">na si Josue ay iniligtas niya sa pagkakabihag katulad ng_ panggatong na inagaw mula sa apoy." 
+Pero sinabi ng anghel ng_ Panginoon kay Satanas, "Ayon sa Panginoon na pumili sa Jerusalem, mali ka Satanas. Sapagkat ang taong ito na si Josue ay iniligtas niya sa pagkakabihag katulad ng_ panggatong na inagaw mula sa apoy." 
 
 
 
@@ -139,7 +139,7 @@ Marumi ang damit ni Josue habang nakatayo siya sa harapan ng anghel.
 
 
 
-Kaya sinabi ng anghel sa <i class="trans-change">iba pang_ mga <i class="trans-change">anghel na_ nakatayo sa harapan ni Josue, "Hubarin ninyo ang kanyang maruming damit." Pagkatapos, sinabi ng anghel kay Josue, "Inalis ko na ang iyong mga kasalanan. Ngayon, bibihisan kita ng bagong damit." 
+Kaya sinabi ng anghel sa iba pang_ mga anghel na_ nakatayo sa harapan ni Josue, "Hubarin ninyo ang kanyang maruming damit." Pagkatapos, sinabi ng anghel kay Josue, "Inalis ko na ang iyong mga kasalanan. Ngayon, bibihisan kita ng bagong damit." 
 
 
 
@@ -238,7 +238,7 @@ Pagkatapos, ibinilin ng anghel ng Panginoon kay Josue ang sinabi
 
 
 
-ng Makapangyarihang Panginoon: "Kung susunod ka sa aking mga pamamaraan at susundin ang aking mga iniuutos, ikaw ang mamamahala sa aking templo at sa mga bakuran nito. At papayagan kitang makalapit sa aking presensya katulad ng mga <i class="trans-change">anghel na_ ito na nakatayo rito. 
+ng Makapangyarihang Panginoon: "Kung susunod ka sa aking mga pamamaraan at susundin ang aking mga iniuutos, ikaw ang mamamahala sa aking templo at sa mga bakuran nito. At papayagan kitang makalapit sa aking presensya katulad ng mga anghel na_ ito na nakatayo rito. 
 
 
 
@@ -337,4 +337,4 @@ Josue, tingnan mo ang batong inilagay ko sa iyong harapan, mayroon itong pitong 
 
 
 
-Sa araw na iyon, aanyayahan ng bawat isa sa inyo ang inyong mga kapitbahay <i class="trans-change">upang mapayapang umupo_ sa ilalim ng inyong mga ubasan at puno ng igos. <i class="trans-change">Ako,_ ang Panginoong Makapangyarihan, ang nagsasabi nito."
+Sa araw na iyon, aanyayahan ng bawat isa sa inyo ang inyong mga kapitbahay upang mapayapang umupo_ sa ilalim ng inyong mga ubasan at puno ng igos. Ako,_ ang Panginoong Makapangyarihan, ang nagsasabi nito."

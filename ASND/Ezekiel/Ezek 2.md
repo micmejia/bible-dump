@@ -205,7 +205,7 @@ Makinig man ang mga rebeldeng ito o hindi, malalaman naman nila na may propeta p
 
 
 
-At ikaw, anak ng tao, huwag kang matakot sa kanila. Huwag kang matatakot kahit na ang mga sasabihin nila. Mga rebeldeng mamamayan <i class="trans-change">lang_ sila. 
+At ikaw, anak ng tao, huwag kang matakot sa kanila. Huwag kang matatakot kahit na ang mga sasabihin nila. Mga rebeldeng mamamayan lang_ sila. 
 
 
 

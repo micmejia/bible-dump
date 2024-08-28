@@ -75,7 +75,7 @@ Mga taga-Jerusalem, ihanda ninyo ang inyong mga kawal, dahil napapaligiran na ka
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Betlehem Efrata, kahit na isa ka sa pinakamaliit na bayan sa Juda, manggagaling sa iyo ang taong maglilingkod sa akin bilang pinuno ng Israel. Ang kanyang mga ninuno ay kilalang-kilala noong unang panahon." 
+Sinabi ng Panginoon,_ "Betlehem Efrata, kahit na isa ka sa pinakamaliit na bayan sa Juda, manggagaling sa iyo ang taong maglilingkod sa akin bilang pinuno ng Israel. Ang kanyang mga ninuno ay kilalang-kilala noong unang panahon." 
 
 
 
@@ -108,7 +108,7 @@ Mga taga-Jerusalem, ihanda ninyo ang inyong mga kawal, dahil napapaligiran na ka
 
 
 
-Kaya ang mga mamamayan ng Israel ay ipapaubaya ng Panginoon sa kanilang mga kaaway hanggang sa maisilang ng babaeng namimilipit sa sakit ang sanggol <i class="trans-change">na lalaki na mamumuno sa Israel_. Pagkatapos, ang mga kababayan ng pinunong ito <i class="trans-change">na nabihag ng ibang bansa_ ay babalik sa kanilang mga kapwa Israelita. 
+Kaya ang mga mamamayan ng Israel ay ipapaubaya ng Panginoon sa kanilang mga kaaway hanggang sa maisilang ng babaeng namimilipit sa sakit ang sanggol na lalaki na mamumuno sa Israel_. Pagkatapos, ang mga kababayan ng pinunong ito na nabihag ng ibang bansa_ ay babalik sa kanilang mga kapwa Israelita. 
 
 
 
@@ -141,7 +141,7 @@ Kaya ang mga mamamayan ng Israel ay ipapaubaya ng Panginoon sa kanilang mga kaaw
 
 
 
-Pamamahalaan niya <i class="trans-change">ang mga mamamayan ng Israel_ sa pamamagitan ng lakas at kapangyarihan ng Panginoon. Ang katulad niyaʼy isang pastol na nagbabantay ng kanyang kawan. Kaya mamumuhay sila nang mapayapa dahil kikilalanin ng mga tao sa buong mundo ang kanyang kadakilaan. 
+Pamamahalaan niya ang mga mamamayan ng Israel_ sa pamamagitan ng lakas at kapangyarihan ng Panginoon. Ang katulad niyaʼy isang pastol na nagbabantay ng kanyang kawan. Kaya mamumuhay sila nang mapayapa dahil kikilalanin ng mga tao sa buong mundo ang kanyang kadakilaan. 
 
 
 
@@ -275,7 +275,7 @@ Ang mga natitirang Israelita ay magiging pagpapala sa maraming bansa. Magiging t
 
 
 
-Pero magdadala rin sila ng kapahamakan sa mga bansa. Magiging tulad sila ng leon na matapang sumalakay sa mga hayop sa kagubatan at sa kawan ng mga tupa <i class="trans-change">sa pastulan_. Kapag sumalakay ang leon, nilulundagan nito ang kanyang biktima at nilalapa, at hindi ito makakaligtas sa kanya. 
+Pero magdadala rin sila ng kapahamakan sa mga bansa. Magiging tulad sila ng leon na matapang sumalakay sa mga hayop sa kagubatan at sa kawan ng mga tupa sa pastulan_. Kapag sumalakay ang leon, nilulundagan nito ang kanyang biktima at nilalapa, at hindi ito makakaligtas sa kanya. 
 
 
 
@@ -475,7 +475,7 @@ Hindi na kayo sasamba sa mga imahen at sa mga alaalang bato na inyong ginawa, da
 
 
 
-Sisirain ko rin ang inyong mga posteng <i class="trans-change">simbolo ng diosang si_ Ashera. At wawasakin ko ang inyong mga lungsod. 
+Sisirain ko rin ang inyong mga posteng simbolo ng diosang si_ Ashera. At wawasakin ko ang inyong mga lungsod. 
 
 
 

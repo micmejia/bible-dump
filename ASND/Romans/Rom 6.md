@@ -337,7 +337,7 @@ Sapagkat alam nating si Cristoʼy muling nabuhay at hindi na muling mamamatay. W
 
 
 
-Minsan lang siyang namatay para sa kasalanan <i class="trans-change">ng mga tao_; at nabubuhay siya ngayon para sa Dios. 
+Minsan lang siyang namatay para sa kasalanan ng mga tao_; at nabubuhay siya ngayon para sa Dios. 
 
 
 
@@ -436,7 +436,7 @@ Huwag na ninyong paghariin ang kasalanan sa inyong katawang may kamatayan, para 
 
 
 
-Huwag na ninyong gamitin ang alin mang bahagi ng inyong katawan sa paggawa ng kasalanan. Sa halip, ialay ninyo ang inyong sarili sa Dios bilang mga taong binigyan ng <i class="trans-change">bagong_ buhay. Ilaan ninyo sa Dios ang inyong katawan sa paggawa ng kabutihan. 
+Huwag na ninyong gamitin ang alin mang bahagi ng inyong katawan sa paggawa ng kasalanan. Sa halip, ialay ninyo ang inyong sarili sa Dios bilang mga taong binigyan ng bagong_ buhay. Ilaan ninyo sa Dios ang inyong katawan sa paggawa ng kabutihan. 
 
 
 
@@ -469,7 +469,7 @@ Huwag na ninyong gamitin ang alin mang bahagi ng inyong katawan sa paggawa ng ka
 
 
 
-Sapagkat hindi na dapat maghari pa sa inyo ang kasalanan, dahil wala na kayo sa ilalim ng Kautusan kundi sa ilalim na ng biyaya <i class="trans-change">ng Dios_.
+Sapagkat hindi na dapat maghari pa sa inyo ang kasalanan, dahil wala na kayo sa ilalim ng Kautusan kundi sa ilalim na ng biyaya ng Dios_.
 
 ## Mga Alipin ng Katuwiran 
 
@@ -504,7 +504,7 @@ Sapagkat hindi na dapat maghari pa sa inyo ang kasalanan, dahil wala na kayo sa 
 
 
 
-Ngayon, dahil wala na tayo sa ilalim ng Kautusan kundi sa biyaya na <i class="trans-change">ng Dios_, nangangahulugan bang magpapatuloy pa rin tayo sa paggawa ng kasalanan? Aba, hindi! 
+Ngayon, dahil wala na tayo sa ilalim ng Kautusan kundi sa biyaya na ng Dios_, nangangahulugan bang magpapatuloy pa rin tayo sa paggawa ng kasalanan? Aba, hindi! 
 
 
 

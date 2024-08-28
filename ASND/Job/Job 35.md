@@ -370,7 +370,7 @@ Pero hindi sila tumatawag sa Dios na lumikha sa kanila at nagbibigay ng kalakasa
 
 
 
-<i class="trans-change">Hindi sila lumalapit sa Dios_ na nilikha silang higit na marunong kaysa sa mga hayop at ibon. 
+Hindi sila lumalapit sa Dios_ na nilikha silang higit na marunong kaysa sa mga hayop at ibon. 
 
 
 
@@ -469,7 +469,7 @@ Tunay ngang hindi dinidinig ng Makapangyarihang Dios ang walang kabuluhang paghi
 
 
 
-<i class="trans-change">Job,_ lalo ka lang niyang hindi pakikinggan kung sasabihin mong hindi mo nakikita ang kanyang tulong nang idinulog mo ang iyong kalagayan, at pinaghihintay ka lang. 
+Job,_ lalo ka lang niyang hindi pakikinggan kung sasabihin mong hindi mo nakikita ang kanyang tulong nang idinulog mo ang iyong kalagayan, at pinaghihintay ka lang. 
 
 
 
@@ -535,4 +535,4 @@ Sinabi mo rin na hindi nagpaparusa ang Dios kahit galit siya, at hindi niya pina
 
 
 
-Job, walang saysay ang sinasabi mo. <i class="trans-change">Talagang_ malinaw na hindi mo alam ang iyong sinasabi."
+Job, walang saysay ang sinasabi mo. Talagang_ malinaw na hindi mo alam ang iyong sinasabi."

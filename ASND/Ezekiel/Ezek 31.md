@@ -40,7 +40,7 @@ next: ['Ezek 32']
 
 
 
-Noong unang araw ng ikatlong buwan, nang ika-11 taon <i class="trans-change">ng aming pagkabihag_, sinabi sa akin ng Panginoon, 
+Noong unang araw ng ikatlong buwan, nang ika-11 taon ng aming pagkabihag_, sinabi sa akin ng Panginoon, 
 
 
 
@@ -271,7 +271,7 @@ Napakaganda ng punong ito. Mahahaba ang sanga at mayayabong ang dahon, at ang ug
 
 
 
-Ang mga puno ng sedro sa halamanan ng Dios ay hindi makakapantay sa kanya. Kahit ang mga puno ng abeto at puno ng platano ay hindi maihahambing sa <i class="trans-change">kagandahan ng_ kanyang mga sanga. Hindi maihahalintulad sa anumang puno sa halamanan ng Dios ang kagandahan ng punong ito. 
+Ang mga puno ng sedro sa halamanan ng Dios ay hindi makakapantay sa kanya. Kahit ang mga puno ng abeto at puno ng platano ay hindi maihahambing sa kagandahan ng_ kanyang mga sanga. Hindi maihahalintulad sa anumang puno sa halamanan ng Dios ang kagandahan ng punong ito. 
 
 
 
@@ -370,7 +370,7 @@ Kaya sinabi ng Panginoong Dios, "Dahil naging mapagmataas ang punong ito at higi
 
 
 
-kaya ibibigay ko siya sa pinuno ng mga makapangyarihang bansa. At tiyak na paparusahan siya ayon sa kasamaan niya. <i class="trans-change">Oo_, itatakwil ko siya; 
+kaya ibibigay ko siya sa pinuno ng mga makapangyarihang bansa. At tiyak na paparusahan siya ayon sa kasamaan niya. Oo_, itatakwil ko siya; 
 
 
 
@@ -469,7 +469,7 @@ Ang mga ibon sa himpapawid ay dadapo sa naputol na puno at ang mga hayop sa guba
 
 
 
-Kaya <i class="trans-change">simula ngayon_ wala nang punong tataas pa sa ibang malagong mga punongkahoy, kahit sagana pa ito sa tubig. Sapagkat ang lahat ng puno ay mamamatay katulad ng tao, at pupunta sa ilalim ng lupa." 
+Kaya simula ngayon_ wala nang punong tataas pa sa ibang malagong mga punongkahoy, kahit sagana pa ito sa tubig. Sapagkat ang lahat ng puno ay mamamatay katulad ng tao, at pupunta sa ilalim ng lupa." 
 
 
 
@@ -601,4 +601,4 @@ Ang mga bansang sumisilong at kumakampi sa kanya ay sasama rin sa kanya roon sa 
 
 
 
-"Sa anong puno sa Eden maihahambing ang kagandahan mo at kapangyarihan, <i class="trans-change">Faraon_? Pero ihuhulog ka rin sa ilalim ng lupa kasama ng mga puno ng Eden. Doon ay magkakasama kayo ng mga taong hindi naniniwala sa Dios na namatay sa digmaan. "Iyan ang mangyayari sa Faraon at sa mga tauhan niya. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito."
+"Sa anong puno sa Eden maihahambing ang kagandahan mo at kapangyarihan, Faraon_? Pero ihuhulog ka rin sa ilalim ng lupa kasama ng mga puno ng Eden. Doon ay magkakasama kayo ng mga taong hindi naniniwala sa Dios na namatay sa digmaan. "Iyan ang mangyayari sa Faraon at sa mga tauhan niya. Ako,_ ang Panginoong Dios, ang nagsasabi nito."

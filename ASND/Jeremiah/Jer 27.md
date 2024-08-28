@@ -205,7 +205,7 @@ Ang lahat ng bansa ay maglilingkod sa kanya, sa anak, at sa apo niya hanggang sa
 
 
 
-" 'Pero kung may bansa o kahariang ayaw maglingkod o magpasakop kay Haring Nebucadnezar ng Babilonia, ako ang magpaparusa sa bansa <i class="trans-change">o kahariang iyon_ sa pamamagitan ng digmaan, gutom, at sakit hanggang sa maipasakop ko sila kay Nebucadnezar. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+" 'Pero kung may bansa o kahariang ayaw maglingkod o magpasakop kay Haring Nebucadnezar ng Babilonia, ako ang magpaparusa sa bansa o kahariang iyon_ sa pamamagitan ng digmaan, gutom, at sakit hanggang sa maipasakop ko sila kay Nebucadnezar. Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -304,7 +304,7 @@ Kasinungalingan ang sinasabi nila sa inyo. At kung maniniwala kayo sa kanila, pa
 
 
 
-Pero ang mga bansang magpapasakop at maglilingkod sa hari ng Babilonia ay mananatili sa sarili nilang bayan. Dito sila maninirahan at bubungkalin nila ang kanilang sariling lupain. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito.' " 
+Pero ang mga bansang magpapasakop at maglilingkod sa hari ng Babilonia ay mananatili sa sarili nilang bayan. Dito sila maninirahan at bubungkalin nila ang kanilang sariling lupain. Ako,_ ang Panginoon, ang nagsasabi nito.' " 
 
 
 
@@ -568,7 +568,7 @@ Kung talagang mga propeta sila at galing sa Panginoon ang sinasabi nila, manalan
 
 
 
-Sapagkat sinasabi ng Panginoong Makapangyarihan na ang mga <i class="trans-change">tansong_ haligi <i class="trans-change">ng templo_, ang <i class="trans-change">lalagyan ng tubig na tinatawag na_ Dagat, mga karwahe, at ang iba pang mga kagamitan sa lungsod <i class="trans-change">na ito ay dadalhin sa Babilonia_. 
+Sapagkat sinasabi ng Panginoong Makapangyarihan na ang mga tansong_ haligi ng templo_, ang lalagyan ng tubig na tinatawag na_ Dagat, mga karwahe, at ang iba pang mga kagamitan sa lungsod na ito ay dadalhin sa Babilonia_. 
 
 
 
@@ -601,4 +601,4 @@ Sapagkat sinasabi ng Panginoong Makapangyarihan na ang mga <i class="trans-chang
 
 
 
-Ang mga nasabing kagamitan ay hindi dinala ni Haring Nebucadnezar sa Babilonia noong binihag niya si Haring Jehoyakin na anak ni Haring Jehoyakim ng Juda, kasama ng mga tagapamahala ng Juda at Jerusalem. <sup class="versenum">21-22</sup>Pero ngayon, ito ang sinabi ng Panginoong Makapangyarihan, ang Dios ng Israel, 'Dadalhin sa Babilonia ang mga kagamitang ito at mananatili roon hanggang sa dumating ang araw na kukunin ko ito at ibabalik sa Jerusalem.' "
+Ang mga nasabing kagamitan ay hindi dinala ni Haring Nebucadnezar sa Babilonia noong binihag niya si Haring Jehoyakin na anak ni Haring Jehoyakim ng Juda, kasama ng mga tagapamahala ng Juda at Jerusalem. 21-22Pero ngayon, ito ang sinabi ng Panginoong Makapangyarihan, ang Dios ng Israel, 'Dadalhin sa Babilonia ang mga kagamitang ito at mananatili roon hanggang sa dumating ang araw na kukunin ko ito at ibabalik sa Jerusalem.' "

@@ -6,7 +6,7 @@ next: ['Mark 2']
 # Mark 1
 
 ***
-###### 1-2 Ito ang Magandang Balita tungkol kay Jesu-Cristo na Anak ng Dios. Nagsimula ito nang matupad ang isinulat ni Propeta Isaias <i class="trans-change">tungkol sa sinabi ng Dios sa kanyang Anak:_ "Ipapadala ko ang aking mensahero. Mauuna siya sa iyo upang ihanda ang dadaanan mo. 
+###### 1-2 Ito ang Magandang Balita tungkol kay Jesu-Cristo na Anak ng Dios. Nagsimula ito nang matupad ang isinulat ni Propeta Isaias tungkol sa sinabi ng Dios sa kanyang Anak:_ "Ipapadala ko ang aking mensahero. Mauuna siya sa iyo upang ihanda ang dadaanan mo. 
 
 
 
@@ -39,7 +39,7 @@ next: ['Mark 2']
 
 
 
-Maririnig ang kanyang sigaw sa ilang, na nagsasabi, 'Ihanda ninyo ang daan para sa Panginoon, tuwirin ninyo ang mga landas na kanyang dadaanan.' " ###### 4-5 <i class="trans-change">At natupad ito_ noong dumating si Juan na tagapagbautismo roon sa ilang. Napakaraming tao ang pumunta sa kanya galing sa Jerusalem at sa buong <i class="trans-change">lalawigan ng_ Judea. Nangaral si Juan <i class="trans-change">sa mga tao_, "Magsisi kayo at talikdan ang inyong mga kasalanan; magpabautismo kayo para sa kapatawaran ng inyong mga kasalanan." Ipinahayag nila ang kanilang mga kasalanan at binautismuhan sila ni Juan sa Ilog ng Jordan. 
+Maririnig ang kanyang sigaw sa ilang, na nagsasabi, 'Ihanda ninyo ang daan para sa Panginoon, tuwirin ninyo ang mga landas na kanyang dadaanan.' " ###### 4-5 At natupad ito_ noong dumating si Juan na tagapagbautismo roon sa ilang. Napakaraming tao ang pumunta sa kanya galing sa Jerusalem at sa buong lalawigan ng_ Judea. Nangaral si Juan sa mga tao_, "Magsisi kayo at talikdan ang inyong mga kasalanan; magpabautismo kayo para sa kapatawaran ng inyong mga kasalanan." Ipinahayag nila ang kanilang mga kasalanan at binautismuhan sila ni Juan sa Ilog ng Jordan. 
 
 
 
@@ -171,7 +171,7 @@ Binabautismuhan ko kayo sa tubig, ngunit babautismuhan niya kayo sa Banal na Esp
 
 
 
-Sa panahong iyon, dumating si Jesus mula sa Nazaret na sakop ng Galilea at nagpabautismo kay Juan sa <i class="trans-change">Ilog ng_ Jordan. 
+Sa panahong iyon, dumating si Jesus mula sa Nazaret na sakop ng Galilea at nagpabautismo kay Juan sa Ilog ng_ Jordan. 
 
 
 
@@ -204,7 +204,7 @@ Sa panahong iyon, dumating si Jesus mula sa Nazaret na sakop ng Galilea at nagpa
 
 
 
-Pagkaahon ni Jesus sa tubig, nakita niyang bumukas ang langit at bumaba sa kanya ang <i class="trans-change">Banal na_ Espiritu tulad ng isang kalapati. 
+Pagkaahon ni Jesus sa tubig, nakita niyang bumukas ang langit at bumaba sa kanya ang Banal na_ Espiritu tulad ng isang kalapati. 
 
 
 
@@ -270,7 +270,7 @@ At may boses na narinig mula sa langit na nagsabi, "Ikaw ang minamahal kong Anak
 
 
 
-At noon din ay pinapunta siya ng <i class="trans-change">Banal na_ Espiritu sa ilang. 
+At noon din ay pinapunta siya ng Banal na_ Espiritu sa ilang. 
 
 
 
@@ -338,7 +338,7 @@ Nanatili siya roon ng 40 araw na tinutukso ni Satanas. May mababangis na hayop d
 
 
 
-Nang mabilanggo si Juan <i class="trans-change">na tagapagbautismo_, pumunta si Jesus sa Galilea at ipinangaral doon ang Magandang Balita na mula sa Dios. 
+Nang mabilanggo si Juan na tagapagbautismo_, pumunta si Jesus sa Galilea at ipinangaral doon ang Magandang Balita na mula sa Dios. 
 
 
 
@@ -404,7 +404,7 @@ Sinabi niya, "Dumating na ang takdang panahon! Malapit na ang paghahari ng Dios.
 
 
 
-<i class="trans-change">Isang araw,_ habang naglalakad si Jesus sa tabi ng Lawa ng Galilea, nakita niya ang magkapatid na mangingisdang sina Simon at Andres. Naghahagis sila ng lambat. 
+Isang araw,_ habang naglalakad si Jesus sa tabi ng Lawa ng Galilea, nakita niya ang magkapatid na mangingisdang sina Simon at Andres. Naghahagis sila ng lambat. 
 
 
 
@@ -670,7 +670,7 @@ May isang tao roon na sinasaniban ng masamang espiritu ang biglang nagsisigaw:
 
 
 
-"Ano ang pakialam mo sa amin, Jesus na taga-Nazaret? Naparito ka ba upang puksain kami? Kilala kita. Ikaw ang Banal <i class="trans-change">na sugo_ ng Dios!" 
+"Ano ang pakialam mo sa amin, Jesus na taga-Nazaret? Naparito ka ba upang puksain kami? Kilala kita. Ikaw ang Banal na sugo_ ng Dios!" 
 
 
 
@@ -1136,7 +1136,7 @@ Nang matagpuan nila si Jesus, sinabi nila, "Hinahanap po kayo ng lahat."
 
 
 
-Pero sinabi ni Jesus sa kanila, "Pumunta naman tayo sa mga kalapit-bayan, para makapangaral din ako roon, dahil ito ang dahilan kung bakit ako naparito <i class="trans-change">sa mundo_." 
+Pero sinabi ni Jesus sa kanila, "Pumunta naman tayo sa mga kalapit-bayan, para makapangaral din ako roon, dahil ito ang dahilan kung bakit ako naparito sa mundo_." 
 
 
 
@@ -1169,7 +1169,7 @@ Pero sinabi ni Jesus sa kanila, "Pumunta naman tayo sa mga kalapit-bayan, para m
 
 
 
-Kaya nilibot ni Jesus ang buong Galilea at nangaral siya sa mga sambahan ng mga Judio at nagpalayas ng masasamang espiritu <i class="trans-change">sa mga taong sinaniban ng mga ito_.
+Kaya nilibot ni Jesus ang buong Galilea at nangaral siya sa mga sambahan ng mga Judio at nagpalayas ng masasamang espiritu sa mga taong sinaniban ng mga ito_.
 
 ## Pinagaling ni Jesus ang Isang Lalaking May Malubhang Sakit sa Balat 
 
@@ -1204,7 +1204,7 @@ Kaya nilibot ni Jesus ang buong Galilea at nangaral siya sa mga sambahan ng mga 
 
 
 
-Lumapit kay Jesus ang isang lalaking may malubhang sakit sa balat. Lumuhod ito sa harap niya at nagmakaawang <i class="trans-change">pagalingin siya_. Sinabi niya, "Kung gusto nʼyo po, mapapagaling nʼyo ako upang maituring akong malinis." 
+Lumapit kay Jesus ang isang lalaking may malubhang sakit sa balat. Lumuhod ito sa harap niya at nagmakaawang pagalingin siya_. Sinabi niya, "Kung gusto nʼyo po, mapapagaling nʼyo ako upang maituring akong malinis." 
 
 
 
@@ -1270,7 +1270,7 @@ Naawa si Jesus sa kanya. Kaya hinawakan siya ni Jesus at sinabi, "Gusto ko. Lumi
 
 
 
-Gumaling agad ang sakit niya, at siya ay luminis. <sup class="versenum">43-44</sup>Pinaalis siya agad ni Jesus at binilinan, "Huwag mo itong ipagsasabi kahit kanino. Sa halip, pumunta ka sa pari at magpasuri. Pagkatapos, maghandog ka ayon sa iniutos ni Moises bilang patunay <i class="trans-change">na malinis ka na_." 
+Gumaling agad ang sakit niya, at siya ay luminis. 43-44Pinaalis siya agad ni Jesus at binilinan, "Huwag mo itong ipagsasabi kahit kanino. Sa halip, pumunta ka sa pari at magpasuri. Pagkatapos, maghandog ka ayon sa iniutos ni Moises bilang patunay na malinis ka na_." 
 
 
 
@@ -1303,4 +1303,4 @@ Gumaling agad ang sakit niya, at siya ay luminis. <sup class="versenum">43-44</s
 
 
 
-Pero pagkaalis niya, ipinamalita niya ang nangyari sa kanya. Kaya kumalat ang balitang ito hanggang sa hindi na lantarang makapasok si Jesus sa mga bayan <i class="trans-change">dahil pinagkakaguluhan siya ng mga tao_. Kaya roon na lang siya nanatili sa mga ilang. Pero pumupunta pa rin doon ang mga tao mula sa ibaʼt ibang lugar.
+Pero pagkaalis niya, ipinamalita niya ang nangyari sa kanya. Kaya kumalat ang balitang ito hanggang sa hindi na lantarang makapasok si Jesus sa mga bayan dahil pinagkakaguluhan siya ng mga tao_. Kaya roon na lang siya nanatili sa mga ilang. Pero pumupunta pa rin doon ang mga tao mula sa ibaʼt ibang lugar.

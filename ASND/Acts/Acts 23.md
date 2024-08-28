@@ -370,7 +370,7 @@ Lalong uminit ang kanilang pagtatalo, hanggang sa natakot ang kumander na baka p
 
 
 
-Kinagabihan, nagpakita ang Panginoon kay Pablo at sinabi <i class="trans-change">sa kanya_, "Huwag kang matakot! Sapagkat kung paano ka nagpahayag tungkol sa akin dito sa Jerusalem, ganoon din ang gagawin mo sa Roma." ## Ang Planong Pagpatay kay Pablo <sup class="versenum">12-13</sup>Kinaumagahan, nagpulong ang mahigit 40 Judio, at nagplano sila kung ano ang kanilang gagawin. Nanumpa sila na hindi sila kakain at iinom hanggaʼt hindi nila napapatay si Pablo. 
+Kinagabihan, nagpakita ang Panginoon kay Pablo at sinabi sa kanya_, "Huwag kang matakot! Sapagkat kung paano ka nagpahayag tungkol sa akin dito sa Jerusalem, ganoon din ang gagawin mo sa Roma." ## Ang Planong Pagpatay kay Pablo 12-13Kinaumagahan, nagpulong ang mahigit 40 Judio, at nagplano sila kung ano ang kanilang gagawin. Nanumpa sila na hindi sila kakain at iinom hanggaʼt hindi nila napapatay si Pablo. 
 
 
 
@@ -436,7 +436,7 @@ Pagkatapos, pumunta sila sa mga namamahalang pari at sa mga pinuno ng mga Judio 
 
 
 
-Kaya hilingin ninyo at ng Korte sa kumander <i class="trans-change">ng mga sundalong Romano_ na gusto ninyong papuntahin ulit dito sa inyo si Pablo. Sabihin ninyo na gusto ninyong imbestigahan nang mabuti si Pablo. Pero bago pa siya makarating dito, papatayin namin siya." 
+Kaya hilingin ninyo at ng Korte sa kumander ng mga sundalong Romano_ na gusto ninyong papuntahin ulit dito sa inyo si Pablo. Sabihin ninyo na gusto ninyong imbestigahan nang mabuti si Pablo. Pero bago pa siya makarating dito, papatayin namin siya." 
 
 
 
@@ -469,7 +469,7 @@ Kaya hilingin ninyo at ng Korte sa kumander <i class="trans-change">ng mga sunda
 
 
 
-Pero ang plano nilaʼy narinig ng pamangking lalaki ni Pablo, na anak ng kapatid niyang babae. Kaya pumunta siya sa kampo <i class="trans-change">ng mga sundalo_ at ibinalita ito kay Pablo. 
+Pero ang plano nilaʼy narinig ng pamangking lalaki ni Pablo, na anak ng kapatid niyang babae. Kaya pumunta siya sa kampo ng mga sundalo_ at ibinalita ito kay Pablo. 
 
 
 
@@ -768,7 +768,7 @@ Maghanda rin kayo ng mga kabayo na sasakyan ni Pablo. Bantayan ninyo siyang mabu
 
 
 
-At sumulat ang kumander <i class="trans-change">sa gobernador_ ng ganito: 
+At sumulat ang kumander sa gobernador_ ng ganito: 
 
 
 
@@ -801,7 +801,7 @@ At sumulat ang kumander <i class="trans-change">sa gobernador_ ng ganito:
 
 
 
-"<i class="trans-change">Mula kay_ Claudius Lysias. "Mahal at kagalang-galang na Gobernador Felix: 
+"Mula kay_ Claudius Lysias. "Mahal at kagalang-galang na Gobernador Felix: 
 
 
 
@@ -834,7 +834,7 @@ At sumulat ang kumander <i class="trans-change">sa gobernador_ ng ganito:
 
 
 
-"Ang taong ito <i class="trans-change">na ipinadala ko sa iyo_ ay dinakip ng mga Judio, at papatayin na sana. Pero nang malaman kong isa pala siyang Romano, nagsama ako ng mga sundalo at iniligtas siya. 
+"Ang taong ito na ipinadala ko sa iyo_ ay dinakip ng mga Judio, at papatayin na sana. Pero nang malaman kong isa pala siyang Romano, nagsama ako ng mga sundalo at iniligtas siya. 
 
 
 

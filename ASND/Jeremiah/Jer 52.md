@@ -39,7 +39,7 @@ up: ['Jeremiah']
 
 
 
-Si Zedekia ay 21 taong gulang nang maging hari. Sa Jerusalem <i class="trans-change">siya tumira, at_ naghari siya roon sa loob ng 11 taon. Ang ina niya ay si Hamutal na anak ni Jeremias na taga-Libna. 
+Si Zedekia ay 21 taong gulang nang maging hari. Sa Jerusalem siya tumira, at_ naghari siya roon sa loob ng 11 taon. Ang ina niya ay si Hamutal na anak ni Jeremias na taga-Libna. 
 
 
 
@@ -237,7 +237,7 @@ Noong ikasiyam na araw ng ikaapat na buwan ng taon ding iyon, matindi na ang tag
 
 
 
-Winasak na ng mga taga-Babilonia ang isang bahagi ng pader ng lungsod, kaya naisip <i class="trans-change">ni Zedekia_ na tumakas kasama ang kanyang buong hukbo. Pero dahil sa napalibutan na sila ng mga taga-Babilonia, naghintay sila hanggang sa gumabi. Doon sila dumaan sa pintuan na nasa pagitan ng dalawang pader malapit sa halamanan ng hari. Tumakas sila patungo sa Lambak ng Jordan. 
+Winasak na ng mga taga-Babilonia ang isang bahagi ng pader ng lungsod, kaya naisip ni Zedekia_ na tumakas kasama ang kanyang buong hukbo. Pero dahil sa napalibutan na sila ng mga taga-Babilonia, naghintay sila hanggang sa gumabi. Doon sila dumaan sa pintuan na nasa pagitan ng dalawang pader malapit sa halamanan ng hari. Tumakas sila patungo sa Lambak ng Jordan. 
 
 
 
@@ -567,7 +567,7 @@ Pero iniwan din niya ang ilan sa pinakadukhang mga tao para alagaan ang mga ubas
 
 
 
-Sinira ng mga taga-Babilonia ang mga sumusunod na kagamitan sa templo ng Panginoon: ang haliging tanso, mga karitong ginagamit sa pag-igib, at ang <i class="trans-change">malaking lalagyan ng tubig na_ tanso na tinatawag nilang Dagat. At dinala nila sa Babilonia ang lahat ng tanso. 
+Sinira ng mga taga-Babilonia ang mga sumusunod na kagamitan sa templo ng Panginoon: ang haliging tanso, mga karitong ginagamit sa pag-igib, at ang malaking lalagyan ng tubig na_ tanso na tinatawag nilang Dagat. At dinala nila sa Babilonia ang lahat ng tanso. 
 
 
 
@@ -666,7 +666,7 @@ Kinuha ni Nebuzaradan ang mga planggana, mga lalagyan ng baga, mga mangkok, mga 
 
 
 
-Hindi kayang timbangin ang mga tanso na mula sa dalawang haligi, sa <i class="trans-change">lalagyan ng tubig na tinatawag nilang_ Dagat, sa 12 torong tanso na patungan nito at mga karitong ginagamit sa pag-igib ng tubig. Ang mga gamit na itoʼy ipinagawa noon ni Solomon para sa templo ng Panginoon. 
+Hindi kayang timbangin ang mga tanso na mula sa dalawang haligi, sa lalagyan ng tubig na tinatawag nilang_ Dagat, sa 12 torong tanso na patungan nito at mga karitong ginagamit sa pag-igib ng tubig. Ang mga gamit na itoʼy ipinagawa noon ni Solomon para sa templo ng Panginoon. 
 
 
 
@@ -732,7 +732,7 @@ Ang taas ng bawat haligi ay 27 talampakan at ang kabuuang bilog ay 18 talampakan
 
 
 
-Ang bawat haligi ay may parang ulo sa itaas, na nasa pitoʼt kalahating talampakan ang taas. Pinaikutan ito ng mga mala-kadenang dugtong-dugtong at napapalibutan ito ng palamuting tanso, na hugis <i class="trans-change">prutas na_ pomegranata. 
+Ang bawat haligi ay may parang ulo sa itaas, na nasa pitoʼt kalahating talampakan ang taas. Pinaikutan ito ng mga mala-kadenang dugtong-dugtong at napapalibutan ito ng palamuting tanso, na hugis prutas na_ pomegranata. 
 
 
 
@@ -798,7 +798,7 @@ Sa gilid ng bawat haligi ay may 96 na palamuti na kahugis ng prutas ng pomegrana
 
 
 
-Binihag din ni Nebuzaradan sina Seraya na punong pari, Zefanias na pangalawang punong pari at ang tatlong tagapagbantay ng pinto <i class="trans-change">ng templo_. 
+Binihag din ni Nebuzaradan sina Seraya na punong pari, Zefanias na pangalawang punong pari at ang tatlong tagapagbantay ng pinto ng templo_. 
 
 
 
@@ -897,7 +897,7 @@ Silang lahat ay dinala ni Nebuzaradan sa hari ng Babilonia na nasa Ribla,
 
 
 
-na sakop ng Hamat. At doon sila ipinapatay ng hari. Kaya ang mga mamamayan ng Juda ay binihag at dinala papalayo sa lupain nila. <sup class="versenum">28-30</sup>Ito ang bilang ng mga taong binihag ni Haring Nebucadnezar: Noong ikapitong taon ng paghahari niya, 3,023. Noong ika-18 taon ng paghahari niya, 832. Noong ika-23 taon ng paghahari niya, 745. Si Nebuzaradan ang bumihag sa kanila. May kabuuang bilang na 4,600 ang binihag.
+na sakop ng Hamat. At doon sila ipinapatay ng hari. Kaya ang mga mamamayan ng Juda ay binihag at dinala papalayo sa lupain nila. 28-30Ito ang bilang ng mga taong binihag ni Haring Nebucadnezar: Noong ikapitong taon ng paghahari niya, 3,023. Noong ika-18 taon ng paghahari niya, 832. Noong ika-23 taon ng paghahari niya, 745. Si Nebuzaradan ang bumihag sa kanila. May kabuuang bilang na 4,600 ang binihag.
 
 ## Pinakawalan si Jehoyakin 
 

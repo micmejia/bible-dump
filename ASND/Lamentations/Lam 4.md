@@ -700,7 +700,7 @@ Nahuli nila ang aming hari na hinirang ng Panginoon, ang inaasahan naming mangan
 
 
 
-Magalak kayo <i class="trans-change">ngayon_, mga angkan ni Edom na nakatira sa lupain ng Uz. <i class="trans-change">Dahil_ kayo man ay paiinumin din sa tasa <i class="trans-change">ng parusa ng Panginoon_. Malalasing din kayo at malalagay sa kahihiyan. 
+Magalak kayo ngayon_, mga angkan ni Edom na nakatira sa lupain ng Uz. Dahil_ kayo man ay paiinumin din sa tasa ng parusa ng Panginoon_. Malalasing din kayo at malalagay sa kahihiyan. 
 
 
 
@@ -733,4 +733,4 @@ Magalak kayo <i class="trans-change">ngayon_, mga angkan ni Edom na nakatira sa 
 
 
 
-Mga taga-Jerusalem, matatapos na ang parusa ninyo. Hindi magtatagal ay pauuwiin na kayo ng <i class="trans-change">Panginoon_ mula sa lugar na ito na pinagdalhan sa inyo nang bihagin kayo. Pero kayong mga taga-Edom, parurusahan kayo ng <i class="trans-change">Panginoon_ dahil sa inyong mga kasalanan at ibubunyag niya ang inyong kasamaan.
+Mga taga-Jerusalem, matatapos na ang parusa ninyo. Hindi magtatagal ay pauuwiin na kayo ng Panginoon_ mula sa lugar na ito na pinagdalhan sa inyo nang bihagin kayo. Pero kayong mga taga-Edom, parurusahan kayo ng Panginoon_ dahil sa inyong mga kasalanan at ibubunyag niya ang inyong kasamaan.

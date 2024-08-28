@@ -172,7 +172,7 @@ Pero naging katawa-tawa ako sa aking mga kaibigan, kahit na matuwid ako at walan
 
 
 
-Ang mga taong naghihirap na <i class="trans-change">gaya ko na_ tila mabubuwal ay kinukutya ng mga taong walang problema. 
+Ang mga taong naghihirap na gaya ko na_ tila mabubuwal ay kinukutya ng mga taong walang problema. 
 
 
 
@@ -339,7 +339,7 @@ Kung alam ng dila ng tao kung alin ang masarap o hindi masarap na pagkain, alam 
 
 
 
-Maraming alam <i class="trans-change">sa buhay_ ang matatanda, dahil habang tumatagal ang buhay nila, lalong dumarami ang kanilang nalalaman. 
+Maraming alam sa buhay_ ang matatanda, dahil habang tumatagal ang buhay nila, lalong dumarami ang kanilang nalalaman. 
 
 
 
@@ -372,7 +372,7 @@ Maraming alam <i class="trans-change">sa buhay_ ang matatanda, dahil habang tuma
 
 
 
-"<i class="trans-change">Pero_ ang Dios ay <i class="trans-change">hindi lang nagtataglay ng_ karunungan, nasa kanya <i class="trans-change">rin_ ang kapangyarihan, at <i class="trans-change">siya lang_ ang nakakaunawa <i class="trans-change">kung ano ang dapat gawin_. 
+"Pero_ ang Dios ay hindi lang nagtataglay ng_ karunungan, nasa kanya rin_ ang kapangyarihan, at siya lang_ ang nakakaunawa kung ano ang dapat gawin_. 
 
 
 

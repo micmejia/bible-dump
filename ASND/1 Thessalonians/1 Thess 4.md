@@ -304,7 +304,7 @@ Ang sinumang hindi sumusunod sa mga utos na ito ay hindi sa tao sumusuway kundi 
 
 
 
-Ngayon, tungkol sa pagmamahalan bilang magkakapatid <i class="trans-change">sa Panginoon_, hindi na kayo kailangang paalalahanan pa tungkol dito, dahil ang Dios na mismo ang nagturo sa inyo na magmahalan. 
+Ngayon, tungkol sa pagmamahalan bilang magkakapatid sa Panginoon_, hindi na kayo kailangang paalalahanan pa tungkol dito, dahil ang Dios na mismo ang nagturo sa inyo na magmahalan. 
 
 
 
@@ -537,7 +537,7 @@ Sinasabi namin sa inyo ang mismong turo ng Panginoon: Tayong mga buhay pa pagbal
 
 
 
-<i class="trans-change">Sa araw na iyon,_ ang Panginoon mismo ang bababa mula sa langit kasabay ng malakas na utos. Maririnig ang pagtawag ng punong anghel at ang pagtunog ng trumpeta ng Dios. Ang mga namatay na sumasampalataya kay Cristo ang unang bubuhayin; 
+Sa araw na iyon,_ ang Panginoon mismo ang bababa mula sa langit kasabay ng malakas na utos. Maririnig ang pagtawag ng punong anghel at ang pagtunog ng trumpeta ng Dios. Ang mga namatay na sumasampalataya kay Cristo ang unang bubuhayin; 
 
 
 
@@ -603,4 +603,4 @@ pagkatapos, ang mga buhay pa sa atin sa araw na iyon ay kasama nilang dadalhin s
 
 
 
-Kaya nga, <i class="trans-change">mga kapatid,_ pasiglahin ninyo ang isaʼt isa sa pamamagitan ng mga aral na ito.
+Kaya nga, mga kapatid,_ pasiglahin ninyo ang isaʼt isa sa pamamagitan ng mga aral na ito.

@@ -733,7 +733,7 @@ Pagkalipas ng pitong taon, sinabi ni Jacob kay Laban, "Natapos na ang paglilingk
 
 
 
-<i class="trans-change">Pumayag si Laban,_ kaya nagdaos siya ng handaan at inimbitahan niya ang lahat ng tao sa lugar na iyon. 
+Pumayag si Laban,_ kaya nagdaos siya ng handaan at inimbitahan niya ang lahat ng tao sa lugar na iyon. 
 
 
 

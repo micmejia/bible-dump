@@ -40,7 +40,7 @@ next: ['Gen 28']
 
 
 
-Matandang matanda na si Isaac at halos hindi na makakita. Isang araw, tinawag niya ang panganay niyang anak na si Esau. Sinabi niya, "Anak." Sumagot si Esau, "Narito <i class="trans-change">po_ ako ama." 
+Matandang matanda na si Isaac at halos hindi na makakita. Isang araw, tinawag niya ang panganay niyang anak na si Esau. Sinabi niya, "Anak." Sumagot si Esau, "Narito po_ ako ama." 
 
 
 
@@ -1492,7 +1492,7 @@ Doon ka muna hanggang mawala ang galit ng iyong kuya,
 
 
 
-at makalimutan na niya ang iyong ginawa sa kanya. Ipapasundo na lang kita roon kapag hindi na siya galit sa iyo. Hindi ko hahayaang mawala kayong dalawa sa akin, baka isang araw <i class="trans-change">magpatayan kayo_." ## Pinapunta ni Isaac si Jacob kay Laban 
+at makalimutan na niya ang iyong ginawa sa kanya. Ipapasundo na lang kita roon kapag hindi na siya galit sa iyo. Hindi ko hahayaang mawala kayong dalawa sa akin, baka isang araw magpatayan kayo_." ## Pinapunta ni Isaac si Jacob kay Laban 
 
 
 

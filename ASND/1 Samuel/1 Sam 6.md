@@ -73,7 +73,7 @@ Nanatili ang Kahon ng Panginoon sa mga Filisteo sa loob ng pitong buwan. Noong n
 
 
 
-ipinatawag ng mga Filisteo ang <i class="trans-change">kanilang_ mga pari at manghuhula at nagtanong, "Ano ang gagawin namin sa Kahon ng Panginoon. Sabihin ninyo sa amin kung paano namin ito ibabalik sa kanyang lugar?" 
+ipinatawag ng mga Filisteo ang kanilang_ mga pari at manghuhula at nagtanong, "Ano ang gagawin namin sa Kahon ng Panginoon. Sabihin ninyo sa amin kung paano namin ito ibabalik sa kanyang lugar?" 
 
 
 
@@ -370,7 +370,7 @@ Pagkatapos, lumakad ang mga baka patungo sa Bet Shemesh na hindi man lang lumili
 
 
 
-Nang mga panahong iyon, nag-aani ang mga taga-Bet Shemesh ng trigo sa lambak. Nang makita nila ang Kahon ng Kasunduan, tuwang-tuwa sila. <sup class="versenum">14-15</sup>Dumating ang kariton sa bukid ni Josue na taga-Bet Shemesh, at tumigil sa tabi ng isang malaking bato. Kinuha ng mga Levita ang Kahon ng Panginoon at ang kahon na may lamang mga gintong estatwa, at ipinatong sa malaking bato. Pagkatapos, sinibak nila ang kariton at inialay ang mga baka sa Panginoon bilang handog na sinusunog, at nag-alay sila ng iba pang mga handog. 
+Nang mga panahong iyon, nag-aani ang mga taga-Bet Shemesh ng trigo sa lambak. Nang makita nila ang Kahon ng Kasunduan, tuwang-tuwa sila. 14-15Dumating ang kariton sa bukid ni Josue na taga-Bet Shemesh, at tumigil sa tabi ng isang malaking bato. Kinuha ng mga Levita ang Kahon ng Panginoon at ang kahon na may lamang mga gintong estatwa, at ipinatong sa malaking bato. Pagkatapos, sinibak nila ang kariton at inialay ang mga baka sa Panginoon bilang handog na sinusunog, at nag-alay sila ng iba pang mga handog. 
 
 
 
@@ -535,7 +535,7 @@ Ngunit may pinatay ang Dios na 70 tao na taga-Bet Shemesh dahil tiningnan nila a
 
 
 
-Nagtanong sila, "Sino ba ang makakaharap sa presensya ng Panginoon, ang banal na Dios? Saan ba natin ipapadala ang Kahon ng Panginoon para mailayo <i class="trans-change">ito_ sa atin?" 
+Nagtanong sila, "Sino ba ang makakaharap sa presensya ng Panginoon, ang banal na Dios? Saan ba natin ipapadala ang Kahon ng Panginoon para mailayo ito_ sa atin?" 
 
 
 

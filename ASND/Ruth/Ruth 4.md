@@ -39,7 +39,7 @@ up: ['Ruth']
 
 
 
-Pumunta si Boaz sa pintuang bayan at naupo roon. Nang dumaan ang sinasabi niyang mas malapit na kamag-anak <i class="trans-change">ni Elimelec_, sinabi ni Boaz sa kanya, "Kaibigan, halikaʼt maupo ka." Lumapit naman ang lalaki at naupo. 
+Pumunta si Boaz sa pintuang bayan at naupo roon. Nang dumaan ang sinasabi niyang mas malapit na kamag-anak ni Elimelec_, sinabi ni Boaz sa kanya, "Kaibigan, halikaʼt maupo ka." Lumapit naman ang lalaki at naupo. 
 
 
 
@@ -171,7 +171,7 @@ Naisip kong ipaalam ito sa iyo. Kaya kung gusto mo, bilhin mo ito sa harapan ng 
 
 
 
-Pero sinabi ni Boaz, "Sa araw na tubusin mo ang lupa kay Naomi, kailangang pakasalan mo si Ruth, ang Moabitang biyuda, para <i class="trans-change">kapag nagkaanak kayo,_ mananatili ang lupa sa pamilya ng kamag-anak nating namatay." 
+Pero sinabi ni Boaz, "Sa araw na tubusin mo ang lupa kay Naomi, kailangang pakasalan mo si Ruth, ang Moabitang biyuda, para kapag nagkaanak kayo,_ mananatili ang lupa sa pamilya ng kamag-anak nating namatay." 
 
 
 
@@ -204,7 +204,7 @@ Pero sinabi ni Boaz, "Sa araw na tubusin mo ang lupa kay Naomi, kailangang pakas
 
 
 
-<i class="trans-change">Nang marinig ito ng lalaki,_ sinabi niya, "Kung ganoon, hindi ko na tutubusin ang lupa dahil baka magkaproblema pa ako sa sarili kong lupa <i class="trans-change">dahil pati ang magiging anak namin ni Ruth ay may bahagi na sa lupa ko_. Ikaw na lang ang tumubos, hindi ko kasi magagawa iyan." 
+Nang marinig ito ng lalaki,_ sinabi niya, "Kung ganoon, hindi ko na tutubusin ang lupa dahil baka magkaproblema pa ako sa sarili kong lupa dahil pati ang magiging anak namin ni Ruth ay may bahagi na sa lupa ko_. Ikaw na lang ang tumubos, hindi ko kasi magagawa iyan." 
 
 
 
@@ -303,7 +303,7 @@ Kaya nang sabihin ng lalaki kay Boaz, "Ikaw na lang ang tumubos ng lupa," hinuba
 
 
 
-Sinabi ni Boaz sa mga tagapamahala ng bayan at sa lahat ng tao roon, "Mga saksi kayo ngayong araw na bibilhin ko na kay Naomi ang lahat ng lupain ni Elimelec, <i class="trans-change">na minana_ nina Kilion at Mahlon. 
+Sinabi ni Boaz sa mga tagapamahala ng bayan at sa lahat ng tao roon, "Mga saksi kayo ngayong araw na bibilhin ko na kay Naomi ang lahat ng lupain ni Elimelec, na minana_ nina Kilion at Mahlon. 
 
 
 
@@ -336,7 +336,7 @@ Sinabi ni Boaz sa mga tagapamahala ng bayan at sa lahat ng tao roon, "Mga saksi 
 
 
 
-At bukod pa rito, pakakasalan ko si Ruth na Moabita, na biyuda ni Mahlon, para <i class="trans-change">kapag nagkaanak kami,_ mananatili ang lupain ni Mahlon sa kanyang pamilya, at hindi mawawala ang lahi niya sa kanyang mga kababayan. Saksi nga kayo sa araw na ito!" 
+At bukod pa rito, pakakasalan ko si Ruth na Moabita, na biyuda ni Mahlon, para kapag nagkaanak kami,_ mananatili ang lupain ni Mahlon sa kanyang pamilya, at hindi mawawala ang lahi niya sa kanyang mga kababayan. Saksi nga kayo sa araw na ito!" 
 
 
 
@@ -369,7 +369,7 @@ At bukod pa rito, pakakasalan ko si Ruth na Moabita, na biyuda ni Mahlon, para <
 
 
 
-Sumagot ang mga tagapamahala ng bayan at ang lahat ng tao roon sa pintuan, "Oo, mga saksi nga kami. Nawaʼy ang magiging asawa mo ay gawin ng Panginoon na katulad nina Raquel at Lea <i class="trans-change">na nagkaanak_ ng mga naging mamamayan ng Israel. Nawaʼy maging mayaman ka sa Efrata at maging tanyag sa Betlehem. 
+Sumagot ang mga tagapamahala ng bayan at ang lahat ng tao roon sa pintuan, "Oo, mga saksi nga kami. Nawaʼy ang magiging asawa mo ay gawin ng Panginoon na katulad nina Raquel at Lea na nagkaanak_ ng mga naging mamamayan ng Israel. Nawaʼy maging mayaman ka sa Efrata at maging tanyag sa Betlehem. 
 
 
 
@@ -567,7 +567,7 @@ Palaging kinukuha ni Naomi ang bata at kinakalong. At siya ang nagbabantay nito.
 
 
 
-Sinabi ng mga babaeng kapitbahay ni Naomi, "May apong lalaki na si Naomi!" Pinangalanan nila ang bata na Obed. <i class="trans-change">At nang malaki na_ si Obed, nagkaanak siya na Jesse ang pangalan. At si Jesse ang naging ama ni David. 
+Sinabi ng mga babaeng kapitbahay ni Naomi, "May apong lalaki na si Naomi!" Pinangalanan nila ang bata na Obed. At nang malaki na_ si Obed, nagkaanak siya na Jesse ang pangalan. At si Jesse ang naging ama ni David. 
 
 
 
@@ -600,7 +600,7 @@ Sinabi ng mga babaeng kapitbahay ni Naomi, "May apong lalaki na si Naomi!" Pinan
 
 
 
-Ito ang mga angkan ni Perez <i class="trans-change">hanggang kay David_: Si Perez ang ama ni Hezron, 
+Ito ang mga angkan ni Perez hanggang kay David_: Si Perez ang ama ni Hezron, 
 
 
 

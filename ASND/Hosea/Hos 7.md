@@ -40,7 +40,7 @@ next: ['Hos 8']
 
 
 
-"Gusto ko sanang pagalingin ang mga taga-Israel. Pero ang nakikita ko sa kanila ay ang kanilang mga kasamaan. Nandaraya sila, pinapasok <i class="trans-change">ang mga bahay_ para nakawan, at nanghoholdap sa mga daan. 
+"Gusto ko sanang pagalingin ang mga taga-Israel. Pero ang nakikita ko sa kanila ay ang kanilang mga kasamaan. Nandaraya sila, pinapasok ang mga bahay_ para nakawan, at nanghoholdap sa mga daan. 
 
 
 
@@ -106,7 +106,7 @@ Hindi nila naiisip na hindi ko nakakalimutan ang kanilang mga kasamaan. Hanggang
 
 
 
-Napapasaya nila ang <i class="trans-change">kanilang_ hari at mga pinuno sa kanilang kasamaan at kasinungalingan. 
+Napapasaya nila ang kanilang_ hari at mga pinuno sa kanilang kasamaan at kasinungalingan. 
 
 
 
@@ -172,7 +172,7 @@ Lahat silaʼy mga taksil. Para silang mainit na pugon na ang apoy ay hindi na ka
 
 
 
-Nang dumating ang kaarawan ng kanilang hari, nilasing nila ang mga opisyal nito. At pati ang hari ay nakipag-inuman na rin sa <i class="trans-change">kanyang_ mga mapanghusga <i class="trans-change">na mga opisyal_. 
+Nang dumating ang kaarawan ng kanilang hari, nilasing nila ang mga opisyal nito. At pati ang hari ay nakipag-inuman na rin sa kanyang_ mga mapanghusga na mga opisyal_. 
 
 
 
@@ -205,7 +205,7 @@ Nang dumating ang kaarawan ng kanilang hari, nilasing nila ang mga opisyal nito.
 
 
 
-At habang papalapit sila <i class="trans-change">sa hari at sa kanyang mga opisyal para patayin_, nagniningas ang kanilang galit na parang mainit na pugon. Bago pa sila sumalakay, magdamag ang kanilang pagtitimpi ng kanilang galit, kaya kinaumagahan para na itong nagniningas na apoy. 
+At habang papalapit sila sa hari at sa kanyang mga opisyal para patayin_, nagniningas ang kanilang galit na parang mainit na pugon. Bago pa sila sumalakay, magdamag ang kanilang pagtitimpi ng kanilang galit, kaya kinaumagahan para na itong nagniningas na apoy. 
 
 
 
@@ -271,7 +271,7 @@ Galit na galit silang lahat na para ngang nagniningas na pugon. Kaya pinatay nil
 
 
 
-"Nakikisalamuha ang Israel sa ibang bansa. <i class="trans-change">Silaʼy walang pakinabang_ tulad ng <i class="trans-change">nilutong_ manipis na tinapay na nakalimutang baligtarin. 
+"Nakikisalamuha ang Israel sa ibang bansa. Silaʼy walang pakinabang_ tulad ng nilutong_ manipis na tinapay na nakalimutang baligtarin. 
 
 
 
@@ -535,4 +535,4 @@ Dinisiplina ko sila upang maging matatag, pero nagbalak pa rin sila ng masama la
 
 
 
-Lumapit sila sa <i class="trans-change">mga_ bagay na walang kabuluhan. Para silang panang baluktot <i class="trans-change">na walang silbi_. Mamamatay sa digmaan ang kanilang mga pinuno dahil wala silang galang kapag nagsasalita. At dahil dito, kukutyain sila ng mga taga-Egipto.
+Lumapit sila sa mga_ bagay na walang kabuluhan. Para silang panang baluktot na walang silbi_. Mamamatay sa digmaan ang kanilang mga pinuno dahil wala silang galang kapag nagsasalita. At dahil dito, kukutyain sila ng mga taga-Egipto.

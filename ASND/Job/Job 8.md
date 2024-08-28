@@ -535,7 +535,7 @@ Kapag sinandalan ito, agad nalalagot; dumidikit ngunit mahina ang kapit.
 
 
 
-<i class="trans-change">Kung titingnan parang mabuti ang kalagayan niya,_ parang tanim na sagana sa dilig at sikat ng araw. Yumayabong ito sa buong hardin 
+Kung titingnan parang mabuti ang kalagayan niya,_ parang tanim na sagana sa dilig at sikat ng araw. Yumayabong ito sa buong hardin 
 
 
 

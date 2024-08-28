@@ -242,7 +242,7 @@ Ngunit tinakot ng mga kasama ko ang mga kababayan natin. Pero ako, matapat kong 
 
 
 
-Kaya nang araw na iyon, nangako si Moises sa akin. Sinabi niya, 'Dahil matapat ka sa pagsunod sa Panginoon kong Dios, magiging iyo at sa mga angkan mo ang lupaing pinuntahan mo <i class="trans-change">para mag-espiya_.' 
+Kaya nang araw na iyon, nangako si Moises sa akin. Sinabi niya, 'Dahil matapat ka sa pagsunod sa Panginoon kong Dios, magiging iyo at sa mga angkan mo ang lupaing pinuntahan mo para mag-espiya_.' 
 
 
 

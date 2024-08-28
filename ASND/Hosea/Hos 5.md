@@ -40,7 +40,7 @@ next: ['Hos 6']
 
 
 
-<i class="trans-change">Sinabi pa ng Panginoon,_ "Makinig kayo, mga mamamayan ng Israel, pati na kayong mga pari at sambahayan ng hari, dahil ang hatol na ito ay laban sa inyo: Para kayong bitag, dahil ipinahamak ninyo ang mga mamamayan ng Mizpa at Tabor. 
+Sinabi pa ng Panginoon,_ "Makinig kayo, mga mamamayan ng Israel, pati na kayong mga pari at sambahayan ng hari, dahil ang hatol na ito ay laban sa inyo: Para kayong bitag, dahil ipinahamak ninyo ang mga mamamayan ng Mizpa at Tabor. 
 
 
 
@@ -139,7 +139,7 @@ Alam ko ang lahat ng tungkol sa inyo na mga taga-Israel. Wala kayong maililihim 
 
 
 
-"Ang inyong <i class="trans-change">masasamang_ gawain ang pumipigil sa inyo upang magbalik-loob sa akin na inyong Dios. Sapagkat nasa puso ninyo ang espiritung <i class="trans-change">nag-uudyok sa inyo_ para sumamba sa mga dios-diosan, at hindi ninyo ako kinikilalang Panginoon. 
+"Ang inyong masasamang_ gawain ang pumipigil sa inyo upang magbalik-loob sa akin na inyong Dios. Sapagkat nasa puso ninyo ang espiritung nag-uudyok sa inyo_ para sumamba sa mga dios-diosan, at hindi ninyo ako kinikilalang Panginoon. 
 
 
 
@@ -273,7 +273,7 @@ Nagtaksil kayo sa akin, dahil nagkaanak kayo sa labas. Kaya lilipulin ko kayo at
 
 
 
-"Hipan ninyo ang mga trumpeta <i class="trans-change">para bigyang babala ang mga tao_ sa Gibea at Rama! Iparinig ang sigaw ng digmaan sa Bet Aven! Magbantay kayo, kayong mga mamamayan ng Benjamin. 
+"Hipan ninyo ang mga trumpeta para bigyang babala ang mga tao_ sa Gibea at Rama! Iparinig ang sigaw ng digmaan sa Bet Aven! Magbantay kayo, kayong mga mamamayan ng Benjamin. 
 
 
 
@@ -339,7 +339,7 @@ Mawawasak ang Israel sa araw ng pagpaparusa. Tiyak na mangyayari ang sinasabi ko
 
 
 
-Ang mga pinuno ng Juda ay katulad ng taong naglilipat ng muhon <i class="trans-change">dahil inagaw nila ang lupain ng Israel_. Kaya ibubuhos ko sa kanila ang aking galit na parang baha. 
+Ang mga pinuno ng Juda ay katulad ng taong naglilipat ng muhon dahil inagaw nila ang lupain ng Israel_. Kaya ibubuhos ko sa kanila ang aking galit na parang baha. 
 
 
 
@@ -471,7 +471,7 @@ Ang katulad koʼy insektong ngumangatngat sa Israel at sa Juda.
 
 
 
-Sapagkat sasalakayin kong parang leon ang Israel at ang Juda. Ako mismo ang lilipol sa kanila. Dadalhin ko sila <i class="trans-change">sa ibang bansa_ at walang makapagliligtas sa kanila. 
+Sapagkat sasalakayin kong parang leon ang Israel at ang Juda. Ako mismo ang lilipol sa kanila. Dadalhin ko sila sa ibang bansa_ at walang makapagliligtas sa kanila. 
 
 
 

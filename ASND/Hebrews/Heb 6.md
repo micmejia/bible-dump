@@ -40,7 +40,7 @@ next: ['Heb 7']
 
 
 
-Kaya <i class="trans-change">bilang matatagal nang sumasampalataya_, dapat na nating iwan ang mga panimulang aralin tungkol kay Cristo, at magpatuloy sa mga malalalim na aralin. Huwag na tayong magpabalik-balik pa sa mga aral tungkol sa pagsisisi at pagtalikod sa mga bagay na walang kabuluhan, at tungkol sa pananampalataya sa Dios, 
+Kaya bilang matatagal nang sumasampalataya_, dapat na nating iwan ang mga panimulang aralin tungkol kay Cristo, at magpatuloy sa mga malalalim na aralin. Huwag na tayong magpabalik-balik pa sa mga aral tungkol sa pagsisisi at pagtalikod sa mga bagay na walang kabuluhan, at tungkol sa pananampalataya sa Dios, 
 
 
 
@@ -73,7 +73,7 @@ Kaya <i class="trans-change">bilang matatagal nang sumasampalataya_, dapat na na
 
 
 
-mga aral tungkol sa bautismo, pagpapatong ng kamay sa ulo, muling pagkabuhay ng mga patay, at paghahatol <i class="trans-change">ng Dios sa magiging kalagayan ng tao_ magpakailanman. 
+mga aral tungkol sa bautismo, pagpapatong ng kamay sa ulo, muling pagkabuhay ng mga patay, at paghahatol ng Dios sa magiging kalagayan ng tao_ magpakailanman. 
 
 
 
@@ -106,7 +106,7 @@ mga aral tungkol sa bautismo, pagpapatong ng kamay sa ulo, muling pagkabuhay ng 
 
 
 
-Sa halip, kung loloobin ng Dios, magpatuloy tayo sa malalalim na aralin, ###### 4-6 <i class="trans-change">upang hindi natin siya talikuran._ Sapagkat kung tatalikuran ng isang tao ang Dios, hindi na siya mapagsisisi at mapapanumbalik pa sa Dios. Naliwanagan na ang pag-iisip niya, nakatikim na ng mga biyaya mula sa langit, tumanggap ng Banal na Espiritu, nakatikim na ng kabutihang dulot ng salita ng Dios, at nakadama na ng kapangyarihang ihahayag sa huling araw. Pagkatapos, kung tumalikod pa rin siya sa Dios, hindi na siya mapagsisisi at mapapanumbalik sa Dios dahil para na rin niyang ipinakong muli sa krus at dinala sa kahihiyan ang Anak ng Dios. 
+Sa halip, kung loloobin ng Dios, magpatuloy tayo sa malalalim na aralin, ###### 4-6 upang hindi natin siya talikuran._ Sapagkat kung tatalikuran ng isang tao ang Dios, hindi na siya mapagsisisi at mapapanumbalik pa sa Dios. Naliwanagan na ang pag-iisip niya, nakatikim na ng mga biyaya mula sa langit, tumanggap ng Banal na Espiritu, nakatikim na ng kabutihang dulot ng salita ng Dios, at nakadama na ng kapangyarihang ihahayag sa huling araw. Pagkatapos, kung tumalikod pa rin siya sa Dios, hindi na siya mapagsisisi at mapapanumbalik sa Dios dahil para na rin niyang ipinakong muli sa krus at dinala sa kahihiyan ang Anak ng Dios. 
 
 
 
@@ -139,7 +139,7 @@ Sa halip, kung loloobin ng Dios, magpatuloy tayo sa malalalim na aralin, ###### 
 
 
 
-<i class="trans-change">Tulad tayo_ ng lupang pinagpapala ng Dios, na matapos tumanggap ng masaganang ulan ay tinutubuan ng mga halamang pakikinabangan ng magsasaka. 
+Tulad tayo_ ng lupang pinagpapala ng Dios, na matapos tumanggap ng masaganang ulan ay tinutubuan ng mga halamang pakikinabangan ng magsasaka. 
 
 
 
@@ -238,7 +238,7 @@ Mga minamahal, kahit na ganito ang sinasabi namin, nakakatiyak kaming nasa mabut
 
 
 
-Makatarungan ang Dios, at hindi niya magagawang kalimutan ang inyong <i class="trans-change">mabubuting_ gawa at ang pagmamahal na ipinakita ninyo sa kanya at patuloy na ipinapakita sa pamamagitan ng pagtulong sa mga <i class="trans-change">kapwa_ pinabanal <i class="trans-change">ng Dios_. 
+Makatarungan ang Dios, at hindi niya magagawang kalimutan ang inyong mabubuting_ gawa at ang pagmamahal na ipinakita ninyo sa kanya at patuloy na ipinapakita sa pamamagitan ng pagtulong sa mga kapwa_ pinabanal ng Dios_. 
 
 
 
@@ -271,7 +271,7 @@ Makatarungan ang Dios, at hindi niya magagawang kalimutan ang inyong <i class="t
 
 
 
-Nais naming patuloy na maging masigasig ang bawat isa sa inyo sa pag-asa nʼyo sa Dios hanggang sa wakas, <i class="trans-change">para makamtan ninyo ang inaasahan ninyo._ 
+Nais naming patuloy na maging masigasig ang bawat isa sa inyo sa pag-asa nʼyo sa Dios hanggang sa wakas, para makamtan ninyo ang inaasahan ninyo._ 
 
 
 
@@ -304,7 +304,7 @@ Nais naming patuloy na maging masigasig ang bawat isa sa inyo sa pag-asa nʼyo s
 
 
 
-Huwag kayong maging tamad, sa halip, tularan nʼyo ang mga tao na tumatanggap ng mga ipinangako <i class="trans-change">ng Dios_ sa pamamagitan ng pananampalataya nila at pagtitiis.
+Huwag kayong maging tamad, sa halip, tularan nʼyo ang mga tao na tumatanggap ng mga ipinangako ng Dios_ sa pamamagitan ng pananampalataya nila at pagtitiis.
 
 ## Tiyak ang Pangako ng Dios 
 
@@ -438,7 +438,7 @@ At pagkatapos ng matiyagang paghihintay, natanggap ni Abraham ang mga ipinangako
 
 
 
-Nanunumpa ang mga tao sa <i class="trans-change">pangalan ng Dios na_ mas nakahihigit sa kanila para paniwalaan sila at wala ng pag-usapan pa. 
+Nanunumpa ang mga tao sa pangalan ng Dios na_ mas nakahihigit sa kanila para paniwalaan sila at wala ng pag-usapan pa. 
 
 
 
@@ -504,7 +504,7 @@ Ganito rin ang ginawa ng Dios noon sa mga taong pinangakuan niya. Ipinakita niya
 
 
 
-At ang dalawang bagay na ito – <i class="trans-change">ang pangako niya at panunumpa_ – ay hindi mababago, dahil hindi magagawang magsinungaling ng Dios. Kaya tayong mga nagpakalinga sa kanya ay may matibay na pag-asang pinanghahawakan na gagawin niya ang ipinangako niya sa atin. 
+At ang dalawang bagay na ito – ang pangako niya at panunumpa_ – ay hindi mababago, dahil hindi magagawang magsinungaling ng Dios. Kaya tayong mga nagpakalinga sa kanya ay may matibay na pag-asang pinanghahawakan na gagawin niya ang ipinangako niya sa atin. 
 
 
 

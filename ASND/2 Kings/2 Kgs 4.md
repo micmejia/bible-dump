@@ -40,7 +40,7 @@ next: ['2 Kgs 5']
 
 
 
-May isang biyuda na ang asawa ay kaanib noon sa grupo ng mga propeta. Isang araw, humingi siya ng tulong kay Eliseo. Sinabi niya, "Patay na po ang asawa ko na inyong lingkod at alam nʼyo kung gaano niya iginagalang ang Panginoon. Ngayon, ang tao po na pinagkakautangan niya ay dumating para kunin ang dalawa naming anak na lalaki upang gawing alipin <i class="trans-change">bilang kabayaran sa utang_." 
+May isang biyuda na ang asawa ay kaanib noon sa grupo ng mga propeta. Isang araw, humingi siya ng tulong kay Eliseo. Sinabi niya, "Patay na po ang asawa ko na inyong lingkod at alam nʼyo kung gaano niya iginagalang ang Panginoon. Ngayon, ang tao po na pinagkakautangan niya ay dumating para kunin ang dalawa naming anak na lalaki upang gawing alipin bilang kabayaran sa utang_." 
 
 
 
@@ -238,7 +238,7 @@ Nang mapuno na ang lahat ng sisidlan, sinabi niya sa isa sa kanyang mga anak, "B
 
 
 
-Pumunta ang babae kay <i class="trans-change">Eliseo na_ lingkod ng Dios at sinabi niya ang nangyari sa kanya. Sinabi ni Eliseo sa kanya, "Umalis ka at ipagbili ang langis, at bayaran mo ang utang mo. May matitira ka pang sapat na pera para mabuhay kayo ng mga anak mo." ## Si Eliseo at ang Babaeng Taga-Shunem 
+Pumunta ang babae kay Eliseo na_ lingkod ng Dios at sinabi niya ang nangyari sa kanya. Sinabi ni Eliseo sa kanya, "Umalis ka at ipagbili ang langis, at bayaran mo ang utang mo. May matitira ka pang sapat na pera para mabuhay kayo ng mga anak mo." ## Si Eliseo at ang Babaeng Taga-Shunem 
 
 
 
@@ -436,7 +436,7 @@ Inutusan niya ang katulong niyang si Gehazi na tawagin ang babae. Kaya tinawag n
 
 
 
-sinabi ni Eliseo sa katulong niya, "Dahil sa mabuting pag-aaruga niya sa atin, tanungin mo siya kung ano ang magagawa natin para sa kanya. Gusto ba niyang kausapin ko ang hari o ang kumander ng mga sundalo para sa kanya?" Sumagot ang babae, "<i class="trans-change">Hindi na po kailangan_, mabuti naman po ang kalagayan ko kasama ng aking mga kababayan." 
+sinabi ni Eliseo sa katulong niya, "Dahil sa mabuting pag-aaruga niya sa atin, tanungin mo siya kung ano ang magagawa natin para sa kanya. Gusto ba niyang kausapin ko ang hari o ang kumander ng mga sundalo para sa kanya?" Sumagot ang babae, "Hindi na po kailangan_, mabuti naman po ang kalagayan ko kasama ng aking mga kababayan." 
 
 
 
@@ -535,7 +535,7 @@ Sinabi ni Eliseo, "Tawagin mo siya ulit." Kaya tinawag siya ni Gehazi at tumayo 
 
 
 
-Sinabi ni Eliseo <i class="trans-change">sa kanya_, "Sa susunod na taon, sa ganito ring panahon, may kinakalong ka nang anak na lalaki." Sumagot ang babae, "Huwag naman po sana ninyo akong paasahin. Lingkod po kayo ng Dios." 
+Sinabi ni Eliseo sa kanya_, "Sa susunod na taon, sa ganito ring panahon, may kinakalong ka nang anak na lalaki." Sumagot ang babae, "Huwag naman po sana ninyo akong paasahin. Lingkod po kayo ng Dios." 
 
 
 
@@ -898,7 +898,7 @@ Tumakbo ka at salubungin siya. Kamustahin mo siya, ang kanyang asawa, at ang ana
 
 
 
-Pero pagdating niya kay Eliseo sa bundok, <i class="trans-change">lumuhod siya_ at hinawakan ang paa ni Eliseo. Lumapit si Gehazi para hilahin ang babae palayo. Pero sinabi ni Eliseo, "Hayaan mo siya! May dinaramdam siya, pero hindi sinabi sa akin ng Panginoon kung bakit." 
+Pero pagdating niya kay Eliseo sa bundok, lumuhod siya_ at hinawakan ang paa ni Eliseo. Lumapit si Gehazi para hilahin ang babae palayo. Pero sinabi ni Eliseo, "Hayaan mo siya! May dinaramdam siya, pero hindi sinabi sa akin ng Panginoon kung bakit." 
 
 
 
@@ -931,7 +931,7 @@ Pero pagdating niya kay Eliseo sa bundok, <i class="trans-change">lumuhod siya_ 
 
 
 
-Sinabi ng babae, "Ginoo, hindi ako humingi sa inyo ng anak na lalaki, <i class="trans-change">kayo mismo ang nagsabing magkakaanak ako._ Sinabi ko pa nga sa inyo na huwag ninyo akong paasahin." 
+Sinabi ng babae, "Ginoo, hindi ako humingi sa inyo ng anak na lalaki, kayo mismo ang nagsabing magkakaanak ako._ Sinabi ko pa nga sa inyo na huwag ninyo akong paasahin." 
 
 
 
@@ -964,7 +964,7 @@ Sinabi ng babae, "Ginoo, hindi ako humingi sa inyo ng anak na lalaki, <i class="
 
 
 
-<i class="trans-change">Nang napagtanto ni Eliseo na may nangyari sa bata,_ sinabi niya kay Gehazi, "Maghanda ka sa pagpunta <i class="trans-change">sa bahay niya_. Dalhin mo ang tungkod ko at magmadali ka. Kung may makasalubong ka, huwag mong pansinin. Kung may babati sa iyo huwag mo nang sagutin. Pagdating mo, ilagay mo agad ang tungkod ko sa mukha ng bata." 
+Nang napagtanto ni Eliseo na may nangyari sa bata,_ sinabi niya kay Gehazi, "Maghanda ka sa pagpunta sa bahay niya_. Dalhin mo ang tungkod ko at magmadali ka. Kung may makasalubong ka, huwag mong pansinin. Kung may babati sa iyo huwag mo nang sagutin. Pagdating mo, ilagay mo agad ang tungkod ko sa mukha ng bata." 
 
 
 
@@ -997,7 +997,7 @@ Sinabi ng babae, "Ginoo, hindi ako humingi sa inyo ng anak na lalaki, <i class="
 
 
 
-Pero sinabi ng ina ng bata <i class="trans-change">kay Eliseo_, "Sumusumpa ako sa buhay na Panginoon at sa inyo na hindi po ako uuwi kung hindi ko kayo kasama." Kaya sumama sa kanya si Eliseo. 
+Pero sinabi ng ina ng bata kay Eliseo_, "Sumusumpa ako sa buhay na Panginoon at sa inyo na hindi po ako uuwi kung hindi ko kayo kasama." Kaya sumama sa kanya si Eliseo. 
 
 
 
@@ -1228,7 +1228,7 @@ Tinawag ni Eliseo si Gehazi at sinabi, "Tawagin mo ang kanyang ina." Kaya tinawa
 
 
 
-Nagpatirapa ang babae sa paanan ni Eliseo <i class="trans-change">bilang pagpapasalamat_ <i class="trans-change">sa kanya_. Kinuha niya ang anak niya at dinala sa ibaba.
+Nagpatirapa ang babae sa paanan ni Eliseo bilang pagpapasalamat_ sa kanya_. Kinuha niya ang anak niya at dinala sa ibaba.
 
 ## Ang Himala sa Panahon ng Taggutom 
 
@@ -1263,7 +1263,7 @@ Nagpatirapa ang babae sa paanan ni Eliseo <i class="trans-change">bilang pagpapa
 
 
 
-Mayroong taggutom sa Gilgal nang bumalik si Eliseo roon. <i class="trans-change">Isang araw,_ habang nakikipag-usap ang grupo ng mga propeta sa kanya, sinabi niya sa katulong niya, "Isalang mo ang malaking palayok at magluto ka ng pagkain para sa mga taong ito." 
+Mayroong taggutom sa Gilgal nang bumalik si Eliseo roon. Isang araw,_ habang nakikipag-usap ang grupo ng mga propeta sa kanya, sinabi niya sa katulong niya, "Isalang mo ang malaking palayok at magluto ka ng pagkain para sa mga taong ito." 
 
 
 
@@ -1329,7 +1329,7 @@ Pumunta sa bukid para kumuha ng mga gulay ang isa sa mga propeta. Nakakita siya 
 
 
 
-<i class="trans-change">Pagkaluto ng pagkain,_ ipinamahagi niya ito sa mga tao. Pero habang kumakain, sumigaw sila, "Lingkod ng Dios, napakasama ng lasa nito!" Kaya hindi na nila ito kinain. 
+Pagkaluto ng pagkain,_ ipinamahagi niya ito sa mga tao. Pero habang kumakain, sumigaw sila, "Lingkod ng Dios, napakasama ng lasa nito!" Kaya hindi na nila ito kinain. 
 
 
 
@@ -1362,7 +1362,7 @@ Pumunta sa bukid para kumuha ng mga gulay ang isa sa mga propeta. Nakakita siya 
 
 
 
-Sinabi ni Eliseo, "Kumuha ka ng harina." Ibinuhos niya ang harina sa palayok at sinabi <i class="trans-change">sa katulong,_ "Ipamahagi mo na ito sa kanila para kainin." Hindi na masama ang lasa nito. 
+Sinabi ni Eliseo, "Kumuha ka ng harina." Ibinuhos niya ang harina sa palayok at sinabi sa katulong,_ "Ipamahagi mo na ito sa kanila para kainin." Hindi na masama ang lasa nito. 
 
 
 
@@ -1395,7 +1395,7 @@ Sinabi ni Eliseo, "Kumuha ka ng harina." Ibinuhos niya ang harina sa palayok at 
 
 
 
-<i class="trans-change">Isang araw,_ may isang lalaking galing sa Baal Shalisha na nagdala kay Eliseo ng isang sako na may lamang 20 tinapay na gawa sa unang ani ng sebada at mga bagong aning butil. Sinabi ni Eliseo, "Ibigay mo iyan sa grupo ng mga propeta para kainin." 
+Isang araw,_ may isang lalaking galing sa Baal Shalisha na nagdala kay Eliseo ng isang sako na may lamang 20 tinapay na gawa sa unang ani ng sebada at mga bagong aning butil. Sinabi ni Eliseo, "Ibigay mo iyan sa grupo ng mga propeta para kainin." 
 
 
 

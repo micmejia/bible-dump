@@ -106,7 +106,7 @@ Kapag ang isang bansa ay makasalanan, madalas nilang palitan ang kanilang pinuno
 
 
 
-Ang taong mahirap na ginigipit ang kapwa mahirap ay tulad ng <i class="trans-change">malakas na_ ulan na sumisira sa pananim. 
+Ang taong mahirap na ginigipit ang kapwa mahirap ay tulad ng malakas na_ ulan na sumisira sa pananim. 
 
 
 
@@ -502,7 +502,7 @@ Mapalad ang taong laging may paggalang sa Panginoon, ngunit mapapahamak ang taon
 
 
 
-<i class="trans-change">Panganib_ sa mahihirap ang masamang pinuno gaya ng mabangis na leon at osong naghahanap ng mabibiktima. 
+Panganib_ sa mahihirap ang masamang pinuno gaya ng mabangis na leon at osong naghahanap ng mabibiktima. 
 
 
 

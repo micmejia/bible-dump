@@ -339,7 +339,7 @@ Pinagmasdan ko ang mga bagay na nangyayari rito sa mundo, nakita kong ang mga ta
 
 
 
-Nakita ko ring ibinuburol ang masasama. Sila ang laging pumapasok sa banal na lungsod <i class="trans-change">ng Jerusalem_ at doon gumagawa ng kasamaan. At pinupuri pa sila ng mga taong taga-roon mismo sa lugar na ginagawan nila ng kasamaan. Wala itong kabuluhan. 
+Nakita ko ring ibinuburol ang masasama. Sila ang laging pumapasok sa banal na lungsod ng Jerusalem_ at doon gumagawa ng kasamaan. At pinupuri pa sila ng mga taong taga-roon mismo sa lugar na ginagawan nila ng kasamaan. Wala itong kabuluhan. 
 
 
 

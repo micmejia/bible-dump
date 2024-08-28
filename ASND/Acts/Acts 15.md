@@ -40,7 +40,7 @@ next: ['Acts 16']
 
 
 
-May mga taong galing sa Judea na <i class="trans-change">pumunta sa Antioc at_ nagturo sa mga kapatid doon na <i class="trans-change">silang mga hindi Judio ay_ hindi maliligtas kung hindi sila magpapatuli ayon sa kaugaliang itinuro ni Moises. 
+May mga taong galing sa Judea na pumunta sa Antioc at_ nagturo sa mga kapatid doon na silang mga hindi Judio ay_ hindi maliligtas kung hindi sila magpapatuli ayon sa kaugaliang itinuro ni Moises. 
 
 
 
@@ -139,7 +139,7 @@ Kaya pinapunta ng iglesya sina Pablo. At nang dumaan sila sa Fenicia at sa Samar
 
 
 
-Pagdating <i class="trans-change">nina Pablo_ sa Jerusalem tinanggap sila ng iglesya, ng mga apostol, at ng mga namumuno sa iglesya. Ibinalita nila ang lahat ng ginawa ng Dios sa pamamagitan nila. 
+Pagdating nina Pablo_ sa Jerusalem tinanggap sila ng iglesya, ng mga apostol, at ng mga namumuno sa iglesya. Ibinalita nila ang lahat ng ginawa ng Dios sa pamamagitan nila. 
 
 
 
@@ -337,7 +337,7 @@ Sa paningin ng Dios, tayong mga Judio at silang mga hindi Judio ay pare-pareho l
 
 
 
-Ngayon, bakit nʼyo sinusubukan ang Dios? Bakit nʼyo pinipilit ang mga <i class="trans-change">hindi Judiong_ tagasunod <i class="trans-change">ni Jesus_ na sumunod sa mga kautusan na kahit ang ating mga ninuno at tayo mismo ay hindi makasunod? 
+Ngayon, bakit nʼyo sinusubukan ang Dios? Bakit nʼyo pinipilit ang mga hindi Judiong_ tagasunod ni Jesus_ na sumunod sa mga kautusan na kahit ang ating mga ninuno at tayo mismo ay hindi makasunod? 
 
 
 
@@ -469,7 +469,7 @@ Pagkatapos nilang magsalita, sinabi ni Santiago, "Mga kapatid, makinig kayo sa a
 
 
 
-Ikinuwento sa atin ni Simon <i class="trans-change">Pedro_ ang unang pagtawag ng Dios sa mga hindi Judio para may mga tao ring mula sa kanila na maging kanya. 
+Ikinuwento sa atin ni Simon Pedro_ ang unang pagtawag ng Dios sa mga hindi Judio para may mga tao ring mula sa kanila na maging kanya. 
 
 
 
@@ -568,7 +568,7 @@ Itoʼy ayon din sa mga isinulat ng mga propeta noon, dahil sinasabi sa Kasulatan
 
 
 
-para hanapin ako ng ibang tao – ang lahat ng hindi Judio na aking tinawag na maging akin. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito, 
+para hanapin ako ng ibang tao – ang lahat ng hindi Judio na aking tinawag na maging akin. Ako,_ ang Panginoon, ang nagsasabi nito, 
 
 
 
@@ -634,7 +634,7 @@ at matagal ko na itong ipinahayag.' "
 
 
 
-<i class="trans-change">Sinabi pa ni Santiago,_ "Kaya kung sa akin lang, huwag na nating pahirapan ang mga hindi Judio na lumalapit sa Dios. 
+Sinabi pa ni Santiago,_ "Kaya kung sa akin lang, huwag na nating pahirapan ang mga hindi Judio na lumalapit sa Dios. 
 
 
 
@@ -700,7 +700,7 @@ Sa halip, sulatan natin sila na huwag kumain ng mga pagkaing inihandog sa mga di
 
 
 
-<i class="trans-change">Ito ang mga utos ni Moises na dapat nilang sundin para hindi mandiri ang mga Judio sa kanila,_ dahil mula pa noon, ang Kautusan ni Moises ay binabasa na ng mga Judio sa kanilang sambahan tuwing Araw ng Pamamahinga. At itinuturo nila ito sa bawat bayan." ## Ang Sulat para sa mga Hindi Judio 
+Ito ang mga utos ni Moises na dapat nilang sundin para hindi mandiri ang mga Judio sa kanila,_ dahil mula pa noon, ang Kautusan ni Moises ay binabasa na ng mga Judio sa kanilang sambahan tuwing Araw ng Pamamahinga. At itinuturo nila ito sa bawat bayan." ## Ang Sulat para sa mga Hindi Judio 
 
 
 
@@ -766,7 +766,7 @@ Nagkasundo ang mga apostol, ang mga namumuno sa iglesya at ang lahat ng mga mana
 
 
 
-at sila ang magdadala ng sulat na ito: "<i class="trans-change">Mula sa_ mga apostol at mga namumuno sa iglesya. "<i class="trans-change">Mahal naming_ mga kapatid na hindi Judio riyan sa Antioc, Syria at Cilicia: 
+at sila ang magdadala ng sulat na ito: "Mula sa_ mga apostol at mga namumuno sa iglesya. "Mahal naming_ mga kapatid na hindi Judio riyan sa Antioc, Syria at Cilicia: 
 
 
 
@@ -799,7 +799,7 @@ at sila ang magdadala ng sulat na ito: "<i class="trans-change">Mula sa_ mga apo
 
 
 
-"Nabalitaan namin na may mga taong mula rito sa amin na pumunta riyan at nilito ang inyong kaisipan dahil sa kanilang itinuro. Hindi namin sila inutusan <i class="trans-change">na pumunta riyan at magturo ng ganoon_. 
+"Nabalitaan namin na may mga taong mula rito sa amin na pumunta riyan at nilito ang inyong kaisipan dahil sa kanilang itinuro. Hindi namin sila inutusan na pumunta riyan at magturo ng ganoon_. 
 
 
 
@@ -832,7 +832,7 @@ at sila ang magdadala ng sulat na ito: "<i class="trans-change">Mula sa_ mga apo
 
 
 
-<i class="trans-change">Kaya nang marinig namin ito,_ napagkaisahan naming pumili ng mga tao na ipapadala namin sa inyo <i class="trans-change">para sabihin ang mga bagay na aming napagkasunduan_. Kasama nila sina Bernabe at Pablo na minamahal nating <i class="trans-change">mga kapatid_. 
+Kaya nang marinig namin ito,_ napagkaisahan naming pumili ng mga tao na ipapadala namin sa inyo para sabihin ang mga bagay na aming napagkasunduan_. Kasama nila sina Bernabe at Pablo na minamahal nating mga kapatid_. 
 
 
 
@@ -1096,7 +1096,7 @@ Sina Judas at Silas ay mga propeta rin, at marami ang kanilang itinuro sa mga ka
 
 
 
-Pagkatapos ng ilang araw na pananatili roon, bumalik sila <i class="trans-change">sa Jerusalem_, sa mga nagpadala sa kanila. Pero bago sila umalis, ipinanalangin muna sila ng mga kapatid na maging maayos ang kanilang paglalakbay. [ 
+Pagkatapos ng ilang araw na pananatili roon, bumalik sila sa Jerusalem_, sa mga nagpadala sa kanila. Pero bago sila umalis, ipinanalangin muna sila ng mga kapatid na maging maayos ang kanilang paglalakbay. [ 
 
 
 
@@ -1197,7 +1197,7 @@ Nanatili sina Pablo at Bernabe ng ilang araw sa Antioc. Marami silang kasamang n
 
 
 
-Makalipas ang ilang araw, sinabi ni Pablo kay Bernabe, "Bumalik tayo sa lahat ng bayan na pinangaralan natin ng salita ng Panginoon, at dalawin natin ang <i class="trans-change">ating_ mga kapatid para malaman natin ang kalagayan nila." 
+Makalipas ang ilang araw, sinabi ni Pablo kay Bernabe, "Bumalik tayo sa lahat ng bayan na pinangaralan natin ng salita ng Panginoon, at dalawin natin ang ating_ mga kapatid para malaman natin ang kalagayan nila." 
 
 
 

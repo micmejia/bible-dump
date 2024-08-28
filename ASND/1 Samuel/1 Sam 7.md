@@ -108,7 +108,7 @@ Nanatili sa Kiriat Jearim ang Kahon ng Panginoon sa mahabang panahon – mga 20 
 
 
 
-Sinabi ni Samuel sa kanila, "Kung taos sa puso ninyo ang pagbabalik-loob sa Panginoon, itapon ninyo ang inyong mga dios-diosan pati na ang <i class="trans-change">imahen ni_ Ashtoret. Ilaan ninyo ang inyong buhay sa Panginoon lamang at siya lang ang inyong paglingkuran. Kung gagawin ninyo ang mga ito, ililigtas niya kayo sa kamay ng mga Filisteo." 
+Sinabi ni Samuel sa kanila, "Kung taos sa puso ninyo ang pagbabalik-loob sa Panginoon, itapon ninyo ang inyong mga dios-diosan pati na ang imahen ni_ Ashtoret. Ilaan ninyo ang inyong buhay sa Panginoon lamang at siya lang ang inyong paglingkuran. Kung gagawin ninyo ang mga ito, ililigtas niya kayo sa kamay ng mga Filisteo." 
 
 
 
@@ -141,7 +141,7 @@ Sinabi ni Samuel sa kanila, "Kung taos sa puso ninyo ang pagbabalik-loob sa Pang
 
 
 
-Kaya itinapon nila ang mga <i class="trans-change">imahen ni na_ Baal at Ashtoret, at sa Panginoon lamang sila naglingkod. 
+Kaya itinapon nila ang mga imahen ni na_ Baal at Ashtoret, at sa Panginoon lamang sila naglingkod. 
 
 
 

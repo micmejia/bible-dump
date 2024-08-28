@@ -238,7 +238,7 @@ Babayaran ninyo ng pilak ang pagkain at inuming manggagaling sa kanila.'
 
 
 
-Alalahanin ninyo kung paano ko kayo pinagpala sa lahat ng ginawa ninyo. Ako ang Panginoon na inyong Dios ay nagbabantay sa inyo sa paglalakbay sa malawak na ilang na ito. Sa loob ng 40 taon, sinamahan <i class="trans-change">ko_ kayo, at hindi kayo kinulang ng mga bagay na kailangan ninyo. 
+Alalahanin ninyo kung paano ko kayo pinagpala sa lahat ng ginawa ninyo. Ako ang Panginoon na inyong Dios ay nagbabantay sa inyo sa paglalakbay sa malawak na ilang na ito. Sa loob ng 40 taon, sinamahan ko_ kayo, at hindi kayo kinulang ng mga bagay na kailangan ninyo. 
 
 
 
@@ -271,7 +271,7 @@ Alalahanin ninyo kung paano ko kayo pinagpala sa lahat ng ginawa ninyo. Ako ang 
 
 
 
-"Kaya dumaan tayo sa mga kadugo na lahi ni Esau, na naninirahan sa Seir. Hindi tayo dumaan sa daan ng Araba, na nanggagaling sa <i class="trans-change">mga bayan ng_ Elat at Ezion Geber. Nang naglalakbay na tayo sa daan sa ilang ng Moab, 
+"Kaya dumaan tayo sa mga kadugo na lahi ni Esau, na naninirahan sa Seir. Hindi tayo dumaan sa daan ng Araba, na nanggagaling sa mga bayan ng_ Elat at Ezion Geber. Nang naglalakbay na tayo sa daan sa ilang ng Moab, 
 
 
 
@@ -403,7 +403,7 @@ Tinatawag din silang Refaimeo, katulad ng mga angkan ni Anak, pero tinatawag sil
 
 
 
-Sa Seir dati nakatira ang mga Horeo, pero pinalayas sila ng mga lahi ni Esau, at sila na ang nanirahan doon, katulad ng ginawa ng mga Israelita <i class="trans-change">sa mga Cananeo_ sa lupain na ibinigay ng Panginoon sa kanila.) 
+Sa Seir dati nakatira ang mga Horeo, pero pinalayas sila ng mga lahi ni Esau, at sila na ang nanirahan doon, katulad ng ginawa ng mga Israelita sa mga Cananeo_ sa lupain na ibinigay ng Panginoon sa kanila.) 
 
 
 
@@ -799,7 +799,7 @@ Ito rin ang nangyari nang sinalakay ng taga-Caftor ang mga taga-Avim na naninira
 
 
 
-"<i class="trans-change">Pagkatapos, sinabi ng Panginoon_, 'Ngayon, tumawid na kayo sa Lambak ng Arnon. Ibinibigay ko sa inyo ang Amoreong si Haring Sihon ng Heshbon, at ang kanyang lupain. Salakayin ninyo siya at angkinin ang kanyang lupain. 
+"Pagkatapos, sinabi ng Panginoon_, 'Ngayon, tumawid na kayo sa Lambak ng Arnon. Ibinibigay ko sa inyo ang Amoreong si Haring Sihon ng Heshbon, at ang kanyang lupain. Salakayin ninyo siya at angkinin ang kanyang lupain. 
 
 
 
@@ -964,7 +964,7 @@ Babayaran namin ang aming makakain at maiinom. Ang pakiusap lang namin sa inyo, 
 
 
 
-katulad ng ginawa ng mga lahi ni Esau na naninirahan sa Seir at ng mga Moabita na naninirahan sa Ar. Payagan nʼyo kaming dumaan hanggang sa makatawid kami sa <i class="trans-change">Ilog ng_ Jordan papunta sa lupaing ibinibigay sa amin ng Panginoon naming Dios.' 
+katulad ng ginawa ng mga lahi ni Esau na naninirahan sa Seir at ng mga Moabita na naninirahan sa Ar. Payagan nʼyo kaming dumaan hanggang sa makatawid kami sa Ilog ng_ Jordan papunta sa lupaing ibinibigay sa amin ng Panginoon naming Dios.' 
 
 
 
@@ -1195,7 +1195,7 @@ Dinala natin ang kanilang mga hayop at mga ari-arian na ating nasamsam mula sa k
 
 
 
-"Tinulungan tayo ng Panginoon na ating Dios sa pag-agaw ng Aroer <i class="trans-change">ang lugar_ sa tabi ng Lambak ng Arnon at sa mga bayan sa paligid ng lambak na ito, at ng mga lugar hanggang sa Gilead. Walang bayan na matibay ang mga pader na hindi natin kayang pasukin. 
+"Tinulungan tayo ng Panginoon na ating Dios sa pag-agaw ng Aroer ang lugar_ sa tabi ng Lambak ng Arnon at sa mga bayan sa paligid ng lambak na ito, at ng mga lugar hanggang sa Gilead. Walang bayan na matibay ang mga pader na hindi natin kayang pasukin. 
 
 
 

@@ -40,7 +40,7 @@ next: ['Ps 5']
 
 
 
-O Dios na aking Tagapagtanggol, sagutin nʼyo po ako kapag akoʼy tumatawag sa inyo. <i class="trans-change">Hindi ba noon_ tinulungan nʼyo ako nang akoʼy nasa kagipitan? <i class="trans-change">Kaya ngayon,_ maawa kayo sa akin at pakinggan ang dalangin ko. 
+O Dios na aking Tagapagtanggol, sagutin nʼyo po ako kapag akoʼy tumatawag sa inyo. Hindi ba noon_ tinulungan nʼyo ako nang akoʼy nasa kagipitan? Kaya ngayon,_ maawa kayo sa akin at pakinggan ang dalangin ko. 
 
 
 
@@ -73,7 +73,7 @@ O Dios na aking Tagapagtanggol, sagutin nʼyo po ako kapag akoʼy tumatawag sa i
 
 
 
-Kayong mga kumakalaban <i class="trans-change">sa akin_, kailan kayo titigil sa inyong paninirang puri sa akin? Hanggang kailan ninyo iibigin ang mga bagay na walang kabuluhan at magpapatuloy sa kasinungalingan? 
+Kayong mga kumakalaban sa akin_, kailan kayo titigil sa inyong paninirang puri sa akin? Hanggang kailan ninyo iibigin ang mga bagay na walang kabuluhan at magpapatuloy sa kasinungalingan? 
 
 
 

@@ -636,4 +636,4 @@ Araw-araw akong nagpapakatay ng isang baka, anim na matatabang tupa, at mga mano
 
 
 
-<i class="trans-change">Nanalangin ako,_ "O aking Dios, nawaʼy pagpalain po ninyo ako sa lahat ng ginagawa ko para sa sambayanang ito."
+Nanalangin ako,_ "O aking Dios, nawaʼy pagpalain po ninyo ako sa lahat ng ginagawa ko para sa sambayanang ito."

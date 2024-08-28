@@ -106,7 +106,7 @@ Napapaligiran ako ng mga mangungutya. Kitang-kita ko kung paano nila ako kutyain
 
 
 
-<i class="trans-change">O Dios,_ tulungan nʼyo po ako na makalaya. Tanging kayo lang ang makakatulong sa akin. 
+O Dios,_ tulungan nʼyo po ako na makalaya. Tanging kayo lang ang makakatulong sa akin. 
 
 
 
@@ -139,7 +139,7 @@ Napapaligiran ako ng mga mangungutya. Kitang-kita ko kung paano nila ako kutyain
 
 
 
-Isinara nʼyo ang isipan ng aking mga kaibigan para hindi sila makaunawa. Kaya huwag ninyong payagan na magtagumpay sila <i class="trans-change">sa kanilang mga paratang sa akin_. 
+Isinara nʼyo ang isipan ng aking mga kaibigan para hindi sila makaunawa. Kaya huwag ninyong payagan na magtagumpay sila sa kanilang mga paratang sa akin_. 
 
 
 
@@ -271,7 +271,7 @@ Nagdilim na ang paningin ko dahil sa matinding kalungkutan; halos butoʼt balat 
 
 
 
-Ang mga taong <i class="trans-change">nag-iisip na sila ay_ matuwid ay nagtataka sa nangyaring ito sa akin. Akala nilaʼy masama ako at hindi makadios. 
+Ang mga taong nag-iisip na sila ay_ matuwid ay nagtataka sa nangyaring ito sa akin. Akala nilaʼy masama ako at hindi makadios. 
 
 
 
@@ -304,7 +304,7 @@ Ang mga taong <i class="trans-change">nag-iisip na sila ay_ matuwid ay nagtataka
 
 
 
-<i class="trans-change">Para sa kanila_ ang matuwid ay matatag ang pamumuhay at lalo pang nagiging matatag. 
+Para sa kanila_ ang matuwid ay matatag ang pamumuhay at lalo pang nagiging matatag. 
 
 
 

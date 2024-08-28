@@ -337,7 +337,7 @@ Ang mga pako ay ginto na may timbang na kalahating kilo. Ang mga dingding sa ita
 
 
 
-Nagpagawa si Solomon sa loob ng Pinakabanal na Lugar ng dalawang kerubin at pinabalutan ito ng ginto. <sup class="versenum">11-13</sup>Ang bawat kerubin ay may dalawang pakpak, at ang bawat pakpak ay may habang pitoʼt kalahating talampakan. Kaya ang kabuuang haba ng nakalukob na mga pakpak ng dalawang kerubin ay 30 talampakan. Ang kabilang dulo ng kanilang pakpak ay nagpapang-abot, at ang kabilang pakpak nito ay nakadikit sa dingding. 
+Nagpagawa si Solomon sa loob ng Pinakabanal na Lugar ng dalawang kerubin at pinabalutan ito ng ginto. 11-13Ang bawat kerubin ay may dalawang pakpak, at ang bawat pakpak ay may habang pitoʼt kalahating talampakan. Kaya ang kabuuang haba ng nakalukob na mga pakpak ng dalawang kerubin ay 30 talampakan. Ang kabilang dulo ng kanilang pakpak ay nagpapang-abot, at ang kabilang pakpak nito ay nakadikit sa dingding. 
 
 
 
@@ -370,7 +370,7 @@ Nagpagawa si Solomon sa loob ng Pinakabanal na Lugar ng dalawang kerubin at pina
 
 
 
-Ang kurtina <i class="trans-change">na nakatakip sa Pinakabanal na Lugar_ ay gawa mula sa pinong <i class="trans-change">telang_ linen na asul, kulay ube at pula, na may burdang kerubin.
+Ang kurtina na nakatakip sa Pinakabanal na Lugar_ ay gawa mula sa pinong telang_ linen na asul, kulay ube at pula, na may burdang kerubin.
 
 ## Ang Dalawang Haligi 
 
@@ -438,7 +438,7 @@ Gumawa rin si Solomon ng dalawang haligi sa harapan ng templo na ang taas ng baw
 
 
 
-Ang bawat hugis-ulo ng haligi ay nilagyan ng mga kadena na may nakasabit na mga palamuting <i class="trans-change">ang korte ay parang prutas na_ pomegranata. Ang mga palamuting ito ay 100 piraso. 
+Ang bawat hugis-ulo ng haligi ay nilagyan ng mga kadena na may nakasabit na mga palamuting ang korte ay parang prutas na_ pomegranata. Ang mga palamuting ito ay 100 piraso. 
 
 
 

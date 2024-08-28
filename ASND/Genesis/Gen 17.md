@@ -106,7 +106,7 @@ Tutuparin ko ang kasunduan ko sa iyo; pararamihin ko ang mga lahi mo."
 
 
 
-Nang marinig ito ni Abram, nagpatirapa siya <i class="trans-change">bilang paggalang sa Dios_. Sinabi ng Dios sa kanya, 
+Nang marinig ito ni Abram, nagpatirapa siya bilang paggalang sa Dios_. Sinabi ng Dios sa kanya, 
 
 
 
@@ -370,7 +370,7 @@ At tungkol sa kasunduang ito, dapat ninyong tuliin ang lahat ng lalaki.
 
 
 
-Ito ang magiging palatandaan ng kasunduan ko sa inyo. <sup class="versenum">12-13</sup>Mula ngayon hanggang sa susunod pang mga henerasyon, ang lahat ng lalaking ipapanganak ay dapat tuliin pagsapit nang ikawalong araw mula nang isilang ito. Tuliin din ninyo ang mga aliping lalaki na isinilang sa tahanan ninyo at pati ang mga aliping binili ninyo sa mga taga-ibang lugar. Ito ang palatandaan sa katawan ninyo na magpapatunay na ang kasunduan ko sa inyo ay magpapatuloy hanggang wakas. 
+Ito ang magiging palatandaan ng kasunduan ko sa inyo. 12-13Mula ngayon hanggang sa susunod pang mga henerasyon, ang lahat ng lalaking ipapanganak ay dapat tuliin pagsapit nang ikawalong araw mula nang isilang ito. Tuliin din ninyo ang mga aliping lalaki na isinilang sa tahanan ninyo at pati ang mga aliping binili ninyo sa mga taga-ibang lugar. Ito ang palatandaan sa katawan ninyo na magpapatunay na ang kasunduan ko sa inyo ay magpapatuloy hanggang wakas. 
 
 
 
@@ -502,7 +502,7 @@ Pagpapalain ko siya at bibigyan kita ng anak sa pamamagitan niya. Magiging ina s
 
 
 
-Nang marinig ito ni Abraham, nagpatirapa siya <i class="trans-change">bilang paggalang sa Dios_, pero tumawa siya sa kanyang narinig. Sinabi niya sa kanyang sarili, "Magkakaanak pa ba ako na nasa 100 taong gulang na? At si Sara, mabubuntis pa kaya siya na nasa 90 taong gulang na?" 
+Nang marinig ito ni Abraham, nagpatirapa siya bilang paggalang sa Dios_, pero tumawa siya sa kanyang narinig. Sinabi niya sa kanyang sarili, "Magkakaanak pa ba ako na nasa 100 taong gulang na? At si Sara, mabubuntis pa kaya siya na nasa 90 taong gulang na?" 
 
 
 
@@ -634,7 +634,7 @@ Tungkol naman kay Ishmael, narinig ko ang kahilingan mo para sa kanya. Pagpapala
 
 
 
-Kaya lang, ang kasunduan ko sa iyo ay tutuparin ko lang kay Isaac <i class="trans-change">at sa mga lahi niya_. Ipapanganak ni Sara si Isaac sa ganito ring panahon sa susunod na taon." 
+Kaya lang, ang kasunduan ko sa iyo ay tutuparin ko lang kay Isaac at sa mga lahi niya_. Ipapanganak ni Sara si Isaac sa ganito ring panahon sa susunod na taon." 
 
 
 
@@ -766,4 +766,4 @@ Si Abraham ay 99 na taong gulang nang tuliin siya,
 
 
 
-at si Ishmael naman ay 13 taong gulang na. <sup class="versenum">26-27</sup>Sa mismong araw na iyon na nag-utos ang Dios na ang lahat ng lalaki ay dapat tuliin, nagpatuli si Abraham at si Ishmael pati ang lahat ng alipin ni Abraham na isinilang sa sambahayan niya at ang mga alipin na binili niya sa mga taga-ibang lugar.
+at si Ishmael naman ay 13 taong gulang na. 26-27Sa mismong araw na iyon na nag-utos ang Dios na ang lahat ng lalaki ay dapat tuliin, nagpatuli si Abraham at si Ishmael pati ang lahat ng alipin ni Abraham na isinilang sa sambahayan niya at ang mga alipin na binili niya sa mga taga-ibang lugar.

@@ -73,7 +73,7 @@ Kaya ipinatawag ni Isaac si Jacob. Pagdating niya, binasbasan niya ito at inutus
 
 
 
-Maghanda ka at pumunta sa Padan Aram, doon sa <i class="trans-change">lolo mong_ si Betuel na ama ng iyong ina. Doon ka pumili ng iyong mapapangasawa sa isa sa mga dalagang anak ni Laban na kapatid ng iyong ina. 
+Maghanda ka at pumunta sa Padan Aram, doon sa lolo mong_ si Betuel na ama ng iyong ina. Doon ka pumili ng iyong mapapangasawa sa isa sa mga dalagang anak ni Laban na kapatid ng iyong ina. 
 
 
 
@@ -139,7 +139,7 @@ Nawaʼy pagpalain ka ng Makapangyarihang Dios at bigyan ka ng maraming anak para
 
 
 
-Nawaʼy ibigay din sa iyo at sa mga lahi mo ang pagpapalang ibinigay niya kay Abraham, para maging iyo ang lupaing ito na iyong tinitirhan ngayon bilang isang dayuhan. Ang lupaing ito ay ibinigay <i class="trans-change">nga_ ng Dios kay Abraham." 
+Nawaʼy ibigay din sa iyo at sa mga lahi mo ang pagpapalang ibinigay niya kay Abraham, para maging iyo ang lupaing ito na iyong tinitirhan ngayon bilang isang dayuhan. Ang lupaing ito ay ibinigay nga_ ng Dios kay Abraham." 
 
 
 
@@ -306,7 +306,7 @@ Dito napansin ni Esau na ayaw ng kanyang ama ang mga babaeng taga-Canaan.
 
 
 
-Kaya pumunta siya sa tiyuhin niyang si Ishmael na anak ni Abraham <i class="trans-change">kay Hagar_ at napangasawa si Mahalat na kapatid ni Nebayot at anak ni Ishmael, bukod pa sa dalawang naging asawa niya.
+Kaya pumunta siya sa tiyuhin niyang si Ishmael na anak ni Abraham kay Hagar_ at napangasawa si Mahalat na kapatid ni Nebayot at anak ni Ishmael, bukod pa sa dalawang naging asawa niya.
 
 ## Nanaginip si Jacob sa Betel 
 
@@ -605,7 +605,7 @@ Kinabahan siya at sinabi, "Nakakamangha ang lugar na ito! Tirahan ito ng Dios at
 
 
 
-Maagang bumangon si Jacob. Kinuha niya ang batong inunan niya noong gabi at itinayo bilang isang alaala. Pagkatapos, binuhusan niya ito ng langis <i class="trans-change">para maging banal_. 
+Maagang bumangon si Jacob. Kinuha niya ang batong inunan niya noong gabi at itinayo bilang isang alaala. Pagkatapos, binuhusan niya ito ng langis para maging banal_. 
 
 
 

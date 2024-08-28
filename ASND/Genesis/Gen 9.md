@@ -271,7 +271,7 @@ Ngayon, magkaroon kayo ng mga anak para dumami at mangalat sa buong mundo."
 
 
 
-Sinabi pa ng Dios kay Noe at sa mga anak niya, <sup class="versenum">9-11</sup>"Ito ang kasunduan ko sa inyo at sa mga lahi ninyo, at sa lahat ng nabubuhay sa mundo pati sa lahat ng hayop na naging kasama ninyo sa barko: Hindi ko na muling lilipulin ang lahat ng nabubuhay sa pamamagitan ng baha. At wala nang baha na mangyayari pa para malipol ang mundo." <sup class="versenum">12-13</sup>At sinabi pa ng Dios, "Bilang palatandaan ng kasunduan ko sa inyo at sa mga hayop, at sa lahat ng susunod nʼyo pang mga henerasyon, maglalagay ako ng bahaghari sa ulap. 
+Sinabi pa ng Dios kay Noe at sa mga anak niya, 9-11"Ito ang kasunduan ko sa inyo at sa mga lahi ninyo, at sa lahat ng nabubuhay sa mundo pati sa lahat ng hayop na naging kasama ninyo sa barko: Hindi ko na muling lilipulin ang lahat ng nabubuhay sa pamamagitan ng baha. At wala nang baha na mangyayari pa para malipol ang mundo." 12-13At sinabi pa ng Dios, "Bilang palatandaan ng kasunduan ko sa inyo at sa mga hayop, at sa lahat ng susunod nʼyo pang mga henerasyon, maglalagay ako ng bahaghari sa ulap. 
 
 
 

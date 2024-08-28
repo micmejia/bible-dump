@@ -273,7 +273,7 @@ Halatang-halata sa mga mukha nila ang kanilang pagkakasala. Hayagan silang gumag
 
 
 
-Sabihin ninyo sa mga matuwid na mapalad sila, dahil aanihin nila ang bunga ng <i class="trans-change">mabubuti_ nilang gawa. 
+Sabihin ninyo sa mga matuwid na mapalad sila, dahil aanihin nila ang bunga ng mabubuti_ nilang gawa. 
 
 
 
@@ -339,7 +339,7 @@ Pero nakakaawa ang masasama, dahil darating sa kanila ang kapahamakan. Gagantiha
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Inaapi ng mga kabataan ang mga mamamayan ko. Pinamumunuan sila ng mga babae. "Mga mamamayan ko, nililinlang kayo ng mga pinuno ninyo. Inaakay nila kayo sa maling daan." 
+Sinabi ng Panginoon,_ "Inaapi ng mga kabataan ang mga mamamayan ko. Pinamumunuan sila ng mga babae. "Mga mamamayan ko, nililinlang kayo ng mga pinuno ninyo. Inaakay nila kayo sa maling daan." 
 
 
 
@@ -405,7 +405,7 @@ Nakahanda na ang Panginoon para hatulan ang kanyang mga mamamayan.
 
 
 
-Hahatulan niya ang mga tagapamahala at mga pinuno ng mga mamamayan niya. <i class="trans-change">Ito ang paratang niya sa kanila,_ "Sinira ninyo ang aking ubasan <i class="trans-change">na siyang aking mga mamamayan_. Ang mga bahay ninyo ay puno ng mga bagay na sinamsam ninyo sa mga mahihirap. 
+Hahatulan niya ang mga tagapamahala at mga pinuno ng mga mamamayan niya. Ito ang paratang niya sa kanila,_ "Sinira ninyo ang aking ubasan na siyang aking mga mamamayan_. Ang mga bahay ninyo ay puno ng mga bagay na sinamsam ninyo sa mga mahihirap. 
 
 
 
@@ -570,7 +570,7 @@ Sa araw na iyon, kukunin ng Panginoon ang mga alahas sa kanilang paa, ulo, at le
 
 
 
-<i class="trans-change">Kukunin din sa kanila ang kanilang_ mga hikaw, pulseras, belo, 
+Kukunin din sa kanila ang kanilang_ mga hikaw, pulseras, belo, 
 
 
 
@@ -636,7 +636,7 @@ turban, alahas sa braso, sinturon, pabango at mga anting-anting.
 
 
 
-<i class="trans-change">Kukunin pati ang kanilang_ mga singsing sa daliri at ilong, 
+Kukunin pati ang kanilang_ mga singsing sa daliri at ilong, 
 
 
 
@@ -702,7 +702,7 @@ ang kanilang mga mamahaling damit, mga kapa, mga balabal, mga pitaka,
 
 
 
-mga salamin, mga damit na <i class="trans-change">telang_ linen, mga putong, at mga belo. 
+mga salamin, mga damit na telang_ linen, mga putong, at mga belo. 
 
 
 

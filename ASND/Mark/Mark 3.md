@@ -139,7 +139,7 @@ Sinabi ni Jesus sa lalaking paralisado ang kamay, "Halika rito sa harapan."
 
 
 
-Pagkatapos, tinanong niya ang mga Pariseo, "Alin ba ang ipinapahintulot <i class="trans-change">ng Kautusan_ sa Araw ng Pamamahinga: ang gumawa ng mabuti o ang gumawa ng masama? Ang magligtas ng buhay o ang pumatay?" Pero hindi sila sumagot. 
+Pagkatapos, tinanong niya ang mga Pariseo, "Alin ba ang ipinapahintulot ng Kautusan_ sa Araw ng Pamamahinga: ang gumawa ng mabuti o ang gumawa ng masama? Ang magligtas ng buhay o ang pumatay?" Pero hindi sila sumagot. 
 
 
 
@@ -240,7 +240,7 @@ Agad na umalis ang mga Pariseo at nakipagpulong sa mga tauhan ni Haring Herodes.
 
 
 
-Pumunta si Jesus at ang mga tagasunod niya sa tabi ng lawa <i class="trans-change">ng Galilea_. Sinundan siya ng napakaraming tao na galing sa Galilea, 
+Pumunta si Jesus at ang mga tagasunod niya sa tabi ng lawa ng Galilea_. Sinundan siya ng napakaraming tao na galing sa Galilea, 
 
 
 
@@ -273,7 +273,7 @@ Pumunta si Jesus at ang mga tagasunod niya sa tabi ng lawa <i class="trans-chang
 
 
 
-Judea, Jerusalem, Idumea, sa kabila ng <i class="trans-change">Ilog ng_ Jordan, at sa palibot ng Tyre at Sidon. Dinayo siya ng mga tao dahil nabalitaan nila ang mga ginagawa niya. 
+Judea, Jerusalem, Idumea, sa kabila ng Ilog ng_ Jordan, at sa palibot ng Tyre at Sidon. Dinayo siya ng mga tao dahil nabalitaan nila ang mga ginagawa niya. 
 
 
 
@@ -372,7 +372,7 @@ Maraming pinagaling si Jesus, kaya dinumog siya ng lahat ng may sakit para mahaw
 
 
 
-Kapag nakikita siya ng mga <i class="trans-change">taong sinasaniban ng_ masamang espiritu, lumuluhod sila sa harap niya at sumisigaw: "Ikaw ang Anak ng Dios!" 
+Kapag nakikita siya ng mga taong sinasaniban ng_ masamang espiritu, lumuluhod sila sa harap niya at sumisigaw: "Ikaw ang Anak ng Dios!" 
 
 
 
@@ -638,7 +638,7 @@ si Andres, si Felipe, si Bartolome, si Mateo, si Tomas, si Santiago na anak ni A
 
 
 
-at si Judas Iscariote na siyang nagtraydor kay Jesus <i class="trans-change">nang bandang huli_.
+at si Judas Iscariote na siyang nagtraydor kay Jesus nang bandang huli_.
 
 ## Si Jesus at si Satanas 
 
@@ -805,7 +805,7 @@ Kaya tinawag ni Jesus ang mga tao at nagsalita siya sa kanila sa pamamagitan ng 
 
 
 
-Kung ang <i class="trans-change">mga mamamayan ng_ isang kaharian ay nagkakahati-hati at nag-aaway-away, babagsak ang kahariang iyon. 
+Kung ang mga mamamayan ng_ isang kaharian ay nagkakahati-hati at nag-aaway-away, babagsak ang kahariang iyon. 
 
 
 
@@ -838,7 +838,7 @@ Kung ang <i class="trans-change">mga mamamayan ng_ isang kaharian ay nagkakahati
 
 
 
-Ganoon din ang mangyayari sa isang tahanang <i class="trans-change">ang nakatira ay_ nag-aaway-away. 
+Ganoon din ang mangyayari sa isang tahanang ang nakatira ay_ nag-aaway-away. 
 
 
 
@@ -937,7 +937,7 @@ Kaya kung si Satanas at ang mga kampon niya ay nagkakahati-hati at nag-aaway-awa
 
 
 
-"Sinasabi ko sa inyo ang totoo, lahat ng kasalanan, at anumang paglalapastangan <i class="trans-change">sa Dios_ ay maaaring mapatawad. 
+"Sinasabi ko sa inyo ang totoo, lahat ng kasalanan, at anumang paglalapastangan sa Dios_ ay maaaring mapatawad. 
 
 
 
@@ -1003,7 +1003,7 @@ Ngunit ang sinumang lumapastangan sa Banal na Espiritu ay hindi talaga mapapataw
 
 
 
-<i class="trans-change">Sinabi iyon ni Jesus_ dahil sinasabi ng mga tagapagturo ng Kautusan na siya ay may masamang espiritu.
+Sinabi iyon ni Jesus_ dahil sinasabi ng mga tagapagturo ng Kautusan na siya ay may masamang espiritu.
 
 ## Ang Ina at mga Kapatid ni Jesus 
 

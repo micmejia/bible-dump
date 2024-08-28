@@ -6,7 +6,7 @@ next: ['Ruth 2']
 # Ruth 1
 
 ***
-###### 1-2 Noong panahon na hindi pa mga hari ang namumuno <i class="trans-change">sa Israel_, nagkaroon ng taggutom sa lupaing ito. Kaya si Elimelec na taga-Betlehem na sakop ng Juda ay pumunta sa Moab kasama ang asawa at dalawang anak niyang lalaki, para roon muna manirahan. Ang pangalan ng asawa niya ay Naomi at ang dalawang anak nila ay sina Mahlon at Kilion. Mga angkan sila ni Efrata na taga-Betlehem. Habang naroon sila sa Moab, 
+###### 1-2 Noong panahon na hindi pa mga hari ang namumuno sa Israel_, nagkaroon ng taggutom sa lupaing ito. Kaya si Elimelec na taga-Betlehem na sakop ng Juda ay pumunta sa Moab kasama ang asawa at dalawang anak niyang lalaki, para roon muna manirahan. Ang pangalan ng asawa niya ay Naomi at ang dalawang anak nila ay sina Mahlon at Kilion. Mga angkan sila ni Efrata na taga-Betlehem. Habang naroon sila sa Moab, 
 
 
 
@@ -204,7 +204,7 @@ At habang naglalakbay na sila pabalik sa Juda,
 
 
 
-sinabi ni Naomi sa dalawang manugang niya, "Bumalik na lang kayo sa inyong ina. Pagpalain nawa kayo ng Panginoon sa mabuti ninyong pakikitungo sa mga yumao <i class="trans-change">ninyong asawa_ at sa akin. 
+sinabi ni Naomi sa dalawang manugang niya, "Bumalik na lang kayo sa inyong ina. Pagpalain nawa kayo ng Panginoon sa mabuti ninyong pakikitungo sa mga yumao ninyong asawa_ at sa akin. 
 
 
 
@@ -270,7 +270,7 @@ At loobin sana ng Panginoon na makapag-asawa kayong muli para magkaroon kayo ng 
 
 
 
-at sinabi sa kanya, "Sasama kami sa inyo sa pagbalik nʼyo sa kababayan ninyo." <sup class="versenum">11-12</sup>Pero sinabi ni Naomi, "Umuwi na kayo mga anak. Bakit pa kayo sasama sa akin? Akala nʼyo ba makakapag-asawa pa ako at makakapanganak ng mga lalaking mapapangasawa ninyo? Hindi na maaari dahil matanda na ako. Pero ipagpalagay natin na makapag-asawa ako ngayong gabi at magkaanak pa, 
+at sinabi sa kanya, "Sasama kami sa inyo sa pagbalik nʼyo sa kababayan ninyo." 11-12Pero sinabi ni Naomi, "Umuwi na kayo mga anak. Bakit pa kayo sasama sa akin? Akala nʼyo ba makakapag-asawa pa ako at makakapanganak ng mga lalaking mapapangasawa ninyo? Hindi na maaari dahil matanda na ako. Pero ipagpalagay natin na makapag-asawa ako ngayong gabi at magkaanak pa, 
 
 
 

@@ -370,7 +370,7 @@ Sa ikawalong araw, kailangang magdala siya ng dalawang kalapati o dalawang ibon 
 
 
 
-Ihahandog ng pari ang isa bilang handog sa paglilinis at ang isa bilang handog na sinusunog. Sa pamamagitan nito, mapapatawad siya sa kasalanan niya na paghipo sa patay. Sa mismong araw na iyon, itatalaga niyang <i class="trans-change">muli_ ang kanyang sarili <i class="trans-change">at muli niyang pahahabain ang kanyang buhok_. 
+Ihahandog ng pari ang isa bilang handog sa paglilinis at ang isa bilang handog na sinusunog. Sa pamamagitan nito, mapapatawad siya sa kasalanan niya na paghipo sa patay. Sa mismong araw na iyon, itatalaga niyang muli_ ang kanyang sarili at muli niyang pahahabain ang kanyang buhok_. 
 
 
 
@@ -403,7 +403,7 @@ Ihahandog ng pari ang isa bilang handog sa paglilinis at ang isa bilang handog n
 
 
 
-Ang lumipas na mga araw ng kanyang paglilingkod sa Panginoon ay hindi kabilang sa pagtupad niya sa kanyang panata, dahil nadungisan siya <i class="trans-change">nang nakahipo siya ng patay_. Kailangang italaga niyang <i class="trans-change">muli_ ang kanyang sarili hanggang sa matapos ang kanyang panata, at magdala siya ng lalaking tupa bilang handog na pambayad sa kanyang kasalanan. 
+Ang lumipas na mga araw ng kanyang paglilingkod sa Panginoon ay hindi kabilang sa pagtupad niya sa kanyang panata, dahil nadungisan siya nang nakahipo siya ng patay_. Kailangang italaga niyang muli_ ang kanyang sarili hanggang sa matapos ang kanyang panata, at magdala siya ng lalaking tupa bilang handog na pambayad sa kanyang kasalanan. 
 
 
 

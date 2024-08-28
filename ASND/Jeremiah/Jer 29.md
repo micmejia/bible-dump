@@ -73,7 +73,7 @@ Mula sa Jerusalem, sumulat si Jeremias sa mga tagapamahala, mga pari, mga propet
 
 
 
-<i class="trans-change">Isinulat niya ito_ pagkatapos na mabihag si Haring Jehoyakin, ang kanyang ina, ang mga namamahala sa palasyo, mga pinuno ng Juda at Jerusalem, at ang mahuhusay na panday at manggagawa. 
+Isinulat niya ito_ pagkatapos na mabihag si Haring Jehoyakin, ang kanyang ina, ang mga namamahala sa palasyo, mga pinuno ng Juda at Jerusalem, at ang mahuhusay na panday at manggagawa. 
 
 
 
@@ -337,7 +337,7 @@ Sapagkat nagsasalita sila ng kasinungalingan sa pangalan ko. Hindi ko sila sinug
 
 
 
-<i class="trans-change">Ako,_ ang Panginoon, ay nagsasabing pagkatapos ng 70 taon na pagsakop ng Babilonia, babalikan ko kayo at tutuparin ko ang pangako ko na ibabalik ko kayo sa lupain ninyo. 
+Ako,_ ang Panginoon, ay nagsasabing pagkatapos ng 70 taon na pagsakop ng Babilonia, babalikan ko kayo at tutuparin ko ang pangako ko na ibabalik ko kayo sa lupain ninyo. 
 
 
 
@@ -535,7 +535,7 @@ Oo, tutulungan ko kayo at ibabalik mula sa pagkakabihag. Titipunin ko kayo mula 
 
 
 
-pero ito ang sinabi ko tungkol sa haring nagmula sa angkan ni David at sa lahat ng kababayan nʼyo na naiwan sa lungsod <i class="trans-change">ng Jerusalem_ na hindi nabihag kasama nʼyo: 
+pero ito ang sinabi ko tungkol sa haring nagmula sa angkan ni David at sa lahat ng kababayan nʼyo na naiwan sa lungsod ng Jerusalem_ na hindi nabihag kasama nʼyo: 
 
 
 
@@ -766,7 +766,7 @@ Dahil sa kanila, ang lahat ng bihag sa Babilonia na mga taga-Juda ay susumpa ng 
 
 
 
-Mangyayari ito sa kanila dahil gumawa sila ng mga kasuklam-suklam na bagay sa Israel. Nangalunya sila sa asawa ng kapwa nila at nagsalita ng kasinungalingan sa pangalan ko na hindi ko iniutos na gawin nila. Nalalaman ko ang mga ginawa nila at makapagpapatunay ako laban sa kanila. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito." ## Ang Mensahe para kay Shemaya <sup class="versenum">24-25</sup>Ang Panginoong Makapangyarihan, ang Dios ng Israel ay nagbigay sa akin ng mensahe para kay Shemaya na taga-Nehelam. "Ito ang sinabi niya: Shemaya, sa pamamagitan ng pangalan mo <i class="trans-change">lang_ ay nagpadala ka ng sulat kay Zefanias na anak ni Maaseya na pari, at pinadalhan mo rin ng kopya ang iba pang mga pari, at ang lahat ng taga-Jerusalem. Ayon sa sulat mo kay Zefanias, sinabi mo, 
+Mangyayari ito sa kanila dahil gumawa sila ng mga kasuklam-suklam na bagay sa Israel. Nangalunya sila sa asawa ng kapwa nila at nagsalita ng kasinungalingan sa pangalan ko na hindi ko iniutos na gawin nila. Nalalaman ko ang mga ginawa nila at makapagpapatunay ako laban sa kanila. Ako,_ ang Panginoon, ang nagsasabi nito." ## Ang Mensahe para kay Shemaya 24-25Ang Panginoong Makapangyarihan, ang Dios ng Israel ay nagbigay sa akin ng mensahe para kay Shemaya na taga-Nehelam. "Ito ang sinabi niya: Shemaya, sa pamamagitan ng pangalan mo lang_ ay nagpadala ka ng sulat kay Zefanias na anak ni Maaseya na pari, at pinadalhan mo rin ng kopya ang iba pang mga pari, at ang lahat ng taga-Jerusalem. Ayon sa sulat mo kay Zefanias, sinabi mo, 
 
 
 
@@ -997,4 +997,4 @@ Pagkatapos, sinabi ng Panginoon kay Jeremias,
 
 
 
-Kaya <i class="trans-change">ako_, ang Panginoon, ay nagsasabing parurusahan ko siya pati ang mga angkan niya. Wala ni isa man sa mga angkan niya ang makakakita ng mga mabubuting bagay na gagawin ko sa inyo, dahil tinuruan niya kayong magrebelde sa akin. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito."
+Kaya ako_, ang Panginoon, ay nagsasabing parurusahan ko siya pati ang mga angkan niya. Wala ni isa man sa mga angkan niya ang makakakita ng mga mabubuting bagay na gagawin ko sa inyo, dahil tinuruan niya kayong magrebelde sa akin. Ako,_ ang Panginoon, ang nagsasabi nito."

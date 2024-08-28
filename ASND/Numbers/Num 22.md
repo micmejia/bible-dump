@@ -40,7 +40,7 @@ next: ['Num 23']
 
 
 
-Nagpatuloy sa paglalakbay ang mga Israelita hanggang sa nakarating sila sa kapatagan ng Moab, at nagkampo sila sa silangan ng <i class="trans-change">Ilog ng_ Jordan, sa harapan ng Jerico. 
+Nagpatuloy sa paglalakbay ang mga Israelita hanggang sa nakarating sila sa kapatagan ng Moab, at nagkampo sila sa silangan ng Ilog ng_ Jordan, sa harapan ng Jerico. 
 
 
 
@@ -73,7 +73,7 @@ Nagpatuloy sa paglalakbay ang mga Israelita hanggang sa nakarating sila sa kapat
 
 
 
-Alam ni <i class="trans-change">Haring_ Balak <i class="trans-change">ng Moab_, na anak ni Zipor, ang lahat ng ginawa ng mga Israelita sa mga Amoreo, 
+Alam ni Haring_ Balak ng Moab_, na anak ni Zipor, ang lahat ng ginawa ng mga Israelita sa mga Amoreo, 
 
 
 
@@ -172,7 +172,7 @@ Sinabi ng mga Moabita sa mga tagapamahala ng Midian, "Uubusin talaga tayo ng mga
 
 
 
-ay nagsugo ng mga mensahero para ipatawag si Balaam na anak ni Beor na naninirahan sa Petor. Sa Petor, malapit sa Ilog <i class="trans-change">ng Eufrates_ ipinanganak si Balaam. Ito ang mensahe ni Balak: May mga taong nanggaling sa Egipto at masyado silang marami at naninirahan sila malapit sa amin. 
+ay nagsugo ng mga mensahero para ipatawag si Balaam na anak ni Beor na naninirahan sa Petor. Sa Petor, malapit sa Ilog ng Eufrates_ ipinanganak si Balaam. Ito ang mensahe ni Balak: May mga taong nanggaling sa Egipto at masyado silang marami at naninirahan sila malapit sa amin. 
 
 
 
@@ -337,7 +337,7 @@ Nagtanong ang Dios kay Balaam, "Sino ang mga taong ito na kasama mo?"
 
 
 
-Sumagot si Balaam sa Dios, "<i class="trans-change">Sila po ang mga mensaherong isinugo ni_ Haring Balak ng Moab, na anak ni Zipor. Ganito ang kanyang mensahe: 
+Sumagot si Balaam sa Dios, "Sila po ang mga mensaherong isinugo ni_ Haring Balak ng Moab, na anak ni Zipor. Ganito ang kanyang mensahe: 
 
 
 
@@ -403,7 +403,7 @@ May mga taong nanggaling sa Egipto at masyado silang marami. Kaya pumunta ka rit
 
 
 
-Pero sinabi ng Dios kay Balaam, "Huwag kang sasama sa kanila. At huwag mong isusumpa ang mga taong <i class="trans-change">sinasabi nila_, dahil pinagpala ko ang mga iyon." 
+Pero sinabi ng Dios kay Balaam, "Huwag kang sasama sa kanila. At huwag mong isusumpa ang mga taong sinasabi nila_, dahil pinagpala ko ang mga iyon." 
 
 
 

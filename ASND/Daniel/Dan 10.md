@@ -73,7 +73,7 @@ Nang ikatlong taon ng paghahari ni Cyrus sa Persia, may ipinahayag na mensahe ka
 
 
 
-<i class="trans-change">Ganito ang nangyari ayon kay Daniel:_ Nang panahong iyon, tatlong linggo akong nagdalamhati. 
+Ganito ang nangyari ayon kay Daniel:_ Nang panahong iyon, tatlong linggo akong nagdalamhati. 
 
 
 
@@ -172,7 +172,7 @@ Nang ika-24 na araw ng unang buwan, nakatayo ako sa tabi ng malawak na Ilog ng T
 
 
 
-May nakita ako doon na parang tao na nakadamit ng <i class="trans-change">telang_ linen at may tali sa baywang na puro ginto. 
+May nakita ako doon na parang tao na nakadamit ng telang_ linen at may tali sa baywang na puro ginto. 
 
 
 
@@ -370,7 +370,7 @@ Hinawakan at tinulungan niya ako habang nanginginig pa ang aking mga kamay at mg
 
 
 
-Sinabi niya, "Daniel, mahal ka ng Dios. Tumayo ka at makinig nang mabuti sa sasabihin ko sa iyo, dahil isinugo ako <i class="trans-change">ng Dios_ dito sa iyo." Pagkasabi niya noon, nanginginig akong tumayo. 
+Sinabi niya, "Daniel, mahal ka ng Dios. Tumayo ka at makinig nang mabuti sa sasabihin ko sa iyo, dahil isinugo ako ng Dios_ dito sa iyo." Pagkasabi niya noon, nanginginig akong tumayo. 
 
 
 

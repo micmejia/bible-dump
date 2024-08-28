@@ -238,7 +238,7 @@ Ang mga mamamayan ng Moab ay mag-iiyakan nang malakas habang paakyat sila sa Luh
 
 
 
-<i class="trans-change">Mga taga-Moab,_ nagtitiwala kayo sa kakayahan at kayamanan ninyo kaya bibihagin kayo pati ang dios-diosan ninyong si Kemosh at ang mga pari at mga pinuno nito. 
+Mga taga-Moab,_ nagtitiwala kayo sa kakayahan at kayamanan ninyo kaya bibihagin kayo pati ang dios-diosan ninyong si Kemosh at ang mga pari at mga pinuno nito. 
 
 
 
@@ -271,7 +271,7 @@ Ang mga mamamayan ng Moab ay mag-iiyakan nang malakas habang paakyat sila sa Luh
 
 
 
-"Darating ang manlilipol sa bawat bayan at walang bayan na makakaligtas. Mawawasak ang <i class="trans-change">mga bayan sa_ lambak at talampas. <i class="trans-change">Mangyayari ito_ dahil sinabi mismo ng Panginoon. 
+"Darating ang manlilipol sa bawat bayan at walang bayan na makakaligtas. Mawawasak ang mga bayan sa_ lambak at talampas. Mangyayari ito_ dahil sinabi mismo ng Panginoon. 
 
 
 
@@ -337,7 +337,7 @@ May pakpak sana ang Moab para makalipad siya papalayo, dahil wala nang kabuluhan
 
 
 
-Sumpain ang taong pabaya sa paggawa ng gawain ng Panginoon <i class="trans-change">laban sa Moab_. Sumpain ang taong hindi papatay <i class="trans-change">sa mga taga-Moab_. 
+Sumpain ang taong pabaya sa paggawa ng gawain ng Panginoon laban sa Moab_. Sumpain ang taong hindi papatay sa mga taga-Moab_. 
 
 
 
@@ -403,7 +403,7 @@ Tahimik ang pamumuhay ng Moab mula pa noon. Hindi pa ito nakaranas ng pagkabihag
 
 
 
-"Pero darating ang araw na isusugo ko ang mga kaaway para ibuhos <i class="trans-change">ang Moab_ mula sa kanyang lalagyan at pagkatapos ay babasagin ang lalagyan nito. 
+"Pero darating ang araw na isusugo ko ang mga kaaway para ibuhos ang Moab_ mula sa kanyang lalagyan at pagkatapos ay babasagin ang lalagyan nito. 
 
 
 
@@ -436,7 +436,7 @@ Tahimik ang pamumuhay ng Moab mula pa noon. Hindi pa ito nakaranas ng pagkabihag
 
 
 
-At ikakahiya ng mga taga-Moab <i class="trans-change">ang dios-diosan nilang_ si Kemosh, gaya ng nangyari sa Betel nang ikahiya ng mga Israelita ang dios-diosan nila. 
+At ikakahiya ng mga taga-Moab ang dios-diosan nilang_ si Kemosh, gaya ng nangyari sa Betel nang ikahiya ng mga Israelita ang dios-diosan nila. 
 
 
 
@@ -502,7 +502,7 @@ Ipinagmamalaki ng mga taga-Moab na matatapang ang sundalo nila sa pakikipaglaban
 
 
 
-Pero mawawasak ang Moab at ang mga bayan nito. Papatayin ang kanilang matatapang na kabataan. <i class="trans-change">Ako,_ ang Panginoon na Haring Makapangyarihan, ang nagsasabi nito. 
+Pero mawawasak ang Moab at ang mga bayan nito. Papatayin ang kanilang matatapang na kabataan. Ako,_ ang Panginoon na Haring Makapangyarihan, ang nagsasabi nito. 
 
 
 
@@ -700,7 +700,7 @@ Sasagot sila, 'Nawasak at napahiya ang Moab. Humiyaw kayo at umiyak. Isigaw nʼy
 
 
 
-"Parurusahan din ang <i class="trans-change">mga bayan sa_ talampas: ang Holon, Jaza, Mefaat, 
+"Parurusahan din ang mga bayan sa_ talampas: ang Holon, Jaza, Mefaat, 
 
 
 
@@ -832,7 +832,7 @@ Keriot at Bozra. Darating na ang parusa sa lahat ng bayan ng Moab, sa malayo at 
 
 
 
-Wala nang kapangyarihan ang Moab at mahina na ito ngayon. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+Wala nang kapangyarihan ang Moab at mahina na ito ngayon. Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -898,7 +898,7 @@ Wala nang kapangyarihan ang Moab at mahina na ito ngayon. <i class="trans-change
 
 
 
-<i class="trans-change">Kayong mga taga-Moab,_ hindi baʼt kinutya ninyo ang Israel? Bakit, nahuli ba siyang nagnakaw? Bakit iiling-iling pa kayo sa pagkutya nʼyo sa kanya? 
+Kayong mga taga-Moab,_ hindi baʼt kinutya ninyo ang Israel? Bakit, nahuli ba siyang nagnakaw? Bakit iiling-iling pa kayo sa pagkutya nʼyo sa kanya? 
 
 
 
@@ -1162,7 +1162,7 @@ Ang iyakan ng mga taga-Heshbon ay naririnig hanggang sa Eleale at Jahaz. Ang iya
 
 
 
-Patitigilin ko sa Moab ang mga naghahandog sa mga sambahan sa matataas na lugar at nagsusunog ng insenso sa mga dios-diosan nila. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+Patitigilin ko sa Moab ang mga naghahandog sa mga sambahan sa matataas na lugar at nagsusunog ng insenso sa mga dios-diosan nila. Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -1195,7 +1195,7 @@ Patitigilin ko sa Moab ang mga naghahandog sa mga sambahan sa matataas na lugar 
 
 
 
-"Kaya umiiyak ang aking puso para sa Moab at sa mga taga-Kir Hareset, gaya ng <i class="trans-change">malungkot na_ tugtog ng plauta sa patay. Wala na ang mga kayamanang nakamit nila. 
+"Kaya umiiyak ang aking puso para sa Moab at sa mga taga-Kir Hareset, gaya ng malungkot na_ tugtog ng plauta sa patay. Wala na ang mga kayamanang nakamit nila. 
 
 
 
@@ -1294,7 +1294,7 @@ Nag-iiyakan ang mga tao sa mga bahay nila at sa mga plasa, dahil winasak ko ang 
 
 
 
-Gayon na lamang ang pagkawasak ng Moab! Pakinggan nʼyo ang iyakan ng mga mamamayan. Nakakahiya ang Moab. Kinukutya at kinamumuhian ito ng mga <i class="trans-change">bansa_ sa palibot nito." 
+Gayon na lamang ang pagkawasak ng Moab! Pakinggan nʼyo ang iyakan ng mga mamamayan. Nakakahiya ang Moab. Kinukutya at kinamumuhian ito ng mga bansa_ sa palibot nito." 
 
 
 
@@ -1360,7 +1360,7 @@ Sinabi pa ng Panginoon, "Tingnan nʼyo! Ang kaaway ng Moab ay parang agila na lu
 
 
 
-Sasakupin ang mga lungsod at ang mga kampo <i class="trans-change">ng Moab_. Sa mga araw na iyon, matatakot ang mga sundalo ng Moab katulad ng isang babaeng malapit nang manganak. 
+Sasakupin ang mga lungsod at ang mga kampo ng Moab_. Sa mga araw na iyon, matatakot ang mga sundalo ng Moab katulad ng isang babaeng malapit nang manganak. 
 
 
 
@@ -1459,7 +1459,7 @@ Ang sasapitin ng mga taga-Moab ay takot, hukay at bitag.
 
 
 
-"Ang sinumang tatakas dahil sa takot ay mahuhulog sa hukay. At ang sinumang makakaligtas sa hukay ay mahuhuli sa bitag, dahil talagang parurusahan ko ang Moab sa takdang panahon. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+"Ang sinumang tatakas dahil sa takot ay mahuhulog sa hukay. At ang sinumang makakaligtas sa hukay ay mahuhuli sa bitag, dahil talagang parurusahan ko ang Moab sa takdang panahon. Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -1558,4 +1558,4 @@ Hala! Tapos na kayo, kayong mga taga-Moab! Kayong mga sumasamba sa dios-diosang 
 
 
 
-Pero darating ang araw na ibabalik ko ang mabuting kalagayan ng Moab. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito." Ito ang mensahe tungkol sa Moab.
+Pero darating ang araw na ibabalik ko ang mabuting kalagayan ng Moab. Ako,_ ang Panginoon, ang nagsasabi nito." Ito ang mensahe tungkol sa Moab.

@@ -40,7 +40,7 @@ next: ['1 Thess 4']
 
 
 
-Nang hindi na kami makatiis <i class="trans-change">dahil sa pananabik namin sa inyo_, nagpasya kaming magpaiwan na lang sa Athens 
+Nang hindi na kami makatiis dahil sa pananabik namin sa inyo_, nagpasya kaming magpaiwan na lang sa Athens 
 
 
 
@@ -172,7 +172,7 @@ Noong nariyan pa kami sa inyo, lagi namin kayong pinapaalalahanan na makakaranas
 
 
 
-Kaya nang hindi na ako makatiis, pinapunta ko riyan si Timoteo para makabalita tungkol sa kalagayan ng pananampalataya nʼyo <i class="trans-change">sa Panginoon_; dahil nag-aalala ako na baka nanaig na sa inyo si Satanas at nasayang lang ang pagod namin <i class="trans-change">sa pangangaral sa inyo_. 
+Kaya nang hindi na ako makatiis, pinapunta ko riyan si Timoteo para makabalita tungkol sa kalagayan ng pananampalataya nʼyo sa Panginoon_; dahil nag-aalala ako na baka nanaig na sa inyo si Satanas at nasayang lang ang pagod namin sa pangangaral sa inyo_. 
 
 
 
@@ -337,7 +337,7 @@ Paano namin mapapasalamatan ang Dios sa lahat ng kagalakang dulot ninyo sa amin 
 
 
 
-Araw-gabi, taimtim naming ipinapanalangin na makasama ulit kayo para <i class="trans-change">maturuan kayo at_ mapunan namin ang anumang kakulangan sa inyong pananampalataya. 
+Araw-gabi, taimtim naming ipinapanalangin na makasama ulit kayo para maturuan kayo at_ mapunan namin ang anumang kakulangan sa inyong pananampalataya. 
 
 
 

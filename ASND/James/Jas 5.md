@@ -437,7 +437,7 @@ Higit sa lahat, mga kapatid, huwag kayong manunumpa sa mga pangako ninyo. Huwag 
 
 
 
-Mayroon bang dumaranas ng paghihirap sa inyo? Dapat siyang manalangin <i class="trans-change">sa Dios_. Mayroon bang masaya sa inyo? Dapat siyang umawit ng mga papuri. 
+Mayroon bang dumaranas ng paghihirap sa inyo? Dapat siyang manalangin sa Dios_. Mayroon bang masaya sa inyo? Dapat siyang umawit ng mga papuri. 
 
 
 
@@ -569,7 +569,7 @@ Kaya nga, ipagtapat ninyo sa isaʼt isa ang mga kasalanan nʼyo at ipanalangin a
 
 
 
-katulad ni <i class="trans-change">propeta_ Elias. Tao rin siyang tulad natin. Mataimtim siyang nanalangin na huwag umulan, at hindi nga umulan ng tatloʼt kalahating taon. 
+katulad ni propeta_ Elias. Tao rin siyang tulad natin. Mataimtim siyang nanalangin na huwag umulan, at hindi nga umulan ng tatloʼt kalahating taon. 
 
 
 

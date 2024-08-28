@@ -337,7 +337,7 @@ Ihahayag ang taong masama na taglay ang kapangyarihan ni Satanas. Gagawa siya ng
 
 
 
-Gagamitin niya ang lahat ng uri ng pandaraya sa mga taong mapapahamak. Mapapahamak sila dahil ayaw nilang pahalagahan ang katotohanang makakapagligtas <i class="trans-change">sana_ sa kanila. 
+Gagamitin niya ang lahat ng uri ng pandaraya sa mga taong mapapahamak. Mapapahamak sila dahil ayaw nilang pahalagahan ang katotohanang makakapagligtas sana_ sa kanila. 
 
 
 
@@ -504,4 +504,4 @@ Tinawag kayo ng Dios sa pamamagitan ng Magandang Balita na ipinahayag namin sa i
 
 
 
-Kaya nga, mga kapatid, manatili kayong matatag at panghawakan nʼyo ang mga itinuro namin sa inyo, maging sa salita o sa sulat. <sup class="versenum">16-17</sup>Aliwin at palakasin nawa kayo ng ating Panginoong Jesu-Cristo at ng Dios na ating Ama. Mahal tayo ng Dios at siya ang nagbigay sa atin ng walang hanggang kaaliwan at kalakasan, at matibay na pag-asa dahil sa biyaya niya. At nawaʼy bigyan din niya kayo ng lakas ng loob na maipahayag at maisagawa ang lahat ng mabuti.
+Kaya nga, mga kapatid, manatili kayong matatag at panghawakan nʼyo ang mga itinuro namin sa inyo, maging sa salita o sa sulat. 16-17Aliwin at palakasin nawa kayo ng ating Panginoong Jesu-Cristo at ng Dios na ating Ama. Mahal tayo ng Dios at siya ang nagbigay sa atin ng walang hanggang kaaliwan at kalakasan, at matibay na pag-asa dahil sa biyaya niya. At nawaʼy bigyan din niya kayo ng lakas ng loob na maipahayag at maisagawa ang lahat ng mabuti.

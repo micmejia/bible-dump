@@ -568,7 +568,7 @@ Sinabi ni Jose, "Ito ang kahulugan ng panaginip mo: Ang tatlong kaing ay nangang
 
 
 
-Hindi matatapos ang tatlong araw, palalabasin ka ng Faraon sa bilangguan pero <i class="trans-change">ipapapatay ka niya at_ ibibitin ang bangkay mo sa kahoy, at tutukain ito ng mga ibon." 
+Hindi matatapos ang tatlong araw, palalabasin ka ng Faraon sa bilangguan pero ipapapatay ka niya at_ ibibitin ang bangkay mo sa kahoy, at tutukain ito ng mga ibon." 
 
 
 
@@ -667,7 +667,7 @@ Ibinalik niya ang pinuno ng mga tagasilbi ng alak sa kanyang trabaho.
 
 
 
-Pero <i class="trans-change">ipinapatay niya_ ang pinuno ng mga panadero, <i class="trans-change">at_ ibinitin ang bangkay nito sa puno. Nangyari lahat ang sinabi ni Jose sa kanila. 
+Pero ipinapatay niya_ ang pinuno ng mga panadero, at_ ibinitin ang bangkay nito sa puno. Nangyari lahat ang sinabi ni Jose sa kanila. 
 
 
 

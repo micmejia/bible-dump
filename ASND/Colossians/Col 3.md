@@ -106,7 +106,7 @@ Doon ninyo ituon ang isip nʼyo, at hindi sa mga makamundong bagay.
 
 
 
-Sapagkat namatay na kayo <i class="trans-change">sa dati nʼyong buhay_, at ang buhay ninyo <i class="trans-change">ngayon_ ay nakatago sa Dios kasama ni Cristo. 
+Sapagkat namatay na kayo sa dati nʼyong buhay_, at ang buhay ninyo ngayon_ ay nakatago sa Dios kasama ni Cristo. 
 
 
 
@@ -339,7 +339,7 @@ Huwag kayong magsinungaling sa isaʼt isa, dahil hinubad nʼyo na ang dati ninyo
 
 
 
-at isinuot na ninyo ang bagong pagkatao. <i class="trans-change">Ang pagkataong_ itoʼy patuloy na binabago ng Dios na lumikha nito, para maging katulad niya tayo at para makilala natin siya nang lubusan. 
+at isinuot na ninyo ang bagong pagkatao. Ang pagkataong_ itoʼy patuloy na binabago ng Dios na lumikha nito, para maging katulad niya tayo at para makilala natin siya nang lubusan. 
 
 
 
@@ -372,7 +372,7 @@ at isinuot na ninyo ang bagong pagkatao. <i class="trans-change">Ang pagkataong_
 
 
 
-Sa bagong buhay na ito, wala nang ipinagkaiba ang Judio sa hindi Judio, ang tuli sa hindi tuli, ang naturuan sa hindi naturuan, at ang alipin sa malaya dahil si Cristo na ang lahat-lahat, at siyaʼy nasa <i class="trans-change">ating_ lahat. 
+Sa bagong buhay na ito, wala nang ipinagkaiba ang Judio sa hindi Judio, ang tuli sa hindi tuli, ang naturuan sa hindi naturuan, at ang alipin sa malaya dahil si Cristo na ang lahat-lahat, at siyaʼy nasa ating_ lahat. 
 
 
 
@@ -504,7 +504,7 @@ At higit sa lahat, magmahalan kayo, dahil ito ang magdudulot ng tunay na pagkaka
 
 
 
-Paghariin ninyo sa mga puso nʼyo ang kapayapaan ni Cristo. Sapagkat bilang mga bahagi ng iisang katawan, tinawag kayo <i class="trans-change">ng Dios_ upang mamuhay nang mapayapa. Dapat din kayong maging mapagpasalamat. 
+Paghariin ninyo sa mga puso nʼyo ang kapayapaan ni Cristo. Sapagkat bilang mga bahagi ng iisang katawan, tinawag kayo ng Dios_ upang mamuhay nang mapayapa. Dapat din kayong maging mapagpasalamat. 
 
 
 
@@ -803,7 +803,7 @@ Anuman ang gawin nʼyo, gawin nʼyo ito nang buong katapatan na parang ang Pangi
 
 
 
-Alam naman ninyong may gantimpala kayong matatanggap sa Panginoon, dahil si Cristo na Panginoon <i class="trans-change">natin_ ang siyang pinaglilingkuran ninyo. 
+Alam naman ninyong may gantimpala kayong matatanggap sa Panginoon, dahil si Cristo na Panginoon natin_ ang siyang pinaglilingkuran ninyo. 
 
 
 

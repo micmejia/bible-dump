@@ -205,7 +205,7 @@ Sinabi niya, "Purihin ang Panginoon, ang Dios ng Israel. Tinupad niya ang kanyan
 
 
 
-Ngunit ngayon, pinili ko ang Jerusalem para doon <i class="trans-change">pararangalan ang_ aking pangalan, at pinili ko si David para mamahala sa mga mamamayan kong Israelita.' 
+Ngunit ngayon, pinili ko ang Jerusalem para doon pararangalan ang_ aking pangalan, at pinili ko si David para mamahala sa mga mamamayan kong Israelita.' 
 
 
 
@@ -271,7 +271,7 @@ Ngunit ngayon, pinili ko ang Jerusalem para doon <i class="trans-change">pararan
 
 
 
-Pero sinabi sa kanya ng Panginoon, 'Mabuti na naghahangad kang magpatayo ng templo para sa <i class="trans-change">karangalan ng_ aking pangalan. 
+Pero sinabi sa kanya ng Panginoon, 'Mabuti na naghahangad kang magpatayo ng templo para sa karangalan ng_ aking pangalan. 
 
 
 
@@ -304,7 +304,7 @@ Pero sinabi sa kanya ng Panginoon, 'Mabuti na naghahangad kang magpatayo ng temp
 
 
 
-Ngunit hindi ikaw ang magtatayo nito kundi ang sarili mong anak. Siya ang magtatayo ng templo para sa <i class="trans-change">karangalan ng_ aking pangalan.' 
+Ngunit hindi ikaw ang magtatayo nito kundi ang sarili mong anak. Siya ang magtatayo ng templo para sa karangalan ng_ aking pangalan.' 
 
 
 
@@ -733,7 +733,7 @@ Pakinggan nʼyo po ang mga kahilingan ko at ng mga mamamayan nʼyo kapag silaʼy
 
 
 
-"Kung ang isang tao ay pinagbintangang nagkasala sa kanyang kapwa, at pinapunta siya sa inyong altar sa templo na ito para sumumpa <i class="trans-change">na inosente siya_, 
+"Kung ang isang tao ay pinagbintangang nagkasala sa kanyang kapwa, at pinapunta siya sa inyong altar sa templo na ito para sumumpa na inosente siya_, 
 
 
 
@@ -766,7 +766,7 @@ Pakinggan nʼyo po ang mga kahilingan ko at ng mga mamamayan nʼyo kapag silaʼy
 
 
 
-dinggin nʼyo po ito riyan sa langit at hatulan ang inyong mga lingkod – <i class="trans-change">ang nagbintang at ang pinagbintangan_. Parusahan nʼyo po ang nagkasala ayon sa kanyang ginawa at palayain ang walang sala para mahayag na inosente siya. 
+dinggin nʼyo po ito riyan sa langit at hatulan ang inyong mga lingkod – ang nagbintang at ang pinagbintangan_. Parusahan nʼyo po ang nagkasala ayon sa kanyang ginawa at palayain ang walang sala para mahayag na inosente siya. 
 
 
 
@@ -931,7 +931,7 @@ dinggin nʼyo po sila riyan sa langit. Patawarin nʼyo po sila na inyong mga lin
 
 
 
-"Kung may dumating pong taggutom sa lupain <i class="trans-change">ng inyong mga mamamayan,_ o salot, o malanta ang mga tanim, <i class="trans-change">o peste sa mga tanim gaya ng_ mga balang at mga uod, o palibutan ng mga kalaban ang alinman sa kanilang mga lungsod, o sumapit man sa kanila ang kahit anong karamdaman, 
+"Kung may dumating pong taggutom sa lupain ng inyong mga mamamayan,_ o salot, o malanta ang mga tanim, o peste sa mga tanim gaya ng_ mga balang at mga uod, o palibutan ng mga kalaban ang alinman sa kanilang mga lungsod, o sumapit man sa kanila ang kahit anong karamdaman, 
 
 
 
@@ -964,7 +964,7 @@ dinggin nʼyo po sila riyan sa langit. Patawarin nʼyo po sila na inyong mga lin
 
 
 
-at kung mayroon po sa kanila na mananalangin o hihiling sa inyo, <i class="trans-change">dinggin nʼyo po sila_. Kung kinikilala po nilang dahil sa kanilang mga kasalanan dumating ang mga pagtitiis at sakuna sa kanila, at manalangin po sila ng nakataas ang kanilang mga kamay, na nakaharap sa templong ito, 
+at kung mayroon po sa kanila na mananalangin o hihiling sa inyo, dinggin nʼyo po sila_. Kung kinikilala po nilang dahil sa kanilang mga kasalanan dumating ang mga pagtitiis at sakuna sa kanila, at manalangin po sila ng nakataas ang kanilang mga kamay, na nakaharap sa templong ito, 
 
 
 
@@ -1030,7 +1030,7 @@ dinggin nʼyo po sila riyan sa inyong luklukan sa langit. Patawarin nʼyo po sil
 
 
 
-<i class="trans-change">Gawin nʼyo po ito_ para gumalang sila sa inyo at sumunod sa inyong pamamaraan habang nakatira sila sa lupaing ibinigay nʼyo sa aming mga ninuno. 
+Gawin nʼyo po ito_ para gumalang sila sa inyo at sumunod sa inyong pamamaraan habang nakatira sila sa lupaing ibinigay nʼyo sa aming mga ninuno. 
 
 
 
@@ -1129,7 +1129,7 @@ dinggin nʼyo po sila riyan sa inyong luklukan sa langit. At gawin ang kahit ano
 
 
 
-"Kung ang inyo pong mamamayan ay makikipaglaban ayon sa inyong utos, at kung mananalangin po sila sa inyo na nakaharap sa lungsod na ito na pinili nʼyo at sa templo na aking ipinatayo para sa <i class="trans-change">karangalan ng_ inyong pangalan, 
+"Kung ang inyo pong mamamayan ay makikipaglaban ayon sa inyong utos, at kung mananalangin po sila sa inyo na nakaharap sa lungsod na ito na pinili nʼyo at sa templo na aking ipinatayo para sa karangalan ng_ inyong pangalan, 
 
 
 
@@ -1261,7 +1261,7 @@ at kung sa huliʼy magbago ang kanilang mga puso roon, at magsisi at magmakaawa 
 
 
 
-<i class="trans-change">dinggin nʼyo po ang kanilang dalangin_. Kung babalik po sila sa inyo ng buong pusoʼt isipan, doon sa lugar na pinagbihagan sa kanila, at manalangin po sila na nakaharap sa lupaing ito na ibinigay nʼyo sa kanilang mga ninuno, sa lungsod na ito na pinili po ninyo, at sa templong aking ipinatayo para sa <i class="trans-change">karangalan ng_ inyong pangalan, 
+dinggin nʼyo po ang kanilang dalangin_. Kung babalik po sila sa inyo ng buong pusoʼt isipan, doon sa lugar na pinagbihagan sa kanila, at manalangin po sila na nakaharap sa lupaing ito na ibinigay nʼyo sa kanilang mga ninuno, sa lungsod na ito na pinili po ninyo, at sa templong aking ipinatayo para sa karangalan ng_ inyong pangalan, 
 
 
 

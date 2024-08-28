@@ -106,7 +106,7 @@ Naubos na ng pamilya ni Jacob ang pagkaing binili nila sa Egipto. Kaya inutusan 
 
 
 
-Pero sumagot si Juda sa kanya, "Binalaan po kami ng gobernador na huwag na po kaming magpapakita sa kanya kung hindi po namin kasama ang aming kapatid <i class="trans-change">na si Benjamin_. 
+Pero sumagot si Juda sa kanya, "Binalaan po kami ng gobernador na huwag na po kaming magpapakita sa kanya kung hindi po namin kasama ang aming kapatid na si Benjamin_. 
 
 
 
@@ -172,7 +172,7 @@ Kung pasasamahin po ninyo siya sa amin babalik kami roon para bumili ng pagkain.
 
 
 
-Pero kung hindi po kayo <i class="trans-change">papayag_, hindi po kami magpapakita sa kanya kung hindi namin kasama ang aming kapatid." 
+Pero kung hindi po kayo papayag_, hindi po kami magpapakita sa kanya kung hindi namin kasama ang aming kapatid." 
 
 
 
@@ -271,7 +271,7 @@ Sumagot sila, "Kasi po lagi niya kaming tinatanong tungkol sa pamilya natin. Nag
 
 
 
-Kaya sinabi ni Juda sa kanilang ama, "Ama, pumayag na po kayo na isama namin si Benjamin para makaalis na po kami agad <i class="trans-change">at makabili ng pagkain_ para hindi po tayo mamatay lahat sa gutom. 
+Kaya sinabi ni Juda sa kanilang ama, "Ama, pumayag na po kayo na isama namin si Benjamin para makaalis na po kami agad at makabili ng pagkain_ para hindi po tayo mamatay lahat sa gutom. 
 
 
 
@@ -370,7 +370,7 @@ Kung hindi po tayo nagsayang ng panahon, dalawang beses na sana kaming nakabalik
 
 
 
-Sinabi ng kanilang ama, "Kung ganoon, <i class="trans-change">umalis na kayo._ Magdala kayo sa mga sisidlan ninyo ng pinakamagandang produkto rito sa ating lugar para iregalo sa gobernador <i class="trans-change">ng Egipto:_ mga gamot, pulot, pampalasa, pabango, at mga <i class="trans-change">bunga ng_ pistasyo at almendro. 
+Sinabi ng kanilang ama, "Kung ganoon, umalis na kayo._ Magdala kayo sa mga sisidlan ninyo ng pinakamagandang produkto rito sa ating lugar para iregalo sa gobernador ng Egipto:_ mga gamot, pulot, pampalasa, pabango, at mga bunga ng_ pistasyo at almendro. 
 
 
 
@@ -436,7 +436,7 @@ Doblehin ninyo ang dala ninyong pera dahil dapat ninyong ibalik ang perang ibina
 
 
 
-Isama ninyo ang kapatid ninyong <i class="trans-change">si Benjamin_ at bumalik kayo agad sa gobernador <i class="trans-change">ng Egipto_. 
+Isama ninyo ang kapatid ninyong si Benjamin_ at bumalik kayo agad sa gobernador ng Egipto_. 
 
 
 
@@ -700,7 +700,7 @@ Sinabi nila, "Ginoo, sandali lang po, may sasabihin lang po kami sa inyo. Pumunt
 
 
 
-<i class="trans-change">Nang papauwi na po kami,_ nagpalipas kami ng gabi sa isang lugar. At doon namin binuksan ang mga sako namin at nakita po namin sa loob ang perang ibinayad namin <i class="trans-change">para sa mga pagkain_. Narito, ibinabalik na po namin. 
+Nang papauwi na po kami,_ nagpalipas kami ng gabi sa isang lugar. At doon namin binuksan ang mga sako namin at nakita po namin sa loob ang perang ibinayad namin para sa mga pagkain_. Narito, ibinabalik na po namin. 
 
 
 
@@ -865,7 +865,7 @@ Inihanda ng magkakapatid ang mga regalo nila kay Jose habang hinihintay nila ang
 
 
 
-Pagdating ni Jose, yumukod sila sa kanyang harapan <i class="trans-change">bilang paggalang_ at ibinigay nila ang kanilang mga regalo. 
+Pagdating ni Jose, yumukod sila sa kanyang harapan bilang paggalang_ at ibinigay nila ang kanilang mga regalo. 
 
 
 
@@ -931,7 +931,7 @@ Kinamusta sila ni Jose. Pagkatapos, nagtanong din siya, "Kumusta ang ama ninyong
 
 
 
-Sumagot sila, "Buhay pa po si ama at mabuti pa naman po siya." Pagkatapos, yumukod silang <i class="trans-change">muli_ sa kanya bilang paggalang. 
+Sumagot sila, "Buhay pa po si ama at mabuti pa naman po siya." Pagkatapos, yumukod silang muli_ sa kanya bilang paggalang. 
 
 
 

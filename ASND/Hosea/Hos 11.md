@@ -40,7 +40,7 @@ next: ['Hos 12']
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Minahal ko ang Israel noong kabataan niya. Itinuring ko siyang anak at tinawag ko siya mula sa Egipto. 
+Sinabi ng Panginoon,_ "Minahal ko ang Israel noong kabataan niya. Itinuring ko siyang anak at tinawag ko siya mula sa Egipto. 
 
 
 
@@ -73,7 +73,7 @@ next: ['Hos 12']
 
 
 
-Pero ngayon, kahit na patuloy kong tinatawag ang mga mamamayan ng Israel, lalo pa silang lumayo sa akin. Naghahandog sila at nagsusunog ng mga insenso sa <i class="trans-change">dios-diosang si_ Baal. 
+Pero ngayon, kahit na patuloy kong tinatawag ang mga mamamayan ng Israel, lalo pa silang lumayo sa akin. Naghahandog sila at nagsusunog ng mga insenso sa dios-diosang si_ Baal. 
 
 
 
@@ -106,7 +106,7 @@ Pero ngayon, kahit na patuloy kong tinatawag ang mga mamamayan ng Israel, lalo p
 
 
 
-Ako <i class="trans-change">ang nag-alaga sa kanila_. Inakay ko sila at tinuruang lumakad, pero hindi nila kinilala na ako ang kumalinga sa kanila. 
+Ako ang nag-alaga sa kanila_. Inakay ko sila at tinuruang lumakad, pero hindi nila kinilala na ako ang kumalinga sa kanila. 
 
 
 
@@ -271,7 +271,7 @@ Nagpasyang lumayo sa akin ang aking mga mamamayan. Kaya kahit na sama-sama pa si
 
 
 
-"Mga taga-Israel, hindi ko kayo magagawang itakwil o pabayaan na lang. Hindi ko kayo magagawang <i class="trans-change">lipulin nang lubusan_ gaya ng ginawa ko sa <i class="trans-change">mga lungsod ng_ Adma at Zeboyim. Hindi matatanggap ng aking kalooban na gawin ko ito sa inyo. Awang-awa ako sa inyo. 
+"Mga taga-Israel, hindi ko kayo magagawang itakwil o pabayaan na lang. Hindi ko kayo magagawang lipulin nang lubusan_ gaya ng ginawa ko sa mga lungsod ng_ Adma at Zeboyim. Hindi matatanggap ng aking kalooban na gawin ko ito sa inyo. Awang-awa ako sa inyo. 
 
 
 
@@ -370,7 +370,7 @@ Hindi ko na ipadarama ang matindi kong galit; hindi ko na gigibain ang Israel, d
 
 
 
-Mabilis kayong darating na parang mga ibon mula sa Egipto o parang mga kalapating mula sa Asiria. Pauuwiin ko kayong muli sa inyong mga tahanan. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito." ## Parurusahan ang Israel at ang Juda 
+Mabilis kayong darating na parang mga ibon mula sa Egipto o parang mga kalapating mula sa Asiria. Pauuwiin ko kayong muli sa inyong mga tahanan. Ako,_ ang Panginoon, ang nagsasabi nito." ## Parurusahan ang Israel at ang Juda 
 
 
 
@@ -403,4 +403,4 @@ Mabilis kayong darating na parang mga ibon mula sa Egipto o parang mga kalapatin
 
 
 
-<i class="trans-change">Sinabi pa ng Panginoon,_ "Palagi akong pinagsisinungalingan at niloloko ng mga taga-Israel. Ang mga taga-Juda ay patuloy na lumalayo sa akin, ang Dios na banal at tapat."
+Sinabi pa ng Panginoon,_ "Palagi akong pinagsisinungalingan at niloloko ng mga taga-Israel. Ang mga taga-Juda ay patuloy na lumalayo sa akin, ang Dios na banal at tapat."

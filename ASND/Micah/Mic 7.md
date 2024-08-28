@@ -39,7 +39,7 @@ up: ['Micah']
 
 
 
-<i class="trans-change">Sinabi ni Micas:_ Kawawa ako! Para akong isang gutom na naghahanap ng mga natirang bunga ng ubas o igos pero walang makita ni isa man. 
+Sinabi ni Micas:_ Kawawa ako! Para akong isang gutom na naghahanap ng mga natirang bunga ng ubas o igos pero walang makita ni isa man. 
 
 
 
@@ -72,7 +72,7 @@ up: ['Micah']
 
 
 
-<i class="trans-change">Ang ibig kong sabihin,_ wala na akong nakitang tao sa Israel na tapat sa Dios. Wala nang natirang taong matuwid. Ang bawat isa ay naghahanap ng pagkakataon para patayin ang kanyang kababayan, tulad ng taong naghahanda ng bitag sa hayop na kanyang huhulihin. 
+Ang ibig kong sabihin,_ wala na akong nakitang tao sa Israel na tapat sa Dios. Wala nang natirang taong matuwid. Ang bawat isa ay naghahanap ng pagkakataon para patayin ang kanyang kababayan, tulad ng taong naghahanda ng bitag sa hayop na kanyang huhulihin. 
 
 
 
@@ -105,7 +105,7 @@ up: ['Micah']
 
 
 
-Bihasa silang gumawa ng kasamaan. Ang mga pinuno at mga hukom ay tumatanggap ng suhol. Sumusunod lamang sila sa gusto ng mga taong tanyag at makapangyarihan. Nagkakaisa sila <i class="trans-change">upang baluktutin ang katarungan_. 
+Bihasa silang gumawa ng kasamaan. Ang mga pinuno at mga hukom ay tumatanggap ng suhol. Sumusunod lamang sila sa gusto ng mga taong tanyag at makapangyarihan. Nagkakaisa sila upang baluktutin ang katarungan_. 
 
 
 
@@ -138,7 +138,7 @@ Bihasa silang gumawa ng kasamaan. Ang mga pinuno at mga hukom ay tumatanggap ng 
 
 
 
-Ang pinakamabuti sa kanila ay parang dawag <i class="trans-change">na walang silbi_. Dumating na ang panahon ng pagpaparusa ng Dios sa mga taong ito, gaya ng kanyang babala sa kanila sa pamamagitan ng <i class="trans-change">mga propeta na parang_ mga guwardya <i class="trans-change">sa tore_. Dumating na ang panahon ng kanilang pagkalito. 
+Ang pinakamabuti sa kanila ay parang dawag na walang silbi_. Dumating na ang panahon ng pagpaparusa ng Dios sa mga taong ito, gaya ng kanyang babala sa kanila sa pamamagitan ng mga propeta na parang_ mga guwardya sa tore_. Dumating na ang panahon ng kanilang pagkalito. 
 
 
 
@@ -171,7 +171,7 @@ Ang pinakamabuti sa kanila ay parang dawag <i class="trans-change">na walang sil
 
 
 
-<i class="trans-change">Dahil sa laganap na ang kasamaan,_ huwag na kayong magtiwala sa inyong kapwa o sa inyong mga kaibigan. At mag-ingat kayo sa inyong sinasabi kahit na sa inyong mahal na asawa. 
+Dahil sa laganap na ang kasamaan,_ huwag na kayong magtiwala sa inyong kapwa o sa inyong mga kaibigan. At mag-ingat kayo sa inyong sinasabi kahit na sa inyong mahal na asawa. 
 
 
 
@@ -204,7 +204,7 @@ Ang pinakamabuti sa kanila ay parang dawag <i class="trans-change">na walang sil
 
 
 
-Sapagkat <i class="trans-change">sa mga panahong ito,_ ang anak na lalaki ay hindi na gumagalang sa kanyang ama, ang anak na babae ay nagrerebelde sa kanyang ina, at ang manugang na babae ay nagrerebelde rin sa kanyang biyenang babae. Ang kaaway ng isang tao ay ang kanya mismong kapamilya. 
+Sapagkat sa mga panahong ito,_ ang anak na lalaki ay hindi na gumagalang sa kanyang ama, ang anak na babae ay nagrerebelde sa kanyang ina, at ang manugang na babae ay nagrerebelde rin sa kanyang biyenang babae. Ang kaaway ng isang tao ay ang kanya mismong kapamilya. 
 
 
 
@@ -272,7 +272,7 @@ Pero para sa akin, magtitiwala ako sa Panginoon na aking Dios. Maghihintay ako s
 
 
 
-<i class="trans-change">Sinabi ng mga Israelita,_ "Hindi tayo dapat kutyain ng ating mga kaaway. Kahit na nadapa tayo, muli tayong babangon. At kahit na nasa kadiliman tayo, ang Panginoon ang ating ilaw. 
+Sinabi ng mga Israelita,_ "Hindi tayo dapat kutyain ng ating mga kaaway. Kahit na nadapa tayo, muli tayong babangon. At kahit na nasa kadiliman tayo, ang Panginoon ang ating ilaw. 
 
 
 
@@ -371,7 +371,7 @@ Makikita ito ng ating mga kaaway at mapapahiya sila. Sapagkat kinukutya nila tay
 
 
 
-<i class="trans-change">Sinabi ni Micas sa mga taga-Jerusalem:_ Darating ang araw na muli ninyong itatayo ang mga pader ninyo at sa panahong iyon lalong lalawak ang inyong teritoryo. 
+Sinabi ni Micas sa mga taga-Jerusalem:_ Darating ang araw na muli ninyong itatayo ang mga pader ninyo at sa panahong iyon lalong lalawak ang inyong teritoryo. 
 
 
 
@@ -404,7 +404,7 @@ Makikita ito ng ating mga kaaway at mapapahiya sila. Sapagkat kinukutya nila tay
 
 
 
-Sa panahon ding iyon, pupunta sa inyo ang mga tao mula sa Asiria at sa mga lungsod ng Egipto, at mula sa Egipto hanggang sa Ilog <i class="trans-change">ng Eufrates_, at mula sa malalayong lugar. 
+Sa panahon ding iyon, pupunta sa inyo ang mga tao mula sa Asiria at sa mga lungsod ng Egipto, at mula sa Egipto hanggang sa Ilog ng Eufrates_, at mula sa malalayong lugar. 
 
 
 
@@ -437,7 +437,7 @@ Sa panahon ding iyon, pupunta sa inyo ang mga tao mula sa Asiria at sa mga lungs
 
 
 
-Magiging mapanglaw na lugar ang <i class="trans-change">mga bansa sa_ mundo dahil sa kasamaan ng mga naninirahan doon.
+Magiging mapanglaw na lugar ang mga bansa sa_ mundo dahil sa kasamaan ng mga naninirahan doon.
 
 ## Nanalangin ang mga Israelita na Kaawaan Sila ng Dios 
 
@@ -472,7 +472,7 @@ Magiging mapanglaw na lugar ang <i class="trans-change">mga bansa sa_ mundo dahi
 
 
 
-<i class="trans-change">Nanalangin ang mga Israelita,_ "Panginoon, bantayan nʼyo po kami na iyong mga mamamayan katulad ng pagbabantay ng pastol sa kanyang mga tupa. Ang mga lupain sa aming paligid ay may masaganang pastulan, pero kami ay namumuhay sa kaparangan na kami-kami lang. Palawakin nʼyong <i class="trans-change">muli_ ang aming teritoryo hanggang sa Bashan at sa Gilead katulad noon. 
+Nanalangin ang mga Israelita,_ "Panginoon, bantayan nʼyo po kami na iyong mga mamamayan katulad ng pagbabantay ng pastol sa kanyang mga tupa. Ang mga lupain sa aming paligid ay may masaganang pastulan, pero kami ay namumuhay sa kaparangan na kami-kami lang. Palawakin nʼyong muli_ ang aming teritoryo hanggang sa Bashan at sa Gilead katulad noon. 
 
 
 
@@ -571,7 +571,7 @@ Makikita ito ng mga bansa at mapapahiya sila sa kabila ng kanilang kapangyarihan
 
 
 
-Gagapang sila sa lupa na parang ahas <i class="trans-change">dahil sa sobrang hiya_. Lalabas sila sa kanilang lungga na nanginginig sa takot sa inyo, Panginoon naming Dios. 
+Gagapang sila sa lupa na parang ahas dahil sa sobrang hiya_. Lalabas sila sa kanilang lungga na nanginginig sa takot sa inyo, Panginoon naming Dios. 
 
 
 
@@ -637,7 +637,7 @@ Wala na pong ibang Dios na tulad ninyo. Pinatawad nʼyo ang kasalanan ng mga nat
 
 
 
-Muli nʼyo kaming kaawaan at <i class="trans-change">alisin nʼyo po_ ang lahat naming mga kasalanan. Yurakan nʼyo ito at itapon sa kailaliman ng dagat. 
+Muli nʼyo kaming kaawaan at alisin nʼyo po_ ang lahat naming mga kasalanan. Yurakan nʼyo ito at itapon sa kailaliman ng dagat. 
 
 
 

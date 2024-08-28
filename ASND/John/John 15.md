@@ -40,7 +40,7 @@ next: ['John 16']
 
 
 
-<i class="trans-change">Sinabi pa ni Jesus,_ "Ako ang tunay na puno ng ubas, at ang aking Ama ang tagapag-alaga. 
+Sinabi pa ni Jesus,_ "Ako ang tunay na puno ng ubas, at ang aking Ama ang tagapag-alaga. 
 
 
 
@@ -403,7 +403,7 @@ Kung sinusunod ninyo ang mga utos ko, mananatili ang pag-ibig ko sa inyo. Katula
 
 
 
-Ito ang aking utos <i class="trans-change">sa inyo_: magmahalan kayo katulad ng pagmamahal ko sa inyo. 
+Ito ang aking utos sa inyo_: magmahalan kayo katulad ng pagmamahal ko sa inyo. 
 
 
 
@@ -568,7 +568,7 @@ Hindi kayo ang pumili sa akin kundi ako ang pumili sa inyo, para humayo kayo at 
 
 
 
-Ito <i class="trans-change">nga_ ang utos ko sa inyo: magmahalan kayo." ## Ang Galit ng mga Taong Makamundo sa mga Sumasampalataya kay Jesus 
+Ito nga_ ang utos ko sa inyo: magmahalan kayo." ## Ang Galit ng mga Taong Makamundo sa mga Sumasampalataya kay Jesus 
 
 
 
@@ -601,7 +601,7 @@ Ito <i class="trans-change">nga_ ang utos ko sa inyo: magmahalan kayo." ## Ang G
 
 
 
-<i class="trans-change">Sinabi pa ni Jesus,_ "Kung napopoot sa inyo ang <i class="trans-change">mga taong_ makamundo, alalahanin ninyo na ako ang una nilang kinapootan. 
+Sinabi pa ni Jesus,_ "Kung napopoot sa inyo ang mga taong_ makamundo, alalahanin ninyo na ako ang una nilang kinapootan. 
 
 
 
@@ -733,7 +733,7 @@ Uusigin nila kayo dahil sumasampalataya kayo sa akin at dahil hindi nila kilala 
 
 
 
-Kung hindi ako naparito <i class="trans-change">sa mundo_ at nangaral sa kanila, wala sana silang <i class="trans-change">pananagutan sa kanilang_ kasalanan. Pero ngayon, wala na silang maidadahilan sa mga kasalanan nila. 
+Kung hindi ako naparito sa mundo_ at nangaral sa kanila, wala sana silang pananagutan sa kanilang_ kasalanan. Pero ngayon, wala na silang maidadahilan sa mga kasalanan nila. 
 
 
 
@@ -799,7 +799,7 @@ Ang napopoot sa akin ay napopoot din sa aking Ama.
 
 
 
-Kung hindi ako gumawa sa harap nila ng mga himalang kailanmaʼy hindi nagawa ninuman, wala sana silang <i class="trans-change">pananagutan sa kanilang_ kasalanan. Ngunit kahit nakita na nila ang mga himalang ginawa ko, napopoot pa rin sila sa akin at sa aking Ama. 
+Kung hindi ako gumawa sa harap nila ng mga himalang kailanmaʼy hindi nagawa ninuman, wala sana silang pananagutan sa kanilang_ kasalanan. Ngunit kahit nakita na nila ang mga himalang ginawa ko, napopoot pa rin sila sa akin at sa aking Ama. 
 
 
 
@@ -865,7 +865,7 @@ Sa ginawa nilang ito, natupad ang nakasulat sa kanilang Kautusan: 'Napopoot sila
 
 
 
-<i class="trans-change">Pagkatapos, sinabi ni Jesus,_ "Ipapadala ko sa inyo ang <i class="trans-change">Banal na_ Espiritu mula sa Ama. Siya ang Tagatulong nʼyo at tagapagturo ng katotohanan. Pagdating niya, magpapatotoo siya kung sino talaga ako. 
+Pagkatapos, sinabi ni Jesus,_ "Ipapadala ko sa inyo ang Banal na_ Espiritu mula sa Ama. Siya ang Tagatulong nʼyo at tagapagturo ng katotohanan. Pagdating niya, magpapatotoo siya kung sino talaga ako. 
 
 
 
@@ -898,4 +898,4 @@ Sa ginawa nilang ito, natupad ang nakasulat sa kanilang Kautusan: 'Napopoot sila
 
 
 
-Kayo rin ay dapat na magpatotoo <i class="trans-change">tungkol sa akin_, dahil kasama ko na kayo mula pa noong una.
+Kayo rin ay dapat na magpatotoo tungkol sa akin_, dahil kasama ko na kayo mula pa noong una.

@@ -271,7 +271,7 @@ At tinanong naman niya ang isa pa, 'At ikaw, magkano ang utang mo?' Sumagot ito,
 
 
 
-<i class="trans-change">Nang malaman ng amo ang ginawa ng madayang katiwala,_ pinuri niya ang kanyang katiwala dahil kumilos ito nang may karunungan. Sapagkat mas marunong ang mga taong makamundo kaysa sa mga taong naliwanagan na tungkol sa Dios. 
+Nang malaman ng amo ang ginawa ng madayang katiwala,_ pinuri niya ang kanyang katiwala dahil kumilos ito nang may karunungan. Sapagkat mas marunong ang mga taong makamundo kaysa sa mga taong naliwanagan na tungkol sa Dios. 
 
 
 
@@ -535,7 +535,7 @@ Kaya sinabi ni Jesus sa kanila, "Nagbabanal-banalan kayo sa harap ng mga tao per
 
 
 
-"Bago dumating si Juan na tagapagbautismo, ang Kautusan <i class="trans-change">ni Moises_ at ang <i class="trans-change">isinulat ng_ mga propeta ang siyang sinusunod ng mga tao. At mula nang dumating si Juan, ipinangangaral na ang Magandang Balita tungkol sa paghahari ng Dios, at marami ang nagpupumilit na maging sakop nito. 
+"Bago dumating si Juan na tagapagbautismo, ang Kautusan ni Moises_ at ang isinulat ng_ mga propeta ang siyang sinusunod ng mga tao. At mula nang dumating si Juan, ipinangangaral na ang Magandang Balita tungkol sa paghahari ng Dios, at marami ang nagpupumilit na maging sakop nito. 
 
 
 
@@ -568,7 +568,7 @@ Kaya sinabi ni Jesus sa kanila, "Nagbabanal-banalan kayo sa harap ng mga tao per
 
 
 
-Pero <i class="trans-change">hindi ibig sabihin na wala nang kabuluhan ang Kautusan, dahil_ mas madali pang mawala ang langit at lupa kaysa sa mawalan ng kabuluhan kahit ang kaliit-liitang bahagi ng Kautusan. 
+Pero hindi ibig sabihin na wala nang kabuluhan ang Kautusan, dahil_ mas madali pang mawala ang langit at lupa kaysa sa mawalan ng kabuluhan kahit ang kaliit-liitang bahagi ng Kautusan. 
 
 
 

@@ -403,7 +403,7 @@ Tinuruan na kita ng karunungan, kung paano mamuhay sa katuwiran.
 
 
 
-<i class="trans-change">Kung susundin mo ito,_ walang makakasagabal sa buhay mo at maliligtas ka sa anumang kapahamakan. 
+Kung susundin mo ito,_ walang makakasagabal sa buhay mo at maliligtas ka sa anumang kapahamakan. 
 
 
 
@@ -502,7 +502,7 @@ Huwag mong gagayahin ang ginagawa ng mga taong masama.
 
 
 
-Iwasan mo ito at patuloy kang <i class="trans-change">mamuhay nang matuwid_. 
+Iwasan mo ito at patuloy kang mamuhay nang matuwid_. 
 
 
 
@@ -733,7 +733,7 @@ Huwag mo itong kalilimutan kundi ingatan sa puso mo.
 
 
 
-Sapagkat magbibigay ito ng malusog na katawan at <i class="trans-change">mahabang_ buhay sa sinumang makakasumpong nito. 
+Sapagkat magbibigay ito ng malusog na katawan at mahabang_ buhay sa sinumang makakasumpong nito. 
 
 
 

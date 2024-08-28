@@ -139,7 +139,7 @@ Isinama rin ni David ang mga tauhan niya at mga pamilya nila, at doon sila tumir
 
 
 
-Di nagtagal, pumunta ang mga pinuno ng Juda sa Hebron, at pinahiran ng langis ang ulo ni David bilang <i class="trans-change">pagkilala na siya na ang_ hari ng Juda. Nang mabalitaan ni David na ang mga taga-Jabes Gilead ang naglibing kay Saul, 
+Di nagtagal, pumunta ang mga pinuno ng Juda sa Hebron, at pinahiran ng langis ang ulo ni David bilang pagkilala na siya na ang_ hari ng Juda. Nang mabalitaan ni David na ang mga taga-Jabes Gilead ang naglibing kay Saul, 
 
 
 
@@ -568,7 +568,7 @@ Hinawakan nila ang ulo ng isaʼt isa at nagsaksakan hanggang sa mamatay silang l
 
 
 
-At nagkaroon ng matinding labanan sa pagitan ng dalawang grupo. At nang araw na iyon, natalo si Abner at ang mga tauhan ng Israel laban sa mga tauhan ni David. <sup class="versenum">18-19</sup>Kasama sa labanan ang tatlong anak ni Zeruya na sina Joab, Abishai at Asahel. Mabilis tumakbo si Asahel gaya ng usa, at hinabol niya si Abner nang walang lingon-lingon. 
+At nagkaroon ng matinding labanan sa pagitan ng dalawang grupo. At nang araw na iyon, natalo si Abner at ang mga tauhan ng Israel laban sa mga tauhan ni David. 18-19Kasama sa labanan ang tatlong anak ni Zeruya na sina Joab, Abishai at Asahel. Mabilis tumakbo si Asahel gaya ng usa, at hinabol niya si Abner nang walang lingon-lingon. 
 
 
 
@@ -733,7 +733,7 @@ Pero hindi tumigil si Asahel sa paghabol sa kanya, kaya tinusok niya ito ng dulo
 
 
 
-<i class="trans-change">Nang malaman nina_ Joab at Abishai <i class="trans-change">ang nangyari_, hinabol nila si Abner. Papalubog na ang araw nang makarating sila sa burol ng Amma malapit sa Gia, sa daang papunta sa ilang ng Gibeon. 
+Nang malaman nina_ Joab at Abishai ang nangyari_, hinabol nila si Abner. Papalubog na ang araw nang makarating sila sa burol ng Amma malapit sa Gia, sa daang papunta sa ilang ng Gibeon. 
 
 
 
@@ -898,7 +898,7 @@ Kaya pinatunog ni Joab ang trumpeta, at ang lahat niyang tauhan ay tumigil sa pa
 
 
 
-Buong gabing naglakad si Abner at ang mga tauhan niya sa Lambak ng Jordan. Tumawid sila sa <i class="trans-change">Ilog ng_ Jordan at nagpatuloy sa paglalakad buong umaga hanggang sa makarating sila sa Mahanaim. 
+Buong gabing naglakad si Abner at ang mga tauhan niya sa Lambak ng Jordan. Tumawid sila sa Ilog ng_ Jordan at nagpatuloy sa paglalakad buong umaga hanggang sa makarating sila sa Mahanaim. 
 
 
 

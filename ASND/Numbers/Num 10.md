@@ -205,7 +205,7 @@ Kapag pinatunog ang trumpeta para ihanda ang mga tao sa paglalakbay, ang mga lah
 
 
 
-Kapag pinatunog ang trumpeta ng dalawang beses, ang lahi naman sa gawing timog <i class="trans-change">na bahagi ng Tolda_ ang mauunang lumakad. Ang pagpapatunog na ito ang magiging hudyat ng kanilang paglakad. 
+Kapag pinatunog ang trumpeta ng dalawang beses, ang lahi naman sa gawing timog na bahagi ng Tolda_ ang mauunang lumakad. Ang pagpapatunog na ito ang magiging hudyat ng kanilang paglakad. 
 
 
 
@@ -304,7 +304,7 @@ Pero iba ang pagpapatunog ng trumpeta kapag titipunin sila.
 
 
 
-"Kapag naroon na kayo sa inyong lupain, at makikipaglaban na sa inyong mga kaaway na umaapi sa inyo, patunugin ninyo ang trumpeta, at <i class="trans-change">ako,_ ang Panginoon na inyong Dios, ay aalalahanin kayo at ililigtas sa inyong mga kaaway. 
+"Kapag naroon na kayo sa inyong lupain, at makikipaglaban na sa inyong mga kaaway na umaapi sa inyo, patunugin ninyo ang trumpeta, at ako,_ ang Panginoon na inyong Dios, ay aalalahanin kayo at ililigtas sa inyong mga kaaway. 
 
 
 
@@ -337,7 +337,7 @@ Pero iba ang pagpapatunog ng trumpeta kapag titipunin sila.
 
 
 
-At sa panahon ng inyong pagsasaya – sa inyong pagdiriwang ng pista, pati na ng Pista ng Pagsisimula ng Buwan – patutunugin din ninyo ang mga trumpeta kung mag-aalay kayo ng mga handog na sinusunog at handog para sa mabuting relasyon. Ang mga trumpetang ito ang magpapaalala sa akin na inyong Dios <i class="trans-change">ng aking kasunduan sa inyo_. Ako ang Panginoon na inyong Dios." ## Umalis ang mga Israelita sa Sinai 
+At sa panahon ng inyong pagsasaya – sa inyong pagdiriwang ng pista, pati na ng Pista ng Pagsisimula ng Buwan – patutunugin din ninyo ang mga trumpeta kung mag-aalay kayo ng mga handog na sinusunog at handog para sa mabuting relasyon. Ang mga trumpetang ito ang magpapaalala sa akin na inyong Dios ng aking kasunduan sa inyo_. Ako ang Panginoon na inyong Dios." ## Umalis ang mga Israelita sa Sinai 
 
 
 
@@ -370,7 +370,7 @@ At sa panahon ng inyong pagsasaya – sa inyong pagdiriwang ng pista, pati na ng
 
 
 
-Nang ika-20 araw ng ikalawang buwan, nang ikalawang taon <i class="trans-change">mula nang inilabas ang mga Israelita sa Egipto,_ pumaitaas ang ulap mula sa Toldang Sambahan kung saan nakalagay ang Kasunduan. 
+Nang ika-20 araw ng ikalawang buwan, nang ikalawang taon mula nang inilabas ang mga Israelita sa Egipto,_ pumaitaas ang ulap mula sa Toldang Sambahan kung saan nakalagay ang Kasunduan. 
 
 
 
@@ -700,7 +700,7 @@ at ang lahi ni Gad ay pinamumunuan ni Eliasaf na anak ni Deuel.
 
 
 
-At ang sumunod ay ang mga angkan ni Kohat na nagdadala ng mga banal na kagamitan <i class="trans-change">ng Tolda_. Kailangang naiayos na ang Tolda bago sila dumating <i class="trans-change">sa susunod na lugar na kanilang pagkakampuhan_. 
+At ang sumunod ay ang mga angkan ni Kohat na nagdadala ng mga banal na kagamitan ng Tolda_. Kailangang naiayos na ang Tolda bago sila dumating sa susunod na lugar na kanilang pagkakampuhan_. 
 
 
 

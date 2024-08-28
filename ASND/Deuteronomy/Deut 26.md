@@ -106,7 +106,7 @@ ilagay ninyo ang naunang mga bahagi ng inyong ani sa basket. At dalhin ninyo ito
 
 
 
-Pumunta kayo sa paring naglilingkod sa panahong iyon, at sabihin sa kanya, '<i class="trans-change">Sa pamamagitan ng handog na ito_, kinikilala ko sa araw na ito, na ang Panginoon na ating Dios ang nagdala sa akin sa lupaing ito na kanyang ipinangako sa ating mga ninuno na ibibigay sa atin.' 
+Pumunta kayo sa paring naglilingkod sa panahong iyon, at sabihin sa kanya, 'Sa pamamagitan ng handog na ito_, kinikilala ko sa araw na ito, na ang Panginoon na ating Dios ang nagdala sa akin sa lupaing ito na kanyang ipinangako sa ating mga ninuno na ibibigay sa atin.' 
 
 
 
@@ -172,7 +172,7 @@ Pumunta kayo sa paring naglilingkod sa panahong iyon, at sabihin sa kanya, '<i c
 
 
 
-At sasabihin ninyo ito sa presensya ng Panginoon na inyong Dios, 'Ang amin pong ninuno <i class="trans-change">na si Jacob_ ay isang Arameong walang permanenteng tirahan. Pumunta siya sa Egipto at nanirahan doon kasama ang kanyang pamilya. Kaunti lang sila noon, pero dumami sila at nang bandang huli ay naging makapangyarihang bansa. 
+At sasabihin ninyo ito sa presensya ng Panginoon na inyong Dios, 'Ang amin pong ninuno na si Jacob_ ay isang Arameong walang permanenteng tirahan. Pumunta siya sa Egipto at nanirahan doon kasama ang kanyang pamilya. Kaunti lang sila noon, pero dumami sila at nang bandang huli ay naging makapangyarihang bansa. 
 
 
 
@@ -337,7 +337,7 @@ Dinala nʼyo kami sa lugar na ito, at ibinigay sa amin ang maganda at masaganang
 
 
 
-Kaya heto po kami ngayon, O Panginoon, dinadala namin ang unang bahagi ng ani ng lupaing ibinigay ninyo sa amin.' <i class="trans-change">Pagkatapos ninyo itong sabihin_, ilagay ninyo ang basket sa presensya ng Panginoon na inyong Dios, at sumamba kayo sa kanya. 
+Kaya heto po kami ngayon, O Panginoon, dinadala namin ang unang bahagi ng ani ng lupaing ibinigay ninyo sa amin.' Pagkatapos ninyo itong sabihin_, ilagay ninyo ang basket sa presensya ng Panginoon na inyong Dios, at sumamba kayo sa kanya. 
 
 
 
@@ -436,7 +436,7 @@ Magsaya kayo dahil mabuti ang mga bagay na ibinibigay ng Panginoon na inyong Dio
 
 
 
-Pagkatapos, sabihin ninyo sa presensya ng Panginoon na inyong Dios, 'Kinuha ko na po sa aking bahay ang banal na bahagi, <i class="trans-change">iyon ang ikasampung bahagi_, at ibinigay sa mga Levita, sa mga dayuhan, sa mga ulila at sa mga biyuda ayon sa lahat ng iniutos nʼyo sa amin. Hindi po ako sumuway o lumimot sa kahit isang utos ninyo. 
+Pagkatapos, sabihin ninyo sa presensya ng Panginoon na inyong Dios, 'Kinuha ko na po sa aking bahay ang banal na bahagi, iyon ang ikasampung bahagi_, at ibinigay sa mga Levita, sa mga dayuhan, sa mga ulila at sa mga biyuda ayon sa lahat ng iniutos nʼyo sa amin. Hindi po ako sumuway o lumimot sa kahit isang utos ninyo. 
 
 
 

@@ -370,7 +370,7 @@ Ang buntot nilang tulad ng sa alakdan ay may kapangyarihang manakit sa mga tao s
 
 
 
-May haring namumuno sa kanila – ang anghel <i class="trans-change">na nagbukas ng pintuan_ sa kailaliman. Ang pangalan niya sa <i class="trans-change">wikang_ Hebreo ay Abadon, at Apolyon naman sa <i class="trans-change">wikang_ Griego. 
+May haring namumuno sa kanila – ang anghel na nagbukas ng pintuan_ sa kailaliman. Ang pangalan niya sa wikang_ Hebreo ay Abadon, at Apolyon naman sa wikang_ Griego. 
 
 
 
@@ -568,7 +568,7 @@ Narinig ko na ang bilang ng mga hukbo nilang nakasakay sa kabayo ay 200,000,000.
 
 
 
-At nakita ko sa pangitain ko ang mga kabayo at ang mga sakay nito. <i class="trans-change">Ang mga nakasakay ay_ may mga pananggalang na <i class="trans-change">pula na tulad ng_ apoy, <i class="trans-change">asul na tulad ng_ sapiro at <i class="trans-change">dilaw na tulad ng_ asupre. Ang ulo ng mga kabayo ay parang ulo ng leon at sa bibig nila ay may lumalabas na apoy, usok at asupre. 
+At nakita ko sa pangitain ko ang mga kabayo at ang mga sakay nito. Ang mga nakasakay ay_ may mga pananggalang na pula na tulad ng_ apoy, asul na tulad ng_ sapiro at dilaw na tulad ng_ asupre. Ang ulo ng mga kabayo ay parang ulo ng leon at sa bibig nila ay may lumalabas na apoy, usok at asupre. 
 
 
 

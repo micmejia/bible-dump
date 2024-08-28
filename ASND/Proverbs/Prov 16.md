@@ -73,7 +73,7 @@ Nasa tao ang pagpaplano, ngunit ang Panginoon ang nagpapasya kung magaganap ito 
 
 
 
-Inaakala natin na tama ang lahat ng ating ginagawa, ngunit ang Panginoon lang ang makakapaghusga kung ano <i class="trans-change">talaga_ ang ating motibo. 
+Inaakala natin na tama ang lahat ng ating ginagawa, ngunit ang Panginoon lang ang makakapaghusga kung ano talaga_ ang ating motibo. 
 
 
 
@@ -1096,4 +1096,4 @@ Higit na mabuti ang taong mapagpasensya kaysa sa taong makapangyarihan. Higit na
 
 
 
-Nagpapalabunutan ang mga tao <i class="trans-change">upang malaman kung ano ang kanilang gagawin_, ngunit nasa Panginoon ang kapasyahan.
+Nagpapalabunutan ang mga tao upang malaman kung ano ang kanilang gagawin_, ngunit nasa Panginoon ang kapasyahan.

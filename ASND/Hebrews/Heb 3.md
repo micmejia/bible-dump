@@ -106,7 +106,7 @@ Tapat siya sa Dios na nagsugo sa kanya, katulad ni Moises na naging tapat sa pam
 
 
 
-Ngunit itinuring <i class="trans-change">ng Dios_ si Jesus na higit kaysa kay Moises, dahil kung ihahalintulad sa bahay, higit ang karangalan ng nagtayo kaysa sa bahay na itinayo. 
+Ngunit itinuring ng Dios_ si Jesus na higit kaysa kay Moises, dahil kung ihahalintulad sa bahay, higit ang karangalan ng nagtayo kaysa sa bahay na itinayo. 
 
 
 
@@ -271,7 +271,7 @@ Kaya gaya ng sinasabi ng Banal na Espiritu: "Kung marinig nʼyo ngayon ang tinig
 
 
 
-huwag ninyong patigasin ang puso nʼyo, tulad ng <i class="trans-change">ginawa noon ng mga ninuno nʼyo_. Naghimagsik sila <i class="trans-change">laban sa Dios_ at <i class="trans-change">siyaʼy_ sinubok nila roon sa ilang. 
+huwag ninyong patigasin ang puso nʼyo, tulad ng ginawa noon ng mga ninuno nʼyo_. Naghimagsik sila laban sa Dios_ at siyaʼy_ sinubok nila roon sa ilang. 
 
 
 
@@ -304,7 +304,7 @@ huwag ninyong patigasin ang puso nʼyo, tulad ng <i class="trans-change">ginawa 
 
 
 
-<i class="trans-change">Sinabi ng Dios,_ 'Sinubok nila ako <i class="trans-change">sa kasamaan nila_, kahit na nakita nila ang ginawa ko sa loob ng 40 taon. 
+Sinabi ng Dios,_ 'Sinubok nila ako sa kasamaan nila_, kahit na nakita nila ang ginawa ko sa loob ng 40 taon. 
 
 
 
@@ -403,7 +403,7 @@ Kaya sa galit ko, isinumpa kong hindi nila makakamtan ang kapahingahang galing s
 
 
 
-Kaya mga kapatid, mag-ingat kayo at baka maging masama ang puso nʼyo <i class="trans-change">na siyang magpapahina ng pananampalataya nʼyo_ hanggang sa lumayo kayo sa Dios na buhay. 
+Kaya mga kapatid, mag-ingat kayo at baka maging masama ang puso nʼyo na siyang magpapahina ng pananampalataya nʼyo_ hanggang sa lumayo kayo sa Dios na buhay. 
 
 
 
@@ -436,7 +436,7 @@ Kaya mga kapatid, mag-ingat kayo at baka maging masama ang puso nʼyo <i class="
 
 
 
-Magpaalalahanan kayo araw-araw habang may panahon pa, para walang sinuman sa inyo ang madaya ng kasalanan na nagpapatigas <i class="trans-change">sa puso nʼyo_. 
+Magpaalalahanan kayo araw-araw habang may panahon pa, para walang sinuman sa inyo ang madaya ng kasalanan na nagpapatigas sa puso nʼyo_. 
 
 
 
@@ -502,7 +502,7 @@ Sapagkat kasama tayo ni Cristo kung mananatiling matatag ang pananampalataya nat
 
 
 
-Gaya nga ng nabanggit <i class="trans-change">sa Kasulatan_: "Kung marinig nʼyo ngayon ang tinig ng Dios, huwag ninyong patigasin ang puso nʼyo tulad <i class="trans-change">ng ginawa noon ng mga ninuno nʼyo_ nang naghimagsik sila laban <i class="trans-change">sa Dios_." 
+Gaya nga ng nabanggit sa Kasulatan_: "Kung marinig nʼyo ngayon ang tinig ng Dios, huwag ninyong patigasin ang puso nʼyo tulad ng ginawa noon ng mga ninuno nʼyo_ nang naghimagsik sila laban sa Dios_." 
 
 
 
@@ -535,7 +535,7 @@ Gaya nga ng nabanggit <i class="trans-change">sa Kasulatan_: "Kung marinig nʼyo
 
 
 
-Sino ba ang mga taong nakarinig sa <i class="trans-change">tinig ng_ Dios at naghimagsik <i class="trans-change">pa rin sa kabila nito_? Hindi baʼt ang mga inilabas ni Moises sa Egipto? 
+Sino ba ang mga taong nakarinig sa tinig ng_ Dios at naghimagsik pa rin sa kabila nito_? Hindi baʼt ang mga inilabas ni Moises sa Egipto? 
 
 
 
@@ -634,4 +634,4 @@ At sino ba ang isinumpa ng Dios na hindi makakamtan ang kapahingahan? Hindi baʼ
 
 
 
-Kaya malinaw na hindi nila nakamtan <i class="trans-change">ang kapahingahan_ dahil sa kawalan ng pananampalataya <i class="trans-change">sa Dios_.
+Kaya malinaw na hindi nila nakamtan ang kapahingahan_ dahil sa kawalan ng pananampalataya sa Dios_.

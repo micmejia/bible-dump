@@ -40,7 +40,7 @@ next: ['Judg 6']
 
 
 
-Nang araw na iyon <i class="trans-change">na silaʼy nanalo_, umawit si Debora at si Barak na anak ni Abinoam. Ito ang awit nila: 
+Nang araw na iyon na silaʼy nanalo_, umawit si Debora at si Barak na anak ni Abinoam. Ito ang awit nila: 
 
 
 
@@ -139,7 +139,7 @@ Makinig kayong mga hari at mga pinuno! Aawit ako ng mga papuri sa Panginoon, ang
 
 
 
-O Panginoon, nang umalis kayo sa <i class="trans-change">Bundok ng_ Seir, at nang lumabas kayo sa lupain ng Edom, ang mundoʼy nayanig at umulan nang malakas. 
+O Panginoon, nang umalis kayo sa Bundok ng_ Seir, at nang lumabas kayo sa lupain ng Edom, ang mundoʼy nayanig at umulan nang malakas. 
 
 
 
@@ -172,7 +172,7 @@ O Panginoon, nang umalis kayo sa <i class="trans-change">Bundok ng_ Seir, at nan
 
 
 
-Nayanig ang mga bundok sa harapan nʼyo, O Panginoon. <i class="trans-change">Kayo_ ang Dios ng Israel na nagpahayag ng inyong sarili sa <i class="trans-change">Bundok ng_ Sinai. 
+Nayanig ang mga bundok sa harapan nʼyo, O Panginoon. Kayo_ ang Dios ng Israel na nagpahayag ng inyong sarili sa Bundok ng_ Sinai. 
 
 
 
@@ -238,7 +238,7 @@ Nang panahon ni Shamgar na anak ni Anat at nang panahon ni Jael, walang dumadaan
 
 
 
-Walang nagnanais tumira sa Israel, hanggang sa dumating ka, Debora, na <i class="trans-change">kinikilalang_ ina ng Israel. 
+Walang nagnanais tumira sa Israel, hanggang sa dumating ka, Debora, na kinikilalang_ ina ng Israel. 
 
 
 
@@ -337,7 +337,7 @@ Nagagalak ang aking puso sa mga pinuno ng Israel at sa mga Israelita na masayang
 
 
 
-Kayong <i class="trans-change">mayayaman na_ nakasakay sa mga puting asno at nakaupo sa magagandang upuan nito, at kayong mga <i class="trans-change">mahihirap na_ naglalakad lang, makinig kayo! 
+Kayong mayayaman na_ nakasakay sa mga puting asno at nakaupo sa magagandang upuan nito, at kayong mga mahihirap na_ naglalakad lang, makinig kayo! 
 
 
 
@@ -370,7 +370,7 @@ Kayong <i class="trans-change">mayayaman na_ nakasakay sa mga puting asno at nak
 
 
 
-Pakinggan nʼyo ang mga salaysay ng mga tao sa paligid ng mga balon. Isinasalaysay nila ang mga pagtatagumpay ng Panginoon sa pamamagitan ng kanyang mga sundalo sa Israel. Pagkatapos, nagmartsa ang mga mamamayan ng Panginoon sa may pintuan ng lungsod <i class="trans-change">na nagsasabi_, 
+Pakinggan nʼyo ang mga salaysay ng mga tao sa paligid ng mga balon. Isinasalaysay nila ang mga pagtatagumpay ng Panginoon sa pamamagitan ng kanyang mga sundalo sa Israel. Pagkatapos, nagmartsa ang mga mamamayan ng Panginoon sa may pintuan ng lungsod na nagsasabi_, 
 
 
 
@@ -469,7 +469,7 @@ Ang mga natirang buhay na mga mamamayan ng Panginoon ay kasama kong bumaba para 
 
 
 
-Ang iba sa kanilaʼy nanggaling sa Efraim – ang lupaing pagmamay-ari noon ng mga Amalekita – at ang ibaʼy mula sa lahi ni Benjamin. Sumama rin sa pakikipaglaban ang mga kapitan ng mga kawal ng Makir at <i class="trans-change">ang lahi_ ni Zebulun. 
+Ang iba sa kanilaʼy nanggaling sa Efraim – ang lupaing pagmamay-ari noon ng mga Amalekita – at ang ibaʼy mula sa lahi ni Benjamin. Sumama rin sa pakikipaglaban ang mga kapitan ng mga kawal ng Makir at ang lahi_ ni Zebulun. 
 
 
 
@@ -502,7 +502,7 @@ Ang iba sa kanilaʼy nanggaling sa Efraim – ang lupaing pagmamay-ari noon ng m
 
 
 
-Sumama rin ang mga pinuno <i class="trans-change">ng lahi_ ni Isacar kina Debora at Barak papunta sa lambak. Pero ang lahi naman ni Reuben ay <i class="trans-change">walang pagkakaisa, kaya_ hindi makapagpasya kung sasama sila o hindi. 
+Sumama rin ang mga pinuno ng lahi_ ni Isacar kina Debora at Barak papunta sa lambak. Pero ang lahi naman ni Reuben ay walang pagkakaisa, kaya_ hindi makapagpasya kung sasama sila o hindi. 
 
 
 
@@ -535,7 +535,7 @@ Sumama rin ang mga pinuno <i class="trans-change">ng lahi_ ni Isacar kina Debora
 
 
 
-O lahi ni Reuben, magpapaiwan na lang ba kayo kasama ng mga tupa? Gusto nʼyo lang bang makinig sa pagtawag <i class="trans-change">ng mga tagapagbantay_ ng <i class="trans-change">kanilang_ mga tupa? <i class="trans-change">Wala talaga kayong pagkakaisa, kaya_ hindi kayo makapagpasya kung ano ang dapat ninyong gawin. 
+O lahi ni Reuben, magpapaiwan na lang ba kayo kasama ng mga tupa? Gusto nʼyo lang bang makinig sa pagtawag ng mga tagapagbantay_ ng kanilang_ mga tupa? Wala talaga kayong pagkakaisa, kaya_ hindi kayo makapagpasya kung ano ang dapat ninyong gawin. 
 
 
 
@@ -568,7 +568,7 @@ O lahi ni Reuben, magpapaiwan na lang ba kayo kasama ng mga tupa? Gusto nʼyo la
 
 
 
-Nagpaiwan din ang <i class="trans-change">lahi ni_ Gad sa silangan ng Jordan, at ang <i class="trans-change">lahi ni_ Dan naman ay nagpaiwan sa trabaho nila sa mga barko. Ang <i class="trans-change">lahi ni_ Asher naman ay nagpaiwan sa tinitirhan nila sa tabi ng dagat. 
+Nagpaiwan din ang lahi ni_ Gad sa silangan ng Jordan, at ang lahi ni_ Dan naman ay nagpaiwan sa trabaho nila sa mga barko. Ang lahi ni_ Asher naman ay nagpaiwan sa tinitirhan nila sa tabi ng dagat. 
 
 
 
@@ -634,7 +634,7 @@ Pero itinaya ng lahi nina Zebulun at Naftali ang kanilang buhay sa pakikipaglaba
 
 
 
-Dumating ang mga haring Cananeo at nakipaglaban <i class="trans-change">sa mga Israelita_ sa Taanac na nasa tabi ng Ilog ng Megido, pero kahit isang pilak ay wala silang nasamsam. 
+Dumating ang mga haring Cananeo at nakipaglaban sa mga Israelita_ sa Taanac na nasa tabi ng Ilog ng Megido, pero kahit isang pilak ay wala silang nasamsam. 
 
 
 
@@ -700,7 +700,7 @@ Hindi lang ang Israel ang nakipaglaban kay Sisera, kundi pati rin ang mga bituin
 
 
 
-Inanod sila sa Lambak ng Kishon, ang napakatagal nang lambak. Magpapatuloy ako sa pakikipaglaban sa pamamagitan ng lakas <i class="trans-change">ng Panginoon_. 
+Inanod sila sa Lambak ng Kishon, ang napakatagal nang lambak. Magpapatuloy ako sa pakikipaglaban sa pamamagitan ng lakas ng Panginoon_. 
 
 
 

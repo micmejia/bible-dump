@@ -172,7 +172,7 @@ Aba hindi! Sapagkat tapat ang Dios sa kanyang mga salita, maging sinungaling man
 
 
 
-<i class="trans-change">Baka naman may magsabi,_ "Kung sa pamamagitan ng mga ginagawa naming masama ay makikita ang kabutihan ng Dios, hindi makatarungan ang Dios kung parusahan niya kami." (Ganyan ang pangangatwiran ng tao.) 
+Baka naman may magsabi,_ "Kung sa pamamagitan ng mga ginagawa naming masama ay makikita ang kabutihan ng Dios, hindi makatarungan ang Dios kung parusahan niya kami." (Ganyan ang pangangatwiran ng tao.) 
 
 
 
@@ -238,7 +238,7 @@ Aba, hindi maaari iyan. Sapagkat kung ganyan, paano niya hahatulan ang mga tao s
 
 
 
-<i class="trans-change">Baka naman mayroon ding magsabi,_ "Kung sa aking pagsisinungaling ay lumalabas na hindi sinungaling ang Dios, at dahil dito papupurihan pa siya, bakit niya ako parurusahan bilang isang makasalanan?" 
+Baka naman mayroon ding magsabi,_ "Kung sa aking pagsisinungaling ay lumalabas na hindi sinungaling ang Dios, at dahil dito papupurihan pa siya, bakit niya ako parurusahan bilang isang makasalanan?" 
 
 
 
@@ -271,7 +271,7 @@ Aba, hindi maaari iyan. Sapagkat kung ganyan, paano niya hahatulan ang mga tao s
 
 
 
-Kung ganito ang iyong pangangatwiran, para mo na ring sinasabi na gumawa tayo ng masama para lumabas ang mabuti. At ayon sa mga taong naninira sa amin, ganyan daw ang aming itinuturo. Ang mga taong iyan ay nararapat lamang na parusahan <i class="trans-change">ng Dios_.
+Kung ganito ang iyong pangangatwiran, para mo na ring sinasabi na gumawa tayo ng masama para lumabas ang mabuti. At ayon sa mga taong naninira sa amin, ganyan daw ang aming itinuturo. Ang mga taong iyan ay nararapat lamang na parusahan ng Dios_.
 
 ## Ang Lahat ng Tao ay Makasalanan 
 
@@ -339,7 +339,7 @@ Ano ngayon ang masasabi natin? Na tayo bang mga Judio ay talagang nakakalamang s
 
 
 
-Gaya nga ng sinasabi sa Kasulatan, "Walang matuwid <i class="trans-change">sa paningin ng Dios_, wala kahit isa. 
+Gaya nga ng sinasabi sa Kasulatan, "Walang matuwid sa paningin ng Dios_, wala kahit isa. 
 
 
 
@@ -405,7 +405,7 @@ Walang nakakaunawa tungkol sa Dios, walang nagsisikap na makilala siya.
 
 
 
-Ang lahat ay tumalikod <i class="trans-change">sa Dios_ at naging walang kabuluhan. Walang gumagawa ng mabuti, wala kahit isa." 
+Ang lahat ay tumalikod sa Dios_ at naging walang kabuluhan. Walang gumagawa ng mabuti, wala kahit isa." 
 
 
 
@@ -438,7 +438,7 @@ Ang lahat ay tumalikod <i class="trans-change">sa Dios_ at naging walang kabuluh
 
 
 
-"Ang kanilang pananalitaʼy <i class="trans-change">hindi masikmura_ tulad ng bukas na libingan. Ang kanilang sinasabiʼy puro pandaraya. Ang mga salita nilaʼy parang kamandag ng ahas. 
+"Ang kanilang pananalitaʼy hindi masikmura_ tulad ng bukas na libingan. Ang kanilang sinasabiʼy puro pandaraya. Ang mga salita nilaʼy parang kamandag ng ahas. 
 
 
 
@@ -471,7 +471,7 @@ Ang lahat ay tumalikod <i class="trans-change">sa Dios_ at naging walang kabuluh
 
 
 
-Ang <i class="trans-change">lumalabas sa_ kanilang bibig ay panay pagmumura at masasakit na salita. 
+Ang lumalabas sa_ kanilang bibig ay panay pagmumura at masasakit na salita. 
 
 
 
@@ -735,7 +735,7 @@ Pero ngayon, inihayag na kung paano itinuturing ng Dios na matuwid ang tao. Ito�
 
 
 
-Ang taoʼy itinuturing ng Dios na matuwid sa pamamagitan ng pananampalataya kay Jesu-Cristo. At walang pinapaboran ang Dios. Kaya ang sinumang sumasampalataya <i class="trans-change">kay Jesu-Cristo ay itinuturing niyang matuwid_. 
+Ang taoʼy itinuturing ng Dios na matuwid sa pamamagitan ng pananampalataya kay Jesu-Cristo. At walang pinapaboran ang Dios. Kaya ang sinumang sumasampalataya kay Jesu-Cristo ay itinuturing niyang matuwid_. 
 
 
 
@@ -867,7 +867,7 @@ Isinugo si Cristo Jesus sa mundo para ialay ang kanyang buhay, nang sa ganoon ma
 
 
 
-<i class="trans-change">Isinugo niya si Cristo_ para ipakita sa kasalukuyang panahon na matuwid siya. Dahil sa ginawa ng Dios, pinatunayan niyang matuwid siya maging sa pagturing niyang matuwid sa mga <i class="trans-change">makasalanang_ sumasampalataya kay Jesus. 
+Isinugo niya si Cristo_ para ipakita sa kasalukuyang panahon na matuwid siya. Dahil sa ginawa ng Dios, pinatunayan niyang matuwid siya maging sa pagturing niyang matuwid sa mga makasalanang_ sumasampalataya kay Jesus. 
 
 
 
@@ -933,7 +933,7 @@ Kaya wala tayong maipagmamalaki, dahil ang pagturing sa atin na matuwid ay hindi
 
 
 
-Sapagkat naniniwala tayo na itinuturing ng Dios na matuwid ang tao sa pamamagitan ng kanyang pananampalataya <i class="trans-change">kay Cristo_ at hindi sa pagsunod sa Kautusan. 
+Sapagkat naniniwala tayo na itinuturing ng Dios na matuwid ang tao sa pamamagitan ng kanyang pananampalataya kay Cristo_ at hindi sa pagsunod sa Kautusan. 
 
 
 
@@ -999,7 +999,7 @@ Ang Dios ay hindi lamang Dios ng mga Judio, kundi Dios din ng mga hindi Judio, d
 
 
 
-Iisa lamang ang Dios para sa mga Judio at hindi Judio, at ituturing silang matuwid ng Dios dahil sa kanilang pananampalataya <i class="trans-change">kay Cristo_. 
+Iisa lamang ang Dios para sa mga Judio at hindi Judio, at ituturing silang matuwid ng Dios dahil sa kanilang pananampalataya kay Cristo_. 
 
 
 

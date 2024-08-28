@@ -371,7 +371,7 @@ Sapagkat ang pag-ibig sa salapi ang siyang ugat ng lahat ng kasamaan. Ang sobran
 
 
 
-Ngunit ikaw, bilang lingkod ng Dios, iwasan mo ang mga bagay na iyan. Sikapin mong mamuhay nang matuwid, banal, may <i class="trans-change">matibay na_ pananampalataya, mapagmahal, mapagtiis at mabait <i class="trans-change">sa kapwa_. 
+Ngunit ikaw, bilang lingkod ng Dios, iwasan mo ang mga bagay na iyan. Sikapin mong mamuhay nang matuwid, banal, may matibay na_ pananampalataya, mapagmahal, mapagtiis at mabait sa kapwa_. 
 
 
 
@@ -668,7 +668,7 @@ Sa ganoon, makapag-iipon sila ng kayamanan sa langit na hindi mawawala, at matat
 
 
 
-Timoteo, ingatan mo ang <i class="trans-change">mga aral na_ ipinagkatiwala sa iyo. Iwasan mo ang mga walang kabuluhang usap-usapan na ipinapalagay ng iba na karunungan, pero sumasalungat sa itinuturo natin. 
+Timoteo, ingatan mo ang mga aral na_ ipinagkatiwala sa iyo. Iwasan mo ang mga walang kabuluhang usap-usapan na ipinapalagay ng iba na karunungan, pero sumasalungat sa itinuturo natin. 
 
 
 
@@ -701,4 +701,4 @@ Timoteo, ingatan mo ang <i class="trans-change">mga aral na_ ipinagkatiwala sa i
 
 
 
-Dahil sa ganyang pagmamarunong ng ilan, naligaw tuloy sila sa pananampalataya. Pagpalain ka nawa <i class="trans-change">ng Dios_.
+Dahil sa ganyang pagmamarunong ng ilan, naligaw tuloy sila sa pananampalataya. Pagpalain ka nawa ng Dios_.

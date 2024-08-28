@@ -40,7 +40,7 @@ next: ['Isa 31']
 
 
 
-Sinabi ng Panginoon, "Nakakaawa ang <i class="trans-change">aking_ mga anak na suwail. Gumagawa sila ng mga plano na hindi naaayon sa kalooban ko. Nakikipagkasundo sila na hindi ko pinapayagan. Kaya lalo lang nadadagdagan ang kanilang kasalanan. 
+Sinabi ng Panginoon, "Nakakaawa ang aking_ mga anak na suwail. Gumagawa sila ng mga plano na hindi naaayon sa kalooban ko. Nakikipagkasundo sila na hindi ko pinapayagan. Kaya lalo lang nadadagdagan ang kanilang kasalanan. 
 
 
 
@@ -205,7 +205,7 @@ mapapahiya lang ang Juda dahil wala namang maitutulong ang mga taga-Egipto sa ka
 
 
 
-Ito ang pahayag ng Dios tungkol sa mga hayop sa Negev: Nilakbay ng mga taga-Juda ang ilang na mahirap lakbayin kung saan may mga leon, at may mga makamandag na ahas na ang ibaʼy <i class="trans-change">parang_ lumilipad. Ikinakarga nila ang kanilang mga kayamanan sa mga asno at mga kamelyo, para iregalo sa bansang hindi man lang makatulong sa kanila. 
+Ito ang pahayag ng Dios tungkol sa mga hayop sa Negev: Nilakbay ng mga taga-Juda ang ilang na mahirap lakbayin kung saan may mga leon, at may mga makamandag na ahas na ang ibaʼy parang_ lumilipad. Ikinakarga nila ang kanilang mga kayamanan sa mga asno at mga kamelyo, para iregalo sa bansang hindi man lang makatulong sa kanila. 
 
 
 
@@ -271,7 +271,7 @@ Ang bansang iyon ay ang Egipto, na ang tulong ay walang silbi. Kaya tinatawag ko
 
 
 
-<i class="trans-change">Sinabi sa akin ng Panginoon,_ "Halika, isulat mo sa aklat <i class="trans-change">ang paratang ko laban sa mga taga-Israel_, para lagi itong magsilbing patunay ng kasamaan nila sa darating na panahon. 
+Sinabi sa akin ng Panginoon,_ "Halika, isulat mo sa aklat ang paratang ko laban sa mga taga-Israel_, para lagi itong magsilbing patunay ng kasamaan nila sa darating na panahon. 
 
 
 
@@ -535,7 +535,7 @@ Sinabi pa ng Panginoong Dios, ang Banal na Dios ng Israel, "Magbalik-loob kayo s
 
 
 
-at sinabi ninyo, 'Makakatakas kami <i class="trans-change">sa aming mga kaaway_, dahil mabibilis ang aming mga kabayo.' Oo nga, makakatakas kayo pero mas mabibilis ang mga hahabol sa inyo. 
+at sinabi ninyo, 'Makakatakas kami sa aming mga kaaway_, dahil mabibilis ang aming mga kabayo.' Oo nga, makakatakas kayo pero mas mabibilis ang mga hahabol sa inyo. 
 
 
 
@@ -964,7 +964,7 @@ Ang kanyang hininga ay parang malakas na agos na umaabot hanggang leeg. Nililipo
 
 
 
-Pero kayong mga mamamayan ng Dios ay aawit, katulad ng ginagawa ninyo sa gabi ng pista ng pagpaparangal sa Panginoon. Magagalak kayo katulad ng taong nagmamartsa sa tunog ng plauta habang naglalakad patungo sa Bundok ng Panginoon para sambahin siya, ang Bato <i class="trans-change">na kanlungan_ ng Israel. 
+Pero kayong mga mamamayan ng Dios ay aawit, katulad ng ginagawa ninyo sa gabi ng pista ng pagpaparangal sa Panginoon. Magagalak kayo katulad ng taong nagmamartsa sa tunog ng plauta habang naglalakad patungo sa Bundok ng Panginoon para sambahin siya, ang Bato na kanlungan_ ng Israel. 
 
 
 

@@ -1,0 +1,103 @@
+---
+Aliases: [John 20]
+previous: ['John 19']
+up: ['John']
+next: ['John 21']
+---
+# John 20
+
+***
+
+
+###### 1 
+Now the first _day_ of the week Mary Magdalene went to the tomb early, while it was still dark, and saw _that_ the stone had been taken away from the tomb. 
+
+###### 2 
+Then she ran and came to Simon Peter, and to the other disciple, whom Jesus loved, and said to them, "They have taken away the Lord out of the tomb, and we do not know where they have laid Him." 
+
+###### 3 
+Peter therefore went out, and the other disciple, and were going to the tomb. 
+
+###### 4 
+So they both ran together, and the other disciple outran Peter and came to the tomb first. 
+
+###### 5 
+And he, stooping down and looking in, saw the linen cloths lying _there;_ yet he did not go in. 
+
+###### 6 
+Then Simon Peter came, following him, and went into the tomb; and he saw the linen cloths lying _there,_ 
+
+###### 7 
+and the [^a]handkerchief that had been around His head, not lying with the linen cloths, but folded together in a place by itself. 
+
+###### 8 
+Then the other disciple, who came to the tomb first, went in also; and he saw and believed. 
+
+###### 9 
+For as yet they did not [^b]know the Scripture, that He must rise again from the dead. 
+
+###### 10 
+Then the disciples went away again to their own homes. ## Mary Magdalene Sees the Risen Lord 
+
+###### 11 
+But Mary stood outside by the tomb weeping, and as she wept she stooped down _and looked_ into the tomb. 
+
+###### 12 
+And she saw two angels in white sitting, one at the head and the other at the feet, where the body of Jesus had lain. 
+
+###### 13 
+Then they said to her, "Woman, why are you weeping?" She said to them, "Because they have taken away my Lord, and I do not know where they have laid Him." 
+
+###### 14 
+Now when she had said this, she turned around and saw Jesus standing _there,_ and did not know that it was Jesus. 
+
+###### 15 
+Jesus said to her, "Woman, why are you weeping? Whom are you seeking?" She, supposing Him to be the gardener, said to Him, "Sir, if You have carried Him away, tell me where You have laid Him, and I will take Him away." 
+
+###### 16 
+Jesus said to her, "Mary!" She turned and said to [^c]Him, "Rabboni!" (which is to say, Teacher). 
+
+###### 17 
+Jesus said to her, "Do not cling to Me, for I have not yet ascended to My Father; but go to My brethren and say to them, 'I am ascending to My Father and your Father, and _to_ My God and your God.' " 
+
+###### 18 
+Mary Magdalene came and told the [^d]disciples that she had seen the Lord, and _that_ He had spoken these things to her. ## The Apostles Commissioned 
+
+###### 19 
+Then, the same day at evening, being the first _day_ of the week, when the doors were shut where the disciples were [^e]assembled, for fear of the Jews, Jesus came and stood in the midst, and said to them, "Peace _be_ with you." 
+
+###### 20 
+When He had said this, He showed them _His_ hands and His side. Then the disciples were glad when they saw the Lord. 
+
+###### 21 
+So Jesus said to them again, "Peace to you! As the Father has sent Me, I also send you." 
+
+###### 22 
+And when He had said this, He breathed on _them,_ and said to them, "Receive the Holy Spirit. 
+
+###### 23 
+If you forgive the sins of any, they are forgiven them; if you retain the _sins_ of any, they are retained." ## Seeing and Believing 
+
+###### 24 
+Now Thomas, called the Twin, one of the twelve, was not with them when Jesus came. 
+
+###### 25 
+The other disciples therefore said to him, "We have seen the Lord." So he said to them, "Unless I see in His hands the print of the nails, and put my finger into the print of the nails, and put my hand into His side, I will not believe." 
+
+###### 26 
+And after eight days His disciples were again inside, and Thomas with them. Jesus came, the doors being shut, and stood in the midst, and said, "Peace to you!" 
+
+###### 27 
+Then He said to Thomas, "Reach your finger here, and look at My hands; and reach your hand _here,_ and put _it_ into My side. Do not be unbelieving, but believing." 
+
+###### 28 
+And Thomas answered and said to Him, "My Lord and my God!" 
+
+###### 29 
+Jesus said to him, [^f]"Thomas, because you have seen Me, you have believed. Blessed _are_ those who have not seen and _yet_ have believed." ## That You May Believe 
+
+###### 30 
+And truly Jesus did many other signs in the presence of His disciples, which are not written in this book; 
+
+###### 31 
+but these are written that you may believe that Jesus is the Christ, the Son of God, and that believing you may have life in His name. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: John 20:7 _face cloth_ [^b]: John 20:9 _understand_ [^c]: John 20:16 NU adds _in Hebrew_ [^d]: John 20:18 NU _disciples, “I have seen the Lord,”_ [^e]: John 20:19 NU omits _assembled_ [^f]: John 20:29 NU, M omit _Thomas_

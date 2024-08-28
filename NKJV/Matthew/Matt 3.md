@@ -1,0 +1,61 @@
+---
+Aliases: [Matthew 3]
+previous: ['Matt 2']
+up: ['Matthew']
+next: ['Matt 4']
+---
+# Matthew 3
+
+***
+
+
+###### 1 
+In those days John the Baptist came preaching in the wilderness of Judea, 
+
+###### 2 
+and saying, "Repent, for the kingdom of heaven is at hand!" 
+
+###### 3 
+For this is he who was spoken of by the prophet Isaiah, saying: "The voice of one crying in the wilderness: 'Prepare the way of the Lord; Make His paths straight.' " 
+
+###### 4 
+Now John himself was clothed in camel's hair, with a leather belt around his waist; and his food was locusts and wild honey. 
+
+###### 5 
+Then Jerusalem, all Judea, and all the region around the Jordan went out to him 
+
+###### 6 
+and were baptized by him in the Jordan, confessing their sins. 
+
+###### 7 
+But when he saw many of the Pharisees and Sadducees coming to his baptism, he said to them, "Brood of vipers! Who warned you to flee from the wrath to come? 
+
+###### 8 
+Therefore bear fruits worthy of repentance, 
+
+###### 9 
+and do not think to say to yourselves, 'We have Abraham as _our_ father.' For I say to you that God is able to raise up children to Abraham from these stones. 
+
+###### 10 
+And even now the ax is laid to the root of the trees. Therefore every tree which does not bear good fruit is cut down and thrown into the fire. 
+
+###### 11 
+I indeed baptize you with water unto repentance, but He who is coming after me is mightier than I, whose sandals I am not worthy to carry. He will baptize you with the Holy Spirit [^a]and fire. 
+
+###### 12 
+His winnowing fan _is_ in His hand, and He will thoroughly clean out His threshing floor, and gather His wheat into the barn; but He will burn up the chaff with unquenchable fire." ## John Baptizes Jesus 
+
+###### 13 
+Then Jesus came from Galilee to John at the Jordan to be baptized by him. 
+
+###### 14 
+And John _tried to_ prevent Him, saying, "I need to be baptized by You, and are You coming to me?" 
+
+###### 15 
+But Jesus answered and said to him, "Permit _it to be so_ now, for thus it is fitting for us to fulfill all righteousness." Then he allowed Him. 
+
+###### 16 
+When He had been baptized, Jesus came up immediately from the water; and behold, the heavens were opened to Him, and [^b]He saw the Spirit of God descending like a dove and alighting upon Him. 
+
+###### 17 
+And suddenly a voice _came_ from heaven, saying, "This is My beloved Son, in whom I am well pleased." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Matthew 3:11 M omits _and fire_ [^b]: Matthew 3:16 Or _he_

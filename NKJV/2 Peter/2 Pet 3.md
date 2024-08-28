@@ -1,0 +1,63 @@
+---
+Aliases: [2 Peter 3]
+previous: ['2 Pet 2']
+up: ['2 Peter']
+---
+# 2 Peter 3
+
+***
+
+
+###### 1 
+Beloved, I now write to you this second epistle (in _both of_ which I stir up your pure minds by way of reminder), 
+
+###### 2 
+that you may be mindful of the words which were spoken before by the holy prophets, and of the commandment of [^a]us, the apostles of the Lord and Savior, 
+
+###### 3 
+knowing this first: that scoffers will come in the last days, walking according to their own lusts, 
+
+###### 4 
+and saying, "Where is the promise of His coming? For since the fathers fell asleep, all things continue as _they were_ from the beginning of creation." 
+
+###### 5 
+For this they willfully forget: that by the word of God the heavens were of old, and the earth standing out of water and in the water, 
+
+###### 6 
+by which the world _that_ then existed perished, being flooded with water. 
+
+###### 7 
+But the heavens and the earth _which_ are now preserved by the same word, are reserved for fire until the day of judgment and [^b]perdition of ungodly men. 
+
+###### 8 
+But, beloved, do not forget this one thing, that with the Lord one day _is_ as a thousand years, and a thousand years as one day. 
+
+###### 9 
+The Lord is not slack concerning _His_ promise, as some count slackness, but is longsuffering toward [^c]us, not willing that any should perish but that all should come to repentance. ## The Day of the Lord 
+
+###### 10 
+But the day of the Lord will come as a thief in the night, in which the heavens will pass away with a great noise, and the elements will melt with fervent heat; both the earth and the works that are in it will be [^d]burned up. 
+
+###### 11 
+Therefore, since all these things will be dissolved, what manner _of persons_ ought you to be in holy conduct and godliness, 
+
+###### 12 
+looking for and hastening the coming of the day of God, because of which the heavens will be dissolved, being on fire, and the elements will melt with fervent heat? 
+
+###### 13 
+Nevertheless we, according to His promise, look for new heavens and a new earth in which righteousness dwells. ## Be Steadfast 
+
+###### 14 
+Therefore, beloved, looking forward to these things, be diligent to be found by Him in peace, without spot and blameless; 
+
+###### 15 
+and consider _that_ the longsuffering of our Lord _is_ salvation--as also our beloved brother Paul, according to the wisdom given to him, has written to you, 
+
+###### 16 
+as also in all his epistles, speaking in them of these things, in which are some things hard to understand, which untaught and unstable _people_ twist to their own destruction, as _they do_ also the rest of the Scriptures. 
+
+###### 17 
+You therefore, beloved, since you know _this_ beforehand, beware lest you also fall from your own steadfastness, being led away with the error of the wicked; 
+
+###### 18 
+but grow in the grace and knowledge of our Lord and Savior Jesus Christ. To Him _be_ the glory both now and forever. Amen. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Peter 3:2 NU, M _the apostles of your Lord and Savior_ or _your apostles of the Lord and Savior_ [^b]: 2 Peter 3:7 _destruction_ [^c]: 2 Peter 3:9 NU _you_ [^d]: 2 Peter 3:10 NU _laid bare,_ lit. _found_

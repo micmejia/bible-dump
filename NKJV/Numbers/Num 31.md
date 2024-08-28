@@ -1,0 +1,172 @@
+---
+Aliases: [Numbers 31]
+previous: ['Num 30']
+up: ['Numbers']
+next: ['Num 32']
+---
+# Numbers 31
+
+***
+
+
+###### 1 
+And the Lord spoke to Moses, saying: 
+
+###### 2 
+"Take vengeance on the Midianites for the children of Israel. Afterward you shall be gathered to your people." 
+
+###### 3 
+So Moses spoke to the people, saying, "Arm some of yourselves for war, and let them go against the Midianites to take vengeance for the Lord on Midian. 
+
+###### 4 
+A thousand from each tribe of all the tribes of Israel you shall send to the war." 
+
+###### 5 
+So there were recruited from the divisions of Israel one thousand from _each_ tribe, twelve thousand armed for war. 
+
+###### 6 
+Then Moses sent them to the war, one thousand from _each_ tribe; he sent them to the war with Phinehas the son of Eleazar the priest, with the holy articles and the signal trumpets in his hand. 
+
+###### 7 
+And they warred against the Midianites, just as the Lord commanded Moses, and they killed all the males. 
+
+###### 8 
+They killed the kings of Midian with _the rest of_ those who were killed--Evi, Rekem, Zur, Hur, and Reba, the five kings of Midian. Balaam the son of Beor they also killed with the sword. 
+
+###### 9 
+And the children of Israel took the women of Midian captive, with their little ones, and took as spoil all their cattle, all their flocks, and all their goods. 
+
+###### 10 
+They also burned with fire all the cities where they dwelt, and all their forts. 
+
+###### 11 
+And they took all the spoil and all the booty--of man and beast. ## Return from the War 
+
+###### 12 
+Then they brought the captives, the booty, and the spoil to Moses, to Eleazar the priest, and to the congregation of the children of Israel, to the camp in the plains of Moab by the Jordan, _across from_ Jericho. 
+
+###### 13 
+And Moses, Eleazar the priest, and all the leaders of the congregation, went to meet them outside the camp. 
+
+###### 14 
+But Moses was angry with the officers of the army, _with_ the captains over thousands and captains over hundreds, who had come from the battle. 
+
+###### 15 
+And Moses said to them: "Have you kept all the women alive? 
+
+###### 16 
+Look, these _women_ caused the children of Israel, through the counsel of Balaam, to trespass against the Lord in the incident of Peor, and there was a plague among the congregation of the Lord. 
+
+###### 17 
+Now therefore, kill every male among the little ones, and kill every woman who has known a man intimately. 
+
+###### 18 
+But keep alive for yourselves all the young girls who have not known a man intimately. 
+
+###### 19 
+And as for you, remain outside the camp seven days; whoever has killed any person, and whoever has touched any slain, purify yourselves and your captives on the third day and on the seventh day. 
+
+###### 20 
+Purify every garment, everything made of leather, everything woven of goats' _hair,_ and everything made of wood." 
+
+###### 21 
+Then Eleazar the priest said to the men of war who had gone to the battle, "This _is_ the [^a]ordinance of the law which the Lord commanded Moses: 
+
+###### 22 
+Only the gold, the silver, the bronze, the iron, the tin, and the lead, 
+
+###### 23 
+everything that can endure fire, you shall put through the fire, and it shall be clean; and it shall be purified with the water of purification. But all that cannot endure fire you shall put through water. 
+
+###### 24 
+And you shall wash your clothes on the seventh day and be clean, and afterward you may come into the camp." ## Division of the Plunder 
+
+###### 25 
+Now the Lord spoke to Moses, saying: 
+
+###### 26 
+"Count up the plunder that was [^b]taken--of man and beast--you and Eleazar the priest and the chief fathers of the congregation; 
+
+###### 27 
+and divide the plunder into two parts, between those who took part in the war, who went out to battle, and all the congregation. 
+
+###### 28 
+And levy a [^c]tribute for the Lord on the men of war who went out to battle: one of every five hundred of the persons, the cattle, the donkeys, and the sheep; 
+
+###### 29 
+take _it_ from their half, and give _it_ to Eleazar the priest as a heave offering to the Lord. 
+
+###### 30 
+And from the children of Israel's half you shall take one of every fifty, drawn from the persons, the cattle, the donkeys, and the sheep, from all the livestock, and give them to the Levites who [^d]keep charge of the tabernacle of the Lord." 
+
+###### 31 
+So Moses and Eleazar the priest did as the Lord commanded Moses. 
+
+###### 32 
+The booty remaining from the plunder, which the men of war had taken, was six hundred and seventy-five thousand sheep, 
+
+###### 33 
+seventy-two thousand cattle, 
+
+###### 34 
+sixty-one thousand donkeys, 
+
+###### 35 
+and thirty-two thousand persons in all, of women who had not known a man intimately. 
+
+###### 36 
+And the half, the portion for those who had gone out to war, was in number three hundred and thirty-seven thousand five hundred sheep; 
+
+###### 37 
+and the Lord's [^e]tribute of the sheep was six hundred and seventy-five. 
+
+###### 38 
+The cattle _were_ thirty-six thousand, of which the Lord's tribute _was_ seventy-two. 
+
+###### 39 
+The donkeys _were_ thirty thousand five hundred, of which the Lord's tribute _was_ sixty-one. 
+
+###### 40 
+The persons _were_ sixteen thousand, of which the Lord's tribute _was_ thirty-two persons. 
+
+###### 41 
+So Moses gave the tribute _which was_ the Lord's heave offering to Eleazar the priest, as the Lord commanded Moses. 
+
+###### 42 
+And from the children of Israel's half, which Moses separated from the men who fought-- 
+
+###### 43 
+now the half belonging to the congregation was three hundred and thirty-seven thousand five hundred sheep, 
+
+###### 44 
+thirty-six thousand cattle, 
+
+###### 45 
+thirty thousand five hundred donkeys, 
+
+###### 46 
+and sixteen thousand persons-- 
+
+###### 47 
+and from the children of Israel's half Moses took one of every fifty, drawn from man and beast, and gave them to the Levites, who kept charge of the tabernacle of the Lord, as the Lord commanded Moses. 
+
+###### 48 
+Then the officers who _were_ over thousands of the army, the captains of thousands and captains of hundreds, came near to Moses; 
+
+###### 49 
+and they said to Moses, "Your servants have taken a count of the men of war who _are_ under our command, and not a man of us is missing. 
+
+###### 50 
+Therefore we have brought an offering for the Lord, what every man found of ornaments of gold: armlets and bracelets and signet rings and earrings and necklaces, to make [^f]atonement for ourselves before the Lord." 
+
+###### 51 
+So Moses and Eleazar the priest received the gold from them, all the fashioned ornaments. 
+
+###### 52 
+And all the gold of the offering that they offered to the Lord, from the captains of thousands and captains of hundreds, was sixteen thousand seven hundred and fifty shekels. 
+
+###### 53 
+(The men of war had taken spoil, every man for himself.) 
+
+###### 54 
+And Moses and Eleazar the priest received the gold from the captains of thousands and of hundreds, and brought it into the tabernacle of meeting as a memorial for the children of Israel before the Lord. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Numbers 31:21 _statute_ [^b]: Numbers 31:26 _captured_ [^c]: Numbers 31:28 _tax_ [^d]: Numbers 31:30 _perform the service_ [^e]: Numbers 31:37 _tax_ [^f]: Numbers 31:50 Lit. _covering_

@@ -1,0 +1,121 @@
+---
+Aliases: [Mark 13]
+previous: ['Mark 12']
+up: ['Mark']
+next: ['Mark 14']
+---
+# Mark 13
+
+***
+
+
+###### 1 
+Then as He went out of the temple, one of His disciples said to Him, "Teacher, see what manner of stones and what buildings _are here!_" 
+
+###### 2 
+And Jesus answered and said to him, "Do you see these great buildings? Not _one_ stone shall be left upon another, that shall not be thrown down." ## The Signs of the Times and the End of the Age 
+
+###### 3 
+Now as He sat on the Mount of Olives opposite the temple, Peter, James, John, and Andrew asked Him privately, 
+
+###### 4 
+"Tell us, when will these things be? And what _will be_ the sign when all these things will be fulfilled?" 
+
+###### 5 
+And Jesus, answering them, began to say: "Take heed that no one deceives you. 
+
+###### 6 
+For many will come in My name, saying, 'I am _He,_' and will deceive many. 
+
+###### 7 
+But when you hear of wars and rumors of wars, do not be troubled; for _such things_ must happen, but the end _is_ not yet. 
+
+###### 8 
+For nation will rise against nation, and kingdom against kingdom. And there will be earthquakes in various places, and there will be famines [^a]and troubles. These _are_ the beginnings of [^b]sorrows. 
+
+###### 9 
+"But watch out for yourselves, for they will deliver you up to councils, and you will be beaten in the synagogues. You will [^c]be brought before rulers and kings for My sake, for a testimony to them. 
+
+###### 10 
+And the gospel must first be preached to all the nations. 
+
+###### 11 
+But when they arrest _you_ and deliver you up, do not worry beforehand, [^d]or premeditate what you will speak. But whatever is given you in that hour, speak that; for it is not you who speak, but the Holy Spirit. 
+
+###### 12 
+Now brother will betray brother to death, and a father _his_ child; and children will rise up against parents and cause them to be put to death. 
+
+###### 13 
+And you will be hated by all for My name's sake. But he who [^e]endures to the end shall be saved. ## The Great Tribulation 
+
+###### 14 
+"So when you see the 'abomination of desolation,' [^f]spoken of by Daniel the prophet, standing where it ought not" (let the reader understand), "then let those who are in Judea flee to the mountains. 
+
+###### 15 
+Let him who is on the housetop not go down into the house, nor enter to take anything out of his house. 
+
+###### 16 
+And let him who is in the field not go back to get his clothes. 
+
+###### 17 
+But woe to those who are pregnant and to those who are nursing babies in those days! 
+
+###### 18 
+And pray that your flight may not be in winter. 
+
+###### 19 
+For _in_ those days there will be tribulation, such as has not been since the beginning of the creation which God created until this time, nor ever shall be. 
+
+###### 20 
+And unless the Lord had shortened those days, no flesh would be saved; but for the elect's sake, whom He chose, He shortened the days. 
+
+###### 21 
+"Then if anyone says to you, 'Look, here _is_ the Christ!' or, 'Look, _He is_ there!' do not believe it. 
+
+###### 22 
+For false christs and false prophets will rise and show signs and wonders to deceive, if possible, even the [^g]elect. 
+
+###### 23 
+But take heed; see, I have told you all things beforehand. ## The Coming of the Son of Man 
+
+###### 24 
+"But in those days, after that tribulation, the sun will be darkened, and the moon will not give its light; 
+
+###### 25 
+the stars of heaven will fall, and the powers in the heavens will be shaken. 
+
+###### 26 
+Then they will see the Son of Man coming in the clouds with great power and glory. 
+
+###### 27 
+And then He will send His angels, and gather together His [^h]elect from the four winds, from the farthest part of earth to the farthest part of heaven. ## The Parable of the Fig Tree 
+
+###### 28 
+"Now learn this parable from the fig tree: When its branch has already become tender, and puts forth leaves, you know that summer is near. 
+
+###### 29 
+So you also, when you see these things happening, know that [^i]it is near--at the doors! 
+
+###### 30 
+Assuredly, I say to you, this generation will by no means pass away till all these things take place. 
+
+###### 31 
+Heaven and earth will pass away, but My words will by no means pass away. ## No One Knows the Day or Hour 
+
+###### 32 
+"But of that day and hour no one knows, not even the angels in heaven, nor the Son, but only the Father. 
+
+###### 33 
+Take heed, watch and pray; for you do not know when the time is. 
+
+###### 34 
+_It is_ like a man going to a far country, who left his house and gave authority to his servants, and to each his work, and commanded the doorkeeper to watch. 
+
+###### 35 
+Watch therefore, for you do not know when the master of the house is coming--in the evening, at midnight, at the crowing of the rooster, or in the morning-- 
+
+###### 36 
+lest, coming suddenly, he find you sleeping. 
+
+###### 37 
+And what I say to you, I say to all: Watch!" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Mark 13:8 NU omits _and troubles_ [^b]: Mark 13:8 Lit. _birth pangs_ [^c]: Mark 13:9 NU, M _stand_ [^d]: Mark 13:11 NU omits _or premeditate_ [^e]: Mark 13:13 _bears patiently_ [^f]: Mark 13:14 NU omits _spoken of by Daniel the prophet_ [^g]: Mark 13:22 _chosen ones_ [^h]: Mark 13:27 _chosen ones_ [^i]: Mark 13:29 Or _He_

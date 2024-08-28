@@ -1,0 +1,147 @@
+---
+Aliases: [Deuteronomy 1]
+up: ['Deuteronomy']
+next: ['Deut 2']
+---
+# Deuteronomy 1
+
+***
+
+
+###### 1 
+These _are_ the words which Moses spoke to all Israel on this side of the Jordan in the wilderness, in the [^a]plain opposite [^b]Suph, between Paran, Tophel, Laban, Hazeroth, and Dizahab. 
+
+###### 2 
+_It is_ eleven days' _journey_ from Horeb by way of Mount Seir to Kadesh Barnea. 
+
+###### 3 
+Now it came to pass in the fortieth year, in the eleventh month, on the first _day_ of the month, _that_ Moses spoke to the children of Israel according to all that the Lord had given him as commandments to them, 
+
+###### 4 
+after he had killed Sihon king of the Amorites, who dwelt in Heshbon, and Og king of Bashan, who dwelt at Ashtaroth in[^c] Edrei. 
+
+###### 5 
+On this side of the Jordan in the land of Moab, Moses began to explain this law, saying, 
+
+###### 6 
+"The Lord our God spoke to us in Horeb, saying: 'You have dwelt long enough at this mountain. 
+
+###### 7 
+Turn and take your journey, and go to the mountains of the Amorites, to all the neighboring _places_ in the [^d]plain, in the mountains and in the lowland, in the South and on the seacoast, to the land of the Canaanites and to Lebanon, as far as the great river, the River Euphrates. 
+
+###### 8 
+See, I have set the land before you; go in and possess the land which the Lord [^e]swore to your fathers--to Abraham, Isaac, and Jacob--to give to them and their descendants after them.' ## Tribal Leaders Appointed 
+
+###### 9 
+"And I spoke to you at that time, saying: 'I [^f]alone am not able to bear you. 
+
+###### 10 
+The Lord your God has multiplied you, and here you _are_ today, as the stars of heaven in multitude. 
+
+###### 11 
+May the Lord God of your fathers make you a thousand times more numerous than you are, and bless you as He has promised you! 
+
+###### 12 
+How can I alone bear your problems and your burdens and your complaints? 
+
+###### 13 
+Choose wise, understanding, and knowledgeable men from among your tribes, and I will make them [^g]heads over you.' 
+
+###### 14 
+And you answered me and said, 'The thing which you have told _us_ to do _is_ good.' 
+
+###### 15 
+So I took the heads of your tribes, wise and knowledgeable men, and [^h]made them heads over you, leaders of thousands, leaders of hundreds, leaders of fifties, leaders of tens, and officers for your tribes. 
+
+###### 16 
+"Then I commanded your judges at that time, saying, 'Hear _the cases_ between your brethren, and judge righteously between a man and his brother or the stranger who is with him. 
+
+###### 17 
+You shall not show partiality in judgment; you shall hear the small as well as the great; you shall not be afraid in any man's presence, for the judgment _is_ God's. The case that is too hard for you, bring to me, and I will hear it.' 
+
+###### 18 
+And I commanded you at that time all the things which you should do. ## Israel's Refusal to Enter the Land 
+
+###### 19 
+"So we departed from Horeb, and went through all that great and terrible wilderness which you saw on the way to the mountains of the Amorites, as the Lord our God had commanded us. Then we came to Kadesh Barnea. 
+
+###### 20 
+And I said to you, 'You have come to the mountains of the Amorites, which the Lord our God is giving us. 
+
+###### 21 
+Look, the Lord your God has set the land before you; go up _and_ possess _it,_ as the Lord God of your fathers has spoken to you; do not fear or be discouraged.' 
+
+###### 22 
+"And every one of you came near to me and said, 'Let us send men before us, and let them search out the land for us, and bring back word to us of the way by which we should go up, and of the cities into which we shall come.' 
+
+###### 23 
+"The plan pleased me well; so I took twelve of your men, one man from _each_ tribe. 
+
+###### 24 
+And they departed and went up into the mountains, and came to the Valley of Eshcol, and spied it out. 
+
+###### 25 
+They also took _some_ of the fruit of the land in their hands and brought _it_ down to us; and they brought back word to us, saying, '_It is_ a good land which the Lord our God is giving us.' 
+
+###### 26 
+"Nevertheless you would not go up, but rebelled against the command of the Lord your God; 
+
+###### 27 
+and you complained in your tents, and said, 'Because the Lord hates us, He has brought us out of the land of Egypt to deliver us into the hand of the Amorites, to destroy us. 
+
+###### 28 
+Where can we go up? Our brethren have [^i]discouraged our hearts, saying, "The people _are_ greater and taller than we; the cities _are_ great and fortified up to heaven; moreover we have seen the sons of the Anakim there." ' 
+
+###### 29 
+"Then I said to you, 'Do not be terrified, or afraid of them. 
+
+###### 30 
+The Lord your God, who goes before you, He will fight for you, according to all He did for you in Egypt before your eyes, 
+
+###### 31 
+and in the wilderness where you saw how the Lord your God carried you, as a man carries his son, in all the way that you went until you came to this place.' 
+
+###### 32 
+Yet, for all that, you did not believe the Lord your God, 
+
+###### 33 
+who went in the way before you to search out a place for you to pitch your tents, to show you the way you should go, in the fire by night and in the cloud by day. ## The Penalty for Israel's Rebellion 
+
+###### 34 
+"And the Lord heard the sound of your words, and was angry, and took an oath, saying, 
+
+###### 35 
+'Surely not one of these men of this evil generation shall see that good land of which I [^j]swore to give to your fathers, 
+
+###### 36 
+except Caleb the son of Jephunneh; he shall see it, and to him and his children I am giving the land on which he walked, because he [^k]wholly followed the Lord.' 
+
+###### 37 
+The Lord was also angry with me for your sakes, saying, 'Even you shall not go in there. 
+
+###### 38 
+Joshua the son of Nun, who stands before you, he shall go in there. Encourage him, for he shall cause Israel to inherit it. 
+
+###### 39 
+'Moreover your little ones and your children, who you say will be victims, who today have no knowledge of good and evil, they shall go in there; to them I will give it, and they shall possess it. 
+
+###### 40 
+But _as for_ you, turn and take your journey into the wilderness by the Way of the Red Sea.' 
+
+###### 41 
+"Then you answered and said to me, 'We have sinned against the Lord; we will go up and fight, just as the Lord our God commanded us.' And when everyone of you had girded on his weapons of war, you were ready to go up into the mountain. 
+
+###### 42 
+"And the Lord said to me, 'Tell them, "Do not go up nor fight, for I _am_ not among you; lest you be defeated before your enemies." ' 
+
+###### 43 
+So I spoke to you; yet you would not listen, but rebelled against the command of the Lord, and presumptuously[^l] went up into the mountain. 
+
+###### 44 
+And the Amorites who dwelt in that mountain came out against you and chased you as bees do, and drove you back from Seir to Hormah. 
+
+###### 45 
+Then you returned and wept before the Lord, but the Lord would not listen to your voice nor give ear to you. 
+
+###### 46 
+"So you remained in Kadesh many days, according to the days that you spent _there._ ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Deuteronomy 1:1 Heb. _arabah_ [^b]: Deuteronomy 1:1 One LXX ms., Tg., Vg. _Red Sea_ [^c]: Deuteronomy 1:4 LXX, Syr., Vg. _and;_ cf. [Josh. 12:4] [^d]: Deuteronomy 1:7 Heb. _arabah_ [^e]: Deuteronomy 1:8 _promised_ [^f]: Deuteronomy 1:9 _am not able to bear you by myself_ [^g]: Deuteronomy 1:13 _rulers_ [^h]: Deuteronomy 1:15 _appointed_ [^i]: Deuteronomy 1:28 Lit. _melted_ [^j]: Deuteronomy 1:35 _promised_ [^k]: Deuteronomy 1:36 _fully_ [^l]: Deuteronomy 1:43 _willfully_

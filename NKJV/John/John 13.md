@@ -1,0 +1,124 @@
+---
+Aliases: [John 13]
+previous: ['John 12']
+up: ['John']
+next: ['John 14']
+---
+# John 13
+
+***
+
+
+###### 1 
+Now before the Feast of the Passover, when Jesus knew that His hour had come that He should depart from this world to the Father, having loved His own who were in the world, He loved them to the end. 
+
+###### 2 
+And [^a]supper being ended, the devil having already put it into the heart of Judas Iscariot, Simon's _son,_ to betray Him, 
+
+###### 3 
+Jesus, knowing that the Father had given all things into His hands, and that He had come from God and was going to God, 
+
+###### 4 
+rose from supper and laid aside His garments, took a towel and girded Himself. 
+
+###### 5 
+After that, He poured water into a basin and began to wash the disciples' feet, and to wipe _them_ with the towel with which He was girded. 
+
+###### 6 
+Then He came to Simon Peter. And _Peter_ said to Him, "Lord, are You washing my feet?" 
+
+###### 7 
+Jesus answered and said to him, "What I am doing you do not understand now, but you will know after this." 
+
+###### 8 
+Peter said to Him, "You shall never wash my feet!" Jesus answered him, "If I do not wash you, you have no part with Me." 
+
+###### 9 
+Simon Peter said to Him, "Lord, not my feet only, but also _my_ hands and _my_ head!" 
+
+###### 10 
+Jesus said to him, "He who is bathed needs only to wash _his_ feet, but is completely clean; and you are clean, but not all of you." 
+
+###### 11 
+For He knew who would betray Him; therefore He said, "You are not all clean." 
+
+###### 12 
+So when He had washed their feet, taken His garments, and sat down again, He said to them, "Do you [^b]know what I have done to you? 
+
+###### 13 
+You call Me Teacher and Lord, and you say well, for _so_ I am. 
+
+###### 14 
+If I then, _your_ Lord and Teacher, have washed your feet, you also ought to wash one another's feet. 
+
+###### 15 
+For I have given you an example, that you should do as I have done to you. 
+
+###### 16 
+Most assuredly, I say to you, a servant is not greater than his master; nor is he who is sent greater than he who sent him. 
+
+###### 17 
+If you know these things, blessed are you if you do them. ## Jesus Identifies His Betrayer 
+
+###### 18 
+"I do not speak concerning all of you. I know whom I have chosen; but that the Scripture may be fulfilled, 'He who eats [^c]bread with Me has lifted up his heel against Me.' 
+
+###### 19 
+Now I tell you before it comes, that when it does come to pass, you may believe that I am _He._ 
+
+###### 20 
+Most assuredly, I say to you, he who receives whomever I send receives Me; and he who receives Me receives Him who sent Me." 
+
+###### 21 
+When Jesus had said these things, He was troubled in spirit, and testified and said, "Most assuredly, I say to you, one of you will betray Me." 
+
+###### 22 
+Then the disciples looked at one another, perplexed about whom He spoke. 
+
+###### 23 
+Now there was [^d]leaning on Jesus' bosom one of His disciples, whom Jesus loved. 
+
+###### 24 
+Simon Peter therefore motioned to him to ask who it was of whom He spoke. 
+
+###### 25 
+Then, leaning [^e]back on Jesus' breast, he said to Him, "Lord, who is it?" 
+
+###### 26 
+Jesus answered, "It is he to whom I shall give a piece of bread when I have dipped _it._" And having dipped the bread, He gave _it_ to Judas Iscariot, _the son_ of Simon. 
+
+###### 27 
+Now after the piece of bread, Satan entered him. Then Jesus said to him, "What you do, do quickly." 
+
+###### 28 
+But no one at the table knew for what reason He said this to him. 
+
+###### 29 
+For some thought, because Judas had the money box, that Jesus had said to him, "Buy _those things_ we need for the feast," or that he should give something to the poor. 
+
+###### 30 
+Having received the piece of bread, he then went out immediately. And it was night. ## The New Commandment 
+
+###### 31 
+So, when he had gone out, Jesus said, "Now the Son of Man is glorified, and God is glorified in Him. 
+
+###### 32 
+If God is glorified in Him, God will also glorify Him in Himself, and glorify Him immediately. 
+
+###### 33 
+Little children, I shall be with you a little while longer. You will seek Me; and as I said to the Jews, 'Where I am going, you cannot come,' so now I say to you. 
+
+###### 34 
+A new commandment I give to you, that you love one another; as I have loved you, that you also love one another. 
+
+###### 35 
+By this all will know that you are My disciples, if you have love for one another." ## Jesus Predicts Peter's Denial 
+
+###### 36 
+Simon Peter said to Him, "Lord, where are You going?" Jesus answered him, "Where I am going you cannot follow Me now, but you shall follow Me afterward." 
+
+###### 37 
+Peter said to Him, "Lord, why can I not follow You now? I will lay down my life for Your sake." 
+
+###### 38 
+Jesus answered him, "Will you lay down your life for My sake? Most assuredly, I say to you, the rooster shall not crow till you have denied Me three times. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: John 13:2 NU _during supper_ [^b]: John 13:12 _understand_ [^c]: John 13:18 NU _My bread has_ [^d]: John 13:23 _reclining_ [^e]: John 13:25 NU, M add _thus_

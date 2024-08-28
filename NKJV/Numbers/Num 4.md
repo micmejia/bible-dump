@@ -1,0 +1,157 @@
+---
+Aliases: [Numbers 4]
+previous: ['Num 3']
+up: ['Numbers']
+next: ['Num 5']
+---
+# Numbers 4
+
+***
+
+
+###### 1 
+Then the Lord spoke to Moses and Aaron, saying: 
+
+###### 2 
+"Take a census of the sons of Kohath from among the children of Levi, by their families, by their fathers' house, 
+
+###### 3 
+from thirty years old and above, even to fifty years old, all who enter the service to do the work in the tabernacle of meeting. 
+
+###### 4 
+"This _is_ the service of the sons of Kohath in the tabernacle of meeting, _relating to_ the most holy things: 
+
+###### 5 
+When the camp prepares to journey, Aaron and his sons shall come, and they shall take down the covering veil and cover the ark of the Testimony with it. 
+
+###### 6 
+Then they shall put on it a covering of badger skins, and spread over _that_ a cloth entirely of blue; and they shall insert its poles. 
+
+###### 7 
+"On the table of showbread they shall spread a blue cloth, and put on it the dishes, the pans, the bowls, and the [^a]pitchers for pouring; and the showbread[^b] shall be on it. 
+
+###### 8 
+They shall spread over them a scarlet cloth, and cover the same with a covering of badger skins; and they shall insert its poles. 
+
+###### 9 
+And they shall take a blue cloth and cover the lampstand of the light, with its lamps, its wick-trimmers, its trays, and all its oil vessels, with which they service it. 
+
+###### 10 
+Then they shall put it with all its utensils in a covering of badger skins, and put _it_ on a carrying beam. 
+
+###### 11 
+"Over the golden altar they shall spread a blue cloth, and cover it with a covering of badger skins; and they shall insert its poles. 
+
+###### 12 
+Then they shall take all the utensils of service with which they minister in the sanctuary, put _them_ in a blue cloth, cover them with a covering of badger skins, and put _them_ on a carrying beam. 
+
+###### 13 
+Also they shall take away the ashes from the altar, and spread a purple cloth over it. 
+
+###### 14 
+They shall put on it all its implements with which they minister there--the firepans, the forks, the shovels, the [^c]basins, and all the utensils of the altar--and they shall spread on it a covering of badger skins, and insert its poles. 
+
+###### 15 
+And when Aaron and his sons have finished covering the sanctuary and all the furnishings of the sanctuary, when the camp is set to go, then the sons of Kohath shall come to carry _them;_ but they shall not touch any holy thing, lest they die. "These _are_ the things in the tabernacle of meeting which the sons of Kohath are to carry. 
+
+###### 16 
+"The appointed duty of Eleazar the son of Aaron the priest _is_ the oil for the light, the sweet incense, the daily grain offering, the anointing oil, the oversight of all the tabernacle, of all that _is_ in it, with the sanctuary and its furnishings." 
+
+###### 17 
+Then the Lord spoke to Moses and Aaron, saying: 
+
+###### 18 
+"Do not cut off the tribe of the families of the Kohathites from among the Levites; 
+
+###### 19 
+but do this in regard to them, that they may live and not die when they approach the most holy things: Aaron and his sons shall go in and [^d]appoint each of them to his service and his task. 
+
+###### 20 
+But they shall not go in to watch while the holy things are being covered, lest they die." ## Duties of the Sons of Gershon 
+
+###### 21 
+Then the Lord spoke to Moses, saying: 
+
+###### 22 
+"Also take a census of the sons of Gershon, by their fathers' house, by their families. 
+
+###### 23 
+From thirty years old and above, even to fifty years old, you shall number them, all who enter to perform the service, to do the work in the tabernacle of meeting. 
+
+###### 24 
+This _is_ the service of the families of the Gershonites, in serving and carrying: 
+
+###### 25 
+They shall carry the curtains of the tabernacle and the tabernacle of meeting _with_ its covering, the covering of badger skins that _is_ on it, the screen for the door of the tabernacle of meeting, 
+
+###### 26 
+the screen for the door of the gate of the court, the hangings of the court which _are_ around the tabernacle and altar, and their cords, all the furnishings for their service and all that is made for these things: so shall they serve. 
+
+###### 27 
+"Aaron and his sons shall [^e]assign all the service of the sons of the Gershonites, all their tasks and all their service. And you shall [^f]appoint to them all their tasks as their duty. 
+
+###### 28 
+This _is_ the service of the families of the sons of Gershon in the tabernacle of meeting. And their duties _shall be_ under the [^g]authority of Ithamar the son of Aaron the priest. ## Duties of the Sons of Merari 
+
+###### 29 
+"_As for_ the sons of Merari, you shall number them by their families and by their fathers' house. 
+
+###### 30 
+From thirty years old and above, even to fifty years old, you shall number them, everyone who enters the service to do the work of the tabernacle of meeting. 
+
+###### 31 
+And this _is_ what they must carry as all their service for the tabernacle of meeting: the boards of the tabernacle, its bars, its pillars, its sockets, 
+
+###### 32 
+and the pillars around the court with their sockets, pegs, and cords, with all their furnishings and all their service; and you shall assign _to each man_ by name the items he must carry. 
+
+###### 33 
+This _is_ the service of the families of the sons of Merari, as all their service for the tabernacle of meeting, under the [^h]authority of Ithamar the son of Aaron the priest." ## Census of the Levites 
+
+###### 34 
+And Moses, Aaron, and the leaders of the congregation numbered the sons of the Kohathites by their families and by their fathers' house, 
+
+###### 35 
+from thirty years old and above, even to fifty years old, everyone who entered the service for work in the tabernacle of meeting; 
+
+###### 36 
+and those who were numbered by their families were two thousand seven hundred and fifty. 
+
+###### 37 
+These _were_ the ones who were numbered of the families of the Kohathites, all who might serve in the tabernacle of meeting, whom Moses and Aaron numbered according to the commandment of the Lord by the hand of Moses. 
+
+###### 38 
+And those who were numbered of the sons of Gershon, by their families and by their fathers' house, 
+
+###### 39 
+from thirty years old and above, even to fifty years old, everyone who entered the service for work in the tabernacle of meeting-- 
+
+###### 40 
+those who were numbered by their families, by their fathers' house, were two thousand six hundred and thirty. 
+
+###### 41 
+These _are_ the ones who were numbered of the families of the sons of Gershon, of all who might serve in the tabernacle of meeting, whom Moses and Aaron numbered according to the commandment of the Lord. 
+
+###### 42 
+Those of the families of the sons of Merari who were numbered, by their families, by their fathers' [^i]house, 
+
+###### 43 
+from thirty years old and above, even to fifty years old, everyone who entered the service for work in the tabernacle of meeting-- 
+
+###### 44 
+those who were numbered by their families were three thousand two hundred. 
+
+###### 45 
+These _are_ the ones who were numbered of the families of the sons of Merari, whom Moses and Aaron numbered according to the word of the Lord by the hand of Moses. 
+
+###### 46 
+All who were numbered of the Levites, whom Moses, Aaron, and the leaders of Israel numbered, by their families and by their fathers' houses, 
+
+###### 47 
+from thirty years old and above, even to fifty years old, everyone who came to do the work of service and the work of bearing burdens in the tabernacle of meeting-- 
+
+###### 48 
+those who were numbered were eight thousand five hundred and eighty. 
+
+###### 49 
+According to the commandment of the Lord they were numbered by the hand of Moses, each according to his service and according to his task; thus were they numbered by him, as the Lord commanded Moses. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Numbers 4:7 _jars for the drink offering_ [^b]: Numbers 4:7 Lit. _continual bread_ [^c]: Numbers 4:14 _bowls_ [^d]: Numbers 4:19 _assign_ [^e]: Numbers 4:27 _command_ [^f]: Numbers 4:27 _assign_ [^g]: Numbers 4:28 Lit. _hand_ [^h]: Numbers 4:33 Lit. _hand_ [^i]: Numbers 4:42 _household_

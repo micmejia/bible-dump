@@ -1,0 +1,58 @@
+---
+Aliases: [Numbers 30]
+previous: ['Num 29']
+up: ['Numbers']
+next: ['Num 31']
+---
+# Numbers 30
+
+***
+
+
+###### 1 
+Then Moses spoke to the heads of the tribes concerning the children of Israel, saying, "This _is_ the thing which the Lord has commanded: 
+
+###### 2 
+If a man makes a vow to the Lord, or swears an oath to bind himself by some agreement, he shall not break his word; he shall do according to all that proceeds out of his mouth. 
+
+###### 3 
+"Or if a woman makes a vow to the Lord, and binds _herself_ by some agreement while in her father's house in her youth, 
+
+###### 4 
+and her father hears her vow and the agreement by which she has bound herself, and her father [^a]holds his peace, then all her vows shall stand, and every agreement with which she has bound herself shall stand. 
+
+###### 5 
+But if her father overrules her on the day that he hears, then none of her vows nor her agreements by which she has bound herself shall stand; and the Lord will release her, because her father overruled her. 
+
+###### 6 
+"If indeed she takes a husband, while bound by her vows or by a rash utterance from her lips by which she bound herself, 
+
+###### 7 
+and her husband hears _it,_ and makes no response to her on the day that he hears, then her vows shall stand, and her agreements by which she bound herself shall stand. 
+
+###### 8 
+But if her husband overrules her on the day that he hears _it,_ he shall make void her vow which she took and what she uttered with her lips, by which she bound herself, and the Lord will release her. 
+
+###### 9 
+"Also any vow of a widow or a divorced woman, by which she has bound herself, shall stand against her. 
+
+###### 10 
+"If she vowed in her husband's house, or bound herself by an agreement with an oath, 
+
+###### 11 
+and her husband heard _it,_ and made no response to her _and_ did not overrule her, then all her vows shall stand, and every agreement by which she bound herself shall stand. 
+
+###### 12 
+But if her husband truly made them void on the day he heard _them,_ then whatever proceeded from her lips concerning her vows or concerning the agreement binding her, it shall not stand; her husband has made them [^b]void, and the Lord will release her. 
+
+###### 13 
+Every vow and every binding oath to afflict her soul, her husband may confirm it, or her husband may make it void. 
+
+###### 14 
+Now if her husband makes no response whatever to her from day to day, then he confirms all her vows or all the agreements that bind her; he confirms them, because he made no response to her on the day that he heard _them._ 
+
+###### 15 
+But if he does make them void after he has heard _them,_ then he shall bear her guilt." 
+
+###### 16 
+These _are_ the statutes which the Lord commanded Moses, between a man and his wife, and between a father and his daughter in her youth in her father's house. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Numbers 30:4 _says nothing_ to interfere [^b]: Numbers 30:12 _annulled_ or _invalidated_

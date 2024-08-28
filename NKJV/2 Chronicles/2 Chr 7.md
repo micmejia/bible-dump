@@ -1,0 +1,76 @@
+---
+Aliases: [2 Chronicles 7]
+previous: ['2 Chr 6']
+up: ['2 Chronicles']
+next: ['2 Chr 8']
+---
+# 2 Chronicles 7
+
+***
+
+
+###### 1 
+When Solomon had finished praying, fire came down from heaven and consumed the burnt offering and the sacrifices; and the glory of the Lord filled the [^a]temple. 
+
+###### 2 
+And the priests could not enter the house of the Lord, because the glory of the Lord had filled the Lord's house. 
+
+###### 3 
+When all the children of Israel saw how the fire came down, and the glory of the Lord on the temple, they bowed their faces to the ground on the pavement, and worshiped and praised the Lord, _saying:_ "For _He is_ good, For His mercy _endures_ forever." 
+
+###### 4 
+Then the king and all the people offered sacrifices before the Lord. 
+
+###### 5 
+King Solomon offered a sacrifice of twenty-two thousand bulls and one hundred and twenty thousand sheep. So the king and all the people dedicated the house of God. 
+
+###### 6 
+And the priests attended to their services; the Levites also with instruments of the music of the Lord, which King David had made to praise the Lord, saying, "For His mercy _endures_ forever," whenever David offered praise by their [^b]ministry. The priests sounded trumpets opposite them, while all Israel stood. 
+
+###### 7 
+Furthermore Solomon consecrated the middle of the court that _was_ in front of the house of the Lord; for there he offered burnt offerings and the fat of the peace offerings, because the bronze altar which Solomon had made was not able to receive the burnt offerings, the grain offerings, and the fat. 
+
+###### 8 
+At that time Solomon kept the feast seven days, and all Israel with him, a very great assembly from the entrance of Hamath to the[^c] Brook of Egypt. 
+
+###### 9 
+And on the eighth day they held a sacred assembly, for they observed the dedication of the altar seven days, and the feast seven days. 
+
+###### 10 
+On the twenty-third day of the seventh month he sent the people away to their tents, joyful and glad of heart for the good that the Lord had done for David, for Solomon, and for His people Israel. 
+
+###### 11 
+Thus Solomon finished the house of the Lord and the king's house; and Solomon successfully accomplished all that came into his heart to make in the house of the Lord and in his own house. ## God's Second Appearance to Solomon 
+
+###### 12 
+Then the Lord appeared to Solomon by night, and said to him: "I have heard your prayer, and have chosen this place for Myself as a house of sacrifice. 
+
+###### 13 
+When I shut up heaven and there is no rain, or command the locusts to devour the land, or send pestilence among My people, 
+
+###### 14 
+if My people who are called by My name will humble themselves, and pray and seek My face, and turn from their wicked ways, then I will hear from heaven, and will forgive their sin and heal their land. 
+
+###### 15 
+Now My eyes will be open and My ears attentive to prayer _made_ in this place. 
+
+###### 16 
+For now I have chosen and [^d]sanctified this house, that My name may be there forever; and [^e]My eyes and [^f]My heart will be there perpetually. 
+
+###### 17 
+As for you, if you walk before Me as your father David walked, and do according to all that I have commanded you, and if you keep My statutes and My judgments, 
+
+###### 18 
+then I will establish the throne of your kingdom, as I covenanted with David your father, saying, 'You shall not fail _to have_ a man as ruler in Israel.' 
+
+###### 19 
+"But if you turn away and forsake My statutes and My commandments which I have set before you, and go and serve other gods, and worship them, 
+
+###### 20 
+then I will uproot them from My land which I have given them; and this house which I have [^g]sanctified for My name I will cast out of My sight, and will make it a proverb and a byword among all peoples. 
+
+###### 21 
+"And _as for_ this [^h]house, which [^i]is exalted, everyone who passes by it will be astonished and say, 'Why has the Lord done thus to this land and this house?' 
+
+###### 22 
+Then they will answer, 'Because they forsook the Lord God of their fathers, who brought them out of the land of Egypt, and embraced other gods, and worshiped them and served them; therefore He has brought all this calamity on them.' " ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Chronicles 7:1 Lit. _house_ [^b]: 2 Chronicles 7:6 Lit. _hand_ [^c]: 2 Chronicles 7:8 The Shihor, [1 Chr. 13:5] [^d]: 2 Chronicles 7:16 _set apart_ [^e]: 2 Chronicles 7:16 My attention [^f]: 2 Chronicles 7:16 My concern [^g]: 2 Chronicles 7:20 _set apart_ [^h]: 2 Chronicles 7:21 Temple [^i]: 2 Chronicles 7:21 Or _was_

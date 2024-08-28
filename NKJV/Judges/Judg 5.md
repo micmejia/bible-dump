@@ -1,0 +1,103 @@
+---
+Aliases: [Judges 5]
+previous: ['Judg 4']
+up: ['Judges']
+next: ['Judg 6']
+---
+# Judges 5
+
+***
+
+
+###### 1 
+Then Deborah and Barak the son of Abinoam sang on that day, saying: 
+
+###### 2 
+"When[^a] leaders lead in Israel, When the people [^b]willingly offer themselves, Bless the Lord! 
+
+###### 3 
+"Hear, O kings! Give ear, O princes! I, _even_ I, will sing to the Lord; I will sing praise to the Lord God of Israel. 
+
+###### 4 
+"Lord, when You went out from Seir, When You marched from the field of Edom, The earth trembled and the heavens poured, The clouds also poured water; 
+
+###### 5 
+The mountains [^c]gushed before the Lord, This Sinai, before the Lord God of Israel. 
+
+###### 6 
+"In the days of Shamgar, son of Anath, In the days of Jael, The highways were deserted, And the travelers walked along the byways. 
+
+###### 7 
+Village life ceased, it ceased in Israel, Until I, Deborah, arose, Arose a mother in Israel. 
+
+###### 8 
+They chose new gods; Then _there was_ war in the gates; Not a shield or spear was seen among forty thousand in Israel. 
+
+###### 9 
+My heart _is_ with the rulers of Israel Who offered themselves willingly with the people. Bless the Lord! 
+
+###### 10 
+"Speak, you who ride on white donkeys, Who sit in judges' attire, And who walk along the road. 
+
+###### 11 
+Far from the noise of the archers, among the watering places, There they shall recount the righteous acts of the Lord, The righteous acts _for_ His villagers in Israel; Then the people of the Lord shall go down to the gates. 
+
+###### 12 
+"Awake, awake, Deborah! Awake, awake, sing a song! Arise, Barak, and lead your captives away, O son of Abinoam! 
+
+###### 13 
+"Then the survivors came down, the people against the nobles; The Lord came down for me against the mighty. 
+
+###### 14 
+From Ephraim _were_ those whose roots were in Amalek. After you, Benjamin, with your peoples, From Machir rulers came down, And from Zebulun those who bear the recruiter's staff. 
+
+###### 15 
+And [^d]the princes of Issachar _were_ with Deborah; As Issachar, so _was_ Barak Sent into the valley [^e]under his command; Among the divisions of Reuben _There were_ great resolves of heart. 
+
+###### 16 
+Why did you sit among the sheepfolds, To hear the pipings for the flocks? The divisions of Reuben have great searchings of heart. 
+
+###### 17 
+Gilead stayed beyond the Jordan, And why did Dan remain [^f]on ships? Asher continued at the seashore, And stayed by his inlets. 
+
+###### 18 
+Zebulun _is_ a people _who_ jeopardized their lives to the point of death, Naphtali also, on the heights of the battlefield. 
+
+###### 19 
+"The kings came _and_ fought, Then the kings of Canaan fought In Taanach, by the waters of Megiddo; They took no spoils of silver. 
+
+###### 20 
+They fought from the heavens; The stars from their courses fought against Sisera. 
+
+###### 21 
+The torrent of Kishon swept them away, That ancient torrent, the torrent of Kishon. O my soul, march on in strength! 
+
+###### 22 
+Then the horses' hooves pounded, The galloping, galloping of his steeds. 
+
+###### 23 
+'Curse Meroz,' said the [^g]angel of the Lord, 'Curse its inhabitants bitterly, Because they did not come to the help of the Lord, To the help of the Lord against the mighty.' 
+
+###### 24 
+"Most blessed among women is Jael, The wife of Heber the Kenite; Blessed is she among women in tents. 
+
+###### 25 
+He asked for water, she gave milk; She brought out cream in a lordly bowl. 
+
+###### 26 
+She stretched her hand to the tent peg, Her right hand to the workmen's hammer; She pounded Sisera, she pierced his head, She split and struck through his temple. 
+
+###### 27 
+At her feet he sank, he fell, he lay still; At her feet he sank, he fell; Where he sank, there he fell dead. 
+
+###### 28 
+"The mother of Sisera looked through the window, And cried out through the lattice, 'Why is his chariot _so_ long in coming? Why tarries the clatter of his chariots?' 
+
+###### 29 
+Her wisest [^h]ladies answered her, Yes, she [^i]answered herself, 
+
+###### 30 
+'Are they not finding and dividing the spoil: To every man a girl _or_ two; For Sisera, plunder of dyed garments, Plunder of garments embroidered and dyed, Two pieces of dyed embroidery for the neck of the looter?' 
+
+###### 31 
+"Thus let all Your enemies perish, O Lord! But _let_ those who love Him _be_ like the sun When it comes out in full strength." So the land had rest for forty years. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Judges 5:2 Or _When locks are loosed_ [^b]: Judges 5:2 _volunteer_ [^c]: Judges 5:5 _flowed_ [^d]: Judges 5:15 So with LXX, Syr., Tg., Vg.; MT _And my princes in Issachar_ [^e]: Judges 5:15 Lit. _at his feet_ [^f]: Judges 5:17 Or _at ease_ [^g]: Judges 5:23 Or _Angel_ [^h]: Judges 5:29 _princesses_ [^i]: Judges 5:29 Lit. _repeats her words to herself_

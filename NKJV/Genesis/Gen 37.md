@@ -1,0 +1,118 @@
+---
+Aliases: [Genesis 37]
+previous: ['Gen 36']
+up: ['Genesis']
+next: ['Gen 38']
+---
+# Genesis 37
+
+***
+
+
+###### 1 
+Now Jacob dwelt in the land where his father was a [^a]stranger, in the land of Canaan. 
+
+###### 2 
+This _is_ the history of Jacob. Joseph, _being_ seventeen years old, was feeding the flock with his brothers. And the lad _was_ with the sons of Bilhah and the sons of Zilpah, his father's wives; and Joseph brought a bad report of them to his father. 
+
+###### 3 
+Now Israel loved Joseph more than all his children, because he _was_ the son of his old age. Also he made him a tunic of _many_ colors. 
+
+###### 4 
+But when his brothers saw that their father loved him more than all his brothers, they hated him and could not speak peaceably to him. 
+
+###### 5 
+Now Joseph had a dream, and he told _it_ to his brothers; and they hated him even more. 
+
+###### 6 
+So he said to them, "Please hear this dream which I have dreamed: 
+
+###### 7 
+There we were, binding sheaves in the field. Then behold, my sheaf arose and also stood upright; and indeed your sheaves stood all around and bowed down to my sheaf." 
+
+###### 8 
+And his brothers said to him, "Shall you indeed reign over us? Or shall you indeed have dominion over us?" So they hated him even more for his dreams and for his words. 
+
+###### 9 
+Then he dreamed still another dream and told it to his brothers, and said, "Look, I have dreamed another dream. And this time, the sun, the moon, and the eleven stars bowed down to me." 
+
+###### 10 
+So he told _it_ to his father and his brothers; and his father rebuked him and said to him, "What _is_ this dream that you have dreamed? Shall your mother and I and your brothers indeed come to bow down to the earth before you?" 
+
+###### 11 
+And his brothers envied him, but his father kept the matter _in mind._ ## Joseph Sold by His Brothers 
+
+###### 12 
+Then his brothers went to feed their father's flock in Shechem. 
+
+###### 13 
+And Israel said to Joseph, "Are not your brothers feeding _the flock_ in Shechem? Come, I will send you to them." So he said to him, "Here I am." 
+
+###### 14 
+Then he said to him, "Please go and see if it is well with your brothers and well with the flocks, and bring back word to me." So he sent him out of the Valley of Hebron, and he went to Shechem. 
+
+###### 15 
+Now a certain man found him, and there he was, wandering in the field. And the man asked him, saying, "What are you seeking?" 
+
+###### 16 
+So he said, "I am seeking my brothers. Please tell me where they are feeding _their flocks._" 
+
+###### 17 
+And the man said, "They have departed from here, for I heard them say, 'Let us go to Dothan.' " So Joseph went after his brothers and found them in Dothan. 
+
+###### 18 
+Now when they saw him afar off, even before he came near them, they conspired against him to kill him. 
+
+###### 19 
+Then they said to one another, "Look, this [^b]dreamer is coming! 
+
+###### 20 
+Come therefore, let us now kill him and cast him into some pit; and we shall say, 'Some wild beast has devoured him.' We shall see what will become of his dreams!" 
+
+###### 21 
+But Reuben heard _it,_ and he delivered him out of their hands, and said, "Let us not kill him." 
+
+###### 22 
+And Reuben said to them, "Shed no blood, _but_ cast him into this pit which _is_ in the wilderness, and do not lay a hand on him"--that he might deliver him out of their hands, and bring him back to his father. 
+
+###### 23 
+So it came to pass, when Joseph had come to his brothers, that they stripped Joseph _of_ his tunic, the tunic of _many_ colors that _was_ on him. 
+
+###### 24 
+Then they took him and cast him into a pit. And the pit _was_ empty; _there was_ no water in it. 
+
+###### 25 
+And they sat down to eat a meal. Then they lifted their eyes and looked, and there was a company of Ishmaelites, coming from Gilead with their camels, bearing spices, balm, and myrrh, on their way to carry _them_ down to Egypt. 
+
+###### 26 
+So Judah said to his brothers, "What profit _is there_ if we kill our brother and conceal his blood? 
+
+###### 27 
+Come and let us sell him to the Ishmaelites, and let not our hand be upon him, for he _is_ our brother _and_ our flesh." And his brothers listened. 
+
+###### 28 
+Then Midianite traders passed by; so _the brothers_ pulled Joseph up and lifted him out of the pit, and sold him to the Ishmaelites for twenty _shekels_ of silver. And they took Joseph to Egypt. 
+
+###### 29 
+Then Reuben returned to the pit, and indeed Joseph _was_ not in the pit; and he tore his clothes. 
+
+###### 30 
+And he returned to his brothers and said, "The lad _is_ no _more;_ and I, where shall I go?" 
+
+###### 31 
+So they took Joseph's tunic, killed a kid of the goats, and dipped the tunic in the blood. 
+
+###### 32 
+Then they sent the tunic of _many_ colors, and they brought _it_ to their father and said, "We have found this. Do you know whether it _is_ your son's tunic or not?" 
+
+###### 33 
+And he recognized it and said, "_It is_ my son's tunic. A wild beast has devoured him. Without doubt Joseph is torn to pieces." 
+
+###### 34 
+Then Jacob tore his clothes, put sackcloth on his waist, and mourned for his son many days. 
+
+###### 35 
+And all his sons and all his daughters arose to comfort him; but he refused to be comforted, and he said, "For I shall go down into the grave to my son in mourning." Thus his father wept for him. 
+
+###### 36 
+Now the [^c]Midianites had sold him in Egypt to Potiphar, an officer of Pharaoh _and_ captain of the guard. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 37:1 _sojourner,_ temporary resident [^b]: Genesis 37:19 Lit. _master of dreams_ [^c]: Genesis 37:36 MT _Medanites_

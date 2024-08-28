@@ -1,0 +1,94 @@
+---
+Aliases: [Matthew 16]
+previous: ['Matt 15']
+up: ['Matthew']
+next: ['Matt 17']
+---
+# Matthew 16
+
+***
+
+
+###### 1 
+Then the Pharisees and Sadducees came, and testing Him asked that He would show them a sign from heaven. 
+
+###### 2 
+He answered and said to them, "When it is evening you say, '_It will be_ fair weather, for the sky is red'; 
+
+###### 3 
+and in the morning, '_It will be_ foul weather today, for the sky is red and threatening.' [^a]Hypocrites! You know how to discern the face of the sky, but you cannot _discern_ the signs of the times. 
+
+###### 4 
+A wicked and adulterous generation seeks after a sign, and no sign shall be given to it except the sign of [^b]the prophet Jonah." And He left them and departed. ## The Leaven of the Pharisees and Sadducees 
+
+###### 5 
+Now when His disciples had come to the other side, they had forgotten to take bread. 
+
+###### 6 
+Then Jesus said to them, "Take heed and beware of the [^c]leaven of the Pharisees and the Sadducees." 
+
+###### 7 
+And they reasoned among themselves, saying, "_It is_ because we have taken no bread." 
+
+###### 8 
+But Jesus, being aware of _it,_ said to them, "O you of little faith, why do you reason among yourselves because you [^d]have brought no bread? 
+
+###### 9 
+Do you not yet understand, or remember the five loaves of the five thousand and how many baskets you took up? 
+
+###### 10 
+Nor the seven loaves of the four thousand and how many large baskets you took up? 
+
+###### 11 
+How is it you do not understand that I did not speak to you concerning bread?--_but_ to beware of the [^e]leaven of the Pharisees and Sadducees." 
+
+###### 12 
+Then they understood that He did not tell _them_ to beware of the leaven of bread, but of the [^f]doctrine of the Pharisees and Sadducees. ## Peter Confesses Jesus as the Christ 
+
+###### 13 
+When Jesus came into the region of Caesarea Philippi, He asked His disciples, saying, "Who do men say that I, the Son of Man, am?" 
+
+###### 14 
+So they said, "Some _say_ John the Baptist, some Elijah, and others Jeremiah or one of the prophets." 
+
+###### 15 
+He said to them, "But who do you say that I am?" 
+
+###### 16 
+Simon Peter answered and said, "You are the Christ, the Son of the living God." 
+
+###### 17 
+Jesus answered and said to him, "Blessed are you, Simon Bar-Jonah, for flesh and blood has not revealed _this_ to you, but My Father who is in heaven. 
+
+###### 18 
+And I also say to you that you are Peter, and on this rock I will build My church, and the gates of Hades shall not [^g]prevail against it. 
+
+###### 19 
+And I will give you the keys of the kingdom of heaven, and whatever you bind on earth [^h]will be bound in heaven, and whatever you loose on earth will be loosed in heaven." 
+
+###### 20 
+Then He commanded His disciples that they should tell no one that He was Jesus the Christ. ## Jesus Predicts His Death and Resurrection 
+
+###### 21 
+From that time Jesus began to show to His disciples that He must go to Jerusalem, and suffer many things from the elders and chief priests and scribes, and be killed, and be raised the third day. 
+
+###### 22 
+Then Peter took Him aside and began to rebuke Him, saying, [^i]"Far be it from You, Lord; this shall not happen to You!" 
+
+###### 23 
+But He turned and said to Peter, "Get behind Me, Satan! You are [^j]an offense to Me, for you are not mindful of the things of God, but the things of men." ## Take Up the Cross and Follow Him 
+
+###### 24 
+Then Jesus said to His disciples, "If anyone desires to come after Me, let him deny himself, and take up his cross, and follow Me. 
+
+###### 25 
+For whoever desires to save his life will lose it, but whoever loses his life for My sake will find it. 
+
+###### 26 
+For what profit is it to a man if he gains the whole world, and loses his own soul? Or what will a man give in exchange for his soul? 
+
+###### 27 
+For the Son of Man will come in the glory of His Father with His angels, and then He will reward each according to his works. 
+
+###### 28 
+Assuredly, I say to you, there are some standing here who shall not taste death till they see the Son of Man coming in His kingdom." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Matthew 16:3 NU omits _Hypocrites_ [^b]: Matthew 16:4 NU omits _the prophet_ [^c]: Matthew 16:6 _yeast_ [^d]: Matthew 16:8 NU _have no bread_ [^e]: Matthew 16:11 _yeast_ [^f]: Matthew 16:12 _teaching_ [^g]: Matthew 16:18 _be victorious_ [^h]: Matthew 16:19 Or _will have been bound . . . will have been loosed_ [^i]: Matthew 16:22 Lit. _Merciful to You_ (May God be merciful) [^j]: Matthew 16:23 _a stumbling block_

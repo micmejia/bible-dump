@@ -1,0 +1,76 @@
+---
+Aliases: [Jeremiah 8]
+previous: ['Jer 7']
+up: ['Jeremiah']
+next: ['Jer 9']
+---
+# Jeremiah 8
+
+***
+
+
+###### 1 
+"At that time," says the Lord, "they shall bring out the bones of the kings of Judah, and the bones of its princes, and the bones of the priests, and the bones of the prophets, and the bones of the inhabitants of Jerusalem, out of their graves. 
+
+###### 2 
+They shall spread them before the sun and the moon and all the host of heaven, which they have loved and which they have served and after which they have walked, which they have sought and which they have worshiped. They shall not be gathered nor buried; they shall be like refuse on the face of the earth. 
+
+###### 3 
+Then death shall be chosen rather than life by all the [^a]residue of those who remain of this evil family, who remain in all the places where I have driven them," says the Lord of hosts. ## The Peril of False Teaching 
+
+###### 4 
+"Moreover you shall say to them, 'Thus says the Lord: "Will they fall and not rise? Will one turn away and not return? 
+
+###### 5 
+Why has this people slidden back, Jerusalem, in a perpetual backsliding? They hold fast to deceit, They refuse to return. 
+
+###### 6 
+I listened and heard, _But_ they do not speak aright. No man repented of his wickedness, Saying, 'What have I done?' Everyone turned to his own course, As the horse rushes into the battle. 
+
+###### 7 
+"Even the stork in the heavens Knows her appointed times; And the turtledove, the swift, and the swallow Observe the time of their coming. But My people do not know the judgment of the Lord. 
+
+###### 8 
+"How can you say, 'We _are_ wise, And the law of the Lord _is_ with us'? Look, the false pen of the scribe certainly works falsehood. 
+
+###### 9 
+The wise men are ashamed, They are dismayed and taken. Behold, they have rejected the word of the Lord; So what wisdom do they have? 
+
+###### 10 
+Therefore I will give their wives to others, _And_ their fields to those who will inherit _them;_ Because from the least even to the greatest Everyone is given to covetousness; From the prophet even to the priest Everyone deals falsely. 
+
+###### 11 
+For they have healed the hurt of the daughter of My people [^b]slightly, Saying, 'Peace, peace!' When _there is_ no peace. 
+
+###### 12 
+Were they ashamed when they had committed abomination? No! They were not at all ashamed, Nor did they know how to blush. Therefore they shall fall among those who fall; In the time of their punishment They shall be cast down," says the Lord. 
+
+###### 13 
+"I will surely [^c]consume them," says the Lord. "No grapes _shall be_ on the vine, Nor figs on the fig tree, And the leaf shall fade; And _the things_ I have given them shall pass away from them." ' " 
+
+###### 14 
+"Why do we sit still? Assemble yourselves, And let us enter the fortified cities, And let us be silent there. For the Lord our God has put us to silence And given us water[^d] of gall to drink, Because we have sinned against the Lord. 
+
+###### 15 
+"_We_ looked for peace, but no good _came;_ And for a time of health, and there was trouble! 
+
+###### 16 
+The snorting of His horses was heard from Dan. The whole land trembled at the sound of the neighing of His strong ones; For they have come and devoured the land and all that is in it, The city and those who dwell in it." 
+
+###### 17 
+"For behold, I will send serpents among you, Vipers which cannot be charmed, And they shall bite you," says the Lord. ## The Prophet Mourns for the People 
+
+###### 18 
+I would comfort myself in sorrow; My heart _is_ faint in me. 
+
+###### 19 
+Listen! The voice, The cry of the daughter of my people From a far country: "_Is_ not the Lord in Zion? _Is_ not her King in her?" "Why have they provoked Me to anger With their carved images-- With foreign idols?" 
+
+###### 20 
+"The harvest is past, The summer is ended, And we are not saved!" 
+
+###### 21 
+For the hurt of the daughter of my people I am hurt. I am mourning; Astonishment has taken hold of me. 
+
+###### 22 
+_Is there_ no balm in Gilead, _Is there_ no physician there? Why then is there no recovery For the health of the daughter of my people? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Jeremiah 8:3 _remnant_ [^b]: Jeremiah 8:11 Superficially [^c]: Jeremiah 8:13 Or _take them away_ [^d]: Jeremiah 8:14 Bitter or poisonous water

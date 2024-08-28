@@ -1,0 +1,124 @@
+---
+Aliases: [Genesis 19]
+previous: ['Gen 18']
+up: ['Genesis']
+next: ['Gen 20']
+---
+# Genesis 19
+
+***
+
+
+###### 1 
+Now the two angels came to Sodom in the evening, and Lot was sitting in the gate of Sodom. When Lot saw _them,_ he rose to meet them, and he bowed himself with his face toward the ground. 
+
+###### 2 
+And he said, "Here now, my lords, please turn in to your servant's house and spend the night, and wash your feet; then you may rise early and go on your way." And they said, "No, but we will spend the night in the open square." 
+
+###### 3 
+But he insisted strongly; so they turned in to him and entered his house. Then he made them a feast, and baked unleavened bread, and they ate. 
+
+###### 4 
+Now before they lay down, the men of the city, the men of Sodom, both old and young, all the people from every quarter, surrounded the house. 
+
+###### 5 
+And they called to Lot and said to him, "Where are the men who came to you tonight? Bring them out to us that we may know them _carnally._" 
+
+###### 6 
+So Lot went out to them through the doorway, shut the door behind him, 
+
+###### 7 
+and said, "Please, my brethren, do not do so wickedly! 
+
+###### 8 
+See now, I have two daughters who have not known a man; please, let me bring them out to you, and you may do to them as you wish; only do nothing to these men, since this is the reason they have come under the shadow of my roof." 
+
+###### 9 
+And they said, "Stand back!" Then they said, "This one came in to [^a]stay _here,_ and he keeps acting as a judge; now we will deal worse with you than with them." So they pressed hard against the man Lot, and came near to break down the door. 
+
+###### 10 
+But the men reached out their hands and pulled Lot into the house with them, and shut the door. 
+
+###### 11 
+And they struck the men who _were_ at the doorway of the house with blindness, both small and great, so that they became weary _trying_ to find the door. ## Sodom and Gomorrah Destroyed 
+
+###### 12 
+Then the men said to Lot, "Have you anyone else here? Son-in-law, your sons, your daughters, and whomever you have in the city--take _them_ out of this place! 
+
+###### 13 
+For we will destroy this place, because the outcry against them has grown great before the face of the Lord, and the Lord has sent us to destroy it." 
+
+###### 14 
+So Lot went out and spoke to his sons-in-law, who had married his daughters, and said, "Get up, get out of this place; for the Lord will destroy this city!" But to his sons-in-law he seemed to be joking. 
+
+###### 15 
+When the morning dawned, the angels urged Lot to hurry, saying, "Arise, take your wife and your two daughters who are here, lest you be consumed in the punishment of the city." 
+
+###### 16 
+And while he lingered, the men took hold of his hand, his wife's hand, and the hands of his two daughters, the Lord being merciful to him, and they brought him out and set him outside the city. 
+
+###### 17 
+So it came to pass, when they had brought them outside, that [^b]he said, "Escape for your life! Do not look behind you nor stay anywhere in the plain. Escape to the mountains, lest you be [^c]destroyed." 
+
+###### 18 
+Then Lot said to them, "Please, no, my lords! 
+
+###### 19 
+Indeed now, your servant has found favor in your sight, and you have increased your mercy which you have shown me by saving my life; but I cannot escape to the mountains, lest some evil overtake me and I die. 
+
+###### 20 
+See now, this city _is_ near _enough_ to flee to, and it _is_ a little one; please let me escape there (_is_ it not a little one?) and my soul shall live." 
+
+###### 21 
+And he said to him, "See, I have favored you concerning this thing also, in that I will not overthrow this city for which you have spoken. 
+
+###### 22 
+Hurry, escape there. For I cannot do anything until you arrive there." Therefore the name of the city was called [^d]Zoar. 
+
+###### 23 
+The sun had risen upon the earth when Lot entered Zoar. 
+
+###### 24 
+Then the Lord rained brimstone and fire on Sodom and Gomorrah, from the Lord out of the heavens. 
+
+###### 25 
+So He [^e]overthrew those cities, all the plain, all the inhabitants of the cities, and what grew on the ground. 
+
+###### 26 
+But his wife looked back behind him, and she became a pillar of salt. 
+
+###### 27 
+And Abraham went early in the morning to the place where he had stood before the Lord. 
+
+###### 28 
+Then he looked toward Sodom and Gomorrah, and toward all the land of the plain; and he saw, and behold, the smoke of the land which went up like the smoke of a furnace. 
+
+###### 29 
+And it came to pass, when God destroyed the cities of the plain, that God remembered Abraham, and sent Lot out of the midst of the overthrow, when He overthrew the cities in which Lot had dwelt. ## The Descendants of Lot 
+
+###### 30 
+Then Lot went up out of Zoar and dwelt in the mountains, and his two daughters were with him; for he was afraid to dwell in Zoar. And he and his two daughters dwelt in a cave. 
+
+###### 31 
+Now the firstborn said to the younger, "Our father _is_ old, and _there is_ no man on the earth to come in to us as is the custom of all the earth. 
+
+###### 32 
+Come, let us make our father drink wine, and we will lie with him, that we may preserve the [^f]lineage of our father." 
+
+###### 33 
+So they made their father drink wine that night. And the firstborn went in and lay with her father, and he did not know when she lay down or when she arose. 
+
+###### 34 
+It happened on the next day that the firstborn said to the younger, "Indeed I lay with my father last night; let us make him drink wine tonight also, and you go in _and_ lie with him, that we may preserve the [^g]lineage of our father." 
+
+###### 35 
+Then they made their father drink wine that night also. And the younger arose and lay with him, and he did not know when she lay down or when she arose. 
+
+###### 36 
+Thus both the daughters of Lot were with child by their father. 
+
+###### 37 
+The firstborn bore a son and called his name Moab; he _is_ the father of the Moabites to this day. 
+
+###### 38 
+And the younger, she also bore a son and called his name Ben-Ammi; he _is_ the father of the people of Ammon to this day. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 19:9 As a resident alien [^b]: Genesis 19:17 LXX, Syr., Vg. _they_ [^c]: Genesis 19:17 Lit. _swept away_ [^d]: Genesis 19:22 Lit. _Little_ or _Insignificant_ [^e]: Genesis 19:25 _devastated_ [^f]: Genesis 19:32 Lit. _seed_ [^g]: Genesis 19:34 Lit. _seed_

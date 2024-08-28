@@ -1,0 +1,148 @@
+---
+Aliases: [Matthew 22]
+previous: ['Matt 21']
+up: ['Matthew']
+next: ['Matt 23']
+---
+# Matthew 22
+
+***
+
+
+###### 1 
+And Jesus answered and spoke to them again by parables and said: 
+
+###### 2 
+"The kingdom of heaven is like a certain king who arranged a marriage for his son, 
+
+###### 3 
+and sent out his servants to call those who were invited to the wedding; and they were not willing to come. 
+
+###### 4 
+Again, he sent out other servants, saying, 'Tell those who are invited, "See, I have prepared my dinner; my oxen and fatted cattle _are_ killed, and all things _are_ ready. Come to the wedding." ' 
+
+###### 5 
+But they made light of it and went their ways, one to his own farm, another to his business. 
+
+###### 6 
+And the rest seized his servants, treated _them_ [^a]spitefully, and killed _them._ 
+
+###### 7 
+But when the king heard _about it,_ he was furious. And he sent out his armies, destroyed those murderers, and burned up their city. 
+
+###### 8 
+Then he said to his servants, 'The wedding is ready, but those who were invited were not worthy. 
+
+###### 9 
+Therefore go into the highways, and as many as you find, invite to the wedding.' 
+
+###### 10 
+So those servants went out into the highways and gathered together all whom they found, both bad and good. And the wedding _hall_ was filled with guests. 
+
+###### 11 
+"But when the king came in to see the guests, he saw a man there who did not have on a wedding garment. 
+
+###### 12 
+So he said to him, 'Friend, how did you come in here without a wedding garment?' And he was speechless. 
+
+###### 13 
+Then the king said to the servants, 'Bind him hand and foot, [^b]take him away, and cast _him_ into outer darkness; there will be weeping and gnashing of teeth.' 
+
+###### 14 
+"For many are called, but few _are_ chosen." ## The Pharisees: Is It Lawful to Pay Taxes to Caesar? 
+
+###### 15 
+Then the Pharisees went and plotted how they might entangle Him in _His_ talk. 
+
+###### 16 
+And they sent to Him their disciples with the Herodians, saying, "Teacher, we know that You are true, and teach the way of God in truth; nor do You care about anyone, for You do not [^c]regard the person of men. 
+
+###### 17 
+Tell us, therefore, what do You think? Is it lawful to pay taxes to Caesar, or not?" 
+
+###### 18 
+But Jesus [^d]perceived their wickedness, and said, "Why do you test Me, _you_ hypocrites? 
+
+###### 19 
+Show Me the tax money." So they brought Him a denarius. 
+
+###### 20 
+And He said to them, "Whose image and inscription _is_ this?" 
+
+###### 21 
+They said to Him, "Caesar's." And He said to them, "Render[^e] therefore to Caesar the things that are Caesar's, and to God the things that are God's." 
+
+###### 22 
+When they had heard _these words,_ they marveled, and left Him and went their way. ## The Sadducees: What About the Resurrection? 
+
+###### 23 
+The same day the Sadducees, who say there is no resurrection, came to Him and asked Him, 
+
+###### 24 
+saying: "Teacher, Moses said that if a man dies, having no children, his brother shall marry his wife and raise up offspring for his brother. 
+
+###### 25 
+Now there were with us seven brothers. The first died after he had married, and having no offspring, left his wife to his brother. 
+
+###### 26 
+Likewise the second also, and the third, even to the seventh. 
+
+###### 27 
+Last of all the woman died also. 
+
+###### 28 
+Therefore, in the resurrection, whose wife of the seven will she be? For they all had her." 
+
+###### 29 
+Jesus answered and said to them, "You are [^f]mistaken, not knowing the Scriptures nor the power of God. 
+
+###### 30 
+For in the resurrection they neither marry nor are given in marriage, but are like angels [^g]of God in heaven. 
+
+###### 31 
+But concerning the resurrection of the dead, have you not read what was spoken to you by God, saying, 
+
+###### 32 
+'I am the God of Abraham, the God of Isaac, and the God of Jacob'? God is not the God of the dead, but of the living." 
+
+###### 33 
+And when the multitudes heard _this,_ they were astonished at His teaching. ## The Scribes: Which Is the First Commandment of All? 
+
+###### 34 
+But when the Pharisees heard that He had silenced the Sadducees, they gathered together. 
+
+###### 35 
+Then one of them, a lawyer, asked _Him a question,_ testing Him, and saying, 
+
+###### 36 
+"Teacher, which _is_ the great commandment in the law?" 
+
+###### 37 
+Jesus said to him, "'You shall love the Lord your God with all your heart, with all your soul, and with all your mind.' 
+
+###### 38 
+This is _the_ first and great commandment. 
+
+###### 39 
+And _the_ second _is_ like it: 'You shall love your neighbor as yourself.' 
+
+###### 40 
+On these two commandments hang all the Law and the Prophets." ## Jesus: How Can David Call His Descendant Lord? 
+
+###### 41 
+While the Pharisees were gathered together, Jesus asked them, 
+
+###### 42 
+saying, "What do you think about the Christ? Whose Son is He?" They said to Him, "_The_ _Son_ of David." 
+
+###### 43 
+He said to them, "How then does David in the Spirit call Him 'Lord,' saying: 
+
+###### 44 
+'The Lord said to my Lord, "Sit at My right hand, Till I make Your enemies Your footstool" '? 
+
+###### 45 
+If David then calls Him 'Lord,' how is He his Son?" 
+
+###### 46 
+And no one was able to answer Him a word, nor from that day on did anyone dare question Him anymore. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Matthew 22:6 _insolently_ [^b]: Matthew 22:13 NU omits _take him away, and_ [^c]: Matthew 22:16 Lit. _look at the face of_ [^d]: Matthew 22:18 _knew_ [^e]: Matthew 22:21 _Pay_ [^f]: Matthew 22:29 _deceived_ [^g]: Matthew 22:30 NU omits _of God_

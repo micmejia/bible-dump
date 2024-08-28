@@ -1,0 +1,130 @@
+---
+Aliases: [Judges 11]
+previous: ['Judg 10']
+up: ['Judges']
+next: ['Judg 12']
+---
+# Judges 11
+
+***
+
+
+###### 1 
+Now Jephthah the Gileadite was a mighty man of valor, but he _was_ the son of a harlot; and Gilead begot Jephthah. 
+
+###### 2 
+Gilead's wife bore sons; and when his wife's sons grew up, they drove Jephthah out, and said to him, "You shall have no inheritance in our father's house, for you _are_ the son of another woman." 
+
+###### 3 
+Then Jephthah fled from his brothers and dwelt in the land of Tob; and worthless men banded together with Jephthah and went out _raiding_ with him. 
+
+###### 4 
+It came to pass after a time that the people of Ammon made war against Israel. 
+
+###### 5 
+And so it was, when the people of Ammon made war against Israel, that the elders of Gilead went to get Jephthah from the land of Tob. 
+
+###### 6 
+Then they said to Jephthah, "Come and be our commander, that we may fight against the people of Ammon." 
+
+###### 7 
+So Jephthah said to the elders of Gilead, "Did you not hate me, and expel me from my father's house? Why have you come to me now when you are in [^a]distress?" 
+
+###### 8 
+And the elders of Gilead said to Jephthah, "That is why we have turned[^b] again to you now, that you may go with us and fight against the people of Ammon, and be our head over all the inhabitants of Gilead." 
+
+###### 9 
+So Jephthah said to the elders of Gilead, "If you take me back home to fight against the people of Ammon, and the Lord delivers them to me, shall I be your head?" 
+
+###### 10 
+And the elders of Gilead said to Jephthah, "The Lord will be a witness between us, if we do not do according to your words." 
+
+###### 11 
+Then Jephthah went with the elders of Gilead, and the people made him head and commander over them; and Jephthah spoke all his words before the Lord in Mizpah. 
+
+###### 12 
+Now Jephthah sent messengers to the king of the people of Ammon, saying, "What do you have against me, that you have come to fight against me in my land?" 
+
+###### 13 
+And the king of the people of Ammon answered the messengers of Jephthah, "Because Israel took away my land when they came up out of Egypt, from the Arnon as far as the Jabbok, and to the Jordan. Now therefore, restore those _lands_ peaceably." 
+
+###### 14 
+So Jephthah again sent messengers to the king of the people of Ammon, 
+
+###### 15 
+and said to him, "Thus says Jephthah: 'Israel did not take away the land of Moab, nor the land of the people of Ammon; 
+
+###### 16 
+for when Israel came up from Egypt, they walked through the wilderness as far as the Red Sea and came to Kadesh. 
+
+###### 17 
+Then Israel sent messengers to the king of Edom, saying, "Please let me pass through your land." But the king of Edom would not heed. And in like manner they sent to the king of Moab, but he would not _consent._ So Israel remained in Kadesh. 
+
+###### 18 
+And they went along through the wilderness and bypassed the land of Edom and the land of Moab, came to the east side of the land of Moab, and encamped on the other side of the Arnon. But they did not enter the border of Moab, for the Arnon _was_ the border of Moab. 
+
+###### 19 
+Then Israel sent messengers to Sihon king of the Amorites, king of Heshbon; and Israel said to him, "Please let us pass through your land into our place." 
+
+###### 20 
+But Sihon did not trust Israel to pass through his territory. So Sihon gathered all his people together, encamped in Jahaz, and fought against Israel. 
+
+###### 21 
+And the Lord God of Israel delivered Sihon and all his people into the hand of Israel, and they defeated[^c] them. Thus Israel gained possession of all the land of the Amorites, who inhabited that country. 
+
+###### 22 
+They took possession of all the territory of the Amorites, from the Arnon to the Jabbok and from the wilderness to the Jordan. 
+
+###### 23 
+'And now the Lord God of Israel has [^d]dispossessed the Amorites from before His people Israel; should you then possess it? 
+
+###### 24 
+Will you not possess whatever Chemosh your god gives you to possess? So whatever the Lord our God takes possession of before us, we will possess. 
+
+###### 25 
+And now, _are_ you any better than Balak the son of Zippor, king of Moab? Did he ever strive against Israel? Did he ever fight against them? 
+
+###### 26 
+While Israel dwelt in Heshbon and its villages, in Aroer and its villages, and in all the cities along the banks of the Arnon, for three hundred years, why did you not recover _them_ within that time? 
+
+###### 27 
+Therefore I have not sinned against you, but you wronged me by fighting against me. May the Lord, the Judge, render judgment this day between the children of Israel and the people of Ammon.' " 
+
+###### 28 
+However, the king of the people of Ammon did not heed the words which Jephthah sent him. ## Jephthah's Vow and Victory 
+
+###### 29 
+Then the Spirit of the Lord came upon Jephthah, and he passed through Gilead and Manasseh, and passed through Mizpah of Gilead; and from Mizpah of Gilead he advanced _toward_ the people of Ammon. 
+
+###### 30 
+And Jephthah made a vow to the Lord, and said, "If You will indeed deliver the people of Ammon into my hands, 
+
+###### 31 
+then it will be that whatever comes out of the doors of my house to meet me, when I return in peace from the people of Ammon, shall surely be the Lord's, and I will offer it up as a burnt offering." 
+
+###### 32 
+So Jephthah advanced toward the people of Ammon to fight against them, and the Lord delivered them into his hands. 
+
+###### 33 
+And he [^e]defeated them from Aroer as far as Minnith--twenty cities--and to [^f]Abel Keramim, with a very great slaughter. Thus the people of Ammon were subdued before the children of Israel. ## Jephthah's Daughter 
+
+###### 34 
+When Jephthah came to his house at Mizpah, there was his daughter, coming out to meet him with timbrels and dancing; and she _was his_ only child. Besides her he had neither son nor daughter. 
+
+###### 35 
+And it came to pass, when he saw her, that he tore his clothes, and said, "Alas, my daughter! You have brought me very low! You are among those who trouble me! For I have [^g]given my word to the Lord, and I cannot [^h]go back on it." 
+
+###### 36 
+So she said to him, "My father, _if_ you have given your word to the Lord, do to me according to what has gone out of your mouth, because the Lord has avenged you of your enemies, the people of Ammon." 
+
+###### 37 
+Then she said to her father, "Let this thing be done for me: let me alone for two months, that I may go and wander on the mountains and [^i]bewail my virginity, my [^j]friends and I." 
+
+###### 38 
+So he said, "Go." And he sent her away _for_ two months; and she went with her friends, and bewailed her virginity on the mountains. 
+
+###### 39 
+And it was so at the end of two months that she returned to her father, and he carried out his vow with her which he had vowed. She [^k]knew no man. And it became a custom in Israel 
+
+###### 40 
+_that_ the daughters of Israel went four days each year to [^l]lament the daughter of Jephthah the Gileadite. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Judges 11:7 _trouble_ [^b]: Judges 11:8 _returned_ [^c]: Judges 11:21 Lit. _struck_ [^d]: Judges 11:23 _driven out_ [^e]: Judges 11:33 Lit. _struck_ [^f]: Judges 11:33 Lit. _Plain of Vineyards_ [^g]: Judges 11:35 Lit. _opened my mouth_ [^h]: Judges 11:35 Lit. _take it back_ [^i]: Judges 11:37 _lament_ [^j]: Judges 11:37 _companions_ [^k]: Judges 11:39 Remained a virgin [^l]: Judges 11:40 _commemorate_

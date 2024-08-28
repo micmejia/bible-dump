@@ -1,0 +1,112 @@
+---
+Aliases: [Genesis 44]
+previous: ['Gen 43']
+up: ['Genesis']
+next: ['Gen 45']
+---
+# Genesis 44
+
+***
+
+
+###### 1 
+And he commanded [^a]the steward of his house, saying, "Fill the men's sacks with food, as much as they can carry, and put each man's money in the mouth of his sack. 
+
+###### 2 
+Also put my cup, the silver cup, in the mouth of the sack of the youngest, and his grain money." So he did according to the word that Joseph had spoken. 
+
+###### 3 
+As soon as the morning dawned, the men were sent away, they and their donkeys. 
+
+###### 4 
+When they had gone out of the city, _and_ were not _yet_ far off, Joseph said to his steward, "Get up, follow the men; and when you overtake them, say to them, 'Why have you repaid evil for good? 
+
+###### 5 
+_Is_ not this _the one_ from which my lord drinks, and with which he indeed practices divination? You have done evil in so doing.' " 
+
+###### 6 
+So he overtook them, and he spoke to them these same words. 
+
+###### 7 
+And they said to him, "Why does my lord say these words? Far be it from us that your servants should do such a thing. 
+
+###### 8 
+Look, we brought back to you from the land of Canaan the money which we found in the mouth of our sacks. How then could we steal silver or gold from your lord's house? 
+
+###### 9 
+With whomever of your servants it is found, let him die, and we also will be my lord's slaves." 
+
+###### 10 
+And he said, "Now also _let_ it _be_ according to your words; he with whom it is found shall be my slave, and you shall be blameless." 
+
+###### 11 
+Then each man speedily let down his sack to the ground, and each opened his sack. 
+
+###### 12 
+So he searched. He began with the oldest and [^b]left off with the youngest; and the cup was found in Benjamin's sack. 
+
+###### 13 
+Then they tore their clothes, and each man loaded his donkey and returned to the city. 
+
+###### 14 
+So Judah and his brothers came to Joseph's house, and he _was_ still there; and they fell before him on the ground. 
+
+###### 15 
+And Joseph said to them, "What deed _is_ this you have done? Did you not know that such a man as I can certainly practice divination?" 
+
+###### 16 
+Then Judah said, "What shall we say to my lord? What shall we speak? Or how shall we clear ourselves? God has found out the iniquity of your servants; here we are, my lord's slaves, both we and _he_ also with whom the cup was found." 
+
+###### 17 
+But he said, "Far be it from me that I should do so; the man in whose hand the cup was found, he shall be my slave. And as for you, go up in peace to your father." ## Judah Intercedes for Benjamin 
+
+###### 18 
+Then Judah came near to him and said: "O my lord, please let your servant speak a word in my lord's hearing, and do not let your anger burn against your servant; for you _are_ even like Pharaoh. 
+
+###### 19 
+My lord asked his servants, saying, 'Have you a father or a brother?' 
+
+###### 20 
+And we said to my lord, 'We have a father, an old man, and a child of _his_ old age, _who is_ young; his brother is dead, and he alone is left of his mother's children, and his father loves him.' 
+
+###### 21 
+Then you said to your servants, 'Bring him down to me, that I may set my eyes on him.' 
+
+###### 22 
+And we said to my lord, 'The lad cannot leave his father, for _if_ he should leave his father, _his father_ would die.' 
+
+###### 23 
+But you said to your servants, 'Unless your youngest brother comes down with you, you shall see my face no more.' 
+
+###### 24 
+"So it was, when we went up to your servant my father, that we told him the words of my lord. 
+
+###### 25 
+And our father said, 'Go back _and_ buy us a little food.' 
+
+###### 26 
+But we said, 'We cannot go down; if our youngest brother is with us, then we will go down; for we may not see the man's face unless our youngest brother _is_ with us.' 
+
+###### 27 
+Then your servant my father said to us, 'You know that my wife bore me two sons; 
+
+###### 28 
+and the one went out from me, and I said, "Surely he is torn to pieces"; and I have not seen him since. 
+
+###### 29 
+But if you take this one also from me, and calamity befalls him, you shall bring down my gray hair with sorrow to the grave.' 
+
+###### 30 
+"Now therefore, when I come to your servant my father, and the lad _is_ not with us, since his life is bound up in the lad's life, 
+
+###### 31 
+it will happen, when he sees that the lad _is_ not _with us,_ that he will die. So your servants will bring down the gray hair of your servant our father with sorrow to the grave. 
+
+###### 32 
+For your servant became surety for the lad to my father, saying, 'If I do not bring him _back_ to you, then I shall bear the blame before my father forever.' 
+
+###### 33 
+Now therefore, please let your servant remain instead of the lad as a slave to my lord, and let the lad go up with his brothers. 
+
+###### 34 
+For how shall I go up to my father if the lad _is_ not with me, lest perhaps I see the evil that would [^c]come upon my father?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 44:1 Lit. _the one over_ [^b]: Genesis 44:12 _finished with_ [^c]: Genesis 44:34 Lit. _find_

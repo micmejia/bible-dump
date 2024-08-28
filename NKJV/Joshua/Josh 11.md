@@ -1,0 +1,79 @@
+---
+Aliases: [Joshua 11]
+previous: ['Josh 10']
+up: ['Joshua']
+next: ['Josh 12']
+---
+# Joshua 11
+
+***
+
+
+###### 1 
+And it came to pass, when Jabin king of Hazor heard _these things,_ that he sent to Jobab king of Madon, to the king of Shimron, to the king of Achshaph, 
+
+###### 2 
+and to the kings who _were_ from the north, in the mountains, in the plain south of Chinneroth, in the lowland, and in the heights of Dor on the west, 
+
+###### 3 
+to the Canaanites in the east and in the west, the Amorite, the Hittite, the Perizzite, the Jebusite in the mountains, and the Hivite below Hermon in the land of Mizpah. 
+
+###### 4 
+So they went out, they and all their armies with them, _as_ many people _as_ the sand that _is_ on the seashore in multitude, with very many horses and chariots. 
+
+###### 5 
+And when all these kings had [^a]met together, they came and camped together at the waters of Merom to fight against Israel. 
+
+###### 6 
+But the Lord said to Joshua, "Do not be afraid because of them, for tomorrow about this time I will deliver all of them slain before Israel. You shall hamstring their horses and burn their chariots with fire." 
+
+###### 7 
+So Joshua and all the people of war with him came against them suddenly by the waters of Merom, and they attacked them. 
+
+###### 8 
+And the Lord delivered them into the hand of Israel, who defeated them and chased them to [^b]Greater Sidon, to the [^c]Brook Misrephoth, and to the Valley of Mizpah eastward; they attacked them until they left none of them remaining. 
+
+###### 9 
+So Joshua did to them as the Lord had told him: he hamstrung their horses and burned their chariots with fire. 
+
+###### 10 
+Joshua turned back at that time and took Hazor, and struck its king with the sword; for Hazor was formerly the head of all those kingdoms. 
+
+###### 11 
+And they struck all the people who _were_ in it with the edge of the sword, utterly destroying _them._ There was none left breathing. Then he burned Hazor with fire. 
+
+###### 12 
+So all the cities of those kings, and all their kings, Joshua took and struck with the edge of the sword. He utterly destroyed them, as Moses the servant of the Lord had commanded. 
+
+###### 13 
+But _as for_ the cities that stood on their [^d]mounds, Israel burned none of them, except Hazor only, _which_ Joshua burned. 
+
+###### 14 
+And all the spoil of these cities and the livestock, the children of Israel took as booty for themselves; but they struck every man with the edge of the sword until they had destroyed them, and they left none breathing. 
+
+###### 15 
+As the Lord had commanded Moses His servant, so Moses commanded Joshua, and so Joshua did. [^e]He left nothing undone of all that the Lord had commanded Moses. ## Summary of Joshua's Conquests 
+
+###### 16 
+Thus Joshua took all this land: the mountain country, all the South, all the land of Goshen, the lowland, and the Jordan [^f]plain--the mountains of Israel and its lowlands, 
+
+###### 17 
+from [^g]Mount Halak and the ascent to Seir, even as far as Baal Gad in the Valley of Lebanon below Mount Hermon. He captured all their kings, and struck them down and killed them. 
+
+###### 18 
+Joshua made war a long time with all those kings. 
+
+###### 19 
+There was not a city that made peace with the children of Israel, except the Hivites, the inhabitants of Gibeon. All _the others_ they took in battle. 
+
+###### 20 
+For it was of the Lord [^h]to harden their hearts, that they should come against Israel in battle, that He might utterly destroy them, _and_ that they might receive no mercy, but that He might destroy them, as the Lord had commanded Moses. 
+
+###### 21 
+And at that time Joshua came and cut off the Anakim from the mountains: from Hebron, from Debir, from Anab, from all the mountains of Judah, and from all the mountains of Israel; Joshua utterly destroyed them with their cities. 
+
+###### 22 
+None of the Anakim were left in the land of the children of Israel; they remained only in Gaza, in Gath, and in Ashdod. 
+
+###### 23 
+So Joshua took the whole land, according to all that the Lord had said to Moses; and Joshua gave it as an inheritance to Israel according to their divisions by their tribes. Then the land rested from war. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Joshua 11:5 Lit. _assembled by appointment_ [^b]: Joshua 11:8 Heb. _Sidon Rabbah_ [^c]: Joshua 11:8 Heb. _Misrephoth Maim,_ lit. _Burnings of Water_ [^d]: Joshua 11:13 Heb. _tel,_ a heap of successive city ruins [^e]: Joshua 11:15 Lit. _He turned aside from nothing_ [^f]: Joshua 11:16 Heb. _arabah_ [^g]: Joshua 11:17 Lit. _The Smooth_ or _Bald Mountain_ [^h]: Joshua 11:20 Lit. _to make strong_

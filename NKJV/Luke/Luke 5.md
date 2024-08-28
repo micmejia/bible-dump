@@ -1,0 +1,127 @@
+---
+Aliases: [Luke 5]
+previous: ['Luke 4']
+up: ['Luke']
+next: ['Luke 6']
+---
+# Luke 5
+
+***
+
+
+###### 1 
+So it was, as the multitude pressed about Him to hear the word of God, that He stood by the Lake of Gennesaret, 
+
+###### 2 
+and saw two boats standing by the lake; but the fishermen had gone from them and were washing _their_ nets. 
+
+###### 3 
+Then He got into one of the boats, which was Simon's, and asked him to put out a little from the land. And He sat down and taught the multitudes from the boat. 
+
+###### 4 
+When He had stopped speaking, He said to Simon, "Launch out into the deep and let down your nets for a catch." 
+
+###### 5 
+But Simon answered and said to Him, "Master, we have toiled all night and caught nothing; nevertheless at Your word I will let down the net." 
+
+###### 6 
+And when they had done this, they caught a great number of fish, and their net was breaking. 
+
+###### 7 
+So they signaled to _their_ partners in the other boat to come and help them. And they came and filled both the boats, so that they began to sink. 
+
+###### 8 
+When Simon Peter saw _it,_ he fell down at Jesus' knees, saying, "Depart from me, for I am a sinful man, O Lord!" 
+
+###### 9 
+For he and all who were with him were astonished at the catch of fish which they had taken; 
+
+###### 10 
+and so also _were_ James and John, the sons of Zebedee, who were partners with Simon. And Jesus said to Simon, "Do not be afraid. From now on you will catch men." 
+
+###### 11 
+So when they had brought their boats to land, they [^a]forsook all and followed Him. ## Jesus Cleanses a Leper 
+
+###### 12 
+And it happened when He was in a certain city, that behold, a man who was full of leprosy saw Jesus; and he fell on _his_ face and [^b]implored Him, saying, "Lord, if You are willing, You can make me clean." 
+
+###### 13 
+Then He put out _His_ hand and touched him, saying, "I am willing; be cleansed." Immediately the leprosy left him. 
+
+###### 14 
+And He charged him to tell no one, "But go and show yourself to the priest, and make an offering for your cleansing, as a testimony to them, just as Moses commanded." 
+
+###### 15 
+However, the report went around concerning Him all the more; and great multitudes came together to hear, and to be healed by Him of their infirmities. 
+
+###### 16 
+So He Himself _often_ withdrew into the wilderness and prayed. ## Jesus Forgives and Heals a Paralytic 
+
+###### 17 
+Now it happened on a certain day, as He was teaching, that there were Pharisees and teachers of the law sitting by, who had come out of every town of Galilee, Judea, and Jerusalem. And the power of the Lord was _present_ [^c]to heal them. 
+
+###### 18 
+Then behold, men brought on a bed a man who was paralyzed, whom they sought to bring in and lay before Him. 
+
+###### 19 
+And when they could not find how they might bring him in, because of the crowd, they went up on the housetop and let him down with _his_ bed through the tiling into the midst before Jesus. 
+
+###### 20 
+When He saw their faith, He said to him, "Man, your sins are forgiven you." 
+
+###### 21 
+And the scribes and the Pharisees began to reason, saying, "Who is this who speaks blasphemies? Who can forgive sins but God alone?" 
+
+###### 22 
+But when Jesus perceived their thoughts, He answered and said to them, "Why are you reasoning in your hearts? 
+
+###### 23 
+Which is easier, to say, 'Your sins are forgiven you,' or to say, 'Rise up and walk'? 
+
+###### 24 
+But that you may know that the Son of Man has power on earth to forgive sins"--He said to the man who was paralyzed, "I say to you, arise, take up your bed, and go to your house." 
+
+###### 25 
+Immediately he rose up before them, took up what he had been lying on, and departed to his own house, glorifying God. 
+
+###### 26 
+And they were all amazed, and they glorified God and were filled with fear, saying, "We have seen strange things today!" ## Matthew the Tax Collector 
+
+###### 27 
+After these things He went out and saw a tax collector named Levi, sitting at the tax office. And He said to him, "Follow Me." 
+
+###### 28 
+So he left all, rose up, and followed Him. 
+
+###### 29 
+Then Levi gave Him a great feast in his own house. And there were a great number of tax collectors and others who sat down with them. 
+
+###### 30 
+[^d]And their scribes and the Pharisees [^e]complained against His disciples, saying, "Why do You eat and drink with tax collectors and sinners?" 
+
+###### 31 
+Jesus answered and said to them, "Those who are well have no need of a physician, but those who are sick. 
+
+###### 32 
+I have not come to call _the_ righteous, but sinners, to repentance." ## Jesus Is Questioned About Fasting 
+
+###### 33 
+Then they said to Him, "Why[^f] do the disciples of John fast often and make prayers, and likewise those of the Pharisees, but Yours eat and drink?" 
+
+###### 34 
+And He said to them, "Can you make the friends of the bridegroom fast while the bridegroom is with them? 
+
+###### 35 
+But the days will come when the bridegroom will be taken away from them; then they will fast in those days." 
+
+###### 36 
+Then He spoke a parable to them: "No one [^g]puts a piece from a new garment on an old one; otherwise the new makes a tear, and also the piece that was _taken_ out of the new does not match the old. 
+
+###### 37 
+And no one puts new wine into old wineskins; or else the new wine will burst the wineskins and be spilled, and the wineskins will be ruined. 
+
+###### 38 
+But new wine must be put into new wineskins, [^h]and both are preserved. 
+
+###### 39 
+And no one, having drunk old _wine,_ [^i]immediately desires new; for he says, 'The old is [^j]better.' " ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Luke 5:11 _left behind_ [^b]: Luke 5:12 _begged_ [^c]: Luke 5:17 NU _with Him to heal_ [^d]: Luke 5:30 NU _But the Pharisees and their scribes_ [^e]: Luke 5:30 _grumbled_ [^f]: Luke 5:33 NU omits _Why do,_ making the verse a statement [^g]: Luke 5:36 NU _tears a piece from a new garment and puts it on an old one_ [^h]: Luke 5:38 NU omits _and both are preserved_ [^i]: Luke 5:39 NU omits _immediately_ [^j]: Luke 5:39 NU _good_

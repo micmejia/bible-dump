@@ -1,0 +1,130 @@
+---
+Aliases: [Hebrews 11]
+previous: ['Heb 10']
+up: ['Hebrews']
+next: ['Heb 12']
+---
+# Hebrews 11
+
+***
+
+
+###### 1 
+Now faith is the [^a]substance of things hoped for, the [^b]evidence of things not seen. 
+
+###### 2 
+For by it the elders obtained a _good_ testimony. 
+
+###### 3 
+By faith we understand that the [^c]worlds were framed by the word of God, so that the things which are seen were not made of things which are visible. ## Faith at the Dawn of History 
+
+###### 4 
+By faith Abel offered to God a more excellent sacrifice than Cain, through which he obtained witness that he was righteous, God testifying of his gifts; and through it he being dead still speaks. 
+
+###### 5 
+By faith Enoch was taken away so that he did not see death, "and was not found, because God had taken him"; for before he was taken he had this testimony, that he pleased God. 
+
+###### 6 
+But without faith _it is_ impossible to please _Him,_ for he who comes to God must believe that He is, and _that_ He is a rewarder of those who diligently seek Him. 
+
+###### 7 
+By faith Noah, being divinely warned of things not yet seen, moved with godly fear, prepared an ark for the saving of his household, by which he condemned the world and became heir of the righteousness which is according to faith. ## Faithful Abraham 
+
+###### 8 
+By faith Abraham obeyed when he was called to go out to the place which he would receive as an inheritance. And he went out, not knowing where he was going. 
+
+###### 9 
+By faith he dwelt in the land of promise as _in_ a foreign country, dwelling in tents with Isaac and Jacob, the heirs with him of the same promise; 
+
+###### 10 
+for he waited for the city which has foundations, whose builder and maker _is_ God. 
+
+###### 11 
+By faith Sarah herself also received strength to conceive seed, and she[^d] bore a child when she was past the age, because she judged Him faithful who had promised. 
+
+###### 12 
+Therefore from one man, and him as good as dead, were born _as many_ as the stars of the sky in multitude--innumerable as the sand which is by the seashore. ## The Heavenly Hope 
+
+###### 13 
+These all died in faith, not having received the promises, but having seen them afar off [^e]were assured of them, embraced _them_ and confessed that they were strangers and pilgrims on the earth. 
+
+###### 14 
+For those who say such things declare plainly that they seek a homeland. 
+
+###### 15 
+And truly if they had called to mind that _country_ from which they had come out, they would have had opportunity to return. 
+
+###### 16 
+But now they desire a better, that is, a heavenly _country._ Therefore God is not ashamed to be called their God, for He has prepared a city for them. ## The Faith of the Patriarchs 
+
+###### 17 
+By faith Abraham, when he was tested, offered up Isaac, and he who had received the promises offered up his only begotten _son,_ 
+
+###### 18 
+[^f]of whom it was said, "In Isaac your seed shall be called," 
+
+###### 19 
+concluding that God _was_ able to raise _him_ up, even from the dead, from which he also received him in a figurative sense. 
+
+###### 20 
+By faith Isaac blessed Jacob and Esau concerning things to come. 
+
+###### 21 
+By faith Jacob, when he was dying, blessed each of the sons of Joseph, and worshiped, _leaning_ on the top of his staff. 
+
+###### 22 
+By faith Joseph, when he was dying, made mention of the departure of the children of Israel, and gave instructions concerning his bones. ## The Faith of Moses 
+
+###### 23 
+By faith Moses, when he was born, was hidden three months by his parents, because they saw _he was_ a beautiful child; and they were not afraid of the king's command. 
+
+###### 24 
+By faith Moses, when he became of age, refused to be called the son of Pharaoh's daughter, 
+
+###### 25 
+choosing rather to suffer affliction with the people of God than to enjoy the [^g]passing pleasures of sin, 
+
+###### 26 
+esteeming the [^h]reproach of Christ greater riches than the treasures [^i]in Egypt; for he looked to the reward. 
+
+###### 27 
+By faith he forsook Egypt, not fearing the wrath of the king; for he endured as seeing Him who is invisible. 
+
+###### 28 
+By faith he kept the Passover and the sprinkling of blood, lest he who destroyed the firstborn should touch them. 
+
+###### 29 
+By faith they passed through the Red Sea as by dry _land, whereas_ the Egyptians, attempting to do so, were drowned. ## By Faith They Overcame 
+
+###### 30 
+By faith the walls of Jericho fell down after they were encircled for seven days. 
+
+###### 31 
+By faith the harlot Rahab did not perish with those who [^j]did not believe, when she had received the spies with peace. 
+
+###### 32 
+And what more shall I say? For the time would fail me to tell of Gideon and Barak and Samson and Jephthah, also _of_ David and Samuel and the prophets: 
+
+###### 33 
+who through faith subdued kingdoms, worked righteousness, obtained promises, stopped the mouths of lions, 
+
+###### 34 
+quenched the violence of fire, escaped the edge of the sword, out of weakness were made strong, became valiant in battle, turned to flight the armies of the aliens. 
+
+###### 35 
+Women received their dead raised to life again. Others were tortured, not accepting deliverance, that they might obtain a better resurrection. 
+
+###### 36 
+Still others had trial of mockings and scourgings, yes, and of chains and imprisonment. 
+
+###### 37 
+They were stoned, they were sawn in two, [^k]were tempted, were slain with the sword. They wandered about in sheepskins and goatskins, being destitute, afflicted, tormented-- 
+
+###### 38 
+of whom the world was not worthy. They wandered in deserts and mountains, _in_ dens and caves of the earth. 
+
+###### 39 
+And all these, having obtained a good testimony through faith, did not receive the promise, 
+
+###### 40 
+God having provided something better for us, that they should not be made perfect apart from us. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Hebrews 11:1 _realization_ [^b]: Hebrews 11:1 Or _confidence_ [^c]: Hebrews 11:3 Or _ages,_ Gr. _aiones,_ aeons [^d]: Hebrews 11:11 NU omits _she bore a child_ [^e]: Hebrews 11:13 NU, M omit _were assured of them_ [^f]: Hebrews 11:18 _to_ [^g]: Hebrews 11:25 _temporary_ [^h]: Hebrews 11:26 _reviling because of_ [^i]: Hebrews 11:26 NU, M _of_ [^j]: Hebrews 11:31 _were disobedient_ [^k]: Hebrews 11:37 NU omits _were tempted_

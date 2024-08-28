@@ -1,0 +1,85 @@
+---
+Aliases: [Romans 4]
+previous: ['Rom 3']
+up: ['Romans']
+next: ['Rom 5']
+---
+# Romans 4
+
+***
+
+
+###### 1 
+What then shall we say that Abraham our father[^a] has found according to the flesh? 
+
+###### 2 
+For if Abraham was justified by works, he has _something_ to boast about, but not before God. 
+
+###### 3 
+For what does the Scripture say? "Abraham believed God, and it was [^b]accounted to him for righteousness." 
+
+###### 4 
+Now to him who works, the wages are not counted [^c]as grace but as debt. ## David Celebrates the Same Truth 
+
+###### 5 
+But to him who does not work but believes on Him who justifies the ungodly, his faith is accounted for righteousness, 
+
+###### 6 
+just as David also describes the blessedness of the man to whom God imputes righteousness apart from works: 
+
+###### 7 
+"Blessed _are those_ whose lawless deeds are forgiven, And whose sins are covered; 
+
+###### 8 
+Blessed _is the_ man to whom the Lord shall not impute sin." ## Abraham Justified Before Circumcision 
+
+###### 9 
+_Does_ this blessedness then _come_ upon the circumcised _only,_ or upon the uncircumcised also? For we say that faith was accounted to Abraham for righteousness. 
+
+###### 10 
+How then was it accounted? While he was circumcised, or uncircumcised? Not while circumcised, but while uncircumcised. 
+
+###### 11 
+And he received the sign of circumcision, a seal of the righteousness of the faith which _he had while still_ uncircumcised, that he might be the father of all those who believe, though they are uncircumcised, that righteousness might be imputed to them also, 
+
+###### 12 
+and the father of circumcision to those who not only _are_ of the circumcision, but who also walk in the steps of the faith which our father Abraham _had while still_ uncircumcised. ## The Promise Granted Through Faith 
+
+###### 13 
+For the promise that he would be the heir of the world _was_ not to Abraham or to his seed through the law, but through the righteousness of faith. 
+
+###### 14 
+For if those who are of the law _are_ heirs, faith is made void and the promise made of no effect, 
+
+###### 15 
+because the law brings about wrath; for where there is no law _there is_ no transgression. 
+
+###### 16 
+Therefore _it is_ of faith that _it might be_ according to grace, so that the promise might be [^d]sure to all the seed, not only to those who are of the law, but also to those who are of the faith of Abraham, who is the father of us all 
+
+###### 17 
+(as it is written, "I have made you a father of many nations") in the presence of Him whom he believed--God, who gives life to the dead and calls those things which do not exist as though they did; 
+
+###### 18 
+who, contrary to hope, in hope believed, so that he became the father of many nations, according to what was spoken, "So shall your descendants be." 
+
+###### 19 
+And not being weak in faith, he did not consider his own body, already dead (since he was about a hundred years old), and the deadness of Sarah's womb. 
+
+###### 20 
+He did not waver at the promise of God through unbelief, but was strengthened in faith, giving glory to God, 
+
+###### 21 
+and being fully convinced that what He had promised He was also able to perform. 
+
+###### 22 
+And therefore "it was accounted to him for righteousness." 
+
+###### 23 
+Now it was not written for his sake alone that it was imputed to him, 
+
+###### 24 
+but also for us. It shall be imputed to us who believe in Him who raised up Jesus our Lord from the dead, 
+
+###### 25 
+who was delivered up because of our offenses, and was raised because of our justification. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Romans 4:1 Or _(fore)father according to the flesh has found?_ [^b]: Romans 4:3 _imputed, credited, reckoned, counted_ [^c]: Romans 4:4 _according to_ [^d]: Romans 4:16 _certain_

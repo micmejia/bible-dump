@@ -1,0 +1,43 @@
+---
+Aliases: [Ezekiel 9]
+previous: ['Ezek 8']
+up: ['Ezekiel']
+next: ['Ezek 10']
+---
+# Ezekiel 9
+
+***
+
+
+###### 1 
+Then He called out in my hearing with a loud voice, saying, "Let those who have charge over the city draw near, each _with_ a [^a]deadly weapon in his hand." 
+
+###### 2 
+And suddenly six men came from the direction of the upper gate, which faces north, each with his [^b]battle-ax in his hand. One man among them _was_ clothed with linen and had a writer's inkhorn [^c]at his side. They went in and stood beside the bronze altar. 
+
+###### 3 
+Now the glory of the God of Israel had gone up from the cherub, where it had been, to the threshold of the [^d]temple. And He called to the man clothed with linen, who _had_ the writer's inkhorn at his side; 
+
+###### 4 
+and the Lord said to him, "Go through the midst of the city, through the midst of Jerusalem, and put a mark on the foreheads of the men who sigh and cry over all the abominations that are done within it." 
+
+###### 5 
+To the others He said in my [^e]hearing, "Go after him through the city and kill;[^f] do not let your eye spare, nor have any pity. 
+
+###### 6 
+Utterly[^g] slay old _and_ young men, maidens and little children and women; but do not come near anyone on whom _is_ the mark; and begin at My sanctuary." So they began with the elders who _were_ before the [^h]temple. 
+
+###### 7 
+Then He said to them, "Defile the [^i]temple, and fill the courts with the slain. Go out!" And they went out and killed in the city. 
+
+###### 8 
+So it was, that while they were killing them, I was left _alone;_ and I fell on my face and cried out, and said, "Ah, Lord God! Will You destroy all the remnant of Israel in pouring out Your fury on Jerusalem?" 
+
+###### 9 
+Then He said to me, "The iniquity of the house of Israel and Judah _is_ exceedingly great, and the land is full of bloodshed, and the city full of perversity; for they say, 'The Lord has forsaken the land, and the Lord does not see!' 
+
+###### 10 
+And as for Me also, My eye will neither spare, nor will I have pity, _but_ I will recompense their deeds on their own head." 
+
+###### 11 
+Just then, the man clothed with linen, who _had_ the inkhorn at his side, reported back and said, "I have done as You commanded me." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Ezekiel 9:1 Or _destroying_ [^b]: Ezekiel 9:2 Lit. _shattering weapon_ [^c]: Ezekiel 9:2 Lit. _upon his loins_ [^d]: Ezekiel 9:3 Lit. _house_ [^e]: Ezekiel 9:5 Lit. _ears_ [^f]: Ezekiel 9:5 Lit. _strike_ [^g]: Ezekiel 9:6 Lit. _Slay to destruction_ [^h]: Ezekiel 9:6 Lit. _house_ [^i]: Ezekiel 9:7 Lit. _house_

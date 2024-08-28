@@ -1,0 +1,130 @@
+---
+Aliases: [1 Corinthians 7]
+previous: ['1 Cor 6']
+up: ['1 Corinthians']
+next: ['1 Cor 8']
+---
+# 1 Corinthians 7
+
+***
+
+
+###### 1 
+Now concerning the things of which you wrote to me: _It is_ good for a man not to touch a woman. 
+
+###### 2 
+Nevertheless, because of sexual immorality, let each man have his own wife, and let each woman have her own husband. 
+
+###### 3 
+Let the husband render to his wife the affection due her, and likewise also the wife to her husband. 
+
+###### 4 
+The wife does not have authority over her own body, but the husband _does._ And likewise the husband does not have authority over his own body, but the wife _does._ 
+
+###### 5 
+Do not deprive one another except with consent for a time, that you may give yourselves to fasting and prayer; and come together again so that Satan does not tempt you because of your lack of self-control. 
+
+###### 6 
+But I say this as a concession, not as a commandment. 
+
+###### 7 
+For I wish that all men were even as I myself. But each one has his own gift from God, one in this manner and another in that. 
+
+###### 8 
+But I say to the unmarried and to the widows: It is good for them if they remain even as I am; 
+
+###### 9 
+but if they cannot exercise self-control, let them marry. For it is better to marry than to burn _with passion._ ## Keep Your Marriage Vows 
+
+###### 10 
+Now to the married I command, _yet_ not I but the Lord: A wife is not to depart from _her_ husband. 
+
+###### 11 
+But even if she does depart, let her remain unmarried or be reconciled to _her_ husband. And a husband is not to divorce _his_ wife. 
+
+###### 12 
+But to the rest I, not the Lord, say: If any brother has a wife who does not believe, and she is willing to live with him, let him not divorce her. 
+
+###### 13 
+And a woman who has a husband who does not believe, if he is willing to live with her, let her not divorce him. 
+
+###### 14 
+For the unbelieving husband is sanctified by the wife, and the unbelieving wife is sanctified by the husband; otherwise your children would be unclean, but now they are holy. 
+
+###### 15 
+But if the unbeliever departs, let him depart; a brother or a sister is not under bondage in such _cases._ But God has called us to peace. 
+
+###### 16 
+For how do you know, O wife, whether you will save _your_ husband? Or how do you know, O husband, whether you will save _your_ wife? ## Live as You Are Called 
+
+###### 17 
+But as God has distributed to each one, as the Lord has called each one, so let him walk. And so I [^a]ordain in all the churches. 
+
+###### 18 
+Was anyone called while circumcised? Let him not become uncircumcised. Was anyone called while uncircumcised? Let him not be circumcised. 
+
+###### 19 
+Circumcision is nothing and uncircumcision is nothing, but keeping the commandments of God _is what matters._ 
+
+###### 20 
+Let each one remain in the same calling in which he was called. 
+
+###### 21 
+Were you called _while_ a slave? Do not be concerned about it; but if you can be made free, rather use _it._ 
+
+###### 22 
+For he who is called in the Lord _while_ a slave is the Lord's freedman. Likewise he who is called _while_ free is Christ's slave. 
+
+###### 23 
+You were bought at a price; do not become slaves of men. 
+
+###### 24 
+Brethren, let each one remain with God in that _state_ in which he was called. ## To the Unmarried and Widows 
+
+###### 25 
+Now concerning virgins: I have no commandment from the Lord; yet I give judgment as one whom the Lord in His mercy has made trustworthy. 
+
+###### 26 
+I suppose therefore that this is good because of the present distress--that _it is_ good for a man to remain as he is: 
+
+###### 27 
+Are you bound to a wife? Do not seek to be loosed. Are you loosed from a wife? Do not seek a wife. 
+
+###### 28 
+But even if you do marry, you have not sinned; and if a virgin marries, she has not sinned. Nevertheless such will have trouble in the flesh, but I would spare you. 
+
+###### 29 
+But this I say, brethren, the time _is_ short, so that from now on even those who have wives should be as though they had none, 
+
+###### 30 
+those who weep as though they did not weep, those who rejoice as though they did not rejoice, those who buy as though they did not possess, 
+
+###### 31 
+and those who use this world as not misusing _it._ For the form of this world is passing away. 
+
+###### 32 
+But I want you to be without [^b]care. He who is unmarried [^c]cares for the things of the Lord--how he may please the Lord. 
+
+###### 33 
+But he who is married cares about the things of the world--how he may please _his_ wife. 
+
+###### 34 
+There is a difference between a wife and a virgin. The unmarried woman cares about the things of the Lord, that she may be holy both in body and in spirit. But she who is married cares about the things of the world--how she may please _her_ husband. 
+
+###### 35 
+And this I say for your own profit, not that I may put a leash on you, but for what is proper, and that you may serve the Lord without distraction. 
+
+###### 36 
+But if any man thinks he is behaving improperly toward his [^d]virgin, if she is past the flower of youth, and thus it must be, let him do what he wishes. He does not sin; let them marry. 
+
+###### 37 
+Nevertheless he who stands steadfast in his heart, having no necessity, but has power over his own will, and has so determined in his heart that he will keep his [^e]virgin, does well. 
+
+###### 38 
+So then he who gives [^f]_her_ in marriage does well, but he who does not give _her_ in marriage does better. 
+
+###### 39 
+A wife is bound by law as long as her husband lives; but if her husband dies, she is at liberty to be married to whom she wishes, only in the Lord. 
+
+###### 40 
+But she is happier if she remains as she is, according to my judgment--and I think I also have the Spirit of God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Corinthians 7:17 _direct_ [^b]: 1 Corinthians 7:32 _concern_ [^c]: 1 Corinthians 7:32 _is concerned about_ [^d]: 1 Corinthians 7:36 Or _virgin daughter_ [^e]: 1 Corinthians 7:37 Or _virgin daughter_ [^f]: 1 Corinthians 7:38 NU _his own virgin_

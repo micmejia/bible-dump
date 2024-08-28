@@ -1,0 +1,133 @@
+---
+Aliases: [Acts 15]
+previous: ['Acts 14']
+up: ['Acts']
+next: ['Acts 16']
+---
+# Acts 15
+
+***
+
+
+###### 1 
+And certain _men_ came down from Judea and taught the brethren, "Unless you are circumcised according to the custom of Moses, you cannot be saved." 
+
+###### 2 
+Therefore, when Paul and Barnabas had no small dissension and dispute with them, they determined that Paul and Barnabas and certain others of them should go up to Jerusalem, to the apostles and elders, about this question. 
+
+###### 3 
+So, being sent on their way by the church, they passed through Phoenicia and Samaria, describing the conversion of the Gentiles; and they caused great joy to all the brethren. 
+
+###### 4 
+And when they had come to Jerusalem, they were received by the church and the apostles and the elders; and they reported all things that God had done with them. 
+
+###### 5 
+But some of the sect of the Pharisees who believed rose up, saying, "It is necessary to circumcise them, and to command _them_ to keep the law of Moses." ## The Jerusalem Council 
+
+###### 6 
+Now the apostles and elders came together to consider this matter. 
+
+###### 7 
+And when there had been much dispute, Peter rose up _and_ said to them: "Men _and_ brethren, you know that a good while ago God chose among us, that by my mouth the Gentiles should hear the word of the gospel and believe. 
+
+###### 8 
+So God, who knows the heart, [^a]acknowledged them by giving them the Holy Spirit, just as _He did_ to us, 
+
+###### 9 
+and made no distinction between us and them, purifying their hearts by faith. 
+
+###### 10 
+Now therefore, why do you test God by putting a yoke on the neck of the disciples which neither our fathers nor we were able to bear? 
+
+###### 11 
+But we believe that through the grace of the Lord Jesus [^b]Christ we shall be saved in the same manner as they." 
+
+###### 12 
+Then all the multitude kept silent and listened to Barnabas and Paul declaring how many miracles and wonders God had worked through them among the Gentiles. 
+
+###### 13 
+And after they had [^c]become silent, James answered, saying, "Men _and_ brethren, listen to me: 
+
+###### 14 
+Simon has declared how God at the first visited the Gentiles to take out of them a people for His name. 
+
+###### 15 
+And with this the words of the prophets agree, just as it is written: 
+
+###### 16 
+'After this I will return And will rebuild the tabernacle of David, which has fallen down; I will rebuild its ruins, And I will set it up; 
+
+###### 17 
+So that the rest of mankind may seek the Lord, Even all the Gentiles who are called by My name, Says the [^d]Lord who does all these things.' 
+
+###### 18 
+[^e]"Known to God from eternity are all His works. 
+
+###### 19 
+Therefore I judge that we should not trouble those from among the Gentiles who are turning to God, 
+
+###### 20 
+but that we write to them to abstain from things polluted by idols, _from_ [^f]sexual immorality, _from_ things strangled, and _from_ blood. 
+
+###### 21 
+For Moses has had throughout many generations those who preach him in every city, being read in the synagogues every Sabbath." ## The Jerusalem Decree 
+
+###### 22 
+Then it pleased the apostles and elders, with the whole church, to send chosen men of their own company to Antioch with Paul and Barnabas, _namely,_ Judas who was also named Barsabas,[^g] and Silas, leading men among the brethren. 
+
+###### 23 
+They wrote this _letter_ by them: The apostles, the elders, and the brethren, To the brethren who are of the Gentiles in Antioch, Syria, and Cilicia: Greetings. 
+
+###### 24 
+Since we have heard that some who went out from us have troubled you with words, unsettling your souls, [^h]saying, "_You must_ be circumcised and keep the law"--to whom we gave no _such_ commandment-- 
+
+###### 25 
+it seemed good to us, being assembled with one [^i]accord, to send chosen men to you with our beloved Barnabas and Paul, 
+
+###### 26 
+men who have risked their lives for the name of our Lord Jesus Christ. 
+
+###### 27 
+We have therefore sent Judas and Silas, who will also report the same things by word of mouth. 
+
+###### 28 
+For it seemed good to the Holy Spirit, and to us, to lay upon you no greater burden than these necessary things: 
+
+###### 29 
+that you abstain from things offered to idols, from blood, from things strangled, and from sexual[^j] immorality. If you keep yourselves from these, you will do well. Farewell. ## Continuing Ministry in Syria 
+
+###### 30 
+So when they were sent off, they came to Antioch; and when they had gathered the multitude together, they delivered the letter. 
+
+###### 31 
+When they had read it, they rejoiced over its encouragement. 
+
+###### 32 
+Now Judas and Silas, themselves being prophets also, exhorted and strengthened the brethren with many words. 
+
+###### 33 
+And after they had stayed _there_ for a time, they were sent back with greetings from the brethren to [^k]the apostles. 
+
+###### 34 
+[^l]However, it seemed good to Silas to remain there. 
+
+###### 35 
+Paul and Barnabas also remained in Antioch, teaching and preaching the word of the Lord, with many others also. ## Division over John Mark 
+
+###### 36 
+Then after some days Paul said to Barnabas, "Let us now go back and visit our brethren in every city where we have preached the word of the Lord, _and see_ how they are doing." 
+
+###### 37 
+Now Barnabas [^m]was determined to take with them John called Mark. 
+
+###### 38 
+But Paul insisted that they should not take with them the one who had departed from them in Pamphylia, and had not gone with them to the work. 
+
+###### 39 
+Then the contention became so sharp that they parted from one another. And so Barnabas took Mark and sailed to Cyprus; 
+
+###### 40 
+but Paul chose Silas and departed, being [^n]commended by the brethren to the grace of God. 
+
+###### 41 
+And he went through Syria and Cilicia, strengthening the churches. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Acts 15:8 _bore witness to_ [^b]: Acts 15:11 NU, M omit _Christ_ [^c]: Acts 15:13 _stopped speaking_ [^d]: Acts 15:17 NU _Lord_, _who makes these things_ [^e]: Acts 15:18 NU (continuing v. [17]) _known from eternity (of old)._’ [^f]: Acts 15:20 Or _fornication_ [^g]: Acts 15:22 NU, M _Barsabbas_ [^h]: Acts 15:24 NU omits _saying, “You must be circumcised and keep the law”_ [^i]: Acts 15:25 _purpose_ or _mind_ [^j]: Acts 15:29 Or _fornication_ [^k]: Acts 15:33 NU _those who had sent them_ [^l]: Acts 15:34 NU, M omit v. [34]. [^m]: Acts 15:37 _resolved_ [^n]: Acts 15:40 _committed_

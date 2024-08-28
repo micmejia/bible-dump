@@ -1,0 +1,52 @@
+---
+Aliases: [Hebrews 5]
+previous: ['Heb 4']
+up: ['Hebrews']
+next: ['Heb 6']
+---
+# Hebrews 5
+
+***
+
+
+###### 1 
+For every high priest taken from among men is appointed for men in things _pertaining_ to God, that he may offer both gifts and sacrifices for sins. 
+
+###### 2 
+He can [^a]have compassion on those who are ignorant and going astray, since he himself is also subject to weakness. 
+
+###### 3 
+Because of this he is required as for the people, so also for himself, to offer _sacrifices_ for sins. 
+
+###### 4 
+And no man takes this honor to himself, but he who is called by God, just as Aaron _was._ ## A Priest Forever 
+
+###### 5 
+So also Christ did not glorify Himself to become High Priest, but _it was_ He who said to Him: "You are My Son, Today I have begotten You." 
+
+###### 6 
+As _He_ also says in another _place:_ "You _are_ a priest forever According to the order of Melchizedek"; 
+
+###### 7 
+who, in the days of His flesh, when He had offered up prayers and supplications, with vehement cries and tears to Him who was able to save Him from death, and was heard because of His godly fear, 
+
+###### 8 
+though He was a Son, _yet_ He learned obedience by the things which He suffered. 
+
+###### 9 
+And having been perfected, He became the author of eternal salvation to all who obey Him, 
+
+###### 10 
+called by God as High Priest "according to the order of Melchizedek," 
+
+###### 11 
+of whom we have much to say, and hard to explain, since you have become dull of hearing. ## Spiritual Immaturity 
+
+###### 12 
+For though by this time you ought to be teachers, you need _someone_ to teach you again the first principles of the [^b]oracles of God; and you have come to need milk and not solid food. 
+
+###### 13 
+For everyone who partakes _only_ of milk _is_ unskilled in the word of righteousness, for he is a babe. 
+
+###### 14 
+But solid food belongs to those who are [^c]of full age, _that is,_ those who by reason of [^d]use have their senses exercised to discern both good and evil. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Hebrews 5:2 _deal gently with_ [^b]: Hebrews 5:12 _sayings,_ Scriptures [^c]: Hebrews 5:14 _mature_ [^d]: Hebrews 5:14 _practice_

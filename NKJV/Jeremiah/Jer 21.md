@@ -1,0 +1,52 @@
+---
+Aliases: [Jeremiah 21]
+previous: ['Jer 20']
+up: ['Jeremiah']
+next: ['Jer 22']
+---
+# Jeremiah 21
+
+***
+
+
+###### 1 
+The word which came to Jeremiah from the Lord when King Zedekiah sent to him Pashhur the son of Melchiah, and Zephaniah the son of Maaseiah, the priest, saying, 
+
+###### 2 
+"Please inquire of the Lord for us, for [^a]Nebuchadnezzar king of Babylon makes war against us. Perhaps the Lord will deal with us according to all His wonderful works, that _the king_ may go away from us." 
+
+###### 3 
+Then Jeremiah said to them, "Thus you shall say to Zedekiah, 
+
+###### 4 
+'Thus says the Lord God of Israel: "Behold, I will turn back the weapons of war that _are_ in your hands, with which you fight against the king of Babylon and the [^b]Chaldeans who besiege you outside the walls; and I will assemble them in the midst of this city. 
+
+###### 5 
+I Myself will fight against you with an outstretched hand and with a strong arm, even in anger and fury and great wrath. 
+
+###### 6 
+I will strike the inhabitants of this city, both man and beast; they shall die of a great pestilence. 
+
+###### 7 
+And afterward," says the Lord, "I will deliver Zedekiah king of Judah, his servants and the people, and such as are left in this city from the pestilence and the sword and the famine, into the hand of Nebuchadnezzar king of Babylon, into the hand of their enemies, and into the hand of those who seek their life; and he shall strike them with the edge of the sword. He shall not spare them, or have pity or mercy." ' 
+
+###### 8 
+"Now you shall say to this people, 'Thus says the Lord: "Behold, I set before you the way of life and the way of death. 
+
+###### 9 
+He who remains in this city shall die by the sword, by famine, and by pestilence; but he who goes out and [^c]defects to the Chaldeans who besiege you, he shall live, and his life shall be as a prize to him. 
+
+###### 10 
+For I have set My face against this city for adversity and not for good," says the Lord. "It shall be given into the hand of the king of Babylon, and he shall burn it with fire." ' ## Message to the House of David 
+
+###### 11 
+"And concerning the house of the king of Judah, _say,_ 'Hear the word of the Lord, 
+
+###### 12 
+O house of David! Thus says the Lord: "Execute[^d] judgment in the morning; And deliver _him who is_ plundered Out of the hand of the oppressor, Lest My fury go forth like fire And burn so that no one can quench _it,_ Because of the evil of your doings. 
+
+###### 13 
+"Behold, I _am_ against you, O [^e]inhabitant of the valley, _And_ rock of the plain," says the Lord, "Who say, 'Who shall come down against us? Or who shall enter our dwellings?' 
+
+###### 14 
+But I will punish you according to the fruit of your [^f]doings," says the Lord; "I will kindle a fire in its forest, And it shall devour all things around it." ' " ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Jeremiah 21:2 Heb. _Nebuchadrezzar,_ and so elsewhere in the book [^b]: Jeremiah 21:4 Or _Babylonians,_ and so elsewhere in the book [^c]: Jeremiah 21:9 Lit. _falls away to_ [^d]: Jeremiah 21:12 _Dispense justice_ [^e]: Jeremiah 21:13 _dweller_ [^f]: Jeremiah 21:14 _deeds_

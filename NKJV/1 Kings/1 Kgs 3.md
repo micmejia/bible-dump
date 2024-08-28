@@ -1,0 +1,94 @@
+---
+Aliases: [1 Kings 3]
+previous: ['1 Kgs 2']
+up: ['1 Kings']
+next: ['1 Kgs 4']
+---
+# 1 Kings 3
+
+***
+
+
+###### 1 
+Now Solomon made [^a]a treaty with Pharaoh king of Egypt, and married Pharaoh's daughter; then he brought her to the City of David until he had finished building his own house, and the house of the Lord, and the wall all around Jerusalem. 
+
+###### 2 
+Meanwhile the people sacrificed at the high places, because there was no house built for the name of the Lord until those days. 
+
+###### 3 
+And Solomon loved the Lord, walking in the statutes of his father David, except that he sacrificed and burned incense at the high places. 
+
+###### 4 
+Now the king went to Gibeon to sacrifice there, for that _was_ the great high place: Solomon offered a thousand burnt offerings on that altar. 
+
+###### 5 
+At Gibeon the Lord appeared to Solomon in a dream by night; and God said, "Ask! What shall I give you?" 
+
+###### 6 
+And Solomon said: "You have shown great mercy to Your servant David my father, because he walked before You in truth, in righteousness, and in uprightness of heart with You; You have continued this great kindness for him, and You have given him a son to sit on his throne, as _it is_ this day. 
+
+###### 7 
+Now, O Lord my God, You have made Your servant king instead of my father David, but I _am_ a little child; I do not know _how_ to go out or come in. 
+
+###### 8 
+And Your servant _is_ in the midst of Your people whom You have chosen, a great people, too numerous to be numbered or counted. 
+
+###### 9 
+Therefore give to Your servant an [^b]understanding heart to judge Your people, that I may discern between good and evil. For who is able to judge this great people of Yours?" 
+
+###### 10 
+The speech pleased the Lord, that Solomon had asked this thing. 
+
+###### 11 
+Then God said to him: "Because you have asked this thing, and have not asked long life for yourself, nor have asked riches for yourself, nor have asked the life of your enemies, but have asked for yourself understanding to discern justice, 
+
+###### 12 
+behold, I have done according to your words; see, I have given you a wise and understanding heart, so that there has not been anyone like you before you, nor shall any like you arise after you. 
+
+###### 13 
+And I have also given you what you have not asked: both riches and honor, so that there shall not be anyone like you among the kings all your days. 
+
+###### 14 
+So if you walk in My ways, to keep My statutes and My commandments, as your father David walked, then I will lengthen[^c] your days." 
+
+###### 15 
+Then Solomon awoke; and indeed it had been a dream. And he came to Jerusalem and stood before the ark of the covenant of the Lord, offered up burnt offerings, offered peace offerings, and made a feast for all his servants. ## Solomon's Wise Judgment 
+
+###### 16 
+Now two women _who were_ harlots came to the king, and stood before him. 
+
+###### 17 
+And one woman said, "O my lord, this woman and I dwell in the same house; and I gave birth while she _was_ in the house. 
+
+###### 18 
+Then it happened, the third day after I had given birth, that this woman also gave birth. And we _were_ together; [^d]no one _was_ with us in the house, except the two of us in the house. 
+
+###### 19 
+And this woman's son died in the night, because she lay on him. 
+
+###### 20 
+So she arose in the middle of the night and took my son from my side, while your maidservant slept, and laid him in her bosom, and laid her dead child in my bosom. 
+
+###### 21 
+And when I rose in the morning to nurse my son, there he was, dead. But when I had examined him in the morning, indeed, he was not my son whom I had borne." 
+
+###### 22 
+Then the other woman said, "No! But the living one _is_ my son, and the dead one _is_ your son." And the first woman said, "No! But the dead one _is_ your son, and the living one _is_ my son." Thus they spoke before the king. 
+
+###### 23 
+And the king said, "The one says, 'This _is_ my son, who lives, and your son _is_ the dead one'; and the other says, 'No! But your son _is_ the dead one, and my son _is_ the living one.' " 
+
+###### 24 
+Then the king said, "Bring me a sword." So they brought a sword before the king. 
+
+###### 25 
+And the king said, "Divide the living child in two, and give half to one, and half to the other." 
+
+###### 26 
+Then the woman whose son _was_ living spoke to the king, for she yearned with compassion for her son; and she said, "O my lord, give her the living child, and by no means kill him!" But the other said, "Let him be neither mine nor yours, _but_ divide _him._" 
+
+###### 27 
+So the king answered and said, "Give the first woman the living child, and by no means kill him; she _is_ his mother." 
+
+###### 28 
+And all Israel heard of the judgment which the king had rendered; and they feared the king, for they saw that the wisdom of God _was_ in him to administer justice. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Kings 3:1 _an alliance_ [^b]: 1 Kings 3:9 Lit. _hearing_ [^c]: 1 Kings 3:14 _prolong_ [^d]: 1 Kings 3:18 Lit. _no stranger_

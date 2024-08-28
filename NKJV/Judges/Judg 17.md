@@ -1,0 +1,49 @@
+---
+Aliases: [Judges 17]
+previous: ['Judg 16']
+up: ['Judges']
+next: ['Judg 18']
+---
+# Judges 17
+
+***
+
+
+###### 1 
+Now there was a man from the mountains of Ephraim, whose name _was_ Micah. 
+
+###### 2 
+And he said to his mother, "The eleven hundred _shekels_ of silver that were taken from you, and on which you put a curse, even saying it in my ears--here _is_ the silver with me; I took it." And his mother said, "_May you be_ blessed by the Lord, my son!" 
+
+###### 3 
+So when he had returned the eleven hundred _shekels_ of silver to his mother, his mother said, "I had wholly dedicated the silver from my hand to the Lord for my son, to make a carved image and a molded image; now therefore, I will return it to you." 
+
+###### 4 
+Thus he returned the silver to his mother. Then his mother took two hundred _shekels_ of silver and gave them to the silversmith, and he made it into a carved image and a molded image; and they were in the house of Micah. 
+
+###### 5 
+The man Micah had a shrine, and made an ephod and household[^a] idols; and he consecrated one of his sons, who became his priest. 
+
+###### 6 
+In those days _there was_ no king in Israel; everyone did _what was_ right in his own eyes. 
+
+###### 7 
+Now there was a young man from Bethlehem in Judah, of the family of Judah; he _was_ a Levite, and was staying there. 
+
+###### 8 
+The man departed from the city of Bethlehem in Judah to stay wherever he could find _a place._ Then he came to the mountains of Ephraim, to the house of Micah, as he journeyed. 
+
+###### 9 
+And Micah said to him, "Where do you come from?" So he said to him, "I _am_ a Levite from Bethlehem in Judah, and I am on my way to find _a place_ to stay." 
+
+###### 10 
+Micah said to him, "Dwell with me, and be a father and a priest to me, and I will give you ten _shekels_ of silver per year, a suit of clothes, and your sustenance." So the Levite went in. 
+
+###### 11 
+Then the Levite was content to dwell with the man; and the young man became like one of his sons to him. 
+
+###### 12 
+So Micah consecrated[^b] the Levite, and the young man became his priest, and lived in the house of Micah. 
+
+###### 13 
+Then Micah said, "Now I know that the Lord will be good to me, since I have a Levite as priest!" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Judges 17:5 Heb. _teraphim_ [^b]: Judges 17:12 Lit. _filled the hand of_

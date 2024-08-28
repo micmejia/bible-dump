@@ -1,0 +1,787 @@
+---
+Aliases: [Acts 4]
+previous: ['Acts 3']
+up: ['Acts']
+next: ['Acts 5']
+---
+# Acts 4
+
+***
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 1 
+
+
+
+
+
+
+And while they [Peter and John] were talking to the people, the high priests and the military commander of the temple and the Sadducees came upon them, 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 2 
+
+
+
+
+
+
+Being vexed _and_ indignant through _and_ through because they were teaching the people _and_ proclaiming in [the case of] Jesus the resurrection from the dead. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 3 
+
+
+
+
+
+
+So they laid hands on them (arrested them) and put them in prison until the following day, for it was already evening. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 4 
+
+
+
+
+
+
+But many of those who heard the message believed (adhered to and trusted in and relied on Jesus as the Christ). And their number grew _and_ came to about 5,000. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 5 
+
+
+
+
+
+
+Then on the following day, their magistrates and elders and scribes were assembled in Jerusalem, 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 6 
+
+
+
+
+
+
+Including Annas the high priest and Caiaphas and John and Alexander and all others who belonged to the high priestly relationship. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 7 
+
+
+
+
+
+
+And they set the men in their midst and repeatedly demanded, By what sort of power or by what kind of authority did [such people as] you do this [healing]? 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 8 
+
+
+
+
+
+
+Then Peter, [because he was] filled with [and controlled by] the Holy Spirit, said to them, Rulers of the people and members of the council (the Sanhedrin), 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 9 
+
+
+
+
+
+
+If we are being put on trial [here] today _and_ examined concerning a good deed done to benefit a feeble (helpless) cripple, by what means this man has been restored to health, 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 10 
+
+
+
+
+
+
+Let it be known _and_ understood by all of you, and by the whole house of Israel, that in the name and through the power _and_ authority of Jesus Christ of Nazareth, Whom you crucified, [but] Whom God raised from the dead, in Him _and_ by means of Him this man is standing here before you well _and_ sound in body. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 11 
+
+
+
+
+
+
+This [Jesus] is the Stone which was despised _and_ rejected by you, the builders, but which has become the Head of the corner [the Cornerstone]. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 12 
+
+
+
+
+
+
+And there is salvation in _and_ through no one else, for there is no other name under heaven given among men by _and_ in which we must be saved. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 13 
+
+
+
+
+
+
+Now when they saw the boldness _and_ unfettered eloquence of Peter and John and perceived that they were unlearned _and_ untrained in the schools [common men with no educational advantages], they marveled; and they recognized that they had been with Jesus. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 14 
+
+
+
+
+
+
+And since they saw the man who had been cured standing there beside them, they could not contradict the fact _or_ say anything in opposition. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 15 
+
+
+
+
+
+
+But having ordered [the prisoners] to go aside out of the council [chamber], they conferred (debated) among themselves, 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 16 
+
+
+
+
+
+
+Saying, What are we to do with these men? For that an extraordinary miracle has been performed by (through) them is plain to all the residents of Jerusalem, and we cannot deny it. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 17 
+
+
+
+
+
+
+But in order that it may not spread further among the people _and_ the nation, let us warn _and_ forbid them with a stern threat to speak any more to anyone in this name [or about this Person]. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 18 
+
+
+
+
+
+
+[So] they summoned them and imperatively instructed them not to converse in any way _or_ teach at all in _or_ about the name of Jesus. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 19 
+
+
+
+
+
+
+But Peter and John replied to them, Whether it is right in the sight of God to listen to you _and_ obey you rather than God, you must decide (judge). 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 20 
+
+
+
+
+
+
+But we [ourselves] cannot help telling what we have seen and heard. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 21 
+
+
+
+
+
+
+Then when [the rulers and council members] had further threatened them, they let them go, not seeing how they could secure a conviction against them because of the people; for everybody was praising _and_ glorifying God for what had occurred. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 22 
+
+
+
+
+
+
+For the man on whom this sign (miracle) of healing was performed was more than forty years old. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 23 
+
+
+
+
+
+
+After they were permitted to go, [the apostles] returned to their own [company] and told all that the chief priests and elders had said to them. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 24 
+
+
+
+
+
+
+And when they heard it, lifted their voices together with one united mind to God and said, O Sovereign Lord, You are He Who made the heaven and the earth and the sea and everything that is in them, 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 25 
+
+
+
+
+
+
+Who by the mouth of our forefather David, Your servant _and_ child, said through the Holy Spirit, Why did the heathen (Gentiles) become wanton _and_ insolent _and_ rage, and the people imagine _and_ study _and_ plan vain (fruitless) things [that will not succeed]? 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 26 
+
+
+
+
+
+
+The kings of the earth took their stand in array [for attack] and the rulers were assembled _and_ combined together against the Lord and against His Anointed (Christ, the Messiah). 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 27 
+
+
+
+
+
+
+For in this city there actually met and plotted together against Your holy Child _and_ Servant Jesus, Whom You consecrated by anointing, both Herod and Pontius Pilate with the Gentiles and peoples of Israel, 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 28 
+
+
+
+
+
+
+To carry out all that Your hand and Your will _and_ purpose had predestined (predetermined) should occur. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 29 
+
+
+
+
+
+
+And now, Lord, observe their threats and grant to Your bond servants [full freedom] to declare Your message fearlessly, 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 30 
+
+
+
+
+
+
+While You stretch out Your hand to cure and to perform signs _and_ wonders through the authority _and_ by the power of the name of Your holy Child _and_ Servant Jesus. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 31 
+
+
+
+
+
+
+And when they had prayed, the place in which they were assembled was shaken; and they were all filled with the Holy Spirit, and they continued to speak the Word of God with freedom _and_ boldness _and_ courage. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 32 
+
+
+
+
+
+
+Now the company of believers was of one heart and soul, and not one of them claimed that anything which he possessed was [exclusively] his own, but everything they had was in common _and_ for the use of all. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 33 
+
+
+
+
+
+
+And with great strength _and_ ability _and_ power the apostles delivered their testimony to the resurrection of the Lord Jesus, and great grace (loving-kindness and favor and goodwill) rested richly upon them all. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 34 
+
+
+
+
+
+
+Nor was there a destitute _or_ needy person among them, for as many as were owners of lands or houses proceeded to sell them, and one by one they brought (gave back) the amount received from the sales 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 35 
+
+
+
+
+
+
+And laid it at the feet of the apostles (special messengers). Then distribution was made according as anyone had need. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 36 
+
+
+
+
+
+
+Now Joseph, a Levite and native of Cyprus who was surnamed Barnabas by the apostles, which interpreted means Son of Encouragement, 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 37 
+
+
+
+
+
+
+Sold a field which belonged to him and brought the sum of money and laid it at the feet of the apostles. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences

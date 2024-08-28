@@ -1,0 +1,103 @@
+---
+Aliases: [Judges 16]
+previous: ['Judg 15']
+up: ['Judges']
+next: ['Judg 17']
+---
+# Judges 16
+
+***
+
+
+###### 1 
+Now Samson went to Gaza and saw a harlot there, and went in to her. 
+
+###### 2 
+_When_ the Gazites _were told,_ "Samson has come here!" they surrounded _the place_ and lay in wait for him all night at the gate of the city. They were quiet all night, saying, "In the morning, when it is daylight, we will kill him." 
+
+###### 3 
+And Samson lay _low_ till midnight; then he arose at midnight, took hold of the doors of the gate of the city and the two gateposts, pulled them up, bar and all, put _them_ on his shoulders, and carried them to the top of the hill that faces Hebron. 
+
+###### 4 
+Afterward it happened that he loved a woman in the Valley of Sorek, whose name _was_ Delilah. 
+
+###### 5 
+And the lords of the Philistines came up to her and said to her, "Entice him, and find out where his great strength _lies,_ and by what _means_ we may overpower him, that we may bind him to afflict him; and every one of us will give you eleven hundred _pieces_ of silver." 
+
+###### 6 
+So Delilah said to Samson, "Please tell me where your great strength _lies,_ and with what you may be bound to afflict you." 
+
+###### 7 
+And Samson said to her, "If they bind me with seven fresh bowstrings, not yet dried, then I shall become weak, and be like any _other_ man." 
+
+###### 8 
+So the lords of the Philistines brought up to her seven fresh bowstrings, not yet dried, and she bound him with them. 
+
+###### 9 
+Now _men were_ lying in wait, staying with her in the room. And she said to him, "The Philistines _are_ upon you, Samson!" But he broke the bowstrings as a strand of yarn breaks when it touches fire. So the secret of his strength was not known. 
+
+###### 10 
+Then Delilah said to Samson, "Look, you have mocked me and told me lies. Now, please tell me what you may be bound with." 
+
+###### 11 
+So he said to her, "If they bind me securely with new ropes [^a]that have never been used, then I shall become weak, and be like any _other_ man." 
+
+###### 12 
+Therefore Delilah took new ropes and bound him with them, and said to him, "The Philistines _are_ upon you, Samson!" And _men were_ lying in wait, staying in the room. But he broke them off his arms like a thread. 
+
+###### 13 
+Delilah said to Samson, "Until now you have mocked me and told me lies. Tell me what you may be bound with." And he said to her, "If you weave the seven locks of my head into the web of the loom"-- 
+
+###### 14 
+So she wove _it_ tightly with the batten of the loom, and said to him, "The Philistines _are_ upon you, Samson!" But he awoke from his sleep, and pulled out the batten and the web from the loom. 
+
+###### 15 
+Then she said to him, "How can you say, 'I love you,' when your heart _is_ not with me? You have mocked me these three times, and have not told me where your great strength _lies._" 
+
+###### 16 
+And it came to pass, when she pestered him daily with her words and pressed him, _so_ that his soul was [^b]vexed to death, 
+
+###### 17 
+that he told her all his heart, and said to her, "No razor has ever come upon my head, for I _have been_ a Nazirite to God from my mother's womb. If I am shaven, then my strength will leave me, and I shall become weak, and be like any _other_ man." 
+
+###### 18 
+When Delilah saw that he had told her all his heart, she sent and called for the lords of the Philistines, saying, "Come up once more, for he has told me all his heart." So the lords of the Philistines came up to her and brought the money in their hand. 
+
+###### 19 
+Then she lulled him to sleep on her knees, and called for a man and had him shave off the seven locks of his head. Then [^c]she began to torment him, and his strength left him. 
+
+###### 20 
+And she said, "The Philistines _are_ upon you, Samson!" So he awoke from his sleep, and said, "I will go out as before, at other times, and shake myself free!" But he did not know that the Lord had departed from him. 
+
+###### 21 
+Then the Philistines took him and [^d]put out his eyes, and brought him down to Gaza. They bound him with bronze fetters, and he became a grinder in the prison. 
+
+###### 22 
+However, the hair of his head began to grow again after it had been shaven. ## Samson Dies with the Philistines 
+
+###### 23 
+Now the lords of the Philistines gathered together to offer a great sacrifice to Dagon their god, and to rejoice. And they said: "Our god has delivered into our hands Samson our enemy!" 
+
+###### 24 
+When the people saw him, they praised their god; for they said: "Our god has delivered into our hands our enemy, The destroyer of our land, And the one who multiplied our dead." 
+
+###### 25 
+So it happened, when their hearts were merry, that they said, "Call for Samson, that he may perform for us." So they called for Samson from the prison, and he performed for them. And they stationed him between the pillars. 
+
+###### 26 
+Then Samson said to the lad who held him by the hand, "Let me feel the pillars which support the temple, so that I can lean on them." 
+
+###### 27 
+Now the temple was full of men and women. All the lords of the Philistines _were_ there--about three thousand men and women on the roof watching while Samson performed. 
+
+###### 28 
+Then Samson called to the Lord, saying, "O Lord God, remember me, I pray! Strengthen me, I pray, just this once, O God, that I may with one _blow_ take vengeance on the Philistines for my two eyes!" 
+
+###### 29 
+And Samson took hold of the two middle pillars which supported the temple, and he braced himself against them, one on his right and the other on his left. 
+
+###### 30 
+Then Samson said, "Let me die with the Philistines!" And he pushed with _all his_ might, and the temple fell on the lords and all the people who _were_ in it. So the dead that he killed at his death were more than he had killed in his life. 
+
+###### 31 
+And his brothers and all his father's household came down and took him, and brought _him_ up and buried him between Zorah and Eshtaol in the tomb of his father Manoah. He had judged Israel twenty years. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Judges 16:11 Lit. _with which work has never been done_ [^b]: Judges 16:16 Lit. _impatient to the point of_ [^c]: Judges 16:19 So with MT, Tg., Vg.; LXX _he began to be weak,_ [^d]: Judges 16:21 Lit. _bored out_

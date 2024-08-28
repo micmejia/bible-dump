@@ -70,7 +70,9 @@ Then the Nazirite shall shave his consecrated head _at_ the door of the tabernac
 and the priest shall wave them as a wave offering before the Lord; they _are_ holy for the priest, together with the breast of the wave offering and the thigh of the heave offering. After that the Nazirite may drink wine.' 
 
 ###### 21 
-"This is the law of the Nazirite who vows to the Lord the offering for his separation, and besides that, whatever else his hand is able to provide; according to the vow which he takes, so he must do according to the law of his separation." ## The Priestly Blessing 
+"This is the law of the Nazirite who vows to the Lord the offering for his separation, and besides that, whatever else his hand is able to provide; according to the vow which he takes, so he must do according to the law of his separation." 
+
+## The Priestly Blessing 
 
 ###### 22 
 And the Lord spoke to Moses, saying: 

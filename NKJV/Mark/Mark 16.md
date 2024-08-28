@@ -66,7 +66,9 @@ He who believes and is baptized will be saved; but he who does not believe will 
 And these signs will follow those who believe: In My name they will cast out demons; they will speak with new tongues; 
 
 ###### 18 
-they will take up serpents; and if they drink anything deadly, it will by no means hurt them; they will lay hands on the sick, and they will recover." ## Christ Ascends to God's Right Hand 
+they will take up serpents; and if they drink anything deadly, it will by no means hurt them; they will lay hands on the sick, and they will recover." 
+
+## Christ Ascends to God's Right Hand 
 
 ###### 19 
 So then, after the Lord had spoken to them, He was received up into heaven, and sat down at the right hand of God. 

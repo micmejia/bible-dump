@@ -113,7 +113,9 @@ You are an adulterous wife, who takes strangers instead of her husband.
 Men make payment to all harlots, but you made your payments to all your lovers, and hired them to come to you from all around for your harlotry. 
 
 ###### 34 
-You are the opposite of other women in your harlotry, because no one solicited you to be a harlot. In that you gave payment but no payment was given you, therefore you are the opposite." ## Jerusalem's Lovers Will Abuse Her 
+You are the opposite of other women in your harlotry, because no one solicited you to be a harlot. In that you gave payment but no payment was given you, therefore you are the opposite." 
+
+## Jerusalem's Lovers Will Abuse Her 
 
 ###### 35 
 'Now then, O harlot, hear the word of the Lord! 

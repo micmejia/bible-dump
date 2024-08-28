@@ -871,7 +871,9 @@ At kapag nananalangin kayo, patawarin nʼyo muna ang mga nagkasala sa inyo para 
 
 
 
-[Sapagkat kung ayaw ninyong magpatawad, hindi rin kayo patatawarin ng inyong Amang nasa langit.]" ## Ang Tanong tungkol sa Awtoridad ni Jesus 
+[Sapagkat kung ayaw ninyong magpatawad, hindi rin kayo patatawarin ng inyong Amang nasa langit.]" 
+
+## Ang Tanong tungkol sa Awtoridad ni Jesus 
 
 
 

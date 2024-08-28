@@ -1166,7 +1166,9 @@ At nang dumating naman ako na Anak ng Tao, nakita ninyong kumakain ako at umiino
 
 
 
-Ganoon pa man, ang mga taong sumusunod sa kalooban ng Dios ay sumasang-ayon sa ipinapagawa ng Dios sa amin." ## Binuhusan ng Pabango si Jesus 
+Ganoon pa man, ang mga taong sumusunod sa kalooban ng Dios ay sumasang-ayon sa ipinapagawa ng Dios sa amin." 
+
+## Binuhusan ng Pabango si Jesus 
 
 
 

@@ -31,7 +31,9 @@ Be strong and of good courage, do not fear nor be afraid of them; for the Lord y
 Then Moses called Joshua and said to him in the sight of all Israel, "Be strong and of good courage, for you must go with this people to the land which the Lord has sworn to their fathers to give them, and you shall cause them to inherit it. 
 
 ###### 8 
-And the Lord, He _is_ the One who goes before you. He will be with you, He will not leave you nor forsake you; do not fear nor be dismayed." ## The Law to Be Read Every Seven Years 
+And the Lord, He _is_ the One who goes before you. He will be with you, He will not leave you nor forsake you; do not fear nor be dismayed." 
+
+## The Law to Be Read Every Seven Years 
 
 ###### 9 
 So Moses wrote this law and delivered it to the priests, the sons of Levi, who bore the ark of the covenant of the Lord, and to all the elders of Israel. 
@@ -46,7 +48,9 @@ when all Israel comes to appear before the Lord your God in the place which He c
 Gather the people together, men and women and little ones, and the stranger who _is_ within your gates, that they may hear and that they may learn to fear the Lord your God and carefully observe all the words of this law, 
 
 ###### 13 
-and _that_ their children, who have not known it, may hear and learn to fear the Lord your God as long as you live in the land which you cross the Jordan to possess." ## Prediction of Israel's Rebellion 
+and _that_ their children, who have not known it, may hear and learn to fear the Lord your God as long as you live in the land which you cross the Jordan to possess." 
+
+## Prediction of Israel's Rebellion 
 
 ###### 14 
 Then the Lord said to Moses, "Behold, the days approach when you must die; call Joshua, and present yourselves in the tabernacle of meeting, that I may inaugurate him." So Moses and Joshua went and presented themselves in the tabernacle of meeting. 
@@ -94,7 +98,9 @@ for I know your rebellion and your stiff neck. _If_ today, while I am yet alive 
 Gather to me all the elders of your tribes, and your officers, that I may speak these words in their hearing and call heaven and earth to witness against them. 
 
 ###### 29 
-For I know that after my death you will become utterly corrupt, and turn aside from the way which I have commanded you. And evil will befall you in the latter days, because you will do evil in the sight of the Lord, to provoke Him to anger through the work of your hands." ## The Song of Moses 
+For I know that after my death you will become utterly corrupt, and turn aside from the way which I have commanded you. And evil will befall you in the latter days, because you will do evil in the sight of the Lord, to provoke Him to anger through the work of your hands." 
+
+## The Song of Moses 
 
 ###### 30 
 Then Moses spoke in the hearing of all the assembly of Israel the words of this song until they were ended:

@@ -669,7 +669,9 @@ Minamahal kong mga anak, hanggaʼt hindi nakikita sa inyo ang buhay ni Cristo, m
 
 
 
-Kung maaari lang sana, makapunta na ako riyan at makausap kayo nang maayos dahil nag-aalala ako ng labis sa inyo! ## Ang Halimbawa ni Sara at Hagar 
+Kung maaari lang sana, makapunta na ako riyan at makausap kayo nang maayos dahil nag-aalala ako ng labis sa inyo! 
+
+## Ang Halimbawa ni Sara at Hagar 
 
 
 

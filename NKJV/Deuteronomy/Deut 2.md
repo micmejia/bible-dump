@@ -82,7 +82,9 @@ And the Avim, who dwelt in villages as far as Gaza--the Caphtorim, who came from
 " 'Rise, take your journey, and cross over the River Arnon. Look, I have given into your hand Sihon the Amorite, king of Heshbon, and his land. Begin to possess _it,_ and engage him in battle. 
 
 ###### 25 
-This day I will begin to put the dread and fear of you upon the nations under the whole heaven, who shall hear the report of you, and shall tremble and be in anguish because of you.' ## King Sihon Defeated 
+This day I will begin to put the dread and fear of you upon the nations under the whole heaven, who shall hear the report of you, and shall tremble and be in anguish because of you.' 
+
+## King Sihon Defeated 
 
 ###### 26 
 "And I sent messengers from the Wilderness of Kedemoth to Sihon king of Heshbon, with words of peace, saying, 

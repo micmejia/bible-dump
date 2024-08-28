@@ -337,7 +337,9 @@ Ginawa ito ng halaman kahit na nakatanim ito sa matabang lupa na sagana sa tubig
 
 
 
-Kahit na itanim itong muli sa ibang lugar hindi na ito tutubo? Tuluyan na itong malalanta kapag nahipan na ng mainit na hangin mula sa silangan." ## Ang Kahulugan ng Talinghaga 
+Kahit na itanim itong muli sa ibang lugar hindi na ito tutubo? Tuluyan na itong malalanta kapag nahipan na ng mainit na hangin mula sa silangan." 
+
+## Ang Kahulugan ng Talinghaga 
 
 
 
@@ -700,7 +702,9 @@ Huhulihin ko siya at dadalhin sa Babilonia at dooʼy paparusahan ko siya dahil s
 
 
 
-Mamamatay ang kanyang mga sundalong tumatakas, at ang matitira sa kanila ay mangangalat sa ibaʼt ibang lugar. At malalaman ninyo na akong Panginoon ang nagsabi nito." ## Ang Mabuting Kinabukasan na Ipinangako ng Dios 22-23Sinabi pa ng Panginoong Dios, "Kukuha ako ng usbong sa itaas ng punong sedro at itatanim ko sa ibabaw ng pinakamataas na bundok ng Israel. Lalago ito, magbubunga at magiging magandang punong sedro. Pamumugaran ito ng lahat ng uri ng ibon at sisilong naman ang ibaʼt ibang hayop sa ilalim nito. 
+Mamamatay ang kanyang mga sundalong tumatakas, at ang matitira sa kanila ay mangangalat sa ibaʼt ibang lugar. At malalaman ninyo na akong Panginoon ang nagsabi nito." 
+
+## Ang Mabuting Kinabukasan na Ipinangako ng Dios 22-23Sinabi pa ng Panginoong Dios, "Kukuha ako ng usbong sa itaas ng punong sedro at itatanim ko sa ibabaw ng pinakamataas na bundok ng Israel. Lalago ito, magbubunga at magiging magandang punong sedro. Pamumugaran ito ng lahat ng uri ng ibon at sisilong naman ang ibaʼt ibang hayop sa ilalim nito. 
 
 
 

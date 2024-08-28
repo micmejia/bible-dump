@@ -19,7 +19,9 @@ And he said to me, "What do you see?" So I answered, "I see a flying scroll. Its
 Then he said to me, "This is the curse that goes out over the face of the whole earth: 'Every thief shall be expelled,' according to this side of the scroll; and, 'Every perjurer shall be expelled,' according to that side of it." 
 
 ###### 4 
-"I will send out the curse," says the Lord of hosts; "It shall enter the house of the thief And the house of the one who swears falsely by My name. It shall remain in the midst of his house And consume it, with its timber and stones." ## Vision of the Woman in a Basket 
+"I will send out the curse," says the Lord of hosts; "It shall enter the house of the thief And the house of the one who swears falsely by My name. It shall remain in the midst of his house And consume it, with its timber and stones." 
+
+## Vision of the Woman in a Basket 
 
 ###### 5 
 Then the angel who talked with me came out and said to me, "Lift your eyes now, and see what this is that goes forth." 

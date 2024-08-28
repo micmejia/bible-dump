@@ -81,7 +81,9 @@ Only the gold, the silver, the bronze, the iron, the tin, and the lead,
 everything that can endure fire, you shall put through the fire, and it shall be clean; and it shall be purified with the water of purification. But all that cannot endure fire you shall put through water. 
 
 ###### 24 
-And you shall wash your clothes on the seventh day and be clean, and afterward you may come into the camp." ## Division of the Plunder 
+And you shall wash your clothes on the seventh day and be clean, and afterward you may come into the camp." 
+
+## Division of the Plunder 
 
 ###### 25 
 Now the Lord spoke to Moses, saying: 

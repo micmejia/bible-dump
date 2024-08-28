@@ -28,7 +28,9 @@ And the Lord said to Moses, "Go on before the people, and take with you some of 
 Behold, I will stand before you there on the rock in Horeb; and you shall strike the rock, and water will come out of it, that the people may drink." And Moses did so in the sight of the elders of Israel. 
 
 ###### 7 
-So he called the name of the place Massah and Meribah, because of the contention of the children of Israel, and because they tempted the Lord, saying, "Is the Lord among us or not?" ## Victory over the Amalekites 
+So he called the name of the place Massah and Meribah, because of the contention of the children of Israel, and because they tempted the Lord, saying, "Is the Lord among us or not?" 
+
+## Victory over the Amalekites 
 
 ###### 8 
 Now Amalek came and fought with Israel in Rephidim. 

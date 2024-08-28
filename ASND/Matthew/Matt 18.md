@@ -205,7 +205,9 @@ Ang sinumang nagpapakababa tulad ng batang ito ang siyang pinakadakila sa lahat 
 
 
 
-Ngunit ang sinumang magiging dahilan ng pagkakasala ng maliliit na batang ito na sumasampalataya sa akin ay mabuti pang talian sa leeg ng gilingang bato at itapon sa pusod ng dagat." ## Mga Dahilan ng Pagkakasala 
+Ngunit ang sinumang magiging dahilan ng pagkakasala ng maliliit na batang ito na sumasampalataya sa akin ay mabuti pang talian sa leeg ng gilingang bato at itapon sa pusod ng dagat." 
+
+## Mga Dahilan ng Pagkakasala 
 
 
 
@@ -304,7 +306,9 @@ Ngunit ang sinumang magiging dahilan ng pagkakasala ng maliliit na batang ito na
 
 
 
-At kung ang mata mo ang dahilan ng iyong pagkakasala, dukitin mo ito at itapon! Mas mabuti pang isa lang ang mata mo pero may buhay na walang hanggan ka, kaysa sa dalawa nga ang mata mo pero itatapon ka naman sa apoy ng impyerno." ## Ang Nawawalang Tupa 
+At kung ang mata mo ang dahilan ng iyong pagkakasala, dukitin mo ito at itapon! Mas mabuti pang isa lang ang mata mo pero may buhay na walang hanggan ka, kaysa sa dalawa nga ang mata mo pero itatapon ka naman sa apoy ng impyerno." 
+
+## Ang Nawawalang Tupa 
 
 
 
@@ -469,7 +473,9 @@ At kapag nakita na niya ang nawalang tupa, mas matutuwa pa siya rito kaysa sa 99
 
 
 
-Ganito rin naman ang nararamdaman ng inyong Amang nasa langit. Ayaw niyang mawala ang kahit isa sa maliliit na batang ito." ## Kung Magkasala ang Isang Kapatid 
+Ganito rin naman ang nararamdaman ng inyong Amang nasa langit. Ayaw niyang mawala ang kahit isa sa maliliit na batang ito." 
+
+## Kung Magkasala ang Isang Kapatid 
 
 
 
@@ -568,7 +574,9 @@ Pero kung ayaw niyang makinig sa iyo, magsama ka ng isa o dalawa pang kapatid sa
 
 
 
-Kung ayaw niyang makinig sa kanila, ipaalam ito sa iglesya, at kung pati sa iglesya ay ayaw niyang makinig, ituring ninyo siya bilang isang taong hindi kumikilala sa Dios o isang maniningil ng buwis." ## Kapangyarihang Magbawal at Magpahintulot 
+Kung ayaw niyang makinig sa kanila, ipaalam ito sa iglesya, at kung pati sa iglesya ay ayaw niyang makinig, ituring ninyo siya bilang isang taong hindi kumikilala sa Dios o isang maniningil ng buwis." 
+
+## Kapangyarihang Magbawal at Magpahintulot 
 
 
 
@@ -667,7 +675,9 @@ Kung ayaw niyang makinig sa kanila, ipaalam ito sa iglesya, at kung pati sa igle
 
 
 
-Sapagkat kung saan may dalawa o tatlong nagkakatipon dahil sa akin, kasama nila ako." ## Ang Talinghaga tungkol sa Utusan na Ayaw Magpatawad 
+Sapagkat kung saan may dalawa o tatlong nagkakatipon dahil sa akin, kasama nila ako." 
+
+## Ang Talinghaga tungkol sa Utusan na Ayaw Magpatawad 
 
 
 

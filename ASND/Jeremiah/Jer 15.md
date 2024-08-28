@@ -304,7 +304,9 @@ Pararamihin ko ang inyong mga biyuda na parang mas marami pa kaysa sa buhangin s
 
 
 
-May inang mawawalan ng pitong anak na lalaki. Hihimatayin siya at mahihirapang huminga. Ang kanyang mga anak ay parang araw na lumubog nang napakaaga pa. Mapapahiya siya dahil wala na siyang anak. At ang mga matitirang buhay ay ipapapatay ko rin sa mga kaaway. Ako, ang Panginoon, ang nagsasabi nito." ## Dumaing si Jeremias 
+May inang mawawalan ng pitong anak na lalaki. Hihimatayin siya at mahihirapang huminga. Ang kanyang mga anak ay parang araw na lumubog nang napakaaga pa. Mapapahiya siya dahil wala na siyang anak. At ang mga matitirang buhay ay ipapapatay ko rin sa mga kaaway. Ako, ang Panginoon, ang nagsasabi nito." 
+
+## Dumaing si Jeremias 
 
 
 

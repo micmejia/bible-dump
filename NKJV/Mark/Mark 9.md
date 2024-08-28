@@ -10,7 +10,9 @@ next: ['Mark 10']
 
 
 ###### 1 
-And He said to them, "Assuredly, I say to you that there are some standing here who will not taste death till they see the kingdom of God present with power." ## Jesus Transfigured on the Mount 
+And He said to them, "Assuredly, I say to you that there are some standing here who will not taste death till they see the kingdom of God present with power." 
+
+## Jesus Transfigured on the Mount 
 
 ###### 2 
 Now after six days Jesus took Peter, James, and John, and led them up on a high mountain apart by themselves; and He was transfigured before them. 
@@ -46,7 +48,9 @@ And they asked Him, saying, "Why do the scribes say that Elijah must come first?
 Then He answered and told them, "Indeed, Elijah is coming first and restores all things. And how is it written concerning the Son of Man, that He must suffer many things and be treated with contempt? 
 
 ###### 13 
-But I say to you that Elijah has also come, and they did to him whatever they wished, as it is written of him." ## A Boy Is Healed 
+But I say to you that Elijah has also come, and they did to him whatever they wished, as it is written of him." 
+
+## A Boy Is Healed 
 
 ###### 14 
 And when He came to the disciples, He saw a great multitude around them, and scribes disputing with them. 
@@ -94,7 +98,9 @@ But Jesus took him by the hand and lifted him up, and he arose.
 And when He had come into the house, His disciples asked Him privately, "Why could we not cast it out?" 
 
 ###### 29 
-So He said to them, "This kind can come out by nothing but prayer and fasting." ## Jesus Again Predicts His Death and Resurrection 
+So He said to them, "This kind can come out by nothing but prayer and fasting." 
+
+## Jesus Again Predicts His Death and Resurrection 
 
 ###### 30 
 Then they departed from there and passed through Galilee, and He did not want anyone to know it. 
@@ -120,7 +126,9 @@ And He sat down, called the twelve, and said to them, "If anyone desires to be f
 Then He took a little child and set him in the midst of them. And when He had taken him in His arms, He said to them, 
 
 ###### 37 
-"Whoever receives one of these little children in My name receives Me; and whoever receives Me, receives not Me but Him who sent Me." ## Jesus Forbids Sectarianism 
+"Whoever receives one of these little children in My name receives Me; and whoever receives Me, receives not Me but Him who sent Me." 
+
+## Jesus Forbids Sectarianism 
 
 ###### 38 
 Now John answered Him, saying, "Teacher, we saw someone who does not follow us casting out demons in Your name, and we forbade him because he does not follow us." 
@@ -155,7 +163,9 @@ where 'Their worm does not die And the fire is not quenched.'
 And if your eye causes you to sin, pluck it out. It is better for you to enter the kingdom of God with one eye, rather than having two eyes, to be cast into hell fire-- 
 
 ###### 48 
-where 'Their worm does not die And the fire is not quenched.' ## Tasteless Salt Is Worthless 
+where 'Their worm does not die And the fire is not quenched.' 
+
+## Tasteless Salt Is Worthless 
 
 ###### 49 
 "For everyone will be seasoned with fire, and every sacrifice will be seasoned with salt. 

@@ -140,7 +140,9 @@ Bakit nʼyo po ipinapakita sa akin ang mga kasamaan at kaguluhan? Kahit saan ay 
 
 
 
-Kaya naging walang kabuluhan ang kautusan. At wala ring katarungan dahil ang mga taong may kasalanan ang siyang nananalo sa korte, at hindi ang mga taong walang kasalanan. Kaya nababaluktot ang katarungan." ## Ang Sagot ng Dios kay Habakuk 
+Kaya naging walang kabuluhan ang kautusan. At wala ring katarungan dahil ang mga taong may kasalanan ang siyang nananalo sa korte, at hindi ang mga taong walang kasalanan. Kaya nababaluktot ang katarungan." 
+
+## Ang Sagot ng Dios kay Habakuk 
 
 
 
@@ -371,7 +373,9 @@ Hinahamak nila ang mga hari at mga pinuno. Tinatawanan lamang nila ang mga napap
 
 
 
-Pagkatapos, aalis sila na parang hangin lang na dumaan. Nagkasala sila, dahil wala silang kinikilalang dios kundi ang sariling kakayahan." ## Ang Pangalawang Hinaing ni Habakuk 
+Pagkatapos, aalis sila na parang hangin lang na dumaan. Nagkasala sila, dahil wala silang kinikilalang dios kundi ang sariling kakayahan." 
+
+## Ang Pangalawang Hinaing ni Habakuk 
 
 
 

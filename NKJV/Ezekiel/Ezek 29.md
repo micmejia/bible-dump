@@ -55,7 +55,9 @@ I will bring back the captives of Egypt and cause them to return to the land of 
 It shall be the lowliest of kingdoms; it shall never again exalt itself above the nations, for I will diminish them so that they will not rule over the nations anymore. 
 
 ###### 16 
-No longer shall it be the confidence of the house of Israel, but will remind them of their iniquity when they turned to follow them. Then they shall know that I am the Lord God." ' " ## Babylonia Will Plunder Egypt 
+No longer shall it be the confidence of the house of Israel, but will remind them of their iniquity when they turned to follow them. Then they shall know that I am the Lord God." ' " 
+
+## Babylonia Will Plunder Egypt 
 
 ###### 17 
 And it came to pass in the twenty-seventh year, in the first month, on the first day of the month, that the word of the Lord came to me, saying, 

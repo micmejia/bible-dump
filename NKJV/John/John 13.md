@@ -116,7 +116,9 @@ Little children, I shall be with you a little while longer. You will seek Me; an
 A new commandment I give to you, that you love one another; as I have loved you, that you also love one another. 
 
 ###### 35 
-By this all will know that you are My disciples, if you have love for one another." ## Jesus Predicts Peter's Denial 
+By this all will know that you are My disciples, if you have love for one another." 
+
+## Jesus Predicts Peter's Denial 
 
 ###### 36 
 Simon Peter said to Him, "Lord, where are You going?" Jesus answered him, "Where I am going you cannot follow Me now, but you shall follow Me afterward." 

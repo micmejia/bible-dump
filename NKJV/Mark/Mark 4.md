@@ -34,7 +34,9 @@ And some seed fell among thorns; and the thorns grew up and choked it, and it yi
 But other seed fell on good ground and yielded a crop that sprang up, increased and produced: some thirtyfold, some sixty, and some a hundred." 
 
 ###### 9 
-And He said to them, "He who has ears to hear, let him hear!" ## The Purpose of Parables 
+And He said to them, "He who has ears to hear, let him hear!" 
+
+## The Purpose of Parables 
 
 ###### 10 
 But when He was alone, those around Him with the twelve asked Him about the parable. 
@@ -43,7 +45,9 @@ But when He was alone, those around Him with the twelve asked Him about the para
 And He said to them, "To you it has been given to know the mystery of the kingdom of God; but to those who are outside, all things come in parables, 
 
 ###### 12 
-so that 'Seeing they may see and not perceive, And hearing they may hear and not understand; Lest they should turn, And their sins be forgiven them.' " ## The Parable of the Sower Explained 
+so that 'Seeing they may see and not perceive, And hearing they may hear and not understand; Lest they should turn, And their sins be forgiven them.' " 
+
+## The Parable of the Sower Explained 
 
 ###### 13 
 And He said to them, "Do you not understand this parable? How then will you understand all the parables? 
@@ -67,7 +71,9 @@ Now these are the ones sown among thorns; they are the ones who hear the word,
 and the cares of this world, the deceitfulness of riches, and the desires for other things entering in choke the word, and it becomes unfruitful. 
 
 ###### 20 
-But these are the ones sown on good ground, those who hear the word, accept it, and bear fruit: some thirtyfold, some sixty, and some a hundred." ## Light Under a Basket 
+But these are the ones sown on good ground, those who hear the word, accept it, and bear fruit: some thirtyfold, some sixty, and some a hundred." 
+
+## Light Under a Basket 
 
 ###### 21 
 Also He said to them, "Is a lamp brought to be put under a basket or under a bed? Is it not to be set on a lampstand? 
@@ -82,7 +88,9 @@ If anyone has ears to hear, let him hear."
 Then He said to them, "Take heed what you hear. With the same measure you use, it will be measured to you; and to you who hear, more will be given. 
 
 ###### 25 
-For whoever has, to him more will be given; but whoever does not have, even what he has will be taken away from him." ## The Parable of the Growing Seed 
+For whoever has, to him more will be given; but whoever does not have, even what he has will be taken away from him." 
+
+## The Parable of the Growing Seed 
 
 ###### 26 
 And He said, "The kingdom of God is as if a man should scatter seed on the ground, 
@@ -94,7 +102,9 @@ and should sleep by night and rise by day, and the seed should sprout and grow, 
 For the earth yields crops by itself: first the blade, then the head, after that the full grain in the head. 
 
 ###### 29 
-But when the grain ripens, immediately he puts in the sickle, because the harvest has come." ## The Parable of the Mustard Seed 
+But when the grain ripens, immediately he puts in the sickle, because the harvest has come." 
+
+## The Parable of the Mustard Seed 
 
 ###### 30 
 Then He said, "To what shall we liken the kingdom of God? Or with what parable shall we picture it? 
@@ -103,7 +113,9 @@ Then He said, "To what shall we liken the kingdom of God? Or with what parable s
 It is like a mustard seed which, when it is sown on the ground, is smaller than all the seeds on earth; 
 
 ###### 32 
-but when it is sown, it grows up and becomes greater than all herbs, and shoots out large branches, so that the birds of the air may nest under its shade." ## Jesus' Use of Parables 
+but when it is sown, it grows up and becomes greater than all herbs, and shoots out large branches, so that the birds of the air may nest under its shade." 
+
+## Jesus' Use of Parables 
 
 ###### 33 
 And with many such parables He spoke the word to them as they were able to hear it. 

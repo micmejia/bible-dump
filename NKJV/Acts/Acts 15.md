@@ -22,7 +22,9 @@ So, being sent on their way by the church, they passed through Phoenicia and Sam
 And when they had come to Jerusalem, they were received by the church and the apostles and the elders; and they reported all things that God had done with them. 
 
 ###### 5 
-But some of the sect of the Pharisees who believed rose up, saying, "It is necessary to circumcise them, and to command them to keep the law of Moses." ## The Jerusalem Council 
+But some of the sect of the Pharisees who believed rose up, saying, "It is necessary to circumcise them, and to command them to keep the law of Moses." 
+
+## The Jerusalem Council 
 
 ###### 6 
 Now the apostles and elders came together to consider this matter. 
@@ -70,7 +72,9 @@ Therefore I judge that we should not trouble those from among the Gentiles who a
 but that we write to them to abstain from things polluted by idols, from sexual immorality, from things strangled, and from blood. 
 
 ###### 21 
-For Moses has had throughout many generations those who preach him in every city, being read in the synagogues every Sabbath." ## The Jerusalem Decree 
+For Moses has had throughout many generations those who preach him in every city, being read in the synagogues every Sabbath." 
+
+## The Jerusalem Decree 
 
 ###### 22 
 Then it pleased the apostles and elders, with the whole church, to send chosen men of their own company to Antioch with Paul and Barnabas, namely, Judas who was also named Barsabas, and Silas, leading men among the brethren. 

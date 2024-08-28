@@ -13,7 +13,9 @@ next: ['2 Chr 7']
 Then Solomon spoke: "The Lord said He would dwell in the dark cloud. 
 
 ###### 2 
-I have surely built You an exalted house, And a place for You to dwell in forever." ## Solomon's Speech upon Completion of the Work 
+I have surely built You an exalted house, And a place for You to dwell in forever." 
+
+## Solomon's Speech upon Completion of the Work 
 
 ###### 3 
 Then the king turned around and blessed the whole assembly of Israel, while all the assembly of Israel was standing. 
@@ -40,7 +42,9 @@ Nevertheless you shall not build the temple, but your son who will come from you
 So the Lord has fulfilled His word which He spoke, and I have filled the position of my father David, and sit on the throne of Israel, as the Lord promised; and I have built the temple for the name of the Lord God of Israel. 
 
 ###### 11 
-And there I have put the ark, in which _is_ the covenant of the Lord which He made with the children of Israel." ## Solomon's Prayer of Dedication 
+And there I have put the ark, in which _is_ the covenant of the Lord which He made with the children of Israel." 
+
+## Solomon's Prayer of Dedication 
 
 ###### 12 
 Then _Solomon_ stood before the altar of the Lord in the presence of all the assembly of Israel, and spread out his hands 

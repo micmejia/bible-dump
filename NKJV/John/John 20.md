@@ -80,7 +80,9 @@ So Jesus said to them again, "Peace to you! As the Father has sent Me, I also se
 And when He had said this, He breathed on them, and said to them, "Receive the Holy Spirit. 
 
 ###### 23 
-If you forgive the sins of any, they are forgiven them; if you retain the sins of any, they are retained." ## Seeing and Believing 
+If you forgive the sins of any, they are forgiven them; if you retain the sins of any, they are retained." 
+
+## Seeing and Believing 
 
 ###### 24 
 Now Thomas, called the Twin, one of the twelve, was not with them when Jesus came. 
@@ -98,7 +100,9 @@ Then He said to Thomas, "Reach your finger here, and look at My hands; and reach
 And Thomas answered and said to Him, "My Lord and my God!" 
 
 ###### 29 
-Jesus said to him, "Thomas, because you have seen Me, you have believed. Blessed are those who have not seen and yet have believed." ## That You May Believe 
+Jesus said to him, "Thomas, because you have seen Me, you have believed. Blessed are those who have not seen and yet have believed." 
+
+## That You May Believe 
 
 ###### 30 
 And truly Jesus did many other signs in the presence of His disciples, which are not written in this book; 

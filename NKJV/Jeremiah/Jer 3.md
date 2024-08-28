@@ -22,7 +22,9 @@ Therefore the showers have been withheld, And there has been no latter rain. You
 Will you not from this time cry to Me, 'My Father, You are the guide of my youth? 
 
 ###### 5 
-Will He remain angry forever? Will He keep it to the end?' Behold, you have spoken and done evil things, As you were able." ## A Call to Repentance 
+Will He remain angry forever? Will He keep it to the end?' Behold, you have spoken and done evil things, As you were able." 
+
+## A Call to Repentance 
 
 ###### 6 
 The Lord said also to me in the days of Josiah the king: "Have you seen what backsliding Israel has done? She has gone up on every high mountain and under every green tree, and there played the harlot. 

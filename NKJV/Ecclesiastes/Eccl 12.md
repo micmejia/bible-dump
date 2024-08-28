@@ -30,7 +30,9 @@ _Remember your Creator_ before the silver cord is loosed, Or the golden bowl is 
 Then the dust will return to the earth as it was, And the spirit will return to God who gave it. 
 
 ###### 8 
-"Vanity of vanities," says the Preacher, "All _is_ vanity." ## The Whole Duty of Man 
+"Vanity of vanities," says the Preacher, "All _is_ vanity." 
+
+## The Whole Duty of Man 
 
 ###### 9 
 And moreover, because the Preacher was wise, he still taught the people knowledge; yes, he pondered and sought out _and_ set in order many proverbs. 

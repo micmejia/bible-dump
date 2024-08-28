@@ -60,7 +60,9 @@ The altar hearth is four cubits high, with four horns extending upward from the 
 The altar hearth is twelve cubits long, twelve wide, square at its four corners; 
 
 ###### 17 
-the ledge, fourteen cubits long and fourteen wide on its four sides, with a rim of half a cubit around it; its base, one cubit all around; and its steps face toward the east." ## Consecrating the Altar 
+the ledge, fourteen cubits long and fourteen wide on its four sides, with a rim of half a cubit around it; its base, one cubit all around; and its steps face toward the east." 
+
+## Consecrating the Altar 
 
 ###### 18 
 And He said to me, "Son of man, thus says the Lord God: 'These are the ordinances for the altar on the day when it is made, for sacrificing burnt offerings on it, and for sprinkling blood on it. 

@@ -28,7 +28,9 @@ Remember therefore from where you have fallen; repent and do the first works, or
 But this you have, that you hate the deeds of the Nicolaitans, which I also hate. 
 
 ###### 7 
-"He who has an ear, let him hear what the Spirit says to the churches. To him who overcomes I will give to eat from the tree of life, which is in the midst of the Paradise of God." ' ## The Persecuted Church 
+"He who has an ear, let him hear what the Spirit says to the churches. To him who overcomes I will give to eat from the tree of life, which is in the midst of the Paradise of God." ' 
+
+## The Persecuted Church 
 
 ###### 8 
 "And to the angel of the church in Smyrna write, 'These things says the First and the Last, who was dead, and came to life: 
@@ -40,7 +42,9 @@ But this you have, that you hate the deeds of the Nicolaitans, which I also hate
 Do not fear any of those things which you are about to suffer. Indeed, the devil is about to throw some of you into prison, that you may be tested, and you will have tribulation ten days. Be faithful until death, and I will give you the crown of life. 
 
 ###### 11 
-"He who has an ear, let him hear what the Spirit says to the churches. He who overcomes shall not be hurt by the second death." ' ## The Compromising Church 
+"He who has an ear, let him hear what the Spirit says to the churches. He who overcomes shall not be hurt by the second death." ' 
+
+## The Compromising Church 
 
 ###### 12 
 "And to the angel of the church in Pergamos write, 'These things says He who has the sharp two-edged sword: 
@@ -58,7 +62,9 @@ Thus you also have those who hold the doctrine of the Nicolaitans, which thing I
 Repent, or else I will come to you quickly and will fight against them with the sword of My mouth. 
 
 ###### 17 
-"He who has an ear, let him hear what the Spirit says to the churches. To him who overcomes I will give some of the hidden manna to eat. And I will give him a white stone, and on the stone a new name written which no one knows except him who receives it." ' ## The Corrupt Church 
+"He who has an ear, let him hear what the Spirit says to the churches. To him who overcomes I will give some of the hidden manna to eat. And I will give him a white stone, and on the stone a new name written which no one knows except him who receives it." ' 
+
+## The Corrupt Church 
 
 ###### 18 
 "And to the angel of the church in Thyatira write, 'These things says the Son of God, who has eyes like a flame of fire, and His feet like fine brass: 

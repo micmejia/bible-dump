@@ -31,7 +31,9 @@ In His days Judah will be saved, And Israel will dwell safely; Now this is His n
 "Therefore, behold, the days are coming," says the Lord, "that they shall no longer say, 'As the Lord lives who brought up the children of Israel from the land of Egypt,' 
 
 ###### 8 
-but, 'As the Lord lives who brought up and led the descendants of the house of Israel from the north country and from all the countries where I had driven them.' And they shall dwell in their own land." ## False Prophets and Empty Oracles 
+but, 'As the Lord lives who brought up and led the descendants of the house of Israel from the north country and from all the countries where I had driven them.' And they shall dwell in their own land." 
+
+## False Prophets and Empty Oracles 
 
 ###### 9 
 My heart within me is broken Because of the prophets; All my bones shake. I am like a drunken man, And like a man whom wine has overcome, Because of the Lord, And because of His holy words. 

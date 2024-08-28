@@ -37,7 +37,9 @@ My sheep wandered through all the mountains, and on every high hill; yes, My flo
 therefore, O shepherds, hear the word of the Lord! 
 
 ###### 10 
-Thus says the Lord God: "Behold, I am against the shepherds, and I will require My flock at their hand; I will cause them to cease feeding the sheep, and the shepherds shall feed themselves no more; for I will deliver My flock from their mouths, that they may no longer be food for them." ## God, the True Shepherd 
+Thus says the Lord God: "Behold, I am against the shepherds, and I will require My flock at their hand; I will cause them to cease feeding the sheep, and the shepherds shall feed themselves no more; for I will deliver My flock from their mouths, that they may no longer be food for them." 
+
+## God, the True Shepherd 
 
 ###### 11 
 'For thus says the Lord God: "Indeed I Myself will search for My sheep and seek them out. 

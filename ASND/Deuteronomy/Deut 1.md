@@ -270,7 +270,9 @@ kaya umalis na kayo. Pumunta kayo sa kaburulan ng mga Amoreo at sa mga lugar sa 
 
 
 
-Ibinibigay ko ang mga lupaing ito sa inyo. Lumakad na kayo at angkinin ang mga lugar na ito na ipinangako ko sa inyong mga ninunong sina Abraham, Isaac, at Jacob, at sa kanilang salinlahi.' " ## Humirang si Moises ng mga Pinuno sa Bawat Lahi 
+Ibinibigay ko ang mga lupaing ito sa inyo. Lumakad na kayo at angkinin ang mga lugar na ito na ipinangako ko sa inyong mga ninunong sina Abraham, Isaac, at Jacob, at sa kanilang salinlahi.' " 
+
+## Humirang si Moises ng mga Pinuno sa Bawat Lahi 
 
 
 

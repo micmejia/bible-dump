@@ -238,7 +238,9 @@ Sinabi niya, "Ikaw na lingkod ko, marami pang mga gawain ang ipapagawa ko sa iyo
 
 
 
-Ang Panginoon, ang Tagapagligtas at Banal na Dios ng Israel ay nagsabi sa taong hinahamak at kinasusuklaman ng mga bansa at ng lingkod ng mga pinuno, "Makikita ng mga hari kung sino kang talaga at tatayo sila para magbigay galang sa iyo. Ang mga pinuno ay yuyuko sa iyo. Mangyayari ito dahil sa akin, ang Panginoong tapat, ang Banal na Dios ng Israel. Ako ang pumili sa iyo." ## Muling Itatayo ang Jerusalem 
+Ang Panginoon, ang Tagapagligtas at Banal na Dios ng Israel ay nagsabi sa taong hinahamak at kinasusuklaman ng mga bansa at ng lingkod ng mga pinuno, "Makikita ng mga hari kung sino kang talaga at tatayo sila para magbigay galang sa iyo. Ang mga pinuno ay yuyuko sa iyo. Mangyayari ito dahil sa akin, ang Panginoong tapat, ang Banal na Dios ng Israel. Ako ang pumili sa iyo." 
+
+## Muling Itatayo ang Jerusalem 
 
 
 

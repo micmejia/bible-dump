@@ -85,7 +85,9 @@ God is Spirit, and those who worship Him must worship in spirit and truth."
 The woman said to Him, "I know that Messiah is coming" (who is called Christ). "When He comes, He will tell us all things." 
 
 ###### 26 
-Jesus said to her, "I who speak to you am He." ## The Whitened Harvest 
+Jesus said to her, "I who speak to you am He." 
+
+## The Whitened Harvest 
 
 ###### 27 
 And at this point His disciples came, and they marveled that He talked with a woman; yet no one said, "What do You seek?" or, "Why are You talking with her?" 
@@ -121,7 +123,9 @@ And he who reaps receives wages, and gathers fruit for eternal life, that both h
 For in this the saying is true: 'One sows and another reaps.' 
 
 ###### 38 
-I sent you to reap that for which you have not labored; others have labored, and you have entered into their labors." ## The Savior of the World 
+I sent you to reap that for which you have not labored; others have labored, and you have entered into their labors." 
+
+## The Savior of the World 
 
 ###### 39 
 And many of the Samaritans of that city believed in Him because of the word of the woman who testified, "He told me all that I ever did." 
@@ -133,7 +137,9 @@ So when the Samaritans had come to Him, they urged Him to stay with them; and He
 And many more believed because of His own word. 
 
 ###### 42 
-Then they said to the woman, "Now we believe, not because of what you said, for we ourselves have heard Him and we know that this is indeed the Christ, the Savior of the world." ## Welcome at Galilee 
+Then they said to the woman, "Now we believe, not because of what you said, for we ourselves have heard Him and we know that this is indeed the Christ, the Savior of the world." 
+
+## Welcome at Galilee 
 
 ###### 43 
 Now after the two days He departed from there and went to Galilee. 

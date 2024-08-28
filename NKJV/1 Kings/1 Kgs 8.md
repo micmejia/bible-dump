@@ -46,7 +46,9 @@ so that the priests could not continue ministering because of the cloud; for the
 Then Solomon spoke: "The Lord said He would dwell in the dark cloud. 
 
 ###### 13 
-I have surely built You an exalted house, And a place for You to dwell in forever." ## Solomon's Speech at Completion of the Work 
+I have surely built You an exalted house, And a place for You to dwell in forever." 
+
+## Solomon's Speech at Completion of the Work 
 
 ###### 14 
 Then the king turned around and blessed the whole assembly of Israel, while all the assembly of Israel was standing. 
@@ -70,7 +72,9 @@ Nevertheless you shall not build the temple, but your son who will come from you
 So the Lord has fulfilled His word which He spoke; and I have filled the position of my father David, and sit on the throne of Israel, as the Lord promised; and I have built a temple for the name of the Lord God of Israel. 
 
 ###### 21 
-And there I have made a place for the ark, in which _is_ the covenant of the Lord which He made with our fathers, when He brought them out of the land of Egypt." ## Solomon's Prayer of Dedication 
+And there I have made a place for the ark, in which _is_ the covenant of the Lord which He made with our fathers, when He brought them out of the land of Egypt." 
+
+## Solomon's Prayer of Dedication 
 
 ###### 22 
 Then Solomon stood before the altar of the Lord in the presence of all the assembly of Israel, and spread out his hands toward heaven; 
@@ -166,7 +170,9 @@ and forgive Your people who have sinned against You, and all their transgression
 that Your eyes may be open to the supplication of Your servant and the supplication of Your people Israel, to listen to them whenever they call to You. 
 
 ###### 53 
-For You separated them from among all the peoples of the earth _to be_ Your inheritance, as You spoke by Your servant Moses, when You brought our fathers out of Egypt, O Lord God." ## Solomon Blesses the Assembly 
+For You separated them from among all the peoples of the earth _to be_ Your inheritance, as You spoke by Your servant Moses, when You brought our fathers out of Egypt, O Lord God." 
+
+## Solomon Blesses the Assembly 
 
 ###### 54 
 And so it was, when Solomon had finished praying all this prayer and supplication to the Lord, that he arose from before the altar of the Lord, from kneeling on his knees with his hands spread up to heaven. 
@@ -190,7 +196,9 @@ And may these words of mine, with which I have made supplication before the Lord
 that all the peoples of the earth may know that the Lord _is_ God; _there is_ no other. 
 
 ###### 61 
-Let your heart therefore be loyal to the Lord our God, to walk in His statutes and keep His commandments, as at this day." ## Solomon Dedicates the Temple 
+Let your heart therefore be loyal to the Lord our God, to walk in His statutes and keep His commandments, as at this day." 
+
+## Solomon Dedicates the Temple 
 
 ###### 62 
 Then the king and all Israel with him offered sacrifices before the Lord. 

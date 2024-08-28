@@ -469,7 +469,9 @@ Kaya sinabi ng hari sa kanyang mga utusan, 'Talian ninyo ang mga kamay at paa ni
 
 
 
-Pagkatapos, sinabi ni Jesus, "Marami ang tinatawag ng Dios na mapabilang sa kanyang kaharian, ngunit kakaunti ang pinili." ## Ang Tanong tungkol sa Pagbabayad ng Buwis 
+Pagkatapos, sinabi ni Jesus, "Marami ang tinatawag ng Dios na mapabilang sa kanyang kaharian, ngunit kakaunti ang pinili." 
+
+## Ang Tanong tungkol sa Pagbabayad ng Buwis 
 
 
 
@@ -1331,7 +1333,9 @@ At ang ikalawang pinakamahalagang utos ay katulad din nito: 'Mahalin mo ang iyon
 
 
 
-Ang buong Kautusan ni Moises at ang mga isinulat ng mga propeta ay nakasalalay sa dalawang utos na ito." ## Ang Tanong tungkol sa Cristo 
+Ang buong Kautusan ni Moises at ang mga isinulat ng mga propeta ay nakasalalay sa dalawang utos na ito." 
+
+## Ang Tanong tungkol sa Cristo 
 
 
 

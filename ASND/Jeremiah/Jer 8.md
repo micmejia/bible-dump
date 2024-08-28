@@ -106,7 +106,9 @@ Pagkatapos, ikakalat ito sa lupain na nakabilad sa init ng araw, sa liwanag ng b
 
 
 
-Ang natitirang buhay sa masamang bansang ito ay ipapangalat ko sa ibang mga bansa, at doon ay gugustuhin pa nilang mamatay kaysa sa mabuhay. Ako, ang Panginoong Makapangyarihan, ang nagsasabi nito." ## Ang Kasalanan at ang Kaparusahan 
+Ang natitirang buhay sa masamang bansang ito ay ipapangalat ko sa ibang mga bansa, at doon ay gugustuhin pa nilang mamatay kaysa sa mabuhay. Ako, ang Panginoong Makapangyarihan, ang nagsasabi nito." 
+
+## Ang Kasalanan at ang Kaparusahan 
 
 
 

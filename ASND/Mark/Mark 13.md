@@ -73,7 +73,9 @@ Nang paalis na sina Jesus sa templo, sinabi ng isa sa mga tagasunod niya, "Guro,
 
 
 
-Sinabi ni Jesus sa kanya, "Ang templong ito na nakikita ninyo ngayon, na gawa sa malalaking bato, ay siguradong magigiba at walang maiiwang magkapatong na bato!" ## Mga Paghihirap at Pag-uusig na Darating 
+Sinabi ni Jesus sa kanya, "Ang templong ito na nakikita ninyo ngayon, na gawa sa malalaking bato, ay siguradong magigiba at walang maiiwang magkapatong na bato!" 
+
+## Mga Paghihirap at Pag-uusig na Darating 
 
 
 
@@ -436,7 +438,9 @@ Sa panahong iyon, may mga taong ipagkakanulo ang kanilang kapatid para patayin. 
 
 
 
-Kapopootan kayo ng lahat dahil sa pagsunod ninyo sa akin. Ngunit ang mananatiling tapat hanggang wakas ay maliligtas." ## Ang Kasuklam-suklam na Darating 
+Kapopootan kayo ng lahat dahil sa pagsunod ninyo sa akin. Ngunit ang mananatiling tapat hanggang wakas ay maliligtas." 
+
+## Ang Kasuklam-suklam na Darating 
 
 
 
@@ -766,7 +770,9 @@ Sapagkat lilitaw ang mga di tunay na Cristo at mga huwad na propeta. Magpapakita
 
 
 
-Kaya mag-ingat kayo! Binabalaan ko na kayo habang hindi pa nangyayari ang mga ito." ## Ang Pagbabalik ni Jesus sa Mundo 
+Kaya mag-ingat kayo! Binabalaan ko na kayo habang hindi pa nangyayari ang mga ito." 
+
+## Ang Pagbabalik ni Jesus sa Mundo 
 
 
 
@@ -898,7 +904,9 @@ At makikita nila ako na Anak ng Tao na dumarating mula sa mga ulap na taglay ang
 
 
 
-Ipapadala ko ang aking mga anghel sa lahat ng lugar sa mundo upang tipunin ang aking mga pinili." ## Ang Aral Mula sa Puno ng Igos 
+Ipapadala ko ang aking mga anghel sa lahat ng lugar sa mundo upang tipunin ang aking mga pinili." 
+
+## Ang Aral Mula sa Puno ng Igos 
 
 
 
@@ -1030,7 +1038,9 @@ Sinasabi ko sa inyo ang totoo, matutupad ang lahat ng ito bago mawala ang henera
 
 
 
-"Ang langit at ang lupa ay maglalaho, ngunit ang mga salita ko ay mananatili magpakailanman." ## Walang Taong Nakakaalam Kung Kailan Babalik si Jesus 
+"Ang langit at ang lupa ay maglalaho, ngunit ang mga salita ko ay mananatili magpakailanman." 
+
+## Walang Taong Nakakaalam Kung Kailan Babalik si Jesus 
 
 
 

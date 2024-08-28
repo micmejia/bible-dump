@@ -16,7 +16,9 @@ Then Moses gathered all the congregation of the children of Israel together, and
 Work shall be done for six days, but the seventh day shall be a holy day for you, a Sabbath of rest to the Lord. Whoever does any work on it shall be put to death. 
 
 ###### 3 
-You shall kindle no fire throughout your dwellings on the Sabbath day." ## Offerings for the Tabernacle 
+You shall kindle no fire throughout your dwellings on the Sabbath day." 
+
+## Offerings for the Tabernacle 
 
 ###### 4 
 And Moses spoke to all the congregation of the children of Israel, saying, "This _is_ the thing which the Lord commanded, saying: 
@@ -66,7 +68,9 @@ the hangings of the court, its pillars, their sockets, and the screen for the ga
 the pegs of the tabernacle, the pegs of the court, and their cords; 
 
 ###### 19 
-the garments of ministry, for ministering in the holy _place_--the holy garments for Aaron the priest and the garments of his sons, to minister as priests.' " ## The Tabernacle Offerings Presented 
+the garments of ministry, for ministering in the holy _place_--the holy garments for Aaron the priest and the garments of his sons, to minister as priests.' " 
+
+## The Tabernacle Offerings Presented 
 
 ###### 20 
 And all the congregation of the children of Israel departed from the presence of Moses. 

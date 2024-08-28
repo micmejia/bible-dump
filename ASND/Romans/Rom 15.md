@@ -704,7 +704,9 @@ Ang tanging nais koʼy maipangaral ang Magandang Balita sa mga lugar na hindi pa
 
 
 
-Sinasabi sa Kasulatan, "Makikilala siya ng mga hindi pa nasasabihan ng tungkol sa kanya. Makakaunawa ang mga hindi pa nakakarinig." ## Ang Plano ni Pablo na Pagpunta sa Roma 
+Sinasabi sa Kasulatan, "Makikilala siya ng mga hindi pa nasasabihan ng tungkol sa kanya. Makakaunawa ang mga hindi pa nakakarinig." 
+
+## Ang Plano ni Pablo na Pagpunta sa Roma 
 
 
 

@@ -40,7 +40,9 @@ next: ['Hab 3']
 
 
 
-Sinabi ni Habakuk, "Aakyat ako sa tore, sa aking bantayan at hihintayin ko kung ano ang sasabihin sa akin ng Panginoon at kung ano ang kanyang sagot sa aking hinaing." ## Ang Sagot ng Dios kay Habakuk 
+Sinabi ni Habakuk, "Aakyat ako sa tore, sa aking bantayan at hihintayin ko kung ano ang sasabihin sa akin ng Panginoon at kung ano ang kanyang sagot sa aking hinaing." 
+
+## Ang Sagot ng Dios kay Habakuk 
 
 
 

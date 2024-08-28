@@ -271,7 +271,9 @@ Ang mga magtatagumpay ay gagawin kong mga anak ko, at akoʼy magiging Dios nila.
 
 
 
-Pero nakakatakot ang sasapitin ng mga duwag, mga ayaw sumampalataya sa akin, marurumi ang gawain, mga mamamatay-tao, mga imoral, mga mangkukulam, mga sumasamba sa mga dios-diosan, at lahat ng sinungaling. Itatapon sila sa nagliliyab na lawang apoy at asupre, na siyang ikalawang kamatayan." ## Ang Bagong Jerusalem 
+Pero nakakatakot ang sasapitin ng mga duwag, mga ayaw sumampalataya sa akin, marurumi ang gawain, mga mamamatay-tao, mga imoral, mga mangkukulam, mga sumasamba sa mga dios-diosan, at lahat ng sinungaling. Itatapon sila sa nagliliyab na lawang apoy at asupre, na siyang ikalawang kamatayan." 
+
+## Ang Bagong Jerusalem 
 
 
 

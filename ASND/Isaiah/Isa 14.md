@@ -768,7 +768,9 @@ Sinabi ng Panginoong Makapangyarihan, "Lulusubin ko at wawasakin ang Babilonia. 
 
 
 
-Gagawin ko itong ilang, na may maraming latian, at gigibain ko na parang winalisan. Ako, ang Panginoong Makapangyarihan, ang nagsasabi nito." ## Ang Mensahe tungkol sa Asiria 
+Gagawin ko itong ilang, na may maraming latian, at gigibain ko na parang winalisan. Ako, ang Panginoong Makapangyarihan, ang nagsasabi nito." 
+
+## Ang Mensahe tungkol sa Asiria 
 
 
 
@@ -900,7 +902,9 @@ Ito ang binabalak kong gawin sa buong mundo. Ganito ang parusang ipapakita ko sa
 
 
 
-Sino ang makakapagbago ng plano ng Panginoong Makapangyarihan? Sino ang makakapigil sa kanyang pagpaparusa? ## Ang Mensahe tungkol sa mga Filisteo 
+Sino ang makakapagbago ng plano ng Panginoong Makapangyarihan? Sino ang makakapigil sa kanyang pagpaparusa? 
+
+## Ang Mensahe tungkol sa mga Filisteo 
 
 
 

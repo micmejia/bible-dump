@@ -87,7 +87,9 @@ For he has gone down today, and has sacrificed oxen and fattened cattle and shee
 But he has not invited me--me your servant--nor Zadok the priest, nor Benaiah the son of Jehoiada, nor your servant Solomon. 
 
 ###### 27 
-Has this thing been done by my lord the king, and you have not told your servant who should sit on the throne of my lord the king after him?" ## David Proclaims Solomon King 
+Has this thing been done by my lord the king, and you have not told your servant who should sit on the throne of my lord the king after him?" 
+
+## David Proclaims Solomon King 
 
 ###### 28 
 Then King David answered and said, "Call Bathsheba to me." So she came into the king's presence and stood before the king. 

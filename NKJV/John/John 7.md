@@ -81,7 +81,9 @@ Moses therefore gave you circumcision (not that it is from Moses, but from the f
 If a man receives circumcision on the Sabbath, so that the law of Moses should not be broken, are you angry with Me because I made a man completely well on the Sabbath? 
 
 ###### 24 
-Do not judge according to appearance, but judge with righteous judgment." ## Could This Be the Christ? 
+Do not judge according to appearance, but judge with righteous judgment." 
+
+## Could This Be the Christ? 
 
 ###### 25 
 Now some of them from Jerusalem said, "Is this not He whom they seek to kill? 
@@ -102,7 +104,9 @@ But I know Him, for I am from Him, and He sent Me."
 Therefore they sought to take Him; but no one laid a hand on Him, because His hour had not yet come. 
 
 ###### 31 
-And many of the people believed in Him, and said, "When the Christ comes, will He do more signs than these which this Man has done?" ## Jesus and the Religious Leaders 
+And many of the people believed in Him, and said, "When the Christ comes, will He do more signs than these which this Man has done?" 
+
+## Jesus and the Religious Leaders 
 
 ###### 32 
 The Pharisees heard the crowd murmuring these things concerning Him, and the Pharisees and the chief priests sent officers to take Him. 
@@ -117,7 +121,9 @@ You will seek Me and not find Me, and where I am you cannot come."
 Then the Jews said among themselves, "Where does He intend to go that we shall not find Him? Does He intend to go to the Dispersion among the Greeks and teach the Greeks? 
 
 ###### 36 
-What is this thing that He said, 'You will seek Me and not find Me, and where I am you cannot come'?" ## The Promise of the Holy Spirit 
+What is this thing that He said, 'You will seek Me and not find Me, and where I am you cannot come'?" 
+
+## The Promise of the Holy Spirit 
 
 ###### 37 
 On the last day, that great day of the feast, Jesus stood and cried out, saying, "If anyone thirsts, let him come to Me and drink. 
@@ -169,7 +175,9 @@ Nicodemus (he who came to Jesus by night, being one of them) said to them,
 "Does our law judge a man before it hears him and knows what he is doing?" 
 
 ###### 52 
-They answered and said to him, "Are you also from Galilee? Search and look, for no prophet has arisen out of Galilee." ## An Adulteress Faces the Light of the World 
+They answered and said to him, "Are you also from Galilee? Search and look, for no prophet has arisen out of Galilee." 
+
+## An Adulteress Faces the Light of the World 
 
 ###### 53 
 And everyone went to his own house.

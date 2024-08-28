@@ -403,7 +403,9 @@ Sinabi niya sa kanila, "Kung hiwalayan ng isang lalaki ang kanyang asawa at mag-
 
 
 
-At kung hiwalayan ng isang babae ang kanyang asawa at mag-asawa ng iba ay nagkasala rin ng pangangalunya." ## Pinagpala ni Jesus ang Maliliit na Bata 
+At kung hiwalayan ng isang babae ang kanyang asawa at mag-asawa ng iba ay nagkasala rin ng pangangalunya." 
+
+## Pinagpala ni Jesus ang Maliliit na Bata 
 
 
 
@@ -1032,7 +1034,9 @@ ay tatanggap sa panahong ito ng mas marami pa kaysa sa kanyang iniwan: mga bahay
 
 
 
-Maraming dakila ngayon na magiging hamak, at maraming hamak ngayon na magiging dakila." ## Ang Ikatlong Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
+Maraming dakila ngayon na magiging hamak, at maraming hamak ngayon na magiging dakila." 
+
+## Ang Ikatlong Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
 
 
 
@@ -1131,7 +1135,9 @@ Habang naglalakad sila papuntang Jerusalem, nauna sa kanila si Jesus. Kinakabaha
 
 
 
-Iinsultuhin nila ako, duduraan, hahagupitin at papatayin. Ngunit muli akong mabubuhay pagkalipas ng tatlong araw." ## Ang Kahilingan nina Santiago at Juan 
+Iinsultuhin nila ako, duduraan, hahagupitin at papatayin. Ngunit muli akong mabubuhay pagkalipas ng tatlong araw." 
+
+## Ang Kahilingan nina Santiago at Juan 
 
 
 
@@ -1494,7 +1500,9 @@ At ang sinuman sa inyo na gustong maging pinuno ay dapat maging alipin ng lahat.
 
 
 
-Sapagkat kahit ako, na Anak ng Tao ay naparito sa mundo, hindi upang paglingkuran kundi upang maglingkod at magbigay ng aking buhay para matubos ang maraming tao!" ## Pinagaling ni Jesus ang Bulag na si Bartimeus 
+Sapagkat kahit ako, na Anak ng Tao ay naparito sa mundo, hindi upang paglingkuran kundi upang maglingkod at magbigay ng aking buhay para matubos ang maraming tao!" 
+
+## Pinagaling ni Jesus ang Bulag na si Bartimeus 
 
 
 

@@ -535,7 +535,9 @@ Nang hindi pa kami pinapayagan ng Faraon na umalis, pinatay ng Panginoon ang lah
 
 
 
-Ang seremonyang ito ay tulad ng tatak sa inyong mga kamay o sa inyong mga noo na magpapaalala sa inyo nang inilabas kayo ng Panginoon sa Egipto sa pamamagitan ng kanyang kapangyarihan." ## Ang Pagtawid ng mga Israelita sa Dagat na Pula 
+Ang seremonyang ito ay tulad ng tatak sa inyong mga kamay o sa inyong mga noo na magpapaalala sa inyo nang inilabas kayo ng Panginoon sa Egipto sa pamamagitan ng kanyang kapangyarihan." 
+
+## Ang Pagtawid ng mga Israelita sa Dagat na Pula 
 
 
 

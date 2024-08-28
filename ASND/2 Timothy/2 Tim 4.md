@@ -602,7 +602,9 @@ Ngunit hindi ako pinabayaan ng Panginoon; binigyan niya ako ng lakas para maipah
 
 
 
-Ililigtas ako ng Panginoon sa lahat ng kasamaan, at dadalhin niya akong ligtas sa kanyang kaharian sa langit. Purihin ang Dios magpakailanman! Amen! ## Mga Pangangamusta 
+Ililigtas ako ng Panginoon sa lahat ng kasamaan, at dadalhin niya akong ligtas sa kanyang kaharian sa langit. Purihin ang Dios magpakailanman! Amen! 
+
+## Mga Pangangamusta 
 
 
 

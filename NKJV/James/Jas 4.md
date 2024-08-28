@@ -25,7 +25,9 @@ Adulterers and adulteresses! Do you not know that friendship with the world is e
 Or do you think that the Scripture says in vain, "The Spirit who dwells in us yearns jealously"? 
 
 ###### 6 
-But He gives more grace. Therefore He says: "God resists the proud, But gives grace to the humble." ## Humility Cures Worldliness 
+But He gives more grace. Therefore He says: "God resists the proud, But gives grace to the humble." 
+
+## Humility Cures Worldliness 
 
 ###### 7 
 Therefore submit to God. Resist the devil and he will flee from you. 
@@ -45,7 +47,9 @@ Humble yourselves in the sight of the Lord, and He will lift you up.
 Do not speak evil of one another, brethren. He who speaks evil of a brother and judges his brother, speaks evil of the law and judges the law. But if you judge the law, you are not a doer of the law but a judge. 
 
 ###### 12 
-There is one Lawgiver, who is able to save and to destroy. Who are you to judge another? ## Do Not Boast About Tomorrow 
+There is one Lawgiver, who is able to save and to destroy. Who are you to judge another? 
+
+## Do Not Boast About Tomorrow 
 
 ###### 13 
 Come now, you who say, "Today or tomorrow we will go to such and such a city, spend a year there, buy and sell, and make a profit"; 

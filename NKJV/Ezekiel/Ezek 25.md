@@ -28,7 +28,9 @@ And I will make Rabbah a stable for camels and Ammon a resting place for flocks.
 'For thus says the Lord God: "Because you clapped your hands, stamped your feet, and rejoiced in heart with all your disdain for the land of Israel, 
 
 ###### 7 
-indeed, therefore, I will stretch out My hand against you, and give you as plunder to the nations; I will cut you off from the peoples, and I will cause you to perish from the countries; I will destroy you, and you shall know that I am the Lord." ## Proclamation Against Moab 
+indeed, therefore, I will stretch out My hand against you, and give you as plunder to the nations; I will cut you off from the peoples, and I will cause you to perish from the countries; I will destroy you, and you shall know that I am the Lord." 
+
+## Proclamation Against Moab 
 
 ###### 8 
 'Thus says the Lord God: "Because Moab and Seir say, 'Look! The house of Judah is like all the nations,' 
@@ -40,7 +42,9 @@ therefore, behold, I will clear the territory of Moab of cities, of the cities o
 To the men of the East I will give it as a possession, together with the Ammonites, that the Ammonites may not be remembered among the nations. 
 
 ###### 11 
-And I will execute judgments upon Moab, and they shall know that I am the Lord." ## Proclamation Against Edom 
+And I will execute judgments upon Moab, and they shall know that I am the Lord." 
+
+## Proclamation Against Edom 
 
 ###### 12 
 'Thus says the Lord God: "Because of what Edom did against the house of Judah by taking vengeance, and has greatly offended by avenging itself on them," 

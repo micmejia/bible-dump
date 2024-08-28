@@ -36,7 +36,9 @@ He who builds His layers in the sky, And has founded His strata in the earth; Wh
 "For surely I will command, And will sift the house of Israel among all nations, As grain is sifted in a sieve; Yet not the smallest grain shall fall to the ground. 
 
 ###### 10 
-All the sinners of My people shall die by the sword, Who say, 'The calamity shall not overtake nor confront us.' ## Israel Will Be Restored 
+All the sinners of My people shall die by the sword, Who say, 'The calamity shall not overtake nor confront us.' 
+
+## Israel Will Be Restored 
 
 ###### 11 
 "On that day I will raise up The tabernacle of David, which has fallen down, And repair its damages; I will raise up its ruins, And rebuild it as in the days of old; 

@@ -21,7 +21,9 @@ For this is the love of God, that we keep His commandments. And His commandments
 For whatever is born of God overcomes the world. And this is the victory that has overcome the world--our faith. 
 
 ###### 5 
-Who is he who overcomes the world, but he who believes that Jesus is the Son of God? ## The Certainty of God's Witness 
+Who is he who overcomes the world, but he who believes that Jesus is the Son of God? 
+
+## The Certainty of God's Witness 
 
 ###### 6 
 This is He who came by water and blood--Jesus Christ; not only by water, but by water and blood. And it is the Spirit who bears witness, because the Spirit is truth. 

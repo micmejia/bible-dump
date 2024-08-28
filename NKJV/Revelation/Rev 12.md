@@ -45,7 +45,9 @@ Then I heard a loud voice saying in heaven, "Now salvation, and strength, and th
 And they overcame him by the blood of the Lamb and by the word of their testimony, and they did not love their lives to the death. 
 
 ###### 12 
-Therefore rejoice, O heavens, and you who dwell in them! Woe to the inhabitants of the earth and the sea! For the devil has come down to you, having great wrath, because he knows that he has a short time." ## The Woman Persecuted 
+Therefore rejoice, O heavens, and you who dwell in them! Woe to the inhabitants of the earth and the sea! For the devil has come down to you, having great wrath, because he knows that he has a short time." 
+
+## The Woman Persecuted 
 
 ###### 13 
 Now when the dragon saw that he had been cast to the earth, he persecuted the woman who gave birth to the male Child. 

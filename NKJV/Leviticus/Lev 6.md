@@ -28,7 +28,9 @@ or all that about which he has sworn falsely. He shall restore its full value, a
 And he shall bring his trespass offering to the Lord, a ram without blemish from the flock, with your valuation, as a trespass offering, to the priest. 
 
 ###### 7 
-So the priest shall make atonement for him before the Lord, and he shall be forgiven for any one of these things that he may have done in which he trespasses." ## The Law of the Burnt Offering 
+So the priest shall make atonement for him before the Lord, and he shall be forgiven for any one of these things that he may have done in which he trespasses." 
+
+## The Law of the Burnt Offering 
 
 ###### 8 
 Then the Lord spoke to Moses, saying, 
@@ -78,7 +80,9 @@ It shall be made in a pan with oil. _When it is_ mixed, you shall bring it in. T
 The priest from among his sons, who is anointed in his place, shall offer it. _It is_ a statute forever to the Lord. It shall be wholly burned. 
 
 ###### 23 
-For every grain offering for the priest shall be wholly burned. It shall not be eaten." ## The Law of the Sin Offering 
+For every grain offering for the priest shall be wholly burned. It shall not be eaten." 
+
+## The Law of the Sin Offering 
 
 ###### 24 
 Also the Lord spoke to Moses, saying, 

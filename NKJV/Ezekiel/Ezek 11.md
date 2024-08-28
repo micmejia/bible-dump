@@ -46,7 +46,9 @@ This city shall not be your caldron, nor shall you be the meat in its midst. I w
 And you shall know that I am the Lord; for you have not walked in My statutes nor executed My judgments, but have done according to the customs of the Gentiles which are all around you." ' " 
 
 ###### 13 
-Now it happened, while I was prophesying, that Pelatiah the son of Benaiah died. Then I fell on my face and cried with a loud voice, and said, "Ah, Lord God! Will You make a complete end of the remnant of Israel?" ## God Will Restore Israel 
+Now it happened, while I was prophesying, that Pelatiah the son of Benaiah died. Then I fell on my face and cried with a loud voice, and said, "Ah, Lord God! Will You make a complete end of the remnant of Israel?" 
+
+## God Will Restore Israel 
 
 ###### 14 
 Again the word of the Lord came to me, saying, 

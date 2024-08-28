@@ -46,7 +46,9 @@ then you shall say to them, 'Because your fathers have forsaken Me,' says the Lo
 And you have done worse than your fathers, for behold, each one follows the dictates of his own evil heart, so that no one listens to Me. 
 
 ###### 13 
-Therefore I will cast you out of this land into a land that you do not know, neither you nor your fathers; and there you shall serve other gods day and night, where I will not show you favor.' ## God Will Restore Israel 
+Therefore I will cast you out of this land into a land that you do not know, neither you nor your fathers; and there you shall serve other gods day and night, where I will not show you favor.' 
+
+## God Will Restore Israel 
 
 ###### 14 
 "Therefore behold, the days are coming," says the Lord, "that it shall no more be said, 'The Lord lives who brought up the children of Israel from the land of Egypt,' 

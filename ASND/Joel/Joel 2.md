@@ -306,7 +306,9 @@ Nayayanig ang lupa at ang langit sa kanilang pagdating. At nagdidilim ang araw a
 
 
 
-Inuutusan ng Panginoon ang kanyang hukbo – ang napakarami at makapangyarihang mga balang – at sumusunod sila sa kanyang utos. Nakakatakot ang araw ng pagpaparusa ng Panginoon. Sino ang makakatagal dito? ## Panawagan upang Magbalik-loob sa Dios 
+Inuutusan ng Panginoon ang kanyang hukbo – ang napakarami at makapangyarihang mga balang – at sumusunod sila sa kanyang utos. Nakakatakot ang araw ng pagpaparusa ng Panginoon. Sino ang makakatagal dito? 
+
+## Panawagan upang Magbalik-loob sa Dios 
 
 
 
@@ -504,7 +506,9 @@ Gawin ninyo ang seremonya ng paglilinis at magtipon kayong lahat, bata at matand
 
 
 
-Umiyak sa pagitan ng altar at ng balkonahe ng templo ang mga pari na naglilingkod sa Panginoon, at manalangin sila ng ganito: "Panginoon, maawa po kayo sa mga mamamayang pag-aari ninyo. Huwag nʼyo pong payagan na hiyain sila at sakupin ng ibang bansa na nagsasabing, 'Nasaan ang inyong Dios?' " ## Pagpapalain ng Panginoon ang Juda 
+Umiyak sa pagitan ng altar at ng balkonahe ng templo ang mga pari na naglilingkod sa Panginoon, at manalangin sila ng ganito: "Panginoon, maawa po kayo sa mga mamamayang pag-aari ninyo. Huwag nʼyo pong payagan na hiyain sila at sakupin ng ibang bansa na nagsasabing, 'Nasaan ang inyong Dios?' " 
+
+## Pagpapalain ng Panginoon ang Juda 
 
 
 

@@ -43,7 +43,9 @@ In the house His disciples also asked Him again about the same matter.
 So He said to them, "Whoever divorces his wife and marries another commits adultery against her. 
 
 ###### 12 
-And if a woman divorces her husband and marries another, she commits adultery." ## Jesus Blesses Little Children 
+And if a woman divorces her husband and marries another, she commits adultery." 
+
+## Jesus Blesses Little Children 
 
 ###### 13 
 Then they brought little children to Him, that He might touch them; but the disciples rebuked those who brought them. 
@@ -104,7 +106,9 @@ So Jesus answered and said, "Assuredly, I say to you, there is no one who has le
 who shall not receive a hundredfold now in this time--houses and brothers and sisters and mothers and children and lands, with persecutions--and in the age to come, eternal life. 
 
 ###### 31 
-But many who are first will be last, and the last first." ## Jesus a Third Time Predicts His Death and Resurrection 
+But many who are first will be last, and the last first." 
+
+## Jesus a Third Time Predicts His Death and Resurrection 
 
 ###### 32 
 Now they were on the road, going up to Jerusalem, and Jesus was going before them; and they were amazed. And as they followed they were afraid. Then He took the twelve aside again and began to tell them the things that would happen to Him: 
@@ -113,7 +117,9 @@ Now they were on the road, going up to Jerusalem, and Jesus was going before the
 "Behold, we are going up to Jerusalem, and the Son of Man will be betrayed to the chief priests and to the scribes; and they will condemn Him to death and deliver Him to the Gentiles; 
 
 ###### 34 
-and they will mock Him, and scourge Him, and spit on Him, and kill Him. And the third day He will rise again." ## Greatness Is Serving 
+and they will mock Him, and scourge Him, and spit on Him, and kill Him. And the third day He will rise again." 
+
+## Greatness Is Serving 
 
 ###### 35 
 Then James and John, the sons of Zebedee, came to Him, saying, "Teacher, we want You to do for us whatever we ask." 
@@ -146,7 +152,9 @@ Yet it shall not be so among you; but whoever desires to become great among you 
 And whoever of you desires to be first shall be slave of all. 
 
 ###### 45 
-For even the Son of Man did not come to be served, but to serve, and to give His life a ransom for many." ## Jesus Heals Blind Bartimaeus 
+For even the Son of Man did not come to be served, but to serve, and to give His life a ransom for many." 
+
+## Jesus Heals Blind Bartimaeus 
 
 ###### 46 
 Now they came to Jericho. As He went out of Jericho with His disciples and a great multitude, blind Bartimaeus, the son of Timaeus, sat by the road begging. 

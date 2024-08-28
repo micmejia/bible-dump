@@ -70,7 +70,9 @@ So I said, 'Lord, they know that in every synagogue I imprisoned and beat those 
 And when the blood of Your martyr Stephen was shed, I also was standing by consenting to his death, and guarding the clothes of those who were killing him.' 
 
 ###### 21 
-Then He said to me, 'Depart, for I will send you far from here to the Gentiles.' " ## Paul's Roman Citizenship 
+Then He said to me, 'Depart, for I will send you far from here to the Gentiles.' " 
+
+## Paul's Roman Citizenship 
 
 ###### 22 
 And they listened to him until this word, and then they raised their voices and said, "Away with such a fellow from the earth, for he is not fit to live!" 

@@ -42,7 +42,9 @@ Moreover, Ruth the Moabitess, the widow of Mahlon, I have acquired as my wife, t
 And all the people who _were_ at the gate, and the elders, said, "_We are_ witnesses. The Lord make the woman who is coming to your house like Rachel and Leah, the two who built the house of Israel; and may you prosper in Ephrathah and be famous in Bethlehem. 
 
 ###### 12 
-May your house be like the house of Perez, whom Tamar bore to Judah, because of the offspring which the Lord will give you from this young woman." ## Descendants of Boaz and Ruth 
+May your house be like the house of Perez, whom Tamar bore to Judah, because of the offspring which the Lord will give you from this young woman." 
+
+## Descendants of Boaz and Ruth 
 
 ###### 13 
 So Boaz took Ruth and she became his wife; and when he went in to her, the Lord gave her conception, and she bore a son. 

@@ -52,7 +52,9 @@ Then Moses commanded the children of Israel, saying: "This _is_ the land which y
 For the tribe of the children of Reuben according to the house of their fathers, and the tribe of the children of Gad according to the house of their fathers, have received _their inheritance;_ and the half-tribe of Manasseh has received its inheritance. 
 
 ###### 15 
-The two tribes and the half-tribe have received their inheritance on this side of the Jordan, _across from_ Jericho eastward, toward the sunrise." ## The Leaders Appointed to Divide the Land 
+The two tribes and the half-tribe have received their inheritance on this side of the Jordan, _across from_ Jericho eastward, toward the sunrise." 
+
+## The Leaders Appointed to Divide the Land 
 
 ###### 16 
 And the Lord spoke to Moses, saying, 

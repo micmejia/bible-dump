@@ -438,7 +438,9 @@ Kaya kayong mga pinabanal ng Dios na sumusunod sa kanyang mga utos at patuloy na
 
 
 
-Pagkatapos, may narinig akong tinig mula sa langit na nagsasabi, "Isulat mo ito: Mapalad ang mga taong namatay na naglilingkod sa Panginoon. Mula ngayon, makakapagpahinga na sila sa mga paghihirap nila, dahil tatanggapin na nila ang gantimpala para sa mabubuti nilang gawa. At ito ay pinatotohanan mismo ng Banal na Espiritu." ## Ang Pag-ani sa Mundo 
+Pagkatapos, may narinig akong tinig mula sa langit na nagsasabi, "Isulat mo ito: Mapalad ang mga taong namatay na naglilingkod sa Panginoon. Mula ngayon, makakapagpahinga na sila sa mga paghihirap nila, dahil tatanggapin na nila ang gantimpala para sa mabubuti nilang gawa. At ito ay pinatotohanan mismo ng Banal na Espiritu." 
+
+## Ang Pag-ani sa Mundo 
 
 
 

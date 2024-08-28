@@ -67,7 +67,9 @@ Then the Lord spoke to Moses and Aaron, saying:
 but do this in regard to them, that they may live and not die when they approach the most holy things: Aaron and his sons shall go in and appoint each of them to his service and his task. 
 
 ###### 20 
-But they shall not go in to watch while the holy things are being covered, lest they die." ## Duties of the Sons of Gershon 
+But they shall not go in to watch while the holy things are being covered, lest they die." 
+
+## Duties of the Sons of Gershon 
 
 ###### 21 
 Then the Lord spoke to Moses, saying: 
@@ -108,7 +110,9 @@ And this _is_ what they must carry as all their service for the tabernacle of me
 and the pillars around the court with their sockets, pegs, and cords, with all their furnishings and all their service; and you shall assign _to each man_ by name the items he must carry. 
 
 ###### 33 
-This _is_ the service of the families of the sons of Merari, as all their service for the tabernacle of meeting, under the authority of Ithamar the son of Aaron the priest." ## Census of the Levites 
+This _is_ the service of the families of the sons of Merari, as all their service for the tabernacle of meeting, under the authority of Ithamar the son of Aaron the priest." 
+
+## Census of the Levites 
 
 ###### 34 
 And Moses, Aaron, and the leaders of the congregation numbered the sons of the Kohathites by their families and by their fathers' house, 

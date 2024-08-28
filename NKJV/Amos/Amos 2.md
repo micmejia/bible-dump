@@ -24,7 +24,9 @@ And I will cut off the judge from its midst, And slay all its princes with him,"
 Thus says the Lord: "For three transgressions of Judah, and for four, I will not turn away its punishment, Because they have despised the law of the Lord, And have not kept His commandments. Their lies lead them astray, Lies which their fathers followed. 
 
 ###### 5 
-But I will send a fire upon Judah, And it shall devour the palaces of Jerusalem." ## Judgment on Israel 
+But I will send a fire upon Judah, And it shall devour the palaces of Jerusalem." 
+
+## Judgment on Israel 
 
 ###### 6 
 Thus says the Lord: "For three transgressions of Israel, and for four, I will not turn away its punishment, Because they sell the righteous for silver, And the poor for a pair of sandals. 

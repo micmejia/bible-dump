@@ -35,7 +35,9 @@ And they said to one another, "Come, let us cast lots, that we may know for whos
 Then they said to him, "Please tell us! For whose cause is this trouble upon us? What is your occupation? And where do you come from? What is your country? And of what people are you?" 
 
 ###### 9 
-So he said to them, "I am a Hebrew; and I fear the Lord, the God of heaven, who made the sea and the dry land." ## Jonah Thrown into the Sea 
+So he said to them, "I am a Hebrew; and I fear the Lord, the God of heaven, who made the sea and the dry land." 
+
+## Jonah Thrown into the Sea 
 
 ###### 10 
 Then the men were exceedingly afraid, and said to him, "Why have you done this?" For the men knew that he fled from the presence of the Lord, because he had told them. 

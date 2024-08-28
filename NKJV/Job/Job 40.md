@@ -13,7 +13,9 @@ next: ['Job 41']
 Moreover the Lord answered Job, and said: 
 
 ###### 2 
-"Shall the one who contends with the Almighty correct _Him?_ He who rebukes God, let him answer it." ## Job's Response to God 
+"Shall the one who contends with the Almighty correct _Him?_ He who rebukes God, let him answer it." 
+
+## Job's Response to God 
 
 ###### 3 
 Then Job answered the Lord and said: 
@@ -22,7 +24,9 @@ Then Job answered the Lord and said:
 "Behold, I am vile; What shall I answer You? I lay my hand over my mouth. 
 
 ###### 5 
-Once I have spoken, but I will not answer; Yes, twice, but I will proceed no further." ## God's Challenge to Job 
+Once I have spoken, but I will not answer; Yes, twice, but I will proceed no further." 
+
+## God's Challenge to Job 
 
 ###### 6 
 Then the Lord answered Job out of the whirlwind, and said: 

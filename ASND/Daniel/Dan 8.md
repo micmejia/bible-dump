@@ -469,7 +469,9 @@ Narinig kong nag-uusap ang dalawang anghel. Ang isang anghel ay nagtatanong sa i
 
 
 
-Sumagot ang isa, "Itoʼy mangyayari sa loob ng 2,300 umaga at hapon, at pagkatapos ay lilinisin ang templo." ## Ipinaliwanag ni Gabriel ang Kahulugan ng Pangitain 
+Sumagot ang isa, "Itoʼy mangyayari sa loob ng 2,300 umaga at hapon, at pagkatapos ay lilinisin ang templo." 
+
+## Ipinaliwanag ni Gabriel ang Kahulugan ng Pangitain 
 
 
 

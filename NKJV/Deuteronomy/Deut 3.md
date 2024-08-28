@@ -75,7 +75,9 @@ until the Lord has given rest to your brethren as to you, and they also possess 
 "And I commanded Joshua at that time, saying, 'Your eyes have seen all that the Lord your God has done to these two kings; so will the Lord do to all the kingdoms through which you pass. 
 
 ###### 22 
-You must not fear them, for the Lord your God Himself fights for you.' ## Moses Forbidden to Enter the Land 
+You must not fear them, for the Lord your God Himself fights for you.' 
+
+## Moses Forbidden to Enter the Land 
 
 ###### 23 
 "Then I pleaded with the Lord at that time, saying: 

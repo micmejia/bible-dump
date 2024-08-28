@@ -172,7 +172,9 @@ Pinagplanuhan nila kung paano dadakpin si Jesus nang hindi nalalaman ng mga tao,
 
 
 
-Sinabi nila, "Huwag nating gawin sa pista dahil baka magkagulo ang mga tao." ## Binuhusan ng Pabango si Jesus 
+Sinabi nila, "Huwag nating gawin sa pista dahil baka magkagulo ang mga tao." 
+
+## Binuhusan ng Pabango si Jesus 
 
 
 
@@ -436,7 +438,9 @@ Binuhusan niya ako ng pabango para ihanda ang aking katawan sa libing.
 
 
 
-Sinasabi ko sa inyo ang totoo, kahit saan man ipapangaral ang Magandang Balita sa buong mundo, ipapahayag din ang ginawa niyang ito sa akin bilang pag-alaala sa kanya." ## Nakipagkasundo si Judas sa mga Kaaway ni Jesus 
+Sinasabi ko sa inyo ang totoo, kahit saan man ipapangaral ang Magandang Balita sa buong mundo, ipapahayag din ang ginawa niyang ito sa akin bilang pag-alaala sa kanya." 
+
+## Nakipagkasundo si Judas sa mga Kaaway ni Jesus 
 
 
 
@@ -834,7 +838,9 @@ Ako na Anak ng Tao ay papatayin ayon sa sinasabi ng Kasulatan, ngunit nakakaawa 
 
 
 
-Nagtanong din si Judas na siyang magtatraydor sa kanya, "Guro, ako po ba iyon?" Sumagot si Jesus, "Ikaw na ang nagsabi." ## Huling Hapunan ni Jesus 
+Nagtanong din si Judas na siyang magtatraydor sa kanya, "Guro, ako po ba iyon?" Sumagot si Jesus, "Ikaw na ang nagsabi." 
+
+## Huling Hapunan ni Jesus 
 
 
 
@@ -1531,7 +1537,9 @@ Binalikan niya ang mga tagasunod niya at sinabi, "Natutulog pa rin ba kayo at na
 
 
 
-Tayo na! Narito na ang taong nagtatraydor sa akin." ## Ang Pagdakip kay Jesus 
+Tayo na! Narito na ang taong nagtatraydor sa akin." 
+
+## Ang Pagdakip kay Jesus 
 
 
 
@@ -2259,7 +2267,9 @@ Dinuraan nila si Jesus sa mukha at binugbog. Sinampal naman siya ng iba,
 
 
 
-at sinabi, "Kung ikaw ang Cristo, hulaan mo nga kung sino ang sumampal sa iyo!" ## Ipinagkaila ni Pedro na Kilala Niya si Jesus 
+at sinabi, "Kung ikaw ang Cristo, hulaan mo nga kung sino ang sumampal sa iyo!" 
+
+## Ipinagkaila ni Pedro na Kilala Niya si Jesus 
 
 
 

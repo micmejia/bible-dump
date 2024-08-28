@@ -31,7 +31,9 @@ Yet I say to you that in this place there is One greater than the temple.
 But if you had known what this means, 'I desire mercy and not sacrifice,' you would not have condemned the guiltless. 
 
 ###### 8 
-For the Son of Man is Lord even of the Sabbath." ## Healing on the Sabbath 
+For the Son of Man is Lord even of the Sabbath." 
+
+## Healing on the Sabbath 
 
 ###### 9 
 Now when He had departed from there, He went into their synagogue. 
@@ -72,7 +74,9 @@ He will not quarrel nor cry out, Nor will anyone hear His voice in the streets.
 A bruised reed He will not break, And smoking flax He will not quench, Till He sends forth justice to victory; 
 
 ###### 21 
-And in His name Gentiles will trust." ## A House Divided Cannot Stand 
+And in His name Gentiles will trust." 
+
+## A House Divided Cannot Stand 
 
 ###### 22 
 Then one was brought to Him who was demon-possessed, blind and mute; and He healed him, so that the blind and mute man both spoke and saw. 
@@ -124,7 +128,9 @@ A good man out of the good treasure of his heart brings forth good things, and a
 But I say to you that for every idle word men may speak, they will give account of it in the day of judgment. 
 
 ###### 37 
-For by your words you will be justified, and by your words you will be condemned." ## The Scribes and Pharisees Ask for a Sign 
+For by your words you will be justified, and by your words you will be condemned." 
+
+## The Scribes and Pharisees Ask for a Sign 
 
 ###### 38 
 Then some of the scribes and Pharisees answered, saying, "Teacher, we want to see a sign from You." 
@@ -150,7 +156,9 @@ The queen of the South will rise up in the judgment with this generation and con
 Then he says, 'I will return to my house from which I came.' And when he comes, he finds it empty, swept, and put in order. 
 
 ###### 45 
-Then he goes and takes with him seven other spirits more wicked than himself, and they enter and dwell there; and the last state of that man is worse than the first. So shall it also be with this wicked generation." ## Jesus' Mother and Brothers Send for Him 
+Then he goes and takes with him seven other spirits more wicked than himself, and they enter and dwell there; and the last state of that man is worse than the first. So shall it also be with this wicked generation." 
+
+## Jesus' Mother and Brothers Send for Him 
 
 ###### 46 
 While He was still talking to the multitudes, behold, His mother and brothers stood outside, seeking to speak with Him. 

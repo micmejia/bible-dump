@@ -48,7 +48,9 @@ And when the Pharisees saw it, they said to His disciples, "Why does your Teache
 When Jesus heard that, He said to them, "Those who are well have no need of a physician, but those who are sick. 
 
 ###### 13 
-But go and learn what this means: 'I desire mercy and not sacrifice.' For I did not come to call the righteous, but sinners, to repentance." ## Jesus Is Questioned About Fasting 
+But go and learn what this means: 'I desire mercy and not sacrifice.' For I did not come to call the righteous, but sinners, to repentance." 
+
+## Jesus Is Questioned About Fasting 
 
 ###### 14 
 Then the disciples of John came to Him, saying, "Why do we and the Pharisees fast often, but Your disciples do not fast?" 
@@ -60,7 +62,9 @@ And Jesus said to them, "Can the friends of the bridegroom mourn as long as the 
 No one puts a piece of unshrunk cloth on an old garment; for the patch pulls away from the garment, and the tear is made worse. 
 
 ###### 17 
-Nor do they put new wine into old wineskins, or else the wineskins break, the wine is spilled, and the wineskins are ruined. But they put new wine into new wineskins, and both are preserved." ## A Girl Restored to Life and a Woman Healed 
+Nor do they put new wine into old wineskins, or else the wineskins break, the wine is spilled, and the wineskins are ruined. But they put new wine into new wineskins, and both are preserved." 
+
+## A Girl Restored to Life and a Woman Healed 
 
 ###### 18 
 While He spoke these things to them, behold, a ruler came and worshiped Him, saying, "My daughter has just died, but come and lay Your hand on her and she will live." 
@@ -115,7 +119,9 @@ As they went out, behold, they brought to Him a man, mute and demon-possessed.
 And when the demon was cast out, the mute spoke. And the multitudes marveled, saying, "It was never seen like this in Israel!" 
 
 ###### 34 
-But the Pharisees said, "He casts out demons by the ruler of the demons." ## The Compassion of Jesus 
+But the Pharisees said, "He casts out demons by the ruler of the demons." 
+
+## The Compassion of Jesus 
 
 ###### 35 
 Then Jesus went about all the cities and villages, teaching in their synagogues, preaching the gospel of the kingdom, and healing every sickness and every disease among the people. 

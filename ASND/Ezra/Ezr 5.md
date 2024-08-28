@@ -139,7 +139,9 @@ Ngunit hindi nagtagal, dumating sa Jerusalem si Tatenai na gobernador ng lalawig
 
 
 
-Nagtanong pa sila, "Ano ang pangalan ng mga taong nagtatrabaho rito?" ###### 5-7 Ngunit iningatan ng Dios ang mga tagapamahala ng Judio, kaya nagpasya sina Tatenai, Shetar Bozenai, at ang kanilang kasamang mga opisyal ng lalawigan sa kanluran ng Eufrates na hindi muna nila ipapatigil ang pagpapatayo ng templo hanggang sa maipaalam nila ang tungkol dito kay Haring Darius at makatanggap ng kanyang sagot. Ito ang nilalaman ng sulat na ipinadala nila kay Haring Darius: "Mahal na Haring Darius, "Nawaʼy nasa mabuti po kayong kalagayan. 
+Nagtanong pa sila, "Ano ang pangalan ng mga taong nagtatrabaho rito?" 
+
+###### 5-7 Ngunit iningatan ng Dios ang mga tagapamahala ng Judio, kaya nagpasya sina Tatenai, Shetar Bozenai, at ang kanilang kasamang mga opisyal ng lalawigan sa kanluran ng Eufrates na hindi muna nila ipapatigil ang pagpapatayo ng templo hanggang sa maipaalam nila ang tungkol dito kay Haring Darius at makatanggap ng kanyang sagot. Ito ang nilalaman ng sulat na ipinadala nila kay Haring Darius: "Mahal na Haring Darius, "Nawaʼy nasa mabuti po kayong kalagayan. 
 
 
 

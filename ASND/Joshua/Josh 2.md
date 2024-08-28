@@ -106,7 +106,9 @@ Nabalitaan ng hari ng Jerico na may dumating na mga Israelita nang gabing iyon p
 
 
 
-Kaya nagpadala ng mensahe ang hari kay Rahab, na sinasabi: "Palabasin mo ang mga taong nakituloy sa bahay mo, dahil nandito sila para mag-espiya sa lupain natin." ###### 4-6 Sinabi ni Rahab, "Totoo pong may mga taong nakituloy dito, pero hindi ko po alam kung taga saan sila. Umalis sila nang madilim na at pasara na ang pintuan ng lungsod. Hindi ko alam kung saan sila pupunta, pero kung susundan nʼyo agad sila, maaabutan nʼyo pa sila." (Pero ang totoo, itinago ni Rahab ang dalawang espiya sa bubong ng bahay niya at tinakpan niya sila ng mga pinagputol-putol na halaman na ginagawang telang linen na pinapatuyo niya roon.) Umalis ang mga tauhan ng hari para habulin ang dalawang espiya. 
+Kaya nagpadala ng mensahe ang hari kay Rahab, na sinasabi: "Palabasin mo ang mga taong nakituloy sa bahay mo, dahil nandito sila para mag-espiya sa lupain natin." 
+
+###### 4-6 Sinabi ni Rahab, "Totoo pong may mga taong nakituloy dito, pero hindi ko po alam kung taga saan sila. Umalis sila nang madilim na at pasara na ang pintuan ng lungsod. Hindi ko alam kung saan sila pupunta, pero kung susundan nʼyo agad sila, maaabutan nʼyo pa sila." (Pero ang totoo, itinago ni Rahab ang dalawang espiya sa bubong ng bahay niya at tinakpan niya sila ng mga pinagputol-putol na halaman na ginagawang telang linen na pinapatuyo niya roon.) Umalis ang mga tauhan ng hari para habulin ang dalawang espiya. 
 
 
 

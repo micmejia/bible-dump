@@ -403,7 +403,9 @@ Ang pinakadakila sa inyo ay dapat maging lingkod ninyo.
 
 
 
-Ang nagpapakataas ng kanyang sarili ay ibababa ng Dios, at ang nagpapakababa ay itataas ng Dios." ## Tinuligsa ni Jesus ang mga Tagapagturo ng Kautusan at mga Pariseo 
+Ang nagpapakataas ng kanyang sarili ay ibababa ng Dios, at ang nagpapakababa ay itataas ng Dios." 
+
+## Tinuligsa ni Jesus ang mga Tagapagturo ng Kautusan at mga Pariseo 
 
 
 
@@ -931,7 +933,9 @@ Nakakaawa kayong mga tagapagturo ng Kautusan at mga Pariseo, kayong mga mapagkun
 
 
 
-Ganyang-ganyan kayo, dahil kung masdan kayo ng mga taoʼy parang tama ang ginagawa ninyo, pero sa loob ninyoʼy puno kayo ng pagkukunwari at kasalanan." ## Sinabi ni Jesus ang Kanilang Kaparusahan 
+Ganyang-ganyan kayo, dahil kung masdan kayo ng mga taoʼy parang tama ang ginagawa ninyo, pero sa loob ninyoʼy puno kayo ng pagkukunwari at kasalanan." 
+
+## Sinabi ni Jesus ang Kanilang Kaparusahan 
 
 
 

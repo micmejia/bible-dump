@@ -45,7 +45,9 @@ immediately got into the boat with His disciples, and came to the region of Dalm
 Then the Pharisees came out and began to dispute with Him, seeking from Him a sign from heaven, testing Him. 
 
 ###### 12 
-But He sighed deeply in His spirit, and said, "Why does this generation seek a sign? Assuredly, I say to you, no sign shall be given to this generation." ## Beware of the Leaven of the Pharisees and Herod 
+But He sighed deeply in His spirit, and said, "Why does this generation seek a sign? Assuredly, I say to you, no sign shall be given to this generation." 
+
+## Beware of the Leaven of the Pharisees and Herod 
 
 ###### 13 
 And He left them, and getting into the boat again, departed to the other side. 
@@ -72,7 +74,9 @@ When I broke the five loaves for the five thousand, how many baskets full of fra
 "Also, when I broke the seven for the four thousand, how many large baskets full of fragments did you take up?" And they said, "Seven." 
 
 ###### 21 
-So He said to them, "How is it you do not understand?" ## A Blind Man Healed at Bethsaida 
+So He said to them, "How is it you do not understand?" 
+
+## A Blind Man Healed at Bethsaida 
 
 ###### 22 
 Then He came to Bethsaida; and they brought a blind man to Him, and begged Him to touch him. 
@@ -87,7 +91,9 @@ And he looked up and said, "I see men like trees, walking."
 Then He put His hands on his eyes again and made him look up. And he was restored and saw everyone clearly. 
 
 ###### 26 
-Then He sent him away to his house, saying, "Neither go into the town, nor tell anyone in the town." ## Peter Confesses Jesus as the Christ 
+Then He sent him away to his house, saying, "Neither go into the town, nor tell anyone in the town." 
+
+## Peter Confesses Jesus as the Christ 
 
 ###### 27 
 Now Jesus and His disciples went out to the towns of Caesarea Philippi; and on the road He asked His disciples, saying to them, "Who do men say that I am?" 
@@ -110,7 +116,9 @@ And He began to teach them that the Son of Man must suffer many things, and be r
 He spoke this word openly. Then Peter took Him aside and began to rebuke Him. 
 
 ###### 33 
-But when He had turned around and looked at His disciples, He rebuked Peter, saying, "Get behind Me, Satan! For you are not mindful of the things of God, but the things of men." ## Take Up the Cross and Follow Him 
+But when He had turned around and looked at His disciples, He rebuked Peter, saying, "Get behind Me, Satan! For you are not mindful of the things of God, but the things of men." 
+
+## Take Up the Cross and Follow Him 
 
 ###### 34 
 When He had called the people to Himself, with His disciples also, He said to them, "Whoever desires to come after Me, let him deny himself, and take up his cross, and follow Me. 

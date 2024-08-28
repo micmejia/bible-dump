@@ -106,7 +106,9 @@ Bakit hindi ninyo ako pinansin noong dumating ako? Bakit hindi kayo sumagot noon
 
 
 
-At kaya ko ring padilimin na kasing-itim ng damit na panluksa ang langit." ## Ang Masunuring Lingkod ng Dios 
+At kaya ko ring padilimin na kasing-itim ng damit na panluksa ang langit." 
+
+## Ang Masunuring Lingkod ng Dios 
 
 
 

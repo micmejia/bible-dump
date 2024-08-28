@@ -45,7 +45,9 @@ Oh, my threshing and the grain of my floor! That which I have heard from the Lor
 The burden against Dumah. He calls to me out of Seir, "Watchman, what of the night? Watchman, what of the night?" 
 
 ###### 12 
-The watchman said, "The morning comes, and also the night. If you will inquire, inquire; Return! Come back!" ## Proclamation Against Arabia 
+The watchman said, "The morning comes, and also the night. If you will inquire, inquire; Return! Come back!" 
+
+## Proclamation Against Arabia 
 
 ###### 13 
 The burden against Arabia. In the forest in Arabia you will lodge, O you traveling companies of Dedanites. 

@@ -67,7 +67,9 @@ But those things which proceed out of the mouth come from the heart, and they de
 For out of the heart proceed evil thoughts, murders, adulteries, fornications, thefts, false witness, blasphemies. 
 
 ###### 20 
-These are the things which defile a man, but to eat with unwashed hands does not defile a man." ## A Gentile Shows Her Faith 
+These are the things which defile a man, but to eat with unwashed hands does not defile a man." 
+
+## A Gentile Shows Her Faith 
 
 ###### 21 
 Then Jesus went out from there and departed to the region of Tyre and Sidon. 

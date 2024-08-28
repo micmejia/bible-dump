@@ -734,7 +734,9 @@ Hindi nagtagal, nagbuntis si Elizabet, at sa loob ng limang buwan ay hindi siya 
 
 
 
-Sinabi niya, "Napakabuti ng Panginoon. Inalis niya ang kahihiyan ko sa mga tao bilang isang baog." ## Nagpakita kay Maria ang Anghel 
+Sinabi niya, "Napakabuti ng Panginoon. Inalis niya ang kahihiyan ko sa mga tao bilang isang baog." 
+
+## Nagpakita kay Maria ang Anghel 
 
 
 
@@ -1396,7 +1398,9 @@ Nang marinig ko ang pagbati mo sa akin, gumalaw nang malakas sa tuwa ang sanggol
 
 
 
-Mapalad ka dahil naniwala kang matutupad ang sinabi sa iyo ng Panginoon." ## Ang Awit ni Maria 
+Mapalad ka dahil naniwala kang matutupad ang sinabi sa iyo ng Panginoon." 
+
+## Ang Awit ni Maria 
 
 
 

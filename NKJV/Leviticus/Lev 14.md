@@ -103,7 +103,9 @@ And he shall offer one of the turtledoves or young pigeons, such as he can affor
 such as he is able to afford, the one _as_ a sin offering and the other _as_ a burnt offering, with the grain offering. So the priest shall make atonement for him who is to be cleansed before the Lord. 
 
 ###### 32 
-This _is_ the law _for one_ who had a leprous sore, who cannot afford the usual cleansing." ## The Law Concerning Leprous Houses 
+This _is_ the law _for one_ who had a leprous sore, who cannot afford the usual cleansing." 
+
+## The Law Concerning Leprous Houses 
 
 ###### 33 
 And the Lord spoke to Moses and Aaron, saying: 

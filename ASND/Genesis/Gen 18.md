@@ -502,7 +502,9 @@ May bagay ba na hindi magagawa ng Panginoon? Tulad ng sinabi ko, babalik ako rit
 
 
 
-Natakot si Sara, kaya nagsinungaling siya. Sinabi niya, "Hindi po ako tumawa!" Pero sinabi ng Panginoon, "Tumawa ka talaga." ## Nagmakaawa si Abraham para sa Lungsod ng Sodom 
+Natakot si Sara, kaya nagsinungaling siya. Sinabi niya, "Hindi po ako tumawa!" Pero sinabi ng Panginoon, "Tumawa ka talaga." 
+
+## Nagmakaawa si Abraham para sa Lungsod ng Sodom 
 
 
 

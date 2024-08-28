@@ -19,7 +19,9 @@ Now the word of the Lord came to Jonah the second time, saying,
 So Jonah arose and went to Nineveh, according to the word of the Lord. Now Nineveh was an exceedingly great city, a three-day journey in extent. 
 
 ###### 4 
-And Jonah began to enter the city on the first day's walk. Then he cried out and said, "Yet forty days, and Nineveh shall be overthrown!" ## The People of Nineveh Believe 
+And Jonah began to enter the city on the first day's walk. Then he cried out and said, "Yet forty days, and Nineveh shall be overthrown!" 
+
+## The People of Nineveh Believe 
 
 ###### 5 
 So the people of Nineveh believed God, proclaimed a fast, and put on sackcloth, from the greatest to the least of them. 

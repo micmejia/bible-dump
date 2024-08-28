@@ -403,7 +403,9 @@ Tandaan ninyo, ngayon pa lang ay nakaamba na ang palakol para putulin ang mga pu
 
 
 
-Tulad siya ng isang taong nagtatahip upang ihiwalay ang ipa sa butil. Ilalagay niya ang mga butil sa bodega, at ang ipa ay susunugin niya sa apoy na hindi mamamatay kailanman." ## Ang Pagbabautismo kay Jesus 
+Tulad siya ng isang taong nagtatahip upang ihiwalay ang ipa sa butil. Ilalagay niya ang mga butil sa bodega, at ang ipa ay susunugin niya sa apoy na hindi mamamatay kailanman." 
+
+## Ang Pagbabautismo kay Jesus 
 
 
 

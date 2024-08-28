@@ -402,7 +402,9 @@ Sumagot ang mga tagapamahala ng bayan at ang lahat ng tao roon sa pintuan, "Oo, 
 
 
 
-Nawaʼy magpatanyag sa pamilya mo ang mga anak na ibibigay sa iyo ng Panginoon sa iyo sa pamamagitan ng babaeng iyon ay magpatanyag sa pamilya mo katulad ng pamilya ni Perez, ang anak ni Juda kay Tamar." ## Ang mga Ninuno ni David 
+Nawaʼy magpatanyag sa pamilya mo ang mga anak na ibibigay sa iyo ng Panginoon sa iyo sa pamamagitan ng babaeng iyon ay magpatanyag sa pamilya mo katulad ng pamilya ni Perez, ang anak ni Juda kay Tamar." 
+
+## Ang mga Ninuno ni David 
 
 
 

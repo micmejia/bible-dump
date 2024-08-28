@@ -54,7 +54,9 @@ For I do not mean that others should be eased and you burdened;
 but by an equality, that now at this time your abundance may supply their lack, that their abundance also may supply your lack--that there may be equality. 
 
 ###### 15 
-As it is written, "He who gathered much had nothing left over, and he who gathered little had no lack." ## Collection for the Judean Saints 
+As it is written, "He who gathered much had nothing left over, and he who gathered little had no lack." 
+
+## Collection for the Judean Saints 
 
 ###### 16 
 But thanks be to God who puts the same earnest care for you into the heart of Titus. 

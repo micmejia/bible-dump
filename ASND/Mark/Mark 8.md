@@ -638,7 +638,9 @@ Nagtanong pa si Jesus, "At nang paghahati-hatiin ko ang pitong tinapay para sa 4
 
 
 
-At sinabi ni Jesus sa kanila, "Hindi nʼyo pa rin ba naiintindihan ang sinabi ko tungkol sa pampaalsa?" ## Pinagaling ni Jesus ang Lalaking Bulag sa Betsaida 
+At sinabi ni Jesus sa kanila, "Hindi nʼyo pa rin ba naiintindihan ang sinabi ko tungkol sa pampaalsa?" 
+
+## Pinagaling ni Jesus ang Lalaking Bulag sa Betsaida 
 
 
 
@@ -803,7 +805,9 @@ Kaya muling ipinatong ni Jesus ang mga kamay niya sa mata ng bulag. Pagkatapos, 
 
 
 
-Bago siya pinauwi ni Jesus ay binilinan siya, "Huwag ka nang bumalik sa Betsaida." ## Ang Pahayag ni Pedro tungkol kay Jesus 
+Bago siya pinauwi ni Jesus ay binilinan siya, "Huwag ka nang bumalik sa Betsaida." 
+
+## Ang Pahayag ni Pedro tungkol kay Jesus 
 
 
 

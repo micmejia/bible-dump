@@ -506,7 +506,9 @@ Ang bawat toro ay sasamahan ng handog na inumin na dalawang litrong katas ng uba
 
 
 
-Maghandog pa kayo sa Panginoon ng isang lalaking kambing bilang handog sa paglilinis. Gawin ninyo ito bukod pa sa pang-araw-araw na handog na sinusunog at sa mga handog na inumin.' ## Ang Pista ng Paglampas ng Anghel 
+Maghandog pa kayo sa Panginoon ng isang lalaking kambing bilang handog sa paglilinis. Gawin ninyo ito bukod pa sa pang-araw-araw na handog na sinusunog at sa mga handog na inumin.' 
+
+## Ang Pista ng Paglampas ng Anghel 
 
 
 

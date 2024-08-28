@@ -107,7 +107,9 @@ Isang araw noon, habang kumakain sila kasama ni Jesus, sinabi niya, "Huwag muna 
 
 
 
-Nagbautismo si Juan sa tubig, ngunit makalipas lang ang ilang araw ay babautismuhan kayo sa Banal na Espiritu." ## Ang Pag-akyat ni Jesus sa Langit 
+Nagbautismo si Juan sa tubig, ngunit makalipas lang ang ilang araw ay babautismuhan kayo sa Banal na Espiritu." 
+
+## Ang Pag-akyat ni Jesus sa Langit 
 
 
 
@@ -305,7 +307,9 @@ Habang nakatitig sila sa langit, may dalawang lalaking nakaputi na biglang tumay
 
 
 
-at nagsabi, "Kayong mga taga-Galilea, bakit nakatayo pa kayo rito at nakatingala sa langit? Si Jesus na inyong nakita na dinala paitaas ay babalik dito sa mundo. At kung paano siya pumaitaas, ganyan din ang kanyang pagbalik." ## Pumili ang mga Apostol ng Kapalit ni Judas 
+at nagsabi, "Kayong mga taga-Galilea, bakit nakatayo pa kayo rito at nakatingala sa langit? Si Jesus na inyong nakita na dinala paitaas ay babalik dito sa mundo. At kung paano siya pumaitaas, ganyan din ang kanyang pagbalik." 
+
+## Pumili ang mga Apostol ng Kapalit ni Judas 
 
 
 

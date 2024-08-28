@@ -31,7 +31,9 @@ If a trumpet is blown in a city, will not the people be afraid? If there is cala
 Surely the Lord God does nothing, Unless He reveals His secret to His servants the prophets. 
 
 ###### 8 
-A lion has roared! Who will not fear? The Lord God has spoken! Who can but prophesy? ## Punishment of Israel's Sins 
+A lion has roared! Who will not fear? The Lord God has spoken! Who can but prophesy? 
+
+## Punishment of Israel's Sins 
 
 ###### 9 
 "Proclaim in the palaces at Ashdod, And in the palaces in the land of Egypt, and say: 'Assemble on the mountains of Samaria; See great tumults in her midst, And the oppressed within her. 

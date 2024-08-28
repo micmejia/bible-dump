@@ -106,7 +106,9 @@ Walang natatago na hindi malalantad, at walang nalilihim na hindi mabubunyag.
 
 
 
-Kaya anumang sabihin ninyo sa dilim ay maririnig sa liwanag, at anumang ibulong ninyo sa loob ng kwarto ay malalaman ng lahat." ## Ang Dapat Katakutan 
+Kaya anumang sabihin ninyo sa dilim ay maririnig sa liwanag, at anumang ibulong ninyo sa loob ng kwarto ay malalaman ng lahat." 
+
+## Ang Dapat Katakutan 
 
 
 
@@ -238,7 +240,9 @@ Hindi baʼt napakamura ng halaga ng maya? Ngunit kahit isa sa kanila ay hindi na
 
 
 
-Higit kayong mahalaga kaysa sa maraming maya. Kahit ang bilang ng buhok nʼyo ay alam niya. Kaya huwag kayong matakot." ## Ang Pagkilala kay Cristo 
+Higit kayong mahalaga kaysa sa maraming maya. Kahit ang bilang ng buhok nʼyo ay alam niya. Kaya huwag kayong matakot." 
+
+## Ang Pagkilala kay Cristo 
 
 
 
@@ -403,7 +407,9 @@ Ang sinumang magsalita ng masama laban sa akin na Anak ng Tao ay mapapatawad, ng
 
 
 
-Sapagkat ituturo sa inyo ng Banal na Espiritu sa oras ding iyon kung ano ang dapat ninyong sabihin." ## Ang Mayamang Hangal 
+Sapagkat ituturo sa inyo ng Banal na Espiritu sa oras ding iyon kung ano ang dapat ninyong sabihin." 
+
+## Ang Mayamang Hangal 
 
 
 
@@ -700,7 +706,9 @@ Ngunit sinabi sa kanya ng Dios, 'Hangal! Ngayong gabi ay babawiin ko sa iyo ang 
 
 
 
-Ganyan ang mangyayari sa taong nagpapayaman sa sarili ngunit mahirap sa paningin ng Dios." ## Manalig sa Dios 
+Ganyan ang mangyayari sa taong nagpapayaman sa sarili ngunit mahirap sa paningin ng Dios." 
+
+## Manalig sa Dios 
 
 
 
@@ -1030,7 +1038,9 @@ Ang mga bagay na ito ang pinapahalagahan ng mga tao sa mundo na hindi kumikilala
 
 
 
-Sa halip, unahin ninyo ang mapabilang sa kaharian ng Dios at pati ang mga pangangailangan ninyo ay ibibigay niya." ## Kayamanan sa Langit 
+Sa halip, unahin ninyo ang mapabilang sa kaharian ng Dios at pati ang mga pangangailangan ninyo ay ibibigay niya." 
+
+## Kayamanan sa Langit 
 
 
 
@@ -1129,7 +1139,9 @@ Ipagbili ninyo ang mga ari-arian ninyo at ipamigay ang pera sa mga mahihirap, up
 
 
 
-Sapagkat kung nasaan ang kayamanan ninyo, naroon din ang puso ninyo." ## Ang Mapagkakatiwalaang mga Utusan 35-36Sinabi pa ni Jesus sa kanila, "Maging handa kayo palagi sa pagbabalik ng inyong Panginoon, katulad ng mga aliping naghihintay sa pag-uwi ng kanilang amo mula sa kasalan. Nakahanda sila at nakasindi ang mga ilawan nila, upang sa pagdating at pagkatok ng amo nila ay mabubuksan nila agad ang pinto. 
+Sapagkat kung nasaan ang kayamanan ninyo, naroon din ang puso ninyo." 
+
+## Ang Mapagkakatiwalaang mga Utusan 35-36Sinabi pa ni Jesus sa kanila, "Maging handa kayo palagi sa pagbabalik ng inyong Panginoon, katulad ng mga aliping naghihintay sa pag-uwi ng kanilang amo mula sa kasalan. Nakahanda sila at nakasindi ang mga ilawan nila, upang sa pagdating at pagkatok ng amo nila ay mabubuksan nila agad ang pinto. 
 
 
 
@@ -1261,7 +1273,9 @@ Tandaan ninyo ito: kung alam ng isang tao kung anong oras darating ang magnanaka
 
 
 
-Kayo man ay dapat maging handa, dahil ako, na Anak ng Tao, ay darating sa oras na hindi ninyo inaasahan." ## Ang Tapat at Hindi Tapat na Alipin 
+Kayo man ay dapat maging handa, dahil ako, na Anak ng Tao, ay darating sa oras na hindi ninyo inaasahan." 
+
+## Ang Tapat at Hindi Tapat na Alipin 
 
 
 
@@ -1525,7 +1539,9 @@ Darating ang amo niya sa araw o oras na hindi niya inaasahan, at parurusahan siy
 
 
 
-At ang aliping hindi nakakaalam ng kagustuhan ng amo niya, at nakagawa ng kamalian ay parurusahan din, pero magaan lang. Ang binigyan ng marami ay hahanapan ng marami. Mas marami nga ang pananagutan ng pinagkatiwalaan ng mas marami." ## Ang Pagkakahati-hati ng Sambahayan Dahil kay Cristo 
+At ang aliping hindi nakakaalam ng kagustuhan ng amo niya, at nakagawa ng kamalian ay parurusahan din, pero magaan lang. Ang binigyan ng marami ay hahanapan ng marami. Mas marami nga ang pananagutan ng pinagkatiwalaan ng mas marami." 
+
+## Ang Pagkakahati-hati ng Sambahayan Dahil kay Cristo 
 
 
 
@@ -1690,7 +1706,9 @@ Mula ngayon, mahahati ang limang tao sa loob ng isang pamilya. Tatlo laban sa da
 
 
 
-Kokontrahin ng ama ang anak niyang lalaki, at kokontrahin din ng anak na lalaki ang kanyang ama. Ganoon din ang mangyayari sa ina at sa anak niyang babae, at sa biyenang babae at sa manugang niyang babae." ## Magmatyag sa mga Nangyayari Ngayon 
+Kokontrahin ng ama ang anak niyang lalaki, at kokontrahin din ng anak na lalaki ang kanyang ama. Ganoon din ang mangyayari sa ina at sa anak niyang babae, at sa biyenang babae at sa manugang niyang babae." 
+
+## Magmatyag sa mga Nangyayari Ngayon 
 
 
 
@@ -1789,7 +1807,9 @@ At kapag umihip naman ang hanging habagat ay sinasabi ninyong iinit, at umiinit 
 
 
 
-Mga pakitang-tao! Alam ninyo ang kahulugan ng mga palatandaang nakikita ninyo sa lupa at sa langit, pero bakit hindi ninyo alam ang kahulugan ng mga nangyayari ngayon? ## Makipagkasundo sa Kaaway 
+Mga pakitang-tao! Alam ninyo ang kahulugan ng mga palatandaang nakikita ninyo sa lupa at sa langit, pero bakit hindi ninyo alam ang kahulugan ng mga nangyayari ngayon? 
+
+## Makipagkasundo sa Kaaway 
 
 
 

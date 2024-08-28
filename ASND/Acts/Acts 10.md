@@ -1096,7 +1096,9 @@ Magsugo ka ngayon ng mga tao sa Jopa at ipasundo si Simon na tinatawag na Pedro.
 
 
 
-Kaya ipinatawag kita agad. Salamat naman at dumating ka. At ngayon, narito kami sa presensya ng Dios para pakinggan ang ipinapasabi sa inyo ng Panginoon." ## Nangaral si Pedro sa Bahay ni Cornelius 
+Kaya ipinatawag kita agad. Salamat naman at dumating ka. At ngayon, narito kami sa presensya ng Dios para pakinggan ang ipinapasabi sa inyo ng Panginoon." 
+
+## Nangaral si Pedro sa Bahay ni Cornelius 
 
 
 
@@ -1360,7 +1362,9 @@ Inutusan niya kaming mangaral ng Magandang Balita sa mga tao at magpatotoo na si
 
 
 
-Si Jesu-Cristo ang tinutukoy ng lahat ng propeta nang ipahayag nila na ang lahat ng sumasampalataya sa kanya ay patatawarin sa kanilang mga kasalanan sa pamamagitan ng kanyang pangalan." ## Dumating ang Banal na Espiritu sa mga Hindi Judio 
+Si Jesu-Cristo ang tinutukoy ng lahat ng propeta nang ipahayag nila na ang lahat ng sumasampalataya sa kanya ay patatawarin sa kanilang mga kasalanan sa pamamagitan ng kanyang pangalan." 
+
+## Dumating ang Banal na Espiritu sa mga Hindi Judio 
 
 
 

@@ -31,7 +31,9 @@ And He said to me, "It is done! I am the Alpha and the Omega, the Beginning and 
 He who overcomes shall inherit all things, and I will be his God and he shall be My son. 
 
 ###### 8 
-But the cowardly, unbelieving, abominable, murderers, sexually immoral, sorcerers, idolaters, and all liars shall have their part in the lake which burns with fire and brimstone, which is the second death." ## The New Jerusalem 
+But the cowardly, unbelieving, abominable, murderers, sexually immoral, sorcerers, idolaters, and all liars shall have their part in the lake which burns with fire and brimstone, which is the second death." 
+
+## The New Jerusalem 
 
 ###### 9 
 Then one of the seven angels who had the seven bowls filled with the seven last plagues came to me and talked with me, saying, "Come, I will show you the bride, the Lamb's wife." 

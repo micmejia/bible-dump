@@ -19,7 +19,9 @@ And behold, a leper came and worshiped Him, saying, "Lord, if You are willing, Y
 Then Jesus put out His hand and touched him, saying, "I am willing; be cleansed." Immediately his leprosy was cleansed. 
 
 ###### 4 
-And Jesus said to him, "See that you tell no one; but go your way, show yourself to the priest, and offer the gift that Moses commanded, as a testimony to them." ## Jesus Heals a Centurion's Servant 
+And Jesus said to him, "See that you tell no one; but go your way, show yourself to the priest, and offer the gift that Moses commanded, as a testimony to them." 
+
+## Jesus Heals a Centurion's Servant 
 
 ###### 5 
 Now when Jesus had entered Capernaum, a centurion came to Him, pleading with Him, 
@@ -62,7 +64,9 @@ So He touched her hand, and the fever left her. And she arose and served them.
 When evening had come, they brought to Him many who were demon-possessed. And He cast out the spirits with a word, and healed all who were sick, 
 
 ###### 17 
-that it might be fulfilled which was spoken by Isaiah the prophet, saying: "He Himself took our infirmities And bore our sicknesses." ## The Cost of Discipleship 
+that it might be fulfilled which was spoken by Isaiah the prophet, saying: "He Himself took our infirmities And bore our sicknesses." 
+
+## The Cost of Discipleship 
 
 ###### 18 
 And when Jesus saw great multitudes about Him, He gave a command to depart to the other side. 
@@ -77,7 +81,9 @@ And Jesus said to him, "Foxes have holes and birds of the air have nests, but th
 Then another of His disciples said to Him, "Lord, let me first go and bury my father." 
 
 ###### 22 
-But Jesus said to him, "Follow Me, and let the dead bury their own dead." ## Wind and Wave Obey Jesus 
+But Jesus said to him, "Follow Me, and let the dead bury their own dead." 
+
+## Wind and Wave Obey Jesus 
 
 ###### 23 
 Now when He got into a boat, His disciples followed Him. 
@@ -92,7 +98,9 @@ Then His disciples came to Him and awoke Him, saying, "Lord, save us! We are per
 But He said to them, "Why are you fearful, O you of little faith?" Then He arose and rebuked the winds and the sea, and there was a great calm. 
 
 ###### 27 
-So the men marveled, saying, "Who can this be, that even the winds and the sea obey Him?" ## Two Demon-Possessed Men Healed 
+So the men marveled, saying, "Who can this be, that even the winds and the sea obey Him?" 
+
+## Two Demon-Possessed Men Healed 
 
 ###### 28 
 When He had come to the other side, to the country of the Gergesenes, there met Him two demon-possessed men, coming out of the tombs, exceedingly fierce, so that no one could pass that way. 

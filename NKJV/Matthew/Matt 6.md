@@ -84,7 +84,9 @@ For where your treasure is, there your heart will be also.
 "The lamp of the body is the eye. If therefore your eye is good, your whole body will be full of light. 
 
 ###### 23 
-But if your eye is bad, your whole body will be full of darkness. If therefore the light that is in you is darkness, how great is that darkness! ## You Cannot Serve God and Riches 
+But if your eye is bad, your whole body will be full of darkness. If therefore the light that is in you is darkness, how great is that darkness! 
+
+## You Cannot Serve God and Riches 
 
 ###### 24 
 "No one can serve two masters; for either he will hate the one and love the other, or else he will be loyal to the one and despise the other. You cannot serve God and mammon.

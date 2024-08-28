@@ -634,7 +634,9 @@ Katulad nga nila ang mga tao ngayon, dahil nang dumating dito si Juan, nakita ni
 
 
 
-At nang dumating naman ako, na Anak ng Tao, nakita nilang kumakain ako at umiinom, at sinabi naman nila, 'Ang taong iyan ay matakaw at lasenggo, at kaibigan ng mga maniningil ng buwis at ng iba pang makasalanan.' Ganoon pa man, ang mga taong sumusunod sa kalooban ng Dios ay sumasang-ayon na tama ang ipinapagawa ng Dios sa amin." ## Babala sa mga Bayang Hindi Nagsisisi 
+At nang dumating naman ako, na Anak ng Tao, nakita nilang kumakain ako at umiinom, at sinabi naman nila, 'Ang taong iyan ay matakaw at lasenggo, at kaibigan ng mga maniningil ng buwis at ng iba pang makasalanan.' Ganoon pa man, ang mga taong sumusunod sa kalooban ng Dios ay sumasang-ayon na tama ang ipinapagawa ng Dios sa amin." 
+
+## Babala sa mga Bayang Hindi Nagsisisi 
 
 
 
@@ -799,7 +801,9 @@ At kayo namang mga taga-Capernaum, baka akala ninyoʼy papupurihan kayo kahit do
 
 
 
-Kaya tandaan ninyo na sa Araw ng Paghuhukom, mas mabigat na parusa ang tatanggapin ninyo kaysa sa mga taga-Sodom." ## May Kapahingahan kay Jesus 
+Kaya tandaan ninyo na sa Araw ng Paghuhukom, mas mabigat na parusa ang tatanggapin ninyo kaysa sa mga taga-Sodom." 
+
+## May Kapahingahan kay Jesus 
 
 
 

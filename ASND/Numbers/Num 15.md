@@ -966,7 +966,9 @@ Iisa lang ang tuntunin para sa lahat ng nagkasala nang hindi sinasadya, katutubo
 
 
 
-Dahil sa itinakwil niya ang salita ng Panginoon at sinuway niya ang utos nito. Huwag na siyang ituturing na kabilang sa inyo. Mananagot siya sa kanyang mga kasalanan." ## Ang Parusa sa Hindi Pagsunod sa Araw ng Pamamahinga 
+Dahil sa itinakwil niya ang salita ng Panginoon at sinuway niya ang utos nito. Huwag na siyang ituturing na kabilang sa inyo. Mananagot siya sa kanyang mga kasalanan." 
+
+## Ang Parusa sa Hindi Pagsunod sa Araw ng Pamamahinga 
 
 
 

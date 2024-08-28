@@ -40,7 +40,9 @@ Therefore Levi has no portion nor inheritance with his brethren; the Lord _is_ h
 "As at the first time, I stayed in the mountain forty days and forty nights; the Lord also heard me at that time, _and_ the Lord chose not to destroy you. 
 
 ###### 11 
-Then the Lord said to me, 'Arise, begin _your_ journey before the people, that they may go in and possess the land which I swore to their fathers to give them.' ## The Essence of the Law 
+Then the Lord said to me, 'Arise, begin _your_ journey before the people, that they may go in and possess the land which I swore to their fathers to give them.' 
+
+## The Essence of the Law 
 
 ###### 12 
 "And now, Israel, what does the Lord your God require of you, but to fear the Lord your God, to walk in all His ways and to love Him, to serve the Lord your God with all your heart and with all your soul, 

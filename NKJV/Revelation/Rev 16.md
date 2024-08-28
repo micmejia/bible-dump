@@ -10,7 +10,9 @@ next: ['Rev 17']
 
 
 ###### 1 
-Then I heard a loud voice from the temple saying to the seven angels, "Go and pour out the bowls of the wrath of God on the earth." ## First Bowl: Loathsome Sores 
+Then I heard a loud voice from the temple saying to the seven angels, "Go and pour out the bowls of the wrath of God on the earth." 
+
+## First Bowl: Loathsome Sores 
 
 ###### 2 
 So the first went and poured out his bowl upon the earth, and a foul and loathsome sore came upon the men who had the mark of the beast and those who worshiped his image.
@@ -32,7 +34,9 @@ And I heard the angel of the waters saying: "You are righteous, O Lord, The One 
 For they have shed the blood of saints and prophets, And You have given them blood to drink. For it is their just due." 
 
 ###### 7 
-And I heard another from the altar saying, "Even so, Lord God Almighty, true and righteous are Your judgments." ## Fourth Bowl: Men Are Scorched 
+And I heard another from the altar saying, "Even so, Lord God Almighty, true and righteous are Your judgments." 
+
+## Fourth Bowl: Men Are Scorched 
 
 ###### 8 
 Then the fourth angel poured out his bowl on the sun, and power was given to him to scorch men with fire. 

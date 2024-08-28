@@ -13,7 +13,9 @@ next: ['Mark 15']
 After two days it was the Passover and the Feast of Unleavened Bread. And the chief priests and the scribes sought how they might take Him by trickery and put Him to death. 
 
 ###### 2 
-But they said, "Not during the feast, lest there be an uproar of the people." ## The Anointing at Bethany 
+But they said, "Not during the feast, lest there be an uproar of the people." 
+
+## The Anointing at Bethany 
 
 ###### 3 
 And being in Bethany at the house of Simon the leper, as He sat at the table, a woman came having an alabaster flask of very costly oil of spikenard. Then she broke the flask and poured it on His head. 
@@ -34,7 +36,9 @@ For you have the poor with you always, and whenever you wish you may do them goo
 She has done what she could. She has come beforehand to anoint My body for burial. 
 
 ###### 9 
-Assuredly, I say to you, wherever this gospel is preached in the whole world, what this woman has done will also be told as a memorial to her." ## Judas Agrees to Betray Jesus 
+Assuredly, I say to you, wherever this gospel is preached in the whole world, what this woman has done will also be told as a memorial to her." 
+
+## Judas Agrees to Betray Jesus 
 
 ###### 10 
 Then Judas Iscariot, one of the twelve, went to the chief priests to betray Him to them. 
@@ -72,7 +76,9 @@ And they began to be sorrowful, and to say to Him one by one, "Is it I?" And ano
 He answered and said to them, "It is one of the twelve, who dips with Me in the dish. 
 
 ###### 21 
-The Son of Man indeed goes just as it is written of Him, but woe to that man by whom the Son of Man is betrayed! It would have been good for that man if he had never been born." ## Jesus Institutes the Lord's Supper 
+The Son of Man indeed goes just as it is written of Him, but woe to that man by whom the Son of Man is betrayed! It would have been good for that man if he had never been born." 
+
+## Jesus Institutes the Lord's Supper 
 
 ###### 22 
 And as they were eating, Jesus took bread, blessed and broke it, and gave it to them and said, "Take, eat; this is My body." 
@@ -139,7 +145,9 @@ And when He returned, He found them asleep again, for their eyes were heavy; and
 Then He came the third time and said to them, "Are you still sleeping and resting? It is enough! The hour has come; behold, the Son of Man is being betrayed into the hands of sinners. 
 
 ###### 42 
-Rise, let us be going. See, My betrayer is at hand." ## Betrayal and Arrest in Gethsemane 
+Rise, let us be going. See, My betrayer is at hand." 
+
+## Betrayal and Arrest in Gethsemane 
 
 ###### 43 
 And immediately, while He was still speaking, Judas, one of the twelve, with a great multitude with swords and clubs, came from the chief priests and the scribes and the elders. 

@@ -37,7 +37,9 @@ They shall throw you down into the Pit, And you shall die the death of the slain
 "Will you still say before him who slays you, 'I am a god'? But you shall be a man, and not a god, In the hand of him who slays you. 
 
 ###### 10 
-You shall die the death of the uncircumcised By the hand of aliens; For I have spoken," says the Lord God.' " ## Lamentation for the King of Tyre 
+You shall die the death of the uncircumcised By the hand of aliens; For I have spoken," says the Lord God.' " 
+
+## Lamentation for the King of Tyre 
 
 ###### 11 
 Moreover the word of the Lord came to me, saying, 
@@ -64,7 +66,9 @@ You were perfect in your ways from the day you were created, Till iniquity was f
 "You defiled your sanctuaries By the multitude of your iniquities, By the iniquity of your trading; Therefore I brought fire from your midst; It devoured you, And I turned you to ashes upon the earth In the sight of all who saw you. 
 
 ###### 19 
-All who knew you among the peoples are astonished at you; You have become a horror, And shall be no more forever." ' " ## Proclamation Against Sidon 
+All who knew you among the peoples are astonished at you; You have become a horror, And shall be no more forever." ' " 
+
+## Proclamation Against Sidon 
 
 ###### 20 
 Then the word of the Lord came to me, saying, 
@@ -79,7 +83,9 @@ and say, 'Thus says the Lord God: "Behold, I am against you, O Sidon; I will be 
 For I will send pestilence upon her, And blood in her streets; The wounded shall be judged in her midst By the sword against her on every side; Then they shall know that I am the Lord. 
 
 ###### 24 
-"And there shall no longer be a pricking brier or a painful thorn for the house of Israel from among all who are around them, who despise them. Then they shall know that I am the Lord God." ## Israel's Future Blessing 
+"And there shall no longer be a pricking brier or a painful thorn for the house of Israel from among all who are around them, who despise them. Then they shall know that I am the Lord God." 
+
+## Israel's Future Blessing 
 
 ###### 25 
 'Thus says the Lord God: "When I have gathered the house of Israel from the peoples among whom they are scattered, and am hallowed in them in the sight of the Gentiles, then they will dwell in their own land which I gave to My servant Jacob. 

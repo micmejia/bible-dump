@@ -19,7 +19,9 @@ I fed you with milk and not with solid food; for until now you were not able to 
 for you are still carnal. For where there are envy, strife, and divisions among you, are you not carnal and behaving like mere men? 
 
 ###### 4 
-For when one says, "I am of Paul," and another, "I am of Apollos," are you not carnal? ## Watering, Working, Warning 
+For when one says, "I am of Paul," and another, "I am of Apollos," are you not carnal? 
+
+## Watering, Working, Warning 
 
 ###### 5 
 Who then is Paul, and who is Apollos, but ministers through whom you believed, as the Lord gave to each one? 

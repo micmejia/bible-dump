@@ -39,7 +39,9 @@ I say to you that likewise there will be more joy in heaven over one sinner who 
 And when she has found it, she calls her friends and neighbors together, saying, 'Rejoice with me, for I have found the piece which I lost!' 
 
 ###### 10 
-Likewise, I say to you, there is joy in the presence of the angels of God over one sinner who repents." ## The Parable of the Lost Son 
+Likewise, I say to you, there is joy in the presence of the angels of God over one sinner who repents." 
+
+## The Parable of the Lost Son 
 
 ###### 11 
 Then He said: "A certain man had two sons. 

@@ -30,7 +30,9 @@ Now John was clothed with camel's hair and with a leather belt around his waist,
 And he preached, saying, "There comes One after me who is mightier than I, whose sandal strap I am not worthy to stoop down and loose. 
 
 ###### 8 
-I indeed baptized you with water, but He will baptize you with the Holy Spirit." ## John Baptizes Jesus 
+I indeed baptized you with water, but He will baptize you with the Holy Spirit." 
+
+## John Baptizes Jesus 
 
 ###### 9 
 It came to pass in those days that Jesus came from Nazareth of Galilee, and was baptized by John in the Jordan. 
@@ -39,7 +41,9 @@ It came to pass in those days that Jesus came from Nazareth of Galilee, and was 
 And immediately, coming up from the water, He saw the heavens parting and the Spirit descending upon Him like a dove. 
 
 ###### 11 
-Then a voice came from heaven, "You are My beloved Son, in whom I am well pleased." ## Satan Tempts Jesus 
+Then a voice came from heaven, "You are My beloved Son, in whom I am well pleased." 
+
+## Satan Tempts Jesus 
 
 ###### 12 
 Immediately the Spirit drove Him into the wilderness. 
@@ -53,7 +57,9 @@ And He was there in the wilderness forty days, tempted by Satan, and was with th
 Now after John was put in prison, Jesus came to Galilee, preaching the gospel of the kingdom of God, 
 
 ###### 15 
-and saying, "The time is fulfilled, and the kingdom of God is at hand. Repent, and believe in the gospel." ## Four Fishermen Called as Disciples 
+and saying, "The time is fulfilled, and the kingdom of God is at hand. Repent, and believe in the gospel." 
+
+## Four Fishermen Called as Disciples 
 
 ###### 16 
 And as He walked by the Sea of Galilee, He saw Simon and Andrew his brother casting a net into the sea; for they were fishermen. 

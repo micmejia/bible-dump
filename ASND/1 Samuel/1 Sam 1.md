@@ -534,7 +534,9 @@ Kinabukasan, maagang bumangon si Elkana at ang kanyang pamilya, at silaʼy sumam
 
 
 
-At dumating ang panahon na nagbuntis siya at nanganak ng isang lalaki. Pinangalanan niya itong Samuel, dahil sinabi niya, "Hiningi ko siya sa Panginoon." ## Inihandog ni Hanna si Samuel 
+At dumating ang panahon na nagbuntis siya at nanganak ng isang lalaki. Pinangalanan niya itong Samuel, dahil sinabi niya, "Hiningi ko siya sa Panginoon." 
+
+## Inihandog ni Hanna si Samuel 
 
 
 

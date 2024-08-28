@@ -72,7 +72,9 @@ Ito ang mensahe ni Amos na isang pastol ng mga tupa na taga-Tekoa. Ang mensaheng
 
 
 
-Sinabi ni Amos: "Umaatungal ang Panginoon mula sa Zion; dumadagundong ang tinig niya mula sa Jerusalem. Dahil dito natutuyo ang mga pastulan ng mga pastol at nalalanta ang mga tanim sa tuktok ng Bundok ng Carmel." ## Ang Parusa sa Bansang Syria 
+Sinabi ni Amos: "Umaatungal ang Panginoon mula sa Zion; dumadagundong ang tinig niya mula sa Jerusalem. Dahil dito natutuyo ang mga pastulan ng mga pastol at nalalanta ang mga tanim sa tuktok ng Bundok ng Carmel." 
+
+## Ang Parusa sa Bansang Syria 
 
 
 
@@ -171,7 +173,9 @@ Kaya susunugin ko ang palasyo ni Haring Hazael at ang matitibay na bahagi ng Dam
 
 
 
-Wawasakin ko ang pintuan ng Damascus at papatayin ko ang pinuno ng Lambak ng Aven at ng Bet Eden. Bibihagin at dadalhin sa Kir ang mga mamamayan ng Syria. Ako, ang Panginoon, ang nagsasabi nito." ## Ang Parusa sa Bansang Filistia 
+Wawasakin ko ang pintuan ng Damascus at papatayin ko ang pinuno ng Lambak ng Aven at ng Bet Eden. Bibihagin at dadalhin sa Kir ang mga mamamayan ng Syria. Ako, ang Panginoon, ang nagsasabi nito." 
+
+## Ang Parusa sa Bansang Filistia 
 
 
 
@@ -270,7 +274,9 @@ Kaya susunugin ko ang mga pader ng Gaza at ang matitibay na bahagi ng lungsod na
 
 
 
-Lilipulin ko ang mga pinuno ng Ashdod at ng Ashkelon, at parurusahan ko ang mga taga-Ekron. At ang mga Filisteong makakatakas sa parusa ay mamamatay din. Ako, ang Panginoong Dios, ang nagsasabi nito." ## Ang Parusa sa Bansang Tyre 
+Lilipulin ko ang mga pinuno ng Ashdod at ng Ashkelon, at parurusahan ko ang mga taga-Ekron. At ang mga Filisteong makakatakas sa parusa ay mamamatay din. Ako, ang Panginoong Dios, ang nagsasabi nito." 
+
+## Ang Parusa sa Bansang Tyre 
 
 
 
@@ -336,7 +342,9 @@ Ito ang sinasabi ng Panginoon tungkol sa Tyre: "Dahil sa patuloy na pagkakasala 
 
 
 
-Kaya susunugin ko ang mga pader ng Tyre at ang matitibay na bahagi ng lungsod nito." ## Ang Parusa sa Bansang Edom 
+Kaya susunugin ko ang mga pader ng Tyre at ang matitibay na bahagi ng lungsod nito." 
+
+## Ang Parusa sa Bansang Edom 
 
 
 
@@ -402,7 +410,9 @@ Ito ang sinasabi ng Panginoon tungkol sa Edom: "Dahil sa patuloy na pagkakasala 
 
 
 
-Kaya susunugin ko ang Teman at ang matitibay na bahagi ng Bozra." ## Ang Parusa sa Bansang Ammon 
+Kaya susunugin ko ang Teman at ang matitibay na bahagi ng Bozra." 
+
+## Ang Parusa sa Bansang Ammon 
 
 
 

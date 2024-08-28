@@ -85,7 +85,9 @@ Now when the days of her purification according to the law of Moses were complet
 (as it is written in the law of the Lord, "Every male who opens the womb shall be called holy to the Lord"), 
 
 ###### 24 
-and to offer a sacrifice according to what is said in the law of the Lord, "A pair of turtledoves or two young pigeons." ## Simeon Sees God's Salvation 
+and to offer a sacrifice according to what is said in the law of the Lord, "A pair of turtledoves or two young pigeons." 
+
+## Simeon Sees God's Salvation 
 
 ###### 25 
 And behold, there was a man in Jerusalem whose name was Simeon, and this man was just and devout, waiting for the Consolation of Israel, and the Holy Spirit was upon him. 
@@ -118,7 +120,9 @@ And Joseph and His mother marveled at those things which were spoken of Him.
 Then Simeon blessed them, and said to Mary His mother, "Behold, this Child is destined for the fall and rising of many in Israel, and for a sign which will be spoken against 
 
 ###### 35 
-(yes, a sword will pierce through your own soul also), that the thoughts of many hearts may be revealed." ## Anna Bears Witness to the Redeemer 
+(yes, a sword will pierce through your own soul also), that the thoughts of many hearts may be revealed." 
+
+## Anna Bears Witness to the Redeemer 
 
 ###### 36 
 Now there was one, Anna, a prophetess, the daughter of Phanuel, of the tribe of Asher. She was of a great age, and had lived with a husband seven years from her virginity; 

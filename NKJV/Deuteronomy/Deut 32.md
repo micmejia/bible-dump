@@ -148,7 +148,9 @@ Moses finished speaking all these words to all Israel,
 and he said to them: "Set your hearts on all the words which I testify among you today, which you shall command your children to be careful to observe--all the words of this law. 
 
 ###### 47 
-For it _is_ not a futile thing for you, because it _is_ your life, and by this word you shall prolong _your_ days in the land which you cross over the Jordan to possess." ## Moses to Die on Mount Nebo 
+For it _is_ not a futile thing for you, because it _is_ your life, and by this word you shall prolong _your_ days in the land which you cross over the Jordan to possess." 
+
+## Moses to Die on Mount Nebo 
 
 ###### 48 
 Then the Lord spoke to Moses that very same day, saying: 

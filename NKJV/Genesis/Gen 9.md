@@ -58,7 +58,9 @@ and I will remember My covenant which _is_ between Me and you and every living c
 The rainbow shall be in the cloud, and I will look on it to remember the everlasting covenant between God and every living creature of all flesh that _is_ on the earth." 
 
 ###### 17 
-And God said to Noah, "This _is_ the sign of the covenant which I have established between Me and all flesh that _is_ on the earth." ## Noah and His Sons 
+And God said to Noah, "This _is_ the sign of the covenant which I have established between Me and all flesh that _is_ on the earth." 
+
+## Noah and His Sons 
 
 ###### 18 
 Now the sons of Noah who went out of the ark were Shem, Ham, and Japheth. And Ham _was_ the father of Canaan. 

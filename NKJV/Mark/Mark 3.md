@@ -105,7 +105,9 @@ No one can enter a strong man's house and plunder his goods, unless he first bin
 but he who blasphemes against the Holy Spirit never has forgiveness, but is subject to eternal condemnation"-- 
 
 ###### 30 
-because they said, "He has an unclean spirit." ## Jesus' Mother and Brothers Send for Him 
+because they said, "He has an unclean spirit." 
+
+## Jesus' Mother and Brothers Send for Him 
 
 ###### 31 
 Then His brothers and His mother came, and standing outside they sent to Him, calling Him. 

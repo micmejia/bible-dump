@@ -73,7 +73,9 @@ At nanalangin si Solomon, "Sinabi nʼyo po Panginoon na maninirahan kayo sa maka
 
 
 
-Nagpatayo po ako ng kahanga-hangang na templo para sa inyo, na matatahanan nʼyo magpakailanman." ## Ang Mensahe ni Solomon sa mga Mamamayan ng Israel 
+Nagpatayo po ako ng kahanga-hangang na templo para sa inyo, na matatahanan nʼyo magpakailanman." 
+
+## Ang Mensahe ni Solomon sa mga Mamamayan ng Israel 
 
 
 
@@ -370,7 +372,9 @@ Ngunit hindi ikaw ang magtatayo nito kundi ang sarili mong anak. Siya ang magtat
 
 
 
-Nagpagawa ako ng lugar doon sa templo para sa Kahon kung saan nakalagay ang Kasunduan ng Panginoon na kanyang ginawa sa mamamayan ng Israel." ## Ang Panalangin ni Solomon para sa Mamamayang Israel 
+Nagpagawa ako ng lugar doon sa templo para sa Kahon kung saan nakalagay ang Kasunduan ng Panginoon na kanyang ginawa sa mamamayan ng Israel." 
+
+## Ang Panalangin ni Solomon para sa Mamamayang Israel 
 
 
 

@@ -86,7 +86,9 @@ He who hates Me hates My Father also.
 If I had not done among them the works which no one else did, they would have no sin; but now they have seen and also hated both Me and My Father. 
 
 ###### 25 
-But this happened that the word might be fulfilled which is written in their law, 'They hated Me without a cause.' ## The Coming Rejection 
+But this happened that the word might be fulfilled which is written in their law, 'They hated Me without a cause.' 
+
+## The Coming Rejection 
 
 ###### 26 
 "But when the Helper comes, whom I shall send to you from the Father, the Spirit of truth who proceeds from the Father, He will testify of Me. 

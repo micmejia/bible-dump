@@ -37,7 +37,9 @@ The sons of Aaron, the priests, shall blow the trumpets; and these shall be to y
 "When you go to war in your land against the enemy who oppresses you, then you shall sound an alarm with the trumpets, and you will be remembered before the Lord your God, and you will be saved from your enemies. 
 
 ###### 10 
-Also in the day of your gladness, in your appointed feasts, and at the beginning of your months, you shall blow the trumpets over your burnt offerings and over the sacrifices of your peace offerings; and they shall be a memorial for you before your God: I _am_ the Lord your God." ## Departure from Sinai 
+Also in the day of your gladness, in your appointed feasts, and at the beginning of your months, you shall blow the trumpets over your burnt offerings and over the sacrifices of your peace offerings; and they shall be a memorial for you before your God: I _am_ the Lord your God." 
+
+## Departure from Sinai 
 
 ###### 11 
 Now it came to pass on the twentieth _day_ of the second month, in the second year, that the cloud was taken up from above the tabernacle of the Testimony. 

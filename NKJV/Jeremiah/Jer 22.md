@@ -78,7 +78,9 @@ I spoke to you in your prosperity, But you said, 'I will not hear.' This has bee
 The wind shall eat up all your rulers, And your lovers shall go into captivity; Surely then you will be ashamed and humiliated For all your wickedness. 
 
 ###### 23 
-O inhabitant of Lebanon, Making your nest in the cedars, How gracious will you be when pangs come upon you, Like the pain of a woman in labor? ## Message to Coniah 
+O inhabitant of Lebanon, Making your nest in the cedars, How gracious will you be when pangs come upon you, Like the pain of a woman in labor? 
+
+## Message to Coniah 
 
 ###### 24 
 "As I live," says the Lord, "though Coniah the son of Jehoiakim, king of Judah, were the signet on My right hand, yet I would pluck you off; 

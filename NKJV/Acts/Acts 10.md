@@ -112,7 +112,9 @@ and said, 'Cornelius, your prayer has been heard, and your alms are remembered i
 Send therefore to Joppa and call Simon here, whose surname is Peter. He is lodging in the house of Simon, a tanner, by the sea. When he comes, he will speak to you.' 
 
 ###### 33 
-So I sent to you immediately, and you have done well to come. Now therefore, we are all present before God, to hear all the things commanded you by God." ## Preaching to Cornelius' Household 
+So I sent to you immediately, and you have done well to come. Now therefore, we are all present before God, to hear all the things commanded you by God." 
+
+## Preaching to Cornelius' Household 
 
 ###### 34 
 Then Peter opened his mouth and said: "In truth I perceive that God shows no partiality. 
@@ -142,7 +144,9 @@ not to all the people, but to witnesses chosen before by God, even to us who ate
 And He commanded us to preach to the people, and to testify that it is He who was ordained by God to be Judge of the living and the dead. 
 
 ###### 43 
-To Him all the prophets witness that, through His name, whoever believes in Him will receive remission of sins." ## The Holy Spirit Falls on the Gentiles 
+To Him all the prophets witness that, through His name, whoever believes in Him will receive remission of sins." 
+
+## The Holy Spirit Falls on the Gentiles 
 
 ###### 44 
 While Peter was still speaking these words, the Holy Spirit fell upon all those who heard the word. 

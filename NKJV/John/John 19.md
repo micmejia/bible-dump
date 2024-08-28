@@ -19,7 +19,9 @@ And the soldiers twisted a crown of thorns and put it on His head, and they put 
 Then they said, "Hail, King of the Jews!" And they struck Him with their hands. 
 
 ###### 4 
-Pilate then went out again, and said to them, "Behold, I am bringing Him out to you, that you may know that I find no fault in Him." ## Pilate's Decision 
+Pilate then went out again, and said to them, "Behold, I am bringing Him out to you, that you may know that I find no fault in Him." 
+
+## Pilate's Decision 
 
 ###### 5 
 Then Jesus came out, wearing the crown of thorns and the purple robe. And Pilate said to them, "Behold the Man!" 
@@ -126,7 +128,9 @@ And he who has seen has testified, and his testimony is true; and he knows that 
 For these things were done that the Scripture should be fulfilled, "Not one of His bones shall be broken." 
 
 ###### 37 
-And again another Scripture says, "They shall look on Him whom they pierced." ## Jesus Buried in Joseph's Tomb 
+And again another Scripture says, "They shall look on Him whom they pierced." 
+
+## Jesus Buried in Joseph's Tomb 
 
 ###### 38 
 After this, Joseph of Arimathea, being a disciple of Jesus, but secretly, for fear of the Jews, asked Pilate that he might take away the body of Jesus; and Pilate gave him permission. So he came and took the body of Jesus. 

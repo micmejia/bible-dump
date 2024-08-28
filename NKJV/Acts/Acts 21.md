@@ -49,7 +49,9 @@ Now when we heard these things, both we and those from that place pleaded with h
 Then Paul answered, "What do you mean by weeping and breaking my heart? For I am ready not only to be bound, but also to die at Jerusalem for the name of the Lord Jesus." 
 
 ###### 14 
-So when he would not be persuaded, we ceased, saying, "The will of the Lord be done." ## Paul Urged to Make Peace 
+So when he would not be persuaded, we ceased, saying, "The will of the Lord be done." 
+
+## Paul Urged to Make Peace 
 
 ###### 15 
 And after those days we packed and went up to Jerusalem. 
@@ -82,7 +84,9 @@ Therefore do what we tell you: We have four men who have taken a vow.
 Take them and be purified with them, and pay their expenses so that they may shave their heads, and that all may know that those things of which they were informed concerning you are nothing, but that you yourself also walk orderly and keep the law. 
 
 ###### 25 
-But concerning the Gentiles who believe, we have written and decided that they should observe no such thing, except that they should keep themselves from things offered to idols, from blood, from things strangled, and from sexual immorality." ## Arrested in the Temple 
+But concerning the Gentiles who believe, we have written and decided that they should observe no such thing, except that they should keep themselves from things offered to idols, from blood, from things strangled, and from sexual immorality." 
+
+## Arrested in the Temple 
 
 ###### 26 
 Then Paul took the men, and the next day, having been purified with them, entered the temple to announce the expiration of the days of purification, at which time an offering should be made for each one of them. 
@@ -115,7 +119,9 @@ And some among the multitude cried one thing and some another. So when he could 
 When he reached the stairs, he had to be carried by the soldiers because of the violence of the mob. 
 
 ###### 36 
-For the multitude of the people followed after, crying out, "Away with him!" ## Addressing the Jerusalem Mob 
+For the multitude of the people followed after, crying out, "Away with him!" 
+
+## Addressing the Jerusalem Mob 
 
 ###### 37 
 Then as Paul was about to be led into the barracks, he said to the commander, "May I speak to you?" He replied, "Can you speak Greek? 

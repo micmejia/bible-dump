@@ -469,7 +469,9 @@ Kailangang wala silang iiwanang pagkain kinaumagahan, at hindi rin nila babaliin
 
 
 
-"Kung may dayuhan na naninirahang kasama ninyo na gustong makipagdiwang ng Pista ng Paglampas ng Anghel, kailangang ipagdiwang niya ito ayon sa lahat ng mga tuntunin nito. Magkapareho lang ang mga tuntunin para sa mga katutubong Israelita at sa mga dayuhan." ## Ang Ulap sa Toldang Tipanan 
+"Kung may dayuhan na naninirahang kasama ninyo na gustong makipagdiwang ng Pista ng Paglampas ng Anghel, kailangang ipagdiwang niya ito ayon sa lahat ng mga tuntunin nito. Magkapareho lang ang mga tuntunin para sa mga katutubong Israelita at sa mga dayuhan." 
+
+## Ang Ulap sa Toldang Tipanan 
 
 
 

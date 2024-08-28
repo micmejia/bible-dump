@@ -74,7 +74,9 @@ in mighty signs and wonders, by the power of the Spirit of God, so that from Jer
 And so I have made it my aim to preach the gospel, not where Christ was named, lest I should build on another man's foundation, 
 
 ###### 21 
-but as it is written: "To whom He was not announced, they shall see; And those who have not heard shall understand." ## Plan to Visit Rome 
+but as it is written: "To whom He was not announced, they shall see; And those who have not heard shall understand." 
+
+## Plan to Visit Rome 
 
 ###### 22 
 For this reason I also have been much hindered from coming to you. 

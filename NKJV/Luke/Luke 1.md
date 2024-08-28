@@ -83,7 +83,9 @@ So it was, as soon as the days of his service were completed, that he departed t
 Now after those days his wife Elizabeth conceived; and she hid herself five months, saying, 
 
 ###### 25 
-"Thus the Lord has dealt with me, in the days when He looked on me, to take away my reproach among people." ## Christ's Birth Announced to Mary 
+"Thus the Lord has dealt with me, in the days when He looked on me, to take away my reproach among people." 
+
+## Christ's Birth Announced to Mary 
 
 ###### 26 
 Now in the sixth month the angel Gabriel was sent by God to a city of Galilee named Nazareth, 
@@ -145,7 +147,9 @@ But why is this granted to me, that the mother of my Lord should come to me?
 For indeed, as soon as the voice of your greeting sounded in my ears, the babe leaped in my womb for joy. 
 
 ###### 45 
-Blessed is she who believed, for there will be a fulfillment of those things which were told her from the Lord." ## The Song of Mary 
+Blessed is she who believed, for there will be a fulfillment of those things which were told her from the Lord." 
+
+## The Song of Mary 
 
 ###### 46 
 And Mary said: "My soul magnifies the Lord, 

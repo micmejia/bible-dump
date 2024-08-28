@@ -700,7 +700,9 @@ Kumuha ng tamburin si Miriam na propeta at kapatid ni Aaron, at pinangunahan niy
 
 
 
-Inawit ni Miriam ang awit na ito sa kanila: "Umawit kayo sa Panginoon dahil lubos siyang nagtagumpay. Itinapon niya sa dagat ang mga kabayo at ang mga sakay nito." ## Ang Mapait na Tubig 
+Inawit ni Miriam ang awit na ito sa kanila: "Umawit kayo sa Panginoon dahil lubos siyang nagtagumpay. Itinapon niya sa dagat ang mga kabayo at ang mga sakay nito." 
+
+## Ang Mapait na Tubig 
 
 
 

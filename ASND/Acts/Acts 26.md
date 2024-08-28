@@ -370,7 +370,9 @@ Ganito ang aking ginawa noon sa Jerusalem. Sa pamamagitan ng kapangyarihang ibin
 
 
 
-Maraming beses na inikot ko ang mga sambahan ng mga Judio para hanapin sila at parusahan, para piliting magsalita laban kay Jesus. Sa tindi ng galit ko sa kanila, nakarating ako sa malalayong lungsod sa pag-uusig sa kanila." ## Ikinuwento ni Pablo kung Paano Niya Nakilala ang Panginoon 
+Maraming beses na inikot ko ang mga sambahan ng mga Judio para hanapin sila at parusahan, para piliting magsalita laban kay Jesus. Sa tindi ng galit ko sa kanila, nakarating ako sa malalayong lungsod sa pag-uusig sa kanila." 
+
+## Ikinuwento ni Pablo kung Paano Niya Nakilala ang Panginoon 
 
 
 
@@ -601,7 +603,9 @@ Ililigtas kita sa mga Judio at sa mga hindi Judio. Ipapadala kita sa kanila
 
 
 
-para imulat ang kanilang mata at dalhin sila mula sa kadiliman papunta sa liwanag, at mula sa kapangyarihan ni Satanas papunta sa Dios. At sa pamamagitan ng kanilang pananampalataya sa akin, patatawarin sila sa kanilang mga kasalanan, at mapapabilang na sila sa mga taong itinuring ng Dios na sa kanya.' ## Isinalaysay ni Pablo ang Kanyang Gawain 
+para imulat ang kanilang mata at dalhin sila mula sa kadiliman papunta sa liwanag, at mula sa kapangyarihan ni Satanas papunta sa Dios. At sa pamamagitan ng kanilang pananampalataya sa akin, patatawarin sila sa kanilang mga kasalanan, at mapapabilang na sila sa mga taong itinuring ng Dios na sa kanya.' 
+
+## Isinalaysay ni Pablo ang Kanyang Gawain 
 
 
 

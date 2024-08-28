@@ -64,7 +64,9 @@ and saying: 'We played the flute for you, And you did not dance; We mourned to y
 For John came neither eating nor drinking, and they say, 'He has a demon.' 
 
 ###### 19 
-The Son of Man came eating and drinking, and they say, 'Look, a glutton and a winebibber, a friend of tax collectors and sinners!' But wisdom is justified by her children." ## Woe to the Impenitent Cities 
+The Son of Man came eating and drinking, and they say, 'Look, a glutton and a winebibber, a friend of tax collectors and sinners!' But wisdom is justified by her children." 
+
+## Woe to the Impenitent Cities 
 
 ###### 20 
 Then He began to rebuke the cities in which most of His mighty works had been done, because they did not repent: 
@@ -79,7 +81,9 @@ But I say to you, it will be more tolerable for Tyre and Sidon in the day of jud
 And you, Capernaum, who are exalted to heaven, will be brought down to Hades; for if the mighty works which were done in you had been done in Sodom, it would have remained until this day. 
 
 ###### 24 
-But I say to you that it shall be more tolerable for the land of Sodom in the day of judgment than for you." ## Jesus Gives True Rest 
+But I say to you that it shall be more tolerable for the land of Sodom in the day of judgment than for you." 
+
+## Jesus Gives True Rest 
 
 ###### 25 
 At that time Jesus answered and said, "I thank You, Father, Lord of heaven and earth, that You have hidden these things from the wise and prudent and have revealed them to babes. 

@@ -54,7 +54,9 @@ If the household is worthy, let your peace come upon it. But if it is not worthy
 And whoever will not receive you nor hear your words, when you depart from that house or city, shake off the dust from your feet. 
 
 ###### 15 
-Assuredly, I say to you, it will be more tolerable for the land of Sodom and Gomorrah in the day of judgment than for that city! ## Persecutions Are Coming 
+Assuredly, I say to you, it will be more tolerable for the land of Sodom and Gomorrah in the day of judgment than for that city! 
+
+## Persecutions Are Coming 
 
 ###### 16 
 "Behold, I send you out as sheep in the midst of wolves. Therefore be wise as serpents and harmless as doves. 

@@ -28,7 +28,9 @@ So she went from him and shut the door behind her and her sons, who brought _the
 Now it came to pass, when the vessels were full, that she said to her son, "Bring me another vessel." And he said to her, "_There is_ not another vessel." So the oil ceased. 
 
 ###### 7 
-Then she came and told the man of God. And he said, "Go, sell the oil and pay your debt; and you _and_ your sons live on the rest." ## Elisha Raises the Shunammite's Son 
+Then she came and told the man of God. And he said, "Go, sell the oil and pay your debt; and you _and_ your sons live on the rest." 
+
+## Elisha Raises the Shunammite's Son 
 
 ###### 8 
 Now it happened one day that Elisha went to Shunem, where there _was_ a notable woman, and she persuaded him to eat some food. So it was, as often as he passed by, he would turn in there to eat some food. 

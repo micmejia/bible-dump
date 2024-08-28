@@ -48,7 +48,9 @@ Cretans and Arabs--we hear them speaking in our own tongues the wonderful works 
 So they were all amazed and perplexed, saying to one another, "Whatever could this mean?" 
 
 ###### 13 
-Others mocking said, "They are full of new wine." ## Peter's Sermon 
+Others mocking said, "They are full of new wine." 
+
+## Peter's Sermon 
 
 ###### 14 
 But Peter, standing up with the eleven, raised his voice and said to them, "Men of Judea and all who dwell in Jerusalem, let this be known to you, and heed my words. 
@@ -126,7 +128,9 @@ Now when they heard this, they were cut to the heart, and said to Peter and the 
 Then Peter said to them, "Repent, and let every one of you be baptized in the name of Jesus Christ for the remission of sins; and you shall receive the gift of the Holy Spirit. 
 
 ###### 39 
-For the promise is to you and to your children, and to all who are afar off, as many as the Lord our God will call." ## A Vital Church Grows 
+For the promise is to you and to your children, and to all who are afar off, as many as the Lord our God will call." 
+
+## A Vital Church Grows 
 
 ###### 40 
 And with many other words he testified and exhorted them, saying, "Be saved from this perverse generation." 

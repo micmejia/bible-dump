@@ -1329,7 +1329,9 @@ Itinaboy niya ang mga bansang mas makapangyarihan pa sa inyo para madala kayo sa
 
 
 
-Sundin ninyo ang kanyang mga utos at tuntunin na ibinigay ko sa inyo ngayon para walang masamang mangyari sa inyo at sa inyong salinlahi, upang mabuhay kayo nang matagal sa lupaing ibinibigay ng Panginoon na inyong Dios magpakailanman." ## Ang Lungsod na Tanggulan 
+Sundin ninyo ang kanyang mga utos at tuntunin na ibinigay ko sa inyo ngayon para walang masamang mangyari sa inyo at sa inyong salinlahi, upang mabuhay kayo nang matagal sa lupaing ibinibigay ng Panginoon na inyong Dios magpakailanman." 
+
+## Ang Lungsod na Tanggulan 
 
 
 

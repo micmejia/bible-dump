@@ -37,7 +37,9 @@ And the Chaldeans shall come back and fight against this city, and take it and b
 Thus says the Lord: 'Do not deceive yourselves, saying, "The Chaldeans will surely depart from us," for they will not depart. 
 
 ###### 10 
-For though you had defeated the whole army of the Chaldeans who fight against you, and there remained only wounded men among them, they would rise up, every man in his tent, and burn the city with fire.' " ## Jeremiah Imprisoned 
+For though you had defeated the whole army of the Chaldeans who fight against you, and there remained only wounded men among them, they would rise up, every man in his tent, and burn the city with fire.' " 
+
+## Jeremiah Imprisoned 
 
 ###### 11 
 And it happened, when the army of the Chaldeans left the siege of Jerusalem for fear of Pharaoh's army, 

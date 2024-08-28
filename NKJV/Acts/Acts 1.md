@@ -32,7 +32,9 @@ Therefore, when they had come together, they asked Him, saying, "Lord, will You 
 And He said to them, "It is not for you to know times or seasons which the Father has put in His own authority. 
 
 ###### 8 
-But you shall receive power when the Holy Spirit has come upon you; and you shall be witnesses to Me in Jerusalem, and in all Judea and Samaria, and to the end of the earth." ## Jesus Ascends to Heaven 
+But you shall receive power when the Holy Spirit has come upon you; and you shall be witnesses to Me in Jerusalem, and in all Judea and Samaria, and to the end of the earth." 
+
+## Jesus Ascends to Heaven 
 
 ###### 9 
 Now when He had spoken these things, while they watched, He was taken up, and a cloud received Him out of their sight. 
@@ -41,7 +43,9 @@ Now when He had spoken these things, while they watched, He was taken up, and a 
 And while they looked steadfastly toward heaven as He went up, behold, two men stood by them in white apparel, 
 
 ###### 11 
-who also said, "Men of Galilee, why do you stand gazing up into heaven? This same Jesus, who was taken up from you into heaven, will so come in like manner as you saw Him go into heaven." ## The Upper Room Prayer Meeting 
+who also said, "Men of Galilee, why do you stand gazing up into heaven? This same Jesus, who was taken up from you into heaven, will so come in like manner as you saw Him go into heaven." 
+
+## The Upper Room Prayer Meeting 
 
 ###### 12 
 Then they returned to Jerusalem from the mount called Olivet, which is near Jerusalem, a Sabbath day's journey. 

@@ -37,7 +37,9 @@ that the Lord sent a prophet to the children of Israel, who said to them, "Thus 
 and I delivered you out of the hand of the Egyptians and out of the hand of all who oppressed you, and drove them out before you and gave you their land. 
 
 ###### 10 
-Also I said to you, "I _am_ the Lord your God; do not fear the gods of the Amorites, in whose land you dwell." But you have not obeyed My voice.' " ## Gideon 
+Also I said to you, "I _am_ the Lord your God; do not fear the gods of the Amorites, in whose land you dwell." But you have not obeyed My voice.' " 
+
+## Gideon 
 
 ###### 11 
 Now the Angel of the Lord came and sat under the terebinth tree which _was_ in Ophrah, which _belonged_ to Joash the Abiezrite, while his son Gideon threshed wheat in the winepress, in order to hide _it_ from the Midianites. 

@@ -139,7 +139,9 @@ Sinabi nilang muli, "Purihin ang Panginoon! Ang usok ng nasusunog na lungsod ay 
 
 
 
-Lumuhod ang 24 na namumuno at ang apat na buhay na nilalang at sumamba sa Dios na nakaupo sa kanyang trono. Sinabi nila, "Amen! Purihin ang Panginoon!" ## Handaan sa Kasal ng Tupa 
+Lumuhod ang 24 na namumuno at ang apat na buhay na nilalang at sumamba sa Dios na nakaupo sa kanyang trono. Sinabi nila, "Amen! Purihin ang Panginoon!" 
+
+## Handaan sa Kasal ng Tupa 
 
 
 
@@ -337,7 +339,9 @@ At sinabi sa akin ng anghel, "Isulat mo ito: Mapalad ang mga inimbitahan sa hand
 
 
 
-Lumuhod ako sa paanan niya upang sumamba sa kanya. Pero sinabi niya sa akin, "Huwag! Huwag mo akong sambahin. Sapagkat alipin din ako ng Dios, tulad mo at ng mga kapatid mong nagpapahayag ng katotohanang itinuro ni Jesus. Ang Dios ang sambahin mo!" (Sapagkat ang mga katotohanang itinuro ni Jesus ay siyang buod ng mga sinabi at isinulat ng mga propeta.) ## Ang Nakasakay sa Puting Kabayo 
+Lumuhod ako sa paanan niya upang sumamba sa kanya. Pero sinabi niya sa akin, "Huwag! Huwag mo akong sambahin. Sapagkat alipin din ako ng Dios, tulad mo at ng mga kapatid mong nagpapahayag ng katotohanang itinuro ni Jesus. Ang Dios ang sambahin mo!" (Sapagkat ang mga katotohanang itinuro ni Jesus ay siyang buod ng mga sinabi at isinulat ng mga propeta.) 
+
+## Ang Nakasakay sa Puting Kabayo 
 
 
 

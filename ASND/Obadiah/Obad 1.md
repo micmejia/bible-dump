@@ -304,7 +304,9 @@ Ako, ang Panginoon, ang nagsasabi na sa araw ng paghatol ko sa inyo, lilipulin k
 
 
 
-Manginginig sa takot ang inyong mga sundalo sa lungsod ng Teman, kaya mamamatay kayong lahat na nakatira sa Bundok ni Esau." ## Ang Kasalanan ng mga Taga-Edom 
+Manginginig sa takot ang inyong mga sundalo sa lungsod ng Teman, kaya mamamatay kayong lahat na nakatira sa Bundok ni Esau." 
+
+## Ang Kasalanan ng mga Taga-Edom 
 
 
 

@@ -43,7 +43,9 @@ So Paul said, "I stand at Caesar's judgment seat, where I ought to be judged. To
 For if I am an offender, or have committed anything deserving of death, I do not object to dying; but if there is nothing in these things of which these men accuse me, no one can deliver me to them. I appeal to Caesar." 
 
 ###### 12 
-Then Festus, when he had conferred with the council, answered, "You have appealed to Caesar? To Caesar you shall go!" ## Paul Before Agrippa 
+Then Festus, when he had conferred with the council, answered, "You have appealed to Caesar? To Caesar you shall go!" 
+
+## Paul Before Agrippa 
 
 ###### 13 
 And after some days King Agrippa and Bernice came to Caesarea to greet Festus. 

@@ -110,7 +110,9 @@ And immediately Jesus stretched out His hand and caught him, and said to him, "O
 And when they got into the boat, the wind ceased. 
 
 ###### 33 
-Then those who were in the boat came and worshiped Him, saying, "Truly You are the Son of God." ## Many Touch Him and Are Made Well 
+Then those who were in the boat came and worshiped Him, saying, "Truly You are the Son of God." 
+
+## Many Touch Him and Are Made Well 
 
 ###### 34 
 When they had crossed over, they came to the land of Gennesaret. 

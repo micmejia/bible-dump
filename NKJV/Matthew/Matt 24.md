@@ -13,7 +13,9 @@ next: ['Matt 25']
 Then Jesus went out and departed from the temple, and His disciples came up to show Him the buildings of the temple. 
 
 ###### 2 
-And Jesus said to them, "Do you not see all these things? Assuredly, I say to you, not one stone shall be left here upon another, that shall not be thrown down." ## The Signs of the Times and the End of the Age 
+And Jesus said to them, "Do you not see all these things? Assuredly, I say to you, not one stone shall be left here upon another, that shall not be thrown down." 
+
+## The Signs of the Times and the End of the Age 
 
 ###### 3 
 Now as He sat on the Mount of Olives, the disciples came to Him privately, saying, "Tell us, when will these things be? And what will be the sign of Your coming, and of the end of the age?" 

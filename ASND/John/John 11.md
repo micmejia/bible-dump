@@ -469,7 +469,9 @@ Ngunit nagpapasalamat ako na wala ako roon, dahil ang gagawin kong himala sa kan
 
 
 
-Si Tomas na tinatawag na Kambal ay nagsabi sa mga kapwa niya tagasunod, "Sumama tayo sa kanya, kahit mamatay tayong kasama niya." ## Binuhay ni Jesus ang Patay 
+Si Tomas na tinatawag na Kambal ay nagsabi sa mga kapwa niya tagasunod, "Sumama tayo sa kanya, kahit mamatay tayong kasama niya." 
+
+## Binuhay ni Jesus ang Patay 
 
 
 
@@ -832,7 +834,9 @@ Ang sinumang nabubuhay at sumasampalataya sa akin ay hindi mamamatay kailanman. 
 
 
 
-Sumagot si Marta, "Opo, Panginoon, sumasampalataya ako na kayo ang Cristo, ang Anak ng Dios, na hinihintay naming darating dito sa mundo." ## Umiyak si Jesus 
+Sumagot si Marta, "Opo, Panginoon, sumasampalataya ako na kayo ang Cristo, ang Anak ng Dios, na hinihintay naming darating dito sa mundo." 
+
+## Umiyak si Jesus 
 
 
 
@@ -1162,7 +1166,9 @@ Kaya sinabi ng mga Judio, "Tingnan ninyo kung gaano niya kamahal si Lazarus."
 
 
 
-Pero sinabi naman ng iba, "Hindi baʼt pinagaling niya ang lalaking bulag? Bakit hindi niya nailigtas sa kamatayan si Lazarus?" ## Muling Binuhay si Lazarus 
+Pero sinabi naman ng iba, "Hindi baʼt pinagaling niya ang lalaking bulag? Bakit hindi niya nailigtas sa kamatayan si Lazarus?" 
+
+## Muling Binuhay si Lazarus 
 
 
 
@@ -1393,7 +1399,9 @@ Pagkasabi niya nito, sumigaw siya, "Lazarus, lumabas ka!"
 
 
 
-At lumabas nga ang namatay na si Lazarus na nababalot pa ng tela ang mga kamay at paa, at may takip na tela ang mukha. Sinabi ni Jesus sa kanila, "Kalagan nʼyo siya at palakarin." ## Ang Plano ng mga Pinuno Laban kay Jesus 
+At lumabas nga ang namatay na si Lazarus na nababalot pa ng tela ang mga kamay at paa, at may takip na tela ang mukha. Sinabi ni Jesus sa kanila, "Kalagan nʼyo siya at palakarin." 
+
+## Ang Plano ng mga Pinuno Laban kay Jesus 
 
 
 

@@ -30,7 +30,9 @@ On this side of the Jordan in the land of Moab, Moses began to explain this law,
 Turn and take your journey, and go to the mountains of the Amorites, to all the neighboring _places_ in the plain, in the mountains and in the lowland, in the South and on the seacoast, to the land of the Canaanites and to Lebanon, as far as the great river, the River Euphrates. 
 
 ###### 8 
-See, I have set the land before you; go in and possess the land which the Lord swore to your fathers--to Abraham, Isaac, and Jacob--to give to them and their descendants after them.' ## Tribal Leaders Appointed 
+See, I have set the land before you; go in and possess the land which the Lord swore to your fathers--to Abraham, Isaac, and Jacob--to give to them and their descendants after them.' 
+
+## Tribal Leaders Appointed 
 
 ###### 9 
 "And I spoke to you at that time, saying: 'I alone am not able to bear you. 

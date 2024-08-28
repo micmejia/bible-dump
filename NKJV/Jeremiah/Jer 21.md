@@ -37,7 +37,9 @@ And afterward," says the Lord, "I will deliver Zedekiah king of Judah, his serva
 He who remains in this city shall die by the sword, by famine, and by pestilence; but he who goes out and defects to the Chaldeans who besiege you, he shall live, and his life shall be as a prize to him. 
 
 ###### 10 
-For I have set My face against this city for adversity and not for good," says the Lord. "It shall be given into the hand of the king of Babylon, and he shall burn it with fire." ' ## Message to the House of David 
+For I have set My face against this city for adversity and not for good," says the Lord. "It shall be given into the hand of the king of Babylon, and he shall burn it with fire." ' 
+
+## Message to the House of David 
 
 ###### 11 
 "And concerning the house of the king of Judah, say, 'Hear the word of the Lord, 

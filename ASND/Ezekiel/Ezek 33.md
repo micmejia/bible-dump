@@ -667,7 +667,9 @@ At kung ang taong masama ay tumalikod sa masama niyang gawa, at gumawa ng tama a
 
 
 
-Ngunit sinasabi pa rin ng mga mamamayan ng Israel hindi tama ang pamamaraan ko. Hahatulan ko ang bawat isa sa kanila ayon sa mga gawa nila." ## Ang Paliwanag tungkol sa Pagwasak ng Jerusalem 
+Ngunit sinasabi pa rin ng mga mamamayan ng Israel hindi tama ang pamamaraan ko. Hahatulan ko ang bawat isa sa kanila ayon sa mga gawa nila." 
+
+## Ang Paliwanag tungkol sa Pagwasak ng Jerusalem 
 
 
 

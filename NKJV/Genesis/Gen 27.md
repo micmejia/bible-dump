@@ -94,7 +94,9 @@ And he came near and kissed him; and he smelled the smell of his clothing, and b
 Therefore may God give you Of the dew of heaven, Of the fatness of the earth, And plenty of grain and wine. 
 
 ###### 29 
-Let peoples serve you, And nations bow down to you. Be master over your brethren, And let your mother's sons bow down to you. Cursed _be_ everyone who curses you, And blessed _be_ those who bless you!" ## Esau's Lost Hope 
+Let peoples serve you, And nations bow down to you. Be master over your brethren, And let your mother's sons bow down to you. Cursed _be_ everyone who curses you, And blessed _be_ those who bless you!" 
+
+## Esau's Lost Hope 
 
 ###### 30 
 Now it happened, as soon as Isaac had finished blessing Jacob, and Jacob had scarcely gone out from the presence of Isaac his father, that Esau his brother came in from his hunting. 
@@ -127,7 +129,9 @@ And Esau said to his father, "Have you only one blessing, my father? Bless me--m
 Then Isaac his father answered and said to him: "Behold, your dwelling shall be of the fatness of the earth, And of the dew of heaven from above. 
 
 ###### 40 
-By your sword you shall live, And you shall serve your brother; And it shall come to pass, when you become restless, That you shall break his yoke from your neck." ## Jacob Escapes from Esau 
+By your sword you shall live, And you shall serve your brother; And it shall come to pass, when you become restless, That you shall break his yoke from your neck." 
+
+## Jacob Escapes from Esau 
 
 ###### 41 
 So Esau hated Jacob because of the blessing with which his father blessed him, and Esau said in his heart, "The days of mourning for my father are at hand; then I will kill my brother Jacob." 

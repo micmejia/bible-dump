@@ -22,7 +22,9 @@ Then the chief priests, the scribes, and the elders of the people assembled at t
 and plotted to take Jesus by trickery and kill Him. 
 
 ###### 5 
-But they said, "Not during the feast, lest there be an uproar among the people." ## The Anointing at Bethany 
+But they said, "Not during the feast, lest there be an uproar among the people." 
+
+## The Anointing at Bethany 
 
 ###### 6 
 And when Jesus was in Bethany at the house of Simon the leper, 
@@ -46,7 +48,9 @@ For you have the poor with you always, but Me you do not have always.
 For in pouring this fragrant oil on My body, she did it for My burial. 
 
 ###### 13 
-Assuredly, I say to you, wherever this gospel is preached in the whole world, what this woman has done will also be told as a memorial to her." ## Judas Agrees to Betray Jesus 
+Assuredly, I say to you, wherever this gospel is preached in the whole world, what this woman has done will also be told as a memorial to her." 
+
+## Judas Agrees to Betray Jesus 
 
 ###### 14 
 Then one of the twelve, called Judas Iscariot, went to the chief priests 
@@ -84,7 +88,9 @@ He answered and said, "He who dipped his hand with Me in the dish will betray Me
 The Son of Man indeed goes just as it is written of Him, but woe to that man by whom the Son of Man is betrayed! It would have been good for that man if he had not been born." 
 
 ###### 25 
-Then Judas, who was betraying Him, answered and said, "Rabbi, is it I?" He said to him, "You have said it." ## Jesus Institutes the Lord's Supper 
+Then Judas, who was betraying Him, answered and said, "Rabbi, is it I?" He said to him, "You have said it." 
+
+## Jesus Institutes the Lord's Supper 
 
 ###### 26 
 And as they were eating, Jesus took bread, blessed and broke it, and gave it to the disciples and said, "Take, eat; this is My body." 
@@ -151,7 +157,9 @@ So He left them, went away again, and prayed the third time, saying the same wor
 Then He came to His disciples and said to them, "Are you still sleeping and resting? Behold, the hour is at hand, and the Son of Man is being betrayed into the hands of sinners. 
 
 ###### 46 
-Rise, let us be going. See, My betrayer is at hand." ## Betrayal and Arrest in Gethsemane 
+Rise, let us be going. See, My betrayer is at hand." 
+
+## Betrayal and Arrest in Gethsemane 
 
 ###### 47 
 And while He was still speaking, behold, Judas, one of the twelve, with a great multitude with swords and clubs, came from the chief priests and elders of the people. 
@@ -219,7 +227,9 @@ What do you think?" They answered and said, "He is deserving of death."
 Then they spat in His face and beat Him; and others struck Him with the palms of their hands, 
 
 ###### 68 
-saying, "Prophesy to us, Christ! Who is the one who struck You?" ## Peter Denies Jesus, and Weeps Bitterly 
+saying, "Prophesy to us, Christ! Who is the one who struck You?" 
+
+## Peter Denies Jesus, and Weeps Bitterly 
 
 ###### 69 
 Now Peter sat outside in the courtyard. And a servant girl came to him, saying, "You also were with Jesus of Galilee." 

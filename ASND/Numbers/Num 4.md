@@ -667,7 +667,9 @@ Ganito ang inyong gagawin para hindi sila mamatay kapag lalapit sila sa pinakaba
 
 
 
-Kung hindi sila sasamahan, hindi sila dapat pumasok kahit sandali lang para tingnan ang banal na mga bagay, para hindi sila mamatay." ## Ang mga Angkan ni Gershon 
+Kung hindi sila sasamahan, hindi sila dapat pumasok kahit sandali lang para tingnan ang banal na mga bagay, para hindi sila mamatay." 
+
+## Ang mga Angkan ni Gershon 
 
 
 
@@ -931,7 +933,9 @@ Si Aaron at ang mga anak niya ang mamamahala sa mga angkan ni Gershon tungkol sa
 
 
 
-Iyon ang mga gawain ng mga angkan ni Gershon sa Toldang Tipanan. Pangungunahan sila ni Itamar na anak ng paring si Aaron." ## Ang mga Angkan ni Merari 
+Iyon ang mga gawain ng mga angkan ni Gershon sa Toldang Tipanan. Pangungunahan sila ni Itamar na anak ng paring si Aaron." 
+
+## Ang mga Angkan ni Merari 
 
 
 
@@ -1096,7 +1100,9 @@ Sila rin ang binigyan ng responsibilidad sa pag-aasikaso ng mga haligi na pinagk
 
 
 
-Iyon ang mga gawain ng mga angkan ni Merari sa Toldang Tipanan. Pangungunahan sila ni Itamar na anak ng paring si Aaron." ## Ang Pagbilang sa mga Levita 34-48Bilang pagsunod sa utos ng Panginoon, inilista nina Moises, Aaron at ng mga pinuno ng mga mamamayan ng Israel ang mga angkan nina Kohat, Gershon at Merari ayon sa bawat pamilya nito. Inilista nila ang lahat ng lalaking may edad 30 hanggang 50 taong gulang na may kakayahang maglingkod sa Toldang Tipanan, at ito ang bilang nila: Ang kabuuang bilang nila ay 8,580. 
+Iyon ang mga gawain ng mga angkan ni Merari sa Toldang Tipanan. Pangungunahan sila ni Itamar na anak ng paring si Aaron." 
+
+## Ang Pagbilang sa mga Levita 34-48Bilang pagsunod sa utos ng Panginoon, inilista nina Moises, Aaron at ng mga pinuno ng mga mamamayan ng Israel ang mga angkan nina Kohat, Gershon at Merari ayon sa bawat pamilya nito. Inilista nila ang lahat ng lalaking may edad 30 hanggang 50 taong gulang na may kakayahang maglingkod sa Toldang Tipanan, at ito ang bilang nila: Ang kabuuang bilang nila ay 8,580. 
 
 
 

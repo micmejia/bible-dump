@@ -469,7 +469,9 @@ Nang marinig ni Laban na nariyan si Jacob na pamangkin niya kay Rebeka, agad niy
 
 
 
-Sinabi ni Laban sa kanya, "Tunay na magkadugo tayo." ## Naglingkod si Jacob kay Laban dahil kina Raquel at Lea Pagkalipas ng isang buwan na pananatili ni Jacob kina Laban, 
+Sinabi ni Laban sa kanya, "Tunay na magkadugo tayo." 
+
+## Naglingkod si Jacob kay Laban dahil kina Raquel at Lea Pagkalipas ng isang buwan na pananatili ni Jacob kina Laban, 
 
 
 

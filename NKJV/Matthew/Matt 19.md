@@ -37,7 +37,9 @@ He said to them, "Moses, because of the hardness of your hearts, permitted you t
 And I say to you, whoever divorces his wife, except for sexual immorality, and marries another, commits adultery; and whoever marries her who is divorced commits adultery." 
 
 ###### 10 
-His disciples said to Him, "If such is the case of the man with his wife, it is better not to marry." ## Jesus Teaches on Celibacy 
+His disciples said to Him, "If such is the case of the man with his wife, it is better not to marry." 
+
+## Jesus Teaches on Celibacy 
 
 ###### 11 
 But He said to them, "All cannot accept this saying, but only those to whom it has been given: 

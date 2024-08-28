@@ -238,7 +238,9 @@ Ako ang pumili ng kapwa mo Levita mula sa mga Israelita, para maging katulong mo
 
 
 
-Pero ikaw lang at ang iyong mga anak ang makapaglilingkod bilang mga pari, dahil kayo lang ang makakagawa ng mga gawain na may kinalaman sa altar at sa Pinakabanal na Lugar. Regalo ko sa inyo ang inyong pagkapari. Papatayin ang sinumang gagawa nito na hindi pari." ## Mga Handog para sa mga Pari at sa mga Levita 
+Pero ikaw lang at ang iyong mga anak ang makapaglilingkod bilang mga pari, dahil kayo lang ang makakagawa ng mga gawain na may kinalaman sa altar at sa Pinakabanal na Lugar. Regalo ko sa inyo ang inyong pagkapari. Papatayin ang sinumang gagawa nito na hindi pari." 
+
+## Mga Handog para sa mga Pari at sa mga Levita 
 
 
 

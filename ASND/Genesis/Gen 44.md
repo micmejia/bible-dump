@@ -568,7 +568,9 @@ Sinabi ni Juda, "Mahal na Gobernador, wala na po kaming ikakatuwiran pa sa inyo,
 
 
 
-Pero sinabi ni Jose, "Hindi ko magagawa iyan. Kung kanino lang nakita ang kopa siya lang ang magiging alipin ko. At makakauwi na kayo sa inyong ama nang matiwasay." ## Nagmakaawa si Juda para kay Benjamin 
+Pero sinabi ni Jose, "Hindi ko magagawa iyan. Kung kanino lang nakita ang kopa siya lang ang magiging alipin ko. At makakauwi na kayo sa inyong ama nang matiwasay." 
+
+## Nagmakaawa si Juda para kay Benjamin 
 
 
 

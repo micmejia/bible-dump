@@ -18,7 +18,9 @@ For all those _things_ My hand has made, And all those _things_ exist," Says the
 "He who kills a bull _is as if_ he slays a man; He who sacrifices a lamb, _as if_ he breaks a dog's neck; He who offers a grain offering, _as if he offers_ swine's blood; He who burns incense, _as if_ he blesses an idol. Just as they have chosen their own ways, And their soul delights in their abominations, 
 
 ###### 4 
-So will I choose their delusions, And bring their fears on them; Because, when I called, no one answered, When I spoke they did not hear; But they did evil before My eyes, And chose _that_ in which I do not delight." ## The Lord Vindicates Zion 
+So will I choose their delusions, And bring their fears on them; Because, when I called, no one answered, When I spoke they did not hear; But they did evil before My eyes, And chose _that_ in which I do not delight." 
+
+## The Lord Vindicates Zion 
 
 ###### 5 
 Hear the word of the Lord, You who tremble at His word: "Your brethren who hated you, Who cast you out for My name's sake, said, 'Let the Lord be glorified, That we may see your joy.' But they shall be ashamed." 
@@ -45,7 +47,9 @@ That you may feed and be satisfied With the consolation of her bosom, That you m
 For thus says the Lord: "Behold, I will extend peace to her like a river, And the glory of the Gentiles like a flowing stream. Then you shall feed; On _her_ sides shall you be carried, And be dandled on _her_ knees. 
 
 ###### 13 
-As one whom his mother comforts, So I will comfort you; And you shall be comforted in Jerusalem." ## The Reign and Indignation of God 
+As one whom his mother comforts, So I will comfort you; And you shall be comforted in Jerusalem." 
+
+## The Reign and Indignation of God 
 
 ###### 14 
 When you see _this,_ your heart shall rejoice, And your bones shall flourish like grass; The hand of the Lord shall be known to His servants, And _His_ indignation to His enemies. 

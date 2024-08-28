@@ -469,7 +469,9 @@ Pero sumagot si Pablo, "Bakit kayo umiiyak? Pinahihina lamang ninyo ang loob ko.
 
 
 
-Hindi talaga namin mapigilan si Pablo, kaya sinabi na lang namin, "Matupad sana ang kalooban ng Panginoon." ## Dumating si Pablo sa Jerusalem 
+Hindi talaga namin mapigilan si Pablo, kaya sinabi na lang namin, "Matupad sana ang kalooban ng Panginoon." 
+
+## Dumating si Pablo sa Jerusalem 
 
 
 
@@ -1199,7 +1201,9 @@ Pagdating nila sa hagdanan ng kampo, binuhat na lang nila si Pablo dahil sa kagu
 
 
 
-na humahabol at sumisigaw ng, "Patayin siya!" ## Ipinagtanggol ni Pablo ang Sarili 
+na humahabol at sumisigaw ng, "Patayin siya!" 
+
+## Ipinagtanggol ni Pablo ang Sarili 
 
 
 

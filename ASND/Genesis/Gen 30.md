@@ -799,7 +799,9 @@ Nagbuntis siya at nanganak ng lalaki. Sinabi niya, "Inalis ng Dios ang aking kah
 
 
 
-"Nawaʼy bigyan ako ng Panginoon ng isa pang anak." ## Ang Kasunduan ni Jacob at ni Laban 
+"Nawaʼy bigyan ako ng Panginoon ng isa pang anak." 
+
+## Ang Kasunduan ni Jacob at ni Laban 
 
 
 

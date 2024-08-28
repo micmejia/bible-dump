@@ -504,7 +504,9 @@ Kung ayaw kayong tanggapin o pakinggan sa isang tahanan o bayan, umalis kayo roo
 
 
 
-Sinasabi ko sa inyo ang totoo, sa Araw ng Paghuhukom, mas mabigat na parusa ang tatanggapin nila kaysa sa mga taga-Sodom at Gomora." ## Mga Pag-uusig na Darating 
+Sinasabi ko sa inyo ang totoo, sa Araw ng Paghuhukom, mas mabigat na parusa ang tatanggapin nila kaysa sa mga taga-Sodom at Gomora." 
+
+## Mga Pag-uusig na Darating 
 
 
 
@@ -834,7 +836,9 @@ Kapag inuusig kayo sa isang bayan, pumunta kayo sa ibang bayan. Dahil ang totoo,
 
 
 
-Sapat na sa isang mag-aaral na maging katulad ng kanyang guro, at sa alipin na maging katulad ng kanyang amo. Kung akong pinuno ninyo ay tinatawag nilang Satanas, gaano pa kaya kasama ang itatawag nila sa inyong mga tagasunod ko?" ## Ang Dapat Katakutan 
+Sapat na sa isang mag-aaral na maging katulad ng kanyang guro, at sa alipin na maging katulad ng kanyang amo. Kung akong pinuno ninyo ay tinatawag nilang Satanas, gaano pa kaya kasama ang itatawag nila sa inyong mga tagasunod ko?" 
+
+## Ang Dapat Katakutan 
 
 
 
@@ -1032,7 +1036,9 @@ Mas lalo na kayo, maging ang bilang ng inyong mga buhok ay alam niya.
 
 
 
-Kaya huwag kayong matakot, dahil mas mahalaga kayo kaysa sa maraming maya." ## Ang Pagkilala kay Cristo 
+Kaya huwag kayong matakot, dahil mas mahalaga kayo kaysa sa maraming maya." 
+
+## Ang Pagkilala kay Cristo 
 
 
 
@@ -1098,7 +1104,9 @@ Kaya huwag kayong matakot, dahil mas mahalaga kayo kaysa sa maraming maya." ## A
 
 
 
-Ngunit ang hindi kumikilala sa akin sa harap ng mga tao ay hindi ko rin kikilalanin sa harap ng aking Amang nasa langit." ## Ang Pagkakahati-hati ng Sambahayan Dahil kay Cristo 
+Ngunit ang hindi kumikilala sa akin sa harap ng mga tao ay hindi ko rin kikilalanin sa harap ng aking Amang nasa langit." 
+
+## Ang Pagkakahati-hati ng Sambahayan Dahil kay Cristo 
 
 
 
@@ -1296,7 +1304,9 @@ Ang sinumang ayaw sumunod sa akin dahil natatakot siyang mamatay para sa akin ay
 
 
 
-Ang taong naghahangad magligtas ng kanyang buhay ay mawawalan nito. Ngunit ang taong nagnanais mag-alay ng kanyang buhay alang-alang sa akin ay magkakaroon ng buhay na walang hanggan." ## Mga Gantimpala 
+Ang taong naghahangad magligtas ng kanyang buhay ay mawawalan nito. Ngunit ang taong nagnanais mag-alay ng kanyang buhay alang-alang sa akin ay magkakaroon ng buhay na walang hanggan." 
+
+## Mga Gantimpala 
 
 
 

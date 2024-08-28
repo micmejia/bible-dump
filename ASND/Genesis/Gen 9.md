@@ -403,7 +403,9 @@ Tuwing lilitaw ang bahaghari sa mga ulap, aalalahanin ko agad ang walang hanggan
 
 
 
-Kaya sinabi ng Dios kay Noe, "Ang bahaghari ang siyang palatandaan ng kasunduan ko sa lahat ng nabubuhay sa mundo." ## Ang mga Anak ni Noe 
+Kaya sinabi ng Dios kay Noe, "Ang bahaghari ang siyang palatandaan ng kasunduan ko sa lahat ng nabubuhay sa mundo." 
+
+## Ang mga Anak ni Noe 
 
 
 

@@ -205,7 +205,9 @@ Mapagkunwari! Alisin mo muna ang mala-trosong puwing sa iyong mata, nang sa gano
 
 
 
-"Huwag ninyong ibigay sa mga aso ang mga bagay na banal, dahil baka balingan nila kayo at lapain. At huwag din ninyong ihagis sa mga baboy ang inyong mga perlas, dahil tatapak-tapakan lang nila ang mga ito." ## Humingi, Humanap, Kumatok 
+"Huwag ninyong ibigay sa mga aso ang mga bagay na banal, dahil baka balingan nila kayo at lapain. At huwag din ninyong ihagis sa mga baboy ang inyong mga perlas, dahil tatapak-tapakan lang nila ang mga ito." 
+
+## Humingi, Humanap, Kumatok 
 
 
 
@@ -403,7 +405,9 @@ Kung kayong masasama ay marunong magbigay ng mabubuting bagay sa inyong mga anak
 
 
 
-"Gawin ninyo sa inyong kapwa ang gusto ninyong gawin nila sa inyo. Ganyan ang tamang pagsunod sa Kautusan ni Moises at sa mga isinulat ng mga propeta." ## Ang Makipot na Pintuan 
+"Gawin ninyo sa inyong kapwa ang gusto ninyong gawin nila sa inyo. Ganyan ang tamang pagsunod sa Kautusan ni Moises at sa mga isinulat ng mga propeta." 
+
+## Ang Makipot na Pintuan 
 
 
 
@@ -469,7 +473,9 @@ Kung kayong masasama ay marunong magbigay ng mabubuting bagay sa inyong mga anak
 
 
 
-Ngunit makipot ang pintuan at mahirap ang daan patungo sa buhay na walang hanggan, at kakaunti lang ang dumadaan dito." ## Nakikilala ang Puno sa Bunga Nito 
+Ngunit makipot ang pintuan at mahirap ang daan patungo sa buhay na walang hanggan, at kakaunti lang ang dumadaan dito." 
+
+## Nakikilala ang Puno sa Bunga Nito 
 
 
 
@@ -667,7 +673,9 @@ Ang lahat ng punong hindi namumunga ng mabuti ay pinuputol at itinatapon sa apoy
 
 
 
-Kaya nga, makikilala ninyo ang mga huwad na propeta sa kanilang mga gawa." ## Hindi Kikilalanin ng Dios ang mga Gumagawa ng Masama 
+Kaya nga, makikilala ninyo ang mga huwad na propeta sa kanilang mga gawa." 
+
+## Hindi Kikilalanin ng Dios ang mga Gumagawa ng Masama 
 
 
 
@@ -766,7 +774,9 @@ Marami ang magsasabi sa akin sa Araw ng Paghuhukom, 'Panginoon, hindi baʼt sa n
 
 
 
-Ngunit sasabihin ko sa kanila, 'Hindi ko kayo kilala! Lumayo kayo sa akin, kayong mga gumagawa ng masama!' " ## Ang Dalawang Uri ng Taong Nagtayo ng Bahay 
+Ngunit sasabihin ko sa kanila, 'Hindi ko kayo kilala! Lumayo kayo sa akin, kayong mga gumagawa ng masama!' " 
+
+## Ang Dalawang Uri ng Taong Nagtayo ng Bahay 
 
 
 
@@ -898,7 +908,9 @@ Ngunit ang sinumang nakikinig sa aking mga salita pero hindi naman ito sinusunod
 
 
 
-Nang umulan nang malakas at bumaha, at humampas ang malakas na hangin sa bahay, nagiba ito at lubusang nawasak." ## Ang Awtoridad ni Jesus 
+Nang umulan nang malakas at bumaha, at humampas ang malakas na hangin sa bahay, nagiba ito at lubusang nawasak." 
+
+## Ang Awtoridad ni Jesus 
 
 
 

@@ -31,7 +31,9 @@ You will be punished by the Lord of hosts With thunder and earthquake and great 
 The multitude of all the nations who fight against Ariel, Even all who fight against her and her fortress, And distress her, Shall be as a dream of a night vision. 
 
 ###### 8 
-It shall even be as when a hungry man dreams, And look--he eats; But he awakes, and his soul is still empty; Or as when a thirsty man dreams, And look--he drinks; But he awakes, and indeed _he is_ faint, And his soul still craves: So the multitude of all the nations shall be, Who fight against Mount Zion." ## The Blindness of Disobedience 
+It shall even be as when a hungry man dreams, And look--he eats; But he awakes, and his soul is still empty; Or as when a thirsty man dreams, And look--he drinks; But he awakes, and indeed _he is_ faint, And his soul still craves: So the multitude of all the nations shall be, Who fight against Mount Zion." 
+
+## The Blindness of Disobedience 
 
 ###### 9 
 Pause and wonder! Blind yourselves and be blind! They are drunk, but not with wine; They stagger, but not with intoxicating drink. 
@@ -55,7 +57,9 @@ Therefore, behold, I will again do a marvelous work Among this people, A marvelo
 Woe to those who seek deep to hide their counsel far from the Lord, And their works are in the dark; They say, "Who sees us?" and, "Who knows us?" 
 
 ###### 16 
-Surely you have things turned around! Shall the potter be esteemed as the clay; For shall the thing made say of him who made it, "He did not make me"? Or shall the thing formed say of him who formed it, "He has no understanding"? ## Future Recovery of Wisdom 
+Surely you have things turned around! Shall the potter be esteemed as the clay; For shall the thing made say of him who made it, "He did not make me"? Or shall the thing formed say of him who formed it, "He has no understanding"? 
+
+## Future Recovery of Wisdom 
 
 ###### 17 
 _Is_ it not yet a very little while Till Lebanon shall be turned into a fruitful field, And the fruitful field be esteemed as a forest? 

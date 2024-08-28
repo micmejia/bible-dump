@@ -337,7 +337,9 @@ Sinabi ng prinsesa sa ina ng bata, "Dalhin mo ang sanggol na ito at pasusuhin pa
 
 
 
-Nang lumaki na ang sanggol, dinala siya ng kanyang ina sa prinsesa at itinuring siya ng prinsesa bilang tunay niyang anak. Pinangalanan ng prinsesa ang bata na Moises, dahil sinabi niya, "Kinuha ko siya sa tubig." ## Tumakas si Moises Papuntang Midian 
+Nang lumaki na ang sanggol, dinala siya ng kanyang ina sa prinsesa at itinuring siya ng prinsesa bilang tunay niyang anak. Pinangalanan ng prinsesa ang bata na Moises, dahil sinabi niya, "Kinuha ko siya sa tubig." 
+
+## Tumakas si Moises Papuntang Midian 
 
 
 

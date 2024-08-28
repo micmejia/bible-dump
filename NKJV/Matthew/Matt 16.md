@@ -82,7 +82,9 @@ From that time Jesus began to show to His disciples that He must go to Jerusalem
 Then Peter took Him aside and began to rebuke Him, saying, "Far be it from You, Lord; this shall not happen to You!" 
 
 ###### 23 
-But He turned and said to Peter, "Get behind Me, Satan! You are an offense to Me, for you are not mindful of the things of God, but the things of men." ## Take Up the Cross and Follow Him 
+But He turned and said to Peter, "Get behind Me, Satan! You are an offense to Me, for you are not mindful of the things of God, but the things of men." 
+
+## Take Up the Cross and Follow Him 
 
 ###### 24 
 Then Jesus said to His disciples, "If anyone desires to come after Me, let him deny himself, and take up his cross, and follow Me. 

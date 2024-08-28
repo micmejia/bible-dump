@@ -49,7 +49,9 @@ Therefore prophesy and say to them, 'Thus says the Lord God: "Behold, O My peopl
 Then you shall know that I am the Lord, when I have opened your graves, O My people, and brought you up from your graves. 
 
 ###### 14 
-I will put My Spirit in you, and you shall live, and I will place you in your own land. Then you shall know that I, the Lord, have spoken it and performed it," says the Lord.' " ## One Kingdom, One King 
+I will put My Spirit in you, and you shall live, and I will place you in your own land. Then you shall know that I, the Lord, have spoken it and performed it," says the Lord.' " 
+
+## One Kingdom, One King 
 
 ###### 15 
 Again the word of the Lord came to me, saying, 

@@ -73,7 +73,9 @@ Lumabas si Jesus sa templo, at habang naglalakad, nilapitan siya ng mga tagasuno
 
 
 
-Sinabi ni Jesus, "Tingnan ninyo ang lahat ng iyan. Sinasabi ko sa inyo ang totoo, magigiba ang lahat ng iyan at walang maiiwang magkapatong na bato." ## Mga Paghihirap at Pag-uusig na Darating 
+Sinabi ni Jesus, "Tingnan ninyo ang lahat ng iyan. Sinasabi ko sa inyo ang totoo, magigiba ang lahat ng iyan at walang maiiwang magkapatong na bato." 
+
+## Mga Paghihirap at Pag-uusig na Darating 
 
 
 
@@ -469,7 +471,9 @@ Ngunit ang mananatiling tapat hanggang sa wakas ay maliligtas.
 
 
 
-Ipangangaral sa buong mundo ang Magandang Balita tungkol sa paghahari ng Dios upang malaman ito ng lahat ng tao, at saka darating ang katapusan." ## Ang Kasuklam-suklam na Darating 
+Ipangangaral sa buong mundo ang Magandang Balita tungkol sa paghahari ng Dios upang malaman ito ng lahat ng tao, at saka darating ang katapusan." 
+
+## Ang Kasuklam-suklam na Darating 
 
 
 
@@ -931,7 +935,9 @@ Sapagkat ako na Anak ng Tao ay babalik na tulad ng kidlat na nagliliwanag mula s
 
 
 
-May kasabihan na, 'Kung saan may bangkay, doon nag-uumpukan ang mga buwitre.' " ## Ang Pagbabalik ni Jesus sa Mundo 
+May kasabihan na, 'Kung saan may bangkay, doon nag-uumpukan ang mga buwitre.' " 
+
+## Ang Pagbabalik ni Jesus sa Mundo 
 
 
 
@@ -1030,7 +1036,9 @@ Pagkatapos, makikita sa langit ang tanda ng aking pagbabalik, at maghihinagpis a
 
 
 
-Sa malakas na tunog ng trumpeta ay ipapadala ko ang aking mga anghel sa lahat ng lugar sa mundo upang tipunin ang aking mga pinili." ## Ang Aral Mula sa Puno ng Igos 
+Sa malakas na tunog ng trumpeta ay ipapadala ko ang aking mga anghel sa lahat ng lugar sa mundo upang tipunin ang aking mga pinili." 
+
+## Ang Aral Mula sa Puno ng Igos 
 
 
 
@@ -1162,7 +1170,9 @@ Sinasabi ko sa inyo ang totoo, matutupad ang lahat ng ito bago mawala ang henera
 
 
 
-Ang langit at ang lupa ay maglalaho, ngunit ang mga salita ko ay mananatili magpakailanman." ## Walang Taong Nakakaalam Kung Kailan Babalik si Jesus 
+Ang langit at ang lupa ay maglalaho, ngunit ang mga salita ko ay mananatili magpakailanman." 
+
+## Walang Taong Nakakaalam Kung Kailan Babalik si Jesus 
 
 
 
@@ -1459,7 +1469,9 @@ Tandaan ninyo ito: kung alam ng isang tao kung anong oras sa gabi darating ang m
 
 
 
-Kaya maging handa rin kayo, dahil ako na Anak ng Tao ay darating sa oras na hindi ninyo inaasahan." ## Ang Tapat at ang Hindi Tapat na Utusan 
+Kaya maging handa rin kayo, dahil ako na Anak ng Tao ay darating sa oras na hindi ninyo inaasahan." 
+
+## Ang Tapat at ang Hindi Tapat na Utusan 
 
 
 

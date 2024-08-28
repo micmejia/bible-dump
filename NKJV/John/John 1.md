@@ -116,7 +116,9 @@ And John bore witness, saying, "I saw the Spirit descending from heaven like a d
 I did not know Him, but He who sent me to baptize with water said to me, 'Upon whom you see the Spirit descending, and remaining on Him, this is He who baptizes with the Holy Spirit.' 
 
 ###### 34 
-And I have seen and testified that this is the Son of God." ## The First Disciples 
+And I have seen and testified that this is the Son of God." 
+
+## The First Disciples 
 
 ###### 35 
 Again, the next day, John stood with two of his disciples. 

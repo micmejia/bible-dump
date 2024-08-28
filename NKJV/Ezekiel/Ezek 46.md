@@ -52,7 +52,9 @@ At the festivals and the appointed feast days the grain offering shall be an eph
 And you shall prepare a grain offering with it every morning, a sixth of an ephah, and a third of a hin of oil to moisten the fine flour. This grain offering is a perpetual ordinance, to be made regularly to the Lord. 
 
 ###### 15 
-Thus they shall prepare the lamb, the grain offering, and the oil, as a regular burnt offering every morning." ## The Prince and Inheritance Laws 
+Thus they shall prepare the lamb, the grain offering, and the oil, as a regular burnt offering every morning." 
+
+## The Prince and Inheritance Laws 
 
 ###### 16 
 'Thus says the Lord God: "If the prince gives a gift of some of his inheritance to any of his sons, it shall belong to his sons; it is their possession by inheritance. 
@@ -61,7 +63,9 @@ Thus they shall prepare the lamb, the grain offering, and the oil, as a regular 
 But if he gives a gift of some of his inheritance to one of his servants, it shall be his until the year of liberty, after which it shall return to the prince. But his inheritance shall belong to his sons; it shall become theirs. 
 
 ###### 18 
-Moreover the prince shall not take any of the people's inheritance by evicting them from their property; he shall provide an inheritance for his sons from his own property, so that none of My people may be scattered from his property." ' " ## How the Offerings Were Prepared 
+Moreover the prince shall not take any of the people's inheritance by evicting them from their property; he shall provide an inheritance for his sons from his own property, so that none of My people may be scattered from his property." ' " 
+
+## How the Offerings Were Prepared 
 
 ###### 19 
 Now he brought me through the entrance, which was at the side of the gate, into the holy chambers of the priests which face toward the north; and there a place was situated at their extreme western end. 

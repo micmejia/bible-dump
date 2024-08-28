@@ -370,7 +370,9 @@ Hindi ko na ipadarama ang matindi kong galit; hindi ko na gigibain ang Israel, d
 
 
 
-Mabilis kayong darating na parang mga ibon mula sa Egipto o parang mga kalapating mula sa Asiria. Pauuwiin ko kayong muli sa inyong mga tahanan. Ako, ang Panginoon, ang nagsasabi nito." ## Parurusahan ang Israel at ang Juda 
+Mabilis kayong darating na parang mga ibon mula sa Egipto o parang mga kalapating mula sa Asiria. Pauuwiin ko kayong muli sa inyong mga tahanan. Ako, ang Panginoon, ang nagsasabi nito." 
+
+## Parurusahan ang Israel at ang Juda 
 
 
 

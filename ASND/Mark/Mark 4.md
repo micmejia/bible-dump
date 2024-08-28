@@ -304,7 +304,9 @@ Ang iba namaʼy nahulog sa mabuting lupa. Tumubo at lumago ang mga ito, at namun
 
 
 
-Pagkatapos, sinabi ni Jesus, "Kayong mga nakikinig, dapat nʼyo itong pag-isipan." ## Ang Layunin ng mga Talinghaga 
+Pagkatapos, sinabi ni Jesus, "Kayong mga nakikinig, dapat nʼyo itong pag-isipan." 
+
+## Ang Layunin ng mga Talinghaga 
 
 
 
@@ -403,7 +405,9 @@ Sinabi ni Jesus sa kanila, "Ipinagkaloob sa inyo na malaman ang mga lihim tungko
 
 
 
-upang matupad ang nakasulat sa Kasulatan, 'Tumingin man sila nang tumingin, hindi sila makakakita. Makinig man sila nang makinig, hindi sila makakaunawa. Dahil kung makakaunawa sila, magsisisi sila sa kanilang kasalanan at patatawarin sila ng Dios.'" ## Ang Kahulugan ng Talinghaga tungkol sa Manghahasik 
+upang matupad ang nakasulat sa Kasulatan, 'Tumingin man sila nang tumingin, hindi sila makakakita. Makinig man sila nang makinig, hindi sila makakaunawa. Dahil kung makakaunawa sila, magsisisi sila sa kanilang kasalanan at patatawarin sila ng Dios.'" 
+
+## Ang Kahulugan ng Talinghaga tungkol sa Manghahasik 
 
 
 
@@ -667,7 +671,9 @@ Ngunit dahil sa mga alalahanin dito sa mundo, paghahangad na yumaman, at paghaha
 
 
 
-Ngunit ang mabuting lupa na hinasikan ng binhi ay ang mga taong nakikinig ng salita ng Dios at tumanggap nito. Kaya namumunga ito sa kanilang buhay. Ang ibaʼy katamtaman lang ang bunga; ang ibaʼy marami, at ang iba namaʼy napakarami." ## Ang Talinghaga tungkol sa Ilaw 
+Ngunit ang mabuting lupa na hinasikan ng binhi ay ang mga taong nakikinig ng salita ng Dios at tumanggap nito. Kaya namumunga ito sa kanilang buhay. Ang ibaʼy katamtaman lang ang bunga; ang ibaʼy marami, at ang iba namaʼy napakarami." 
+
+## Ang Talinghaga tungkol sa Ilaw 
 
 
 
@@ -832,7 +838,9 @@ Sinabi pa niya, "Makinig kayong mabuti sa sinasabi ko. Bibigyan kayo ng Dios ng 
 
 
 
-Sapagkat ang taong sumusunod sa narinig niyang katotohanan ay bibigyan pa ng pang-unawa. Ngunit ang taong hindi sumusunod sa katotohanan, kahit ang kaunti niyang naunawaan ay kukunin pa sa kanya." ## Ang Paghahalintulad sa Binhing Tumutubo 
+Sapagkat ang taong sumusunod sa narinig niyang katotohanan ay bibigyan pa ng pang-unawa. Ngunit ang taong hindi sumusunod sa katotohanan, kahit ang kaunti niyang naunawaan ay kukunin pa sa kanya." 
+
+## Ang Paghahalintulad sa Binhing Tumutubo 
 
 
 
@@ -964,7 +972,9 @@ Ang lupa ang nagpapatubo at nagpapabunga sa tanim. Sisibol muna ang mga dahon, s
 
 
 
-At kapag hinog na, inaani ito ng may-ari, dahil panahon na para anihin." ## Ang Paghahalintulad sa Buto ng Mustasa 
+At kapag hinog na, inaani ito ng may-ari, dahil panahon na para anihin." 
+
+## Ang Paghahalintulad sa Buto ng Mustasa 
 
 
 

@@ -207,7 +207,9 @@ At hindi rin ba ninyo nabasa sa Kautusan na ang mga pari ay nagtatrabaho sa temp
 
 Tandaan ninyo: may naririto ngayon na mas dakila pa kaysa sa templo.
 
-###### 7-8 Sapagkat ako na Anak ng Tao ang siyang makapagsasabi kung ano ang dapat gawin sa Araw ng Pamamahinga. Kung alam lang sana ninyo ang ibig sabihin ng sinabi ng Dios sa Kasulatan: 'Hindi ang handog ninyo ang hinahangad ko kundi ang maging maawain kayo,' hindi sana ninyo hinatulan ang mga taong walang kasalanan." ## Ang Lalaking Paralisado ang Isang Kamay 
+###### 7-8 Sapagkat ako na Anak ng Tao ang siyang makapagsasabi kung ano ang dapat gawin sa Araw ng Pamamahinga. Kung alam lang sana ninyo ang ibig sabihin ng sinabi ng Dios sa Kasulatan: 'Hindi ang handog ninyo ang hinahangad ko kundi ang maging maawain kayo,' hindi sana ninyo hinatulan ang mga taong walang kasalanan." 
+
+## Ang Lalaking Paralisado ang Isang Kamay 
 
 
 
@@ -638,7 +640,9 @@ Hindi niya ipapahamak ang mahihina ang pananampalataya o pababayaan ang mga nawa
 
 
 
-At ang mga tao sa lahat ng bansa ay mananalig sa kanya." ## Si Jesus at si Satanas 
+At ang mga tao sa lahat ng bansa ay mananalig sa kanya." 
+
+## Si Jesus at si Satanas 
 
 
 
@@ -1001,7 +1005,9 @@ Sinasabi ko sa inyo na ang lahat ng kasalanan, pati na ang paglapastangan sa Dio
 
 
 
-Ang sinumang magsalita ng masama laban sa akin na Anak ng Tao ay mapapatawad, ngunit ang sinumang magsalita ng masama laban sa Banal na Espiritu ay hindi mapapatawad kailanman." ## Nakikilala ang Puno sa Bunga Nito 
+Ang sinumang magsalita ng masama laban sa akin na Anak ng Tao ay mapapatawad, ngunit ang sinumang magsalita ng masama laban sa Banal na Espiritu ay hindi mapapatawad kailanman." 
+
+## Nakikilala ang Puno sa Bunga Nito 
 
 
 
@@ -1166,7 +1172,9 @@ Tinitiyak ko sa inyo na sa Araw ng Paghuhukom, mananagot ang bawat isa sa mga wa
 
 
 
-Sapagkat ibabatay sa mga salita mo kung paparusahan ka o hindi." ## Humingi ng Himala ang mga Tagapagturo ng Kautusan at ang mga Pariseo 
+Sapagkat ibabatay sa mga salita mo kung paparusahan ka o hindi." 
+
+## Humingi ng Himala ang mga Tagapagturo ng Kautusan at ang mga Pariseo 
 
 
 
@@ -1331,7 +1339,9 @@ Sa Araw ng Paghuhukom, tatayo ang mga taga-Nineve at kokondenahin ang henerasyon
 
 
 
-Maging ang Reyna ng Timog ay tatayo rin at kokondenahin ang henerasyong ito. Sapagkat nanggaling pa siya sa napakalayong lugar para makinig sa karunungan ni Solomon. At ngayon, narito ang higit pa kay Solomon, pero ayaw ninyong makinig sa kanya." ## Ang Pagbabalik ng Masamang Espiritu 
+Maging ang Reyna ng Timog ay tatayo rin at kokondenahin ang henerasyong ito. Sapagkat nanggaling pa siya sa napakalayong lugar para makinig sa karunungan ni Solomon. At ngayon, narito ang higit pa kay Solomon, pero ayaw ninyong makinig sa kanya." 
+
+## Ang Pagbabalik ng Masamang Espiritu 
 
 
 
@@ -1430,7 +1440,9 @@ iisipin na lang niyang bumalik sa kanyang pinanggalingan. At kung sa kanyang pag
 
 
 
-aalis siya at tatawag ng pito pang espiritu na mas masama kaysa sa kanya. Papasok sila sa taong iyon at doon maninirahan. Kaya lalo pang sasama ang kalagayan ng taong iyon kaysa sa dati. Ganyan din ang mangyayari sa masamang henerasyong ito." ## Ang Ina at mga Kapatid ni Jesus 
+aalis siya at tatawag ng pito pang espiritu na mas masama kaysa sa kanya. Papasok sila sa taong iyon at doon maninirahan. Kaya lalo pang sasama ang kalagayan ng taong iyon kaysa sa dati. Ganyan din ang mangyayari sa masamang henerasyong ito." 
+
+## Ang Ina at mga Kapatid ni Jesus 
 
 
 

@@ -92,7 +92,9 @@ Why is the city of praise not deserted, the city of My joy?
 Therefore her young men shall fall in her streets, And all the men of war shall be cut off in that day," says the Lord of hosts. 
 
 ###### 27 
-"I will kindle a fire in the wall of Damascus, And it shall consume the palaces of Ben-Hadad." ## Judgment on Kedar and Hazor 
+"I will kindle a fire in the wall of Damascus, And it shall consume the palaces of Ben-Hadad." 
+
+## Judgment on Kedar and Hazor 
 
 ###### 28 
 Against Kedar and against the kingdoms of Hazor, which Nebuchadnezzar king of Babylon shall strike. Thus says the Lord: "Arise, go up to Kedar, And devastate the men of the East! 
@@ -110,7 +112,9 @@ Their tents and their flocks they shall take away. They shall take for themselve
 Their camels shall be for booty, And the multitude of their cattle for plunder. I will scatter to all winds those in the farthest corners, And I will bring their calamity from all its sides," says the Lord. 
 
 ###### 33 
-"Hazor shall be a dwelling for jackals, a desolation forever; No one shall reside there, Nor son of man dwell in it." ## Judgment on Elam 
+"Hazor shall be a dwelling for jackals, a desolation forever; No one shall reside there, Nor son of man dwell in it." 
+
+## Judgment on Elam 
 
 ###### 34 
 The word of the Lord that came to Jeremiah the prophet against Elam, in the beginning of the reign of Zedekiah king of Judah, saying, 

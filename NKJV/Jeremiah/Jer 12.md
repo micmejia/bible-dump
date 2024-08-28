@@ -19,7 +19,9 @@ You have planted them, yes, they have taken root; They grow, yes, they bear frui
 But You, O Lord, know me; You have seen me, And You have tested my heart toward You. Pull them out like sheep for the slaughter, And prepare them for the day of slaughter. 
 
 ###### 4 
-How long will the land mourn, And the herbs of every field wither? The beasts and birds are consumed, For the wickedness of those who dwell there, Because they said, "He will not see our final end." ## The Lord Answers Jeremiah 
+How long will the land mourn, And the herbs of every field wither? The beasts and birds are consumed, For the wickedness of those who dwell there, Because they said, "He will not see our final end." 
+
+## The Lord Answers Jeremiah 
 
 ###### 5 
 "If you have run with the footmen, and they have wearied you, Then how can you contend with horses? And if in the land of peace, In which you trusted, they wearied you, Then how will you do in the floodplain of the Jordan? 

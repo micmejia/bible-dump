@@ -238,7 +238,9 @@ at sabihin sa iyo ang mga bagay na hindi mo pa alam. May mga bagay na alam mo na
 
 
 
-"Kaya mo bang unawain ang lahat-lahat tungkol sa Dios? ###### 8-9 Mas mataas pa ito kaysa sa langit at mas malalim pa kaysa sa lugar ng mga patay. Mas malawak pa ito kaysa sa mundo at mas maluwang pa kaysa sa dagat. Maihahambing mo kaya ang karunungan mo sa kanya? 
+"Kaya mo bang unawain ang lahat-lahat tungkol sa Dios? 
+
+###### 8-9 Mas mataas pa ito kaysa sa langit at mas malalim pa kaysa sa lugar ng mga patay. Mas malawak pa ito kaysa sa mundo at mas maluwang pa kaysa sa dagat. Maihahambing mo kaya ang karunungan mo sa kanya? 
 
 
 

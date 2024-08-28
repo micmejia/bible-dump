@@ -507,7 +507,9 @@ Hindi ko ikinakahiya ang Magandang Balita tungkol kay Cristo, dahil ito ang kapa
 
 
 
-Sapagkat ipinapahayag sa Magandang Balita kung paano itinuturing ng Dios na matuwid ang tao, at itoʼy sa pamamagitan lang ng pananampalataya. Ayon nga sa Kasulatan, "Sa pananampalataya mabubuhay ang matuwid." ## Ang Galit ng Dios sa Lahat ng Kasamaan 
+Sapagkat ipinapahayag sa Magandang Balita kung paano itinuturing ng Dios na matuwid ang tao, at itoʼy sa pamamagitan lang ng pananampalataya. Ayon nga sa Kasulatan, "Sa pananampalataya mabubuhay ang matuwid." 
+
+## Ang Galit ng Dios sa Lahat ng Kasamaan 
 
 
 

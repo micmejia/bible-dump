@@ -1459,7 +1459,9 @@ At doon ninyo maaalala ang mga ginawa ninyong nagparumi sa inyong mga sarili at 
 
 
 
-O mga mamamayan ng Israel, malalaman ninyong ako ang Panginoon kapag pinakitunguhan ko kayo ng mabuti, sa kabila ng marumi at masama ninyong ginawa. Ako, ang Panginoong Dios, ang nagsasabi nito." ## Ang Mensahe ng Dios Laban sa Timog ng Juda 
+O mga mamamayan ng Israel, malalaman ninyong ako ang Panginoon kapag pinakitunguhan ko kayo ng mabuti, sa kabila ng marumi at masama ninyong ginawa. Ako, ang Panginoong Dios, ang nagsasabi nito." 
+
+## Ang Mensahe ng Dios Laban sa Timog ng Juda 
 
 
 

@@ -964,7 +964,9 @@ Nawaʼy bigyan ka ng Dios ng lupaing masagana ang ani na palaging may hamog na b
 
 
 
-Nawaʼy magpasakop at maglingkod sa iyo ang maraming tao. Nawaʼy maghari ka sa mga kamag-anak mo at magpasakop sila sa iyo. Nawaʼy ang sumusumpa sa iyo ay susumpain din, at ang magpapala sa iyo ay pagpapalain din." ## Nagmakaawa si Esau na Basbasan din Siya 
+Nawaʼy magpasakop at maglingkod sa iyo ang maraming tao. Nawaʼy maghari ka sa mga kamag-anak mo at magpasakop sila sa iyo. Nawaʼy ang sumusumpa sa iyo ay susumpain din, at ang magpapala sa iyo ay pagpapalain din." 
+
+## Nagmakaawa si Esau na Basbasan din Siya 
 
 
 
@@ -1492,7 +1494,9 @@ Doon ka muna hanggang mawala ang galit ng iyong kuya,
 
 
 
-at makalimutan na niya ang iyong ginawa sa kanya. Ipapasundo na lang kita roon kapag hindi na siya galit sa iyo. Hindi ko hahayaang mawala kayong dalawa sa akin, baka isang araw magpatayan kayo." ## Pinapunta ni Isaac si Jacob kay Laban 
+at makalimutan na niya ang iyong ginawa sa kanya. Ipapasundo na lang kita roon kapag hindi na siya galit sa iyo. Hindi ko hahayaang mawala kayong dalawa sa akin, baka isang araw magpatayan kayo." 
+
+## Pinapunta ni Isaac si Jacob kay Laban 
 
 
 

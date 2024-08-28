@@ -46,7 +46,9 @@ For the Scripture says, "Whoever believes on Him will not be put to shame."
 For there is no distinction between Jew and Greek, for the same Lord over all is rich to all who call upon Him. 
 
 ###### 13 
-For "whoever calls on the name of the Lord shall be saved." ## Israel Rejects the Gospel 
+For "whoever calls on the name of the Lord shall be saved." 
+
+## Israel Rejects the Gospel 
 
 ###### 14 
 How then shall they call on Him in whom they have not believed? And how shall they believe in Him of whom they have not heard? And how shall they hear without a preacher? 

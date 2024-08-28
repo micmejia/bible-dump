@@ -436,7 +436,9 @@ Pero sumagot ang lalaki, 'Hindi ko kayo kilala.' "
 
 
 
-At sinabi ni Jesus, "Kaya magbantay kayo, dahil hindi ninyo alam ang araw o oras ng aking pagbabalik." ## Ang Talinghaga tungkol sa Tatlong Alipin 
+At sinabi ni Jesus, "Kaya magbantay kayo, dahil hindi ninyo alam ang araw o oras ng aking pagbabalik." 
+
+## Ang Talinghaga tungkol sa Tatlong Alipin 
 
 
 
@@ -997,7 +999,9 @@ Sapagkat ang mayroon ay bibigyan pa ng mas marami, ngunit ang wala, kahit ang ka
 
 
 
-Itapon ninyo ang walang silbing alipin na iyan sa kadiliman sa labas. Doon ay iiyak siya at magngangalit ang kanyang ngipin.' " ## Ang Huling Paghuhukom 
+Itapon ninyo ang walang silbing alipin na iyan sa kadiliman sa labas. Doon ay iiyak siya at magngangalit ang kanyang ngipin.' " 
+
+## Ang Huling Paghuhukom 
 
 
 

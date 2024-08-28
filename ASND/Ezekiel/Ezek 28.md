@@ -634,7 +634,9 @@ Dahil sa napakarami mong kasalanan at pandaraya sa pangangalakal, dinungisan mo 
 
 
 
-At ang lahat ng mga nakakakilala sa iyo ay nagulat sa sinapit mo. Nakakatakot ang naging wakas mo, at lubusan ka nang mawawala." ## Ang Mensahe Laban sa Sidon 
+At ang lahat ng mga nakakakilala sa iyo ay nagulat sa sinapit mo. Nakakatakot ang naging wakas mo, at lubusan ka nang mawawala." 
+
+## Ang Mensahe Laban sa Sidon 
 
 
 

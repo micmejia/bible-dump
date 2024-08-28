@@ -75,7 +75,9 @@ And he said, "The Jews have agreed to ask that you bring Paul down to the counci
 But do not yield to them, for more than forty of them lie in wait for him, men who have bound themselves by an oath that they will neither eat nor drink till they have killed him; and now they are ready, waiting for the promise from you." 
 
 ###### 22 
-So the commander let the young man depart, and commanded him, "Tell no one that you have revealed these things to me." ## Sent to Felix 
+So the commander let the young man depart, and commanded him, "Tell no one that you have revealed these things to me." 
+
+## Sent to Felix 
 
 ###### 23 
 And he called for two centurions, saying, "Prepare two hundred soldiers, seventy horsemen, and two hundred spearmen to go to Caesarea at the third hour of the night; 

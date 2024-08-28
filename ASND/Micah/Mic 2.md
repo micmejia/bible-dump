@@ -370,7 +370,9 @@ Kaya ngayon, umalis na kayo rito sa Israel dahil ang lugar na ito ay hindi na ma
 
 
 
-Ang gusto ninyong mangangaral ay iyong nangangaral nang walang kabuluhan, manlilinlang at sinungaling, at ganito ang sinasabi: 'Sasagana kayo sa alak at iba pang mga inumin.' " ## Ang Ipinangakong Kalayaan sa mga Taga-Israel at Taga-Juda 
+Ang gusto ninyong mangangaral ay iyong nangangaral nang walang kabuluhan, manlilinlang at sinungaling, at ganito ang sinasabi: 'Sasagana kayo sa alak at iba pang mga inumin.' " 
+
+## Ang Ipinangakong Kalayaan sa mga Taga-Israel at Taga-Juda 
 
 
 

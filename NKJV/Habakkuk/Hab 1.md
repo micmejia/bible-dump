@@ -43,7 +43,9 @@ Their horses also are swifter than leopards, And more fierce than evening wolves
 They scoff at kings, And princes are scorned by them. They deride every stronghold, For they heap up earthen mounds and seize it. 
 
 ###### 11 
-Then his mind changes, and he transgresses; He commits offense, Ascribing this power to his god." ## The Prophet's Second Question 
+Then his mind changes, and he transgresses; He commits offense, Ascribing this power to his god." 
+
+## The Prophet's Second Question 
 
 ###### 12 
 Are You not from everlasting, O Lord my God, my Holy One? We shall not die. O Lord, You have appointed them for judgment; O Rock, You have marked them for correction. 

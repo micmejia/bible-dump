@@ -58,7 +58,9 @@ For according to the number of your cities were your gods, O Judah; and accordin
 The Lord called your name, Green Olive Tree, Lovely and of Good Fruit. With the noise of a great tumult He has kindled fire on it, And its branches are broken. 
 
 ###### 17 
-"For the Lord of hosts, who planted you, has pronounced doom against you for the evil of the house of Israel and of the house of Judah, which they have done against themselves to provoke Me to anger in offering incense to Baal." ## Jeremiah's Life Threatened 
+"For the Lord of hosts, who planted you, has pronounced doom against you for the evil of the house of Israel and of the house of Judah, which they have done against themselves to provoke Me to anger in offering incense to Baal." 
+
+## Jeremiah's Life Threatened 
 
 ###### 18 
 Now the Lord gave me knowledge of it, and I know it; for You showed me their doings. 

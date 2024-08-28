@@ -19,7 +19,9 @@ It would be better for him if a millstone were hung around his neck, and he were
 Take heed to yourselves. If your brother sins against you, rebuke him; and if he repents, forgive him. 
 
 ###### 4 
-And if he sins against you seven times in a day, and seven times in a day returns to you, saying, 'I repent,' you shall forgive him." ## Faith and Duty 
+And if he sins against you seven times in a day, and seven times in a day returns to you, saying, 'I repent,' you shall forgive him." 
+
+## Faith and Duty 
 
 ###### 5 
 And the apostles said to the Lord, "Increase our faith." 
@@ -37,7 +39,9 @@ But will he not rather say to him, 'Prepare something for my supper, and gird yo
 Does he thank that servant because he did the things that were commanded him? I think not. 
 
 ###### 10 
-So likewise you, when you have done all those things which you are commanded, say, 'We are unprofitable servants. We have done what was our duty to do.' " ## Ten Lepers Cleansed 
+So likewise you, when you have done all those things which you are commanded, say, 'We are unprofitable servants. We have done what was our duty to do.' " 
+
+## Ten Lepers Cleansed 
 
 ###### 11 
 Now it happened as He went to Jerusalem that He passed through the midst of Samaria and Galilee. 
@@ -64,7 +68,9 @@ So Jesus answered and said, "Were there not ten cleansed? But where are the nine
 Were there not any found who returned to give glory to God except this foreigner?" 
 
 ###### 19 
-And He said to him, "Arise, go your way. Your faith has made you well." ## The Coming of the Kingdom 
+And He said to him, "Arise, go your way. Your faith has made you well." 
+
+## The Coming of the Kingdom 
 
 ###### 20 
 Now when He was asked by the Pharisees when the kingdom of God would come, He answered them and said, "The kingdom of God does not come with observation; 

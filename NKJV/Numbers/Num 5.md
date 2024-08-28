@@ -39,7 +39,9 @@ But if the man has no relative to whom restitution may be made for the wrong, th
 Every offering of all the holy things of the children of Israel, which they bring to the priest, shall be his. 
 
 ###### 10 
-And every man's holy things shall be his; whatever any man gives the priest shall be his.' " ## Concerning Unfaithful Wives 
+And every man's holy things shall be his; whatever any man gives the priest shall be his.' " 
+
+## Concerning Unfaithful Wives 
 
 ###### 11 
 And the Lord spoke to Moses, saying, 

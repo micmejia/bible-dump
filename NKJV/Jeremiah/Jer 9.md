@@ -55,7 +55,9 @@ but they have walked according to the dictates of their own hearts and after the
 therefore thus says the Lord of hosts, the God of Israel: "Behold, I will feed them, this people, with wormwood, and give them water of gall to drink. 
 
 ###### 16 
-I will scatter them also among the Gentiles, whom neither they nor their fathers have known. And I will send a sword after them until I have consumed them." ## The People Mourn in Judgment 
+I will scatter them also among the Gentiles, whom neither they nor their fathers have known. And I will send a sword after them until I have consumed them." 
+
+## The People Mourn in Judgment 
 
 ###### 17 
 Thus says the Lord of hosts: "Consider and call for the mourning women, That they may come; And send for skillful wailing women, That they may come. 

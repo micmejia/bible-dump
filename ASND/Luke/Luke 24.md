@@ -1561,7 +1561,9 @@ Kayo ang mga saksi sa mga bagay na ito.
 
 
 
-Isusugo ko sa inyo ang Banal na Espiritung ipinangako ng Ama, kaya manatili muna kayo rito sa Jerusalem hanggang sa dumating sa inyo ang kapangyarihan mula sa langit." ## Ang Pag-akyat ni Jesus sa Langit 
+Isusugo ko sa inyo ang Banal na Espiritung ipinangako ng Ama, kaya manatili muna kayo rito sa Jerusalem hanggang sa dumating sa inyo ang kapangyarihan mula sa langit." 
+
+## Ang Pag-akyat ni Jesus sa Langit 
 
 
 

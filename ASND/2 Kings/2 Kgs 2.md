@@ -535,7 +535,9 @@ Pero nagpumilit sila hanggang sa nahiya na lang siya na tumanggi. Sinabi niya, "
 
 
 
-Pagbalik nila kay Eliseo, na nasa Jerico pa, sinabi ni Eliseo sa kanila, "Hindi baʼt sinabi ko sa inyo na huwag na kayong umalis?" ## Ang mga Himala na Ginawa ni Eliseo 
+Pagbalik nila kay Eliseo, na nasa Jerico pa, sinabi ni Eliseo sa kanila, "Hindi baʼt sinabi ko sa inyo na huwag na kayong umalis?" 
+
+## Ang mga Himala na Ginawa ni Eliseo 
 
 
 

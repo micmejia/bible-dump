@@ -899,7 +899,9 @@ Pero ako na inyong lingkod ay hindi niya inimbita, pati na rin ang paring si Zad
 
 
 
-Ito po ba ang pasya ninyo, Mahal na Hari, na hindi nʼyo na ipinaalam sa amin kung sino ang papalit sa inyo bilang hari?" ## Hinirang ni David si Solomon Bilang Hari 
+Ito po ba ang pasya ninyo, Mahal na Hari, na hindi nʼyo na ipinaalam sa amin kung sino ang papalit sa inyo bilang hari?" 
+
+## Hinirang ni David si Solomon Bilang Hari 
 
 
 

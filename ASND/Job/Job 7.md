@@ -172,7 +172,9 @@ at habang nakahiga ako, iniisip ko kung kailan darating ang umaga. Napakabagal n
 
 
 
-Ang katawan koʼy puno ng uod at langib. Nagnanana at pumuputok ang mga pigsa kong namamaga." ## Nanalangin si Job sa Dios 
+Ang katawan koʼy puno ng uod at langib. Nagnanana at pumuputok ang mga pigsa kong namamaga." 
+
+## Nanalangin si Job sa Dios 
 
 
 

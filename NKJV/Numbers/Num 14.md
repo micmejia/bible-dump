@@ -84,7 +84,9 @@ they certainly shall not see the land of which I swore to their fathers, nor sha
 But My servant Caleb, because he has a different spirit in him and has followed Me fully, I will bring into the land where he went, and his descendants shall inherit it. 
 
 ###### 25 
-Now the Amalekites and the Canaanites dwell in the valley; tomorrow turn and move out into the wilderness by the Way of the Red Sea." ## Death Sentence on the Rebels 
+Now the Amalekites and the Canaanites dwell in the valley; tomorrow turn and move out into the wilderness by the Way of the Red Sea." 
+
+## Death Sentence on the Rebels 
 
 ###### 26 
 And the Lord spoke to Moses and Aaron, saying, 

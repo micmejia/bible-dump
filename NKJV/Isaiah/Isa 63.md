@@ -25,7 +25,9 @@ For the day of vengeance is in My heart, And the year of My redeemed has come.
 I looked, but there was no one to help, And I wondered That there was no one to uphold; Therefore My own arm brought salvation for Me; And My own fury, it sustained Me. 
 
 ###### 6 
-I have trodden down the peoples in My anger, Made them drunk in My fury, And brought down their strength to the earth." ## God's Mercy Remembered 
+I have trodden down the peoples in My anger, Made them drunk in My fury, And brought down their strength to the earth." 
+
+## God's Mercy Remembered 
 
 ###### 7 
 I will mention the lovingkindnesses of the Lord And the praises of the Lord, According to all that the Lord has bestowed on us, And the great goodness toward the house of Israel, Which He has bestowed on them according to His mercies, According to the multitude of His lovingkindnesses. 

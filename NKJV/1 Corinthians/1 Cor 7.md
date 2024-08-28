@@ -57,7 +57,9 @@ For the unbelieving husband is sanctified by the wife, and the unbelieving wife 
 But if the unbeliever departs, let him depart; a brother or a sister is not under bondage in such cases. But God has called us to peace. 
 
 ###### 16 
-For how do you know, O wife, whether you will save your husband? Or how do you know, O husband, whether you will save your wife? ## Live as You Are Called 
+For how do you know, O wife, whether you will save your husband? Or how do you know, O husband, whether you will save your wife? 
+
+## Live as You Are Called 
 
 ###### 17 
 But as God has distributed to each one, as the Lord has called each one, so let him walk. And so I ordain in all the churches. 

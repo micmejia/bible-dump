@@ -106,7 +106,9 @@ ipinatawag ng mga Filisteo ang kanilang mga pari at manghuhula at nagtanong, "An
 
 
 
-Sumagot sila, "Kung ibabalik ninyo ang Kahon ng Dios ng Israel, dapat samahan ninyo ito ng handog na pambayad ng kasalanan, sa pamamagitan nito, gagaling kayo at ihihinto na ng Dios ang pagpaparusa sa inyo." ###### 4-5 Nagtanong ang mga Filisteo, "Ano ang ipapadala namin bilang handog na pambayad ng kasalanan?" Sumagot ang mga pari at manghuhula, "Gumawa kayo ng limang gintong estatwa na hugis tumor at limang gintong estatwa na hugis daga, ayon sa dami ng mga pinuno natin, dahil dumating sa atin at sa mga pinuno natin ang salot ng mga tumor at daga na naminsala sa ating lupain. Ihandog ninyo ito bilang pagpaparangal sa Dios ng Israel, baka sakaling itigil na niya ang pagpaparusa sa atin sa mga dios natin, at sa ating lupain. 
+Sumagot sila, "Kung ibabalik ninyo ang Kahon ng Dios ng Israel, dapat samahan ninyo ito ng handog na pambayad ng kasalanan, sa pamamagitan nito, gagaling kayo at ihihinto na ng Dios ang pagpaparusa sa inyo." 
+
+###### 4-5 Nagtanong ang mga Filisteo, "Ano ang ipapadala namin bilang handog na pambayad ng kasalanan?" Sumagot ang mga pari at manghuhula, "Gumawa kayo ng limang gintong estatwa na hugis tumor at limang gintong estatwa na hugis daga, ayon sa dami ng mga pinuno natin, dahil dumating sa atin at sa mga pinuno natin ang salot ng mga tumor at daga na naminsala sa ating lupain. Ihandog ninyo ito bilang pagpaparangal sa Dios ng Israel, baka sakaling itigil na niya ang pagpaparusa sa atin sa mga dios natin, at sa ating lupain. 
 
 
 

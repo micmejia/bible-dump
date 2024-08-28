@@ -568,7 +568,9 @@ Hindi kayo ang pumili sa akin kundi ako ang pumili sa inyo, para humayo kayo at 
 
 
 
-Ito nga ang utos ko sa inyo: magmahalan kayo." ## Ang Galit ng mga Taong Makamundo sa mga Sumasampalataya kay Jesus 
+Ito nga ang utos ko sa inyo: magmahalan kayo." 
+
+## Ang Galit ng mga Taong Makamundo sa mga Sumasampalataya kay Jesus 
 
 
 

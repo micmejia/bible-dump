@@ -13,7 +13,9 @@ next: ['2 Cor 3']
 But I determined this within myself, that I would not come again to you in sorrow. 
 
 ###### 2 
-For if I make you sorrowful, then who is he who makes me glad but the one who is made sorrowful by me? ## Forgive the Offender 
+For if I make you sorrowful, then who is he who makes me glad but the one who is made sorrowful by me? 
+
+## Forgive the Offender 
 
 ###### 3 
 And I wrote this very thing to you, lest, when I came, I should have sorrow over those from whom I ought to have joy, having confidence in you all that my joy is the joy of you all. 

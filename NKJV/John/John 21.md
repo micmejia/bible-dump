@@ -65,7 +65,9 @@ He said to him the third time, "Simon, son of Jonah, do you love Me?" Peter was 
 Most assuredly, I say to you, when you were younger, you girded yourself and walked where you wished; but when you are old, you will stretch out your hands, and another will gird you and carry you where you do not wish." 
 
 ###### 19 
-This He spoke, signifying by what death he would glorify God. And when He had spoken this, He said to him, "Follow Me." ## The Beloved Disciple and His Book 
+This He spoke, signifying by what death he would glorify God. And when He had spoken this, He said to him, "Follow Me." 
+
+## The Beloved Disciple and His Book 
 
 ###### 20 
 Then Peter, turning around, saw the disciple whom Jesus loved following, who also had leaned on His breast at the supper, and said, "Lord, who is the one who betrays You?" 

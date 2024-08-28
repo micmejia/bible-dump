@@ -63,7 +63,9 @@ Your words were found, and I ate them, And Your word was to me the joy and rejoi
 I did not sit in the assembly of the mockers, Nor did I rejoice; I sat alone because of Your hand, For You have filled me with indignation. 
 
 ###### 18 
-Why is my pain perpetual And my wound incurable, Which refuses to be healed? Will You surely be to me like an unreliable stream, As waters that fail? ## The Lord Reassures Jeremiah 
+Why is my pain perpetual And my wound incurable, Which refuses to be healed? Will You surely be to me like an unreliable stream, As waters that fail? 
+
+## The Lord Reassures Jeremiah 
 
 ###### 19 
 Therefore thus says the Lord: "If you return, Then I will bring you back; You shall stand before Me; If you take out the precious from the vile, You shall be as My mouth. Let them return to you, But you must not return to them. 

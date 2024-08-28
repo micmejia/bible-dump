@@ -31,7 +31,9 @@ At the banquet of wine the king said to Esther, "What _is_ your petition? It sha
 Then Esther answered and said, "My petition and request _is this:_ 
 
 ###### 8 
-If I have found favor in the sight of the king, and if it pleases the king to grant my petition and fulfill my request, then let the king and Haman come to the banquet which I will prepare for them, and tomorrow I will do as the king has said." ## Haman's Plot Against Mordecai 
+If I have found favor in the sight of the king, and if it pleases the king to grant my petition and fulfill my request, then let the king and Haman come to the banquet which I will prepare for them, and tomorrow I will do as the king has said." 
+
+## Haman's Plot Against Mordecai 
 
 ###### 9 
 So Haman went out that day joyful and with a glad heart; but when Haman saw Mordecai in the king's gate, and that he did not stand or tremble before him, he was filled with indignation against Mordecai. 

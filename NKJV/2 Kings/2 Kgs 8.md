@@ -25,7 +25,9 @@ Then the king talked with Gehazi, the servant of the man of God, saying, "Tell m
 Now it happened, as he was telling the king how he had restored the dead to life, that there was the woman whose son he had restored to life, appealing to the king for her house and for her land. And Gehazi said, "My lord, O king, this _is_ the woman, and this _is_ her son whom Elisha restored to life." 
 
 ###### 6 
-And when the king asked the woman, she told him. So the king appointed a certain officer for her, saying, "Restore all that _was_ hers, and all the proceeds of the field from the day that she left the land until now." ## Death of Ben-Hadad 
+And when the king asked the woman, she told him. So the king appointed a certain officer for her, saying, "Restore all that _was_ hers, and all the proceeds of the field from the day that she left the land until now." 
+
+## Death of Ben-Hadad 
 
 ###### 7 
 Then Elisha went to Damascus, and Ben-Hadad king of Syria was sick; and it was told him, saying, "The man of God has come here." 

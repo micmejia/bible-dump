@@ -40,7 +40,9 @@ next: ['Jer 31']
 
 
 
-Sapagkat darating ang araw na ibabalik kong muli ang mga mamamayan kong taga-Israel at taga-Juda mula sa pagkabihag. Ibabalik ko sila sa lupaing ibinigay ko sa mga ninuno nila na magiging pag-aari nila." ###### 4-5 Ito pa ang sinabi ng Panginoon tungkol sa Israel at Juda: "Maririnig ang hiyawan ng mga tao hindi dahil sa tuwa kundi sa matinding takot. 
+Sapagkat darating ang araw na ibabalik kong muli ang mga mamamayan kong taga-Israel at taga-Juda mula sa pagkabihag. Ibabalik ko sila sa lupaing ibinigay ko sa mga ninuno nila na magiging pag-aari nila." 
+
+###### 4-5 Ito pa ang sinabi ng Panginoon tungkol sa Israel at Juda: "Maririnig ang hiyawan ng mga tao hindi dahil sa tuwa kundi sa matinding takot. 
 
 
 

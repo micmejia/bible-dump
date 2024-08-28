@@ -12,7 +12,9 @@ next: ['Amos 2']
 The words of Amos, who was among the sheepbreeders of Tekoa, which he saw concerning Israel in the days of Uzziah king of Judah, and in the days of Jeroboam the son of Joash, king of Israel, two years before the earthquake. 
 
 ###### 2 
-And he said: "The Lord roars from Zion, And utters His voice from Jerusalem; The pastures of the shepherds mourn, And the top of Carmel withers." ## Judgment on the Nations 
+And he said: "The Lord roars from Zion, And utters His voice from Jerusalem; The pastures of the shepherds mourn, And the top of Carmel withers." 
+
+## Judgment on the Nations 
 
 ###### 3 
 Thus says the Lord: "For three transgressions of Damascus, and for four, I will not turn away its punishment, Because they have threshed Gilead with implements of iron. 

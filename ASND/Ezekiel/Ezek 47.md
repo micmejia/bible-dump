@@ -403,7 +403,9 @@ Ngunit ang mga latian sa palibot ng Dagat na Patay ay mananatiling maalat para m
 
 
 
-Tutubo sa magkabilang panig ng ilog ang ibaʼt ibang uri ng punongkahoy na namumunga. Ang mga dahon nitoʼy hindi malalanta at hindi mauubos ang mga bunga. Mamumunga ito sa bawat buwan dahil dinadaluyan ito ng tubig mula sa templo. Ang mga bunga nitoʼy pagkain, at ang dahon ay gamot." ## Ang mga Hangganan ng Lupa 
+Tutubo sa magkabilang panig ng ilog ang ibaʼt ibang uri ng punongkahoy na namumunga. Ang mga dahon nitoʼy hindi malalanta at hindi mauubos ang mga bunga. Mamumunga ito sa bawat buwan dahil dinadaluyan ito ng tubig mula sa templo. Ang mga bunga nitoʼy pagkain, at ang dahon ay gamot." 
+
+## Ang mga Hangganan ng Lupa 
 
 
 

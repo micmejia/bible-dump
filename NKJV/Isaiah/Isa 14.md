@@ -42,7 +42,9 @@ Indeed the cypress trees rejoice over you, _And_ the cedars of Lebanon, _Saying,
 They all shall speak and say to you: 'Have you also become as weak as we? Have you become like us? 
 
 ###### 11 
-Your pomp is brought down to Sheol, _And_ the sound of your stringed instruments; The maggot is spread under you, And worms cover you.' ## The Fall of Lucifer 
+Your pomp is brought down to Sheol, _And_ the sound of your stringed instruments; The maggot is spread under you, And worms cover you.' 
+
+## The Fall of Lucifer 
 
 ###### 12 
 "How you are fallen from heaven, O Lucifer, son of the morning! _How_ you are cut down to the ground, You who weakened the nations! 
@@ -72,7 +74,9 @@ But you are cast out of your grave Like an abominable branch, _Like_ the garment
 You will not be joined with them in burial, Because you have destroyed your land _And_ slain your people. The brood of evildoers shall never be named. 
 
 ###### 21 
-Prepare slaughter for his children Because of the iniquity of their fathers, Lest they rise up and possess the land, And fill the face of the world with cities." ## Babylon Destroyed 
+Prepare slaughter for his children Because of the iniquity of their fathers, Lest they rise up and possess the land, And fill the face of the world with cities." 
+
+## Babylon Destroyed 
 
 ###### 22 
 "For I will rise up against them," says the Lord of hosts, "And cut off from Babylon the name and remnant, And offspring and posterity," says the Lord. 
@@ -92,7 +96,9 @@ That I will break the Assyrian in My land, And on My mountains tread him underfo
 This _is_ the purpose that is purposed against the whole earth, And this _is_ the hand that is stretched out over all the nations. 
 
 ###### 27 
-For the Lord of hosts has purposed, And who will annul _it?_ His hand _is_ stretched out, And who will turn it back?" ## Philistia Destroyed 
+For the Lord of hosts has purposed, And who will annul _it?_ His hand _is_ stretched out, And who will turn it back?" 
+
+## Philistia Destroyed 
 
 ###### 28 
 This is the burden which came in the year that King Ahaz died. 

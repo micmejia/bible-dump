@@ -49,7 +49,9 @@ She has grown weary with lies, And her great scum has not gone from her. Let her
 In your filthiness is lewdness. Because I have cleansed you, and you were not cleansed, You will not be cleansed of your filthiness anymore, Till I have caused My fury to rest upon you. 
 
 ###### 14 
-I, the Lord, have spoken it; It shall come to pass, and I will do it; I will not hold back, Nor will I spare, Nor will I relent; According to your ways And according to your deeds They will judge you," Says the Lord God.' " ## The Prophet's Wife Dies 
+I, the Lord, have spoken it; It shall come to pass, and I will do it; I will not hold back, Nor will I spare, Nor will I relent; According to your ways And according to your deeds They will judge you," Says the Lord God.' " 
+
+## The Prophet's Wife Dies 
 
 ###### 15 
 Also the word of the Lord came to me, saying, 

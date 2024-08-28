@@ -57,7 +57,9 @@ Indeed all the people of the land will be burying, and they will gain renown for
 The search party will pass through the land; and when anyone sees a man's bone, he shall set up a marker by it, till the buriers have buried it in the Valley of Hamon Gog. 
 
 ###### 16 
-The name of the city will also be Hamonah. Thus they shall cleanse the land." ' ## A Triumphant Festival 
+The name of the city will also be Hamonah. Thus they shall cleanse the land." ' 
+
+## A Triumphant Festival 
 
 ###### 17 
 "And as for you, son of man, thus says the Lord God, 'Speak to every sort of bird and to every beast of the field: "Assemble yourselves and come; Gather together from all sides to My sacrificial meal Which I am sacrificing for you, A great sacrificial meal on the mountains of Israel, That you may eat flesh and drink blood. 

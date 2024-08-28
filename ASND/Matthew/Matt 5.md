@@ -403,7 +403,9 @@ Mapalad ang mga dumaranas ng pag-uusig dahil sa pagsunod nila sa kalooban ng Dio
 
 
 
-Ganoon din ang ginawa nila sa mga propeta noong una. Kaya magalak kayo dahil malaki ang gantimpala ninyo sa langit." ## Ang Asin at Ilaw 
+Ganoon din ang ginawa nila sa mga propeta noong una. Kaya magalak kayo dahil malaki ang gantimpala ninyo sa langit." 
+
+## Ang Asin at Ilaw 
 
 
 
@@ -535,7 +537,9 @@ Walang taong nagsindi ng ilaw at pagkatapos ay tatakpan ng takalan. Sa halip, in
 
 
 
-Ganoon din ang dapat ninyong gawin. Pagliwanagin ninyo ang inyong ilaw sa mga tao, upang makita nila ang mabubuting gawa ninyo at pupurihin nila ang inyong Amang nasa langit." ## Ang Turo tungkol sa Kautusan 
+Ganoon din ang dapat ninyong gawin. Pagliwanagin ninyo ang inyong ilaw sa mga tao, upang makita nila ang mabubuting gawa ninyo at pupurihin nila ang inyong Amang nasa langit." 
+
+## Ang Turo tungkol sa Kautusan 
 
 
 
@@ -667,7 +671,9 @@ Kaya ang sinumang lumabag sa pinakamaliit na bahagi ng Kautusan, at magturo sa i
 
 
 
-Kaya tandaan ninyo: kung hindi ninyo mahihigitan ang pagsunod ng mga tagapagturo ng Kautusan at ng mga Pariseo sa kalooban ng Dios, hindi kayo makakapasok sa kaharian ng Dios." ## Ang Turo tungkol sa Galit 
+Kaya tandaan ninyo: kung hindi ninyo mahihigitan ang pagsunod ng mga tagapagturo ng Kautusan at ng mga Pariseo sa kalooban ng Dios, hindi kayo makakapasok sa kaharian ng Dios." 
+
+## Ang Turo tungkol sa Galit 
 
 
 
@@ -865,7 +871,9 @@ iwanan mo muna ang handog mo sa harap ng altar. Makipagkasundo ka muna sa iyong 
 
 
 
-Tinitiyak ko sa iyo, hindi ka makakalabas ng bilangguan hanggaʼt hindi mo nababayaran ang kabuuan ng utang mo." ## Ang Turo tungkol sa Pangangalunya 
+Tinitiyak ko sa iyo, hindi ka makakalabas ng bilangguan hanggaʼt hindi mo nababayaran ang kabuuan ng utang mo." 
+
+## Ang Turo tungkol sa Pangangalunya 
 
 
 
@@ -997,7 +1005,9 @@ Kaya kung ang kanang mata mo ang dahilan ng iyong pagkakasala, dukitin mo ito at
 
 
 
-At kung ang kanang kamay mo ang dahilan ng iyong pagkakasala, putulin mo ito at itapon! Mas mabuti pang mawalan ka ng isang parte ng katawan kaysa sa buo ang katawan mo pero itatapon ka naman sa impyerno." ## Ang Turo tungkol sa Paghihiwalay 
+At kung ang kanang kamay mo ang dahilan ng iyong pagkakasala, putulin mo ito at itapon! Mas mabuti pang mawalan ka ng isang parte ng katawan kaysa sa buo ang katawan mo pero itatapon ka naman sa impyerno." 
+
+## Ang Turo tungkol sa Paghihiwalay 
 
 
 
@@ -1063,7 +1073,9 @@ At kung ang kanang kamay mo ang dahilan ng iyong pagkakasala, putulin mo ito at 
 
 
 
-Ngunit sinasabi ko sa inyo na kapag hiniwalayan ng lalaki ang kanyang asawa sa anumang dahilan maliban sa sekswal na imoralidad, siya na rin ang nagtulak sa kanyang asawa na mangalunya kapag nag-asawa itong muli. At ang sinumang mag-asawa ng babaeng hiniwalayan ay nagkasala rin ng pangangalunya." ## Ang Turo tungkol sa Panunumpa 
+Ngunit sinasabi ko sa inyo na kapag hiniwalayan ng lalaki ang kanyang asawa sa anumang dahilan maliban sa sekswal na imoralidad, siya na rin ang nagtulak sa kanyang asawa na mangalunya kapag nag-asawa itong muli. At ang sinumang mag-asawa ng babaeng hiniwalayan ay nagkasala rin ng pangangalunya." 
+
+## Ang Turo tungkol sa Panunumpa 
 
 
 
@@ -1228,7 +1240,9 @@ At huwag din ninyong sasabihing, 'Kahit mamatay pa ako,' dahil ni isang buhok mo
 
 
 
-Sabihin mo na lang na 'Oo' kung oo, at 'Hindi' kung hindi; dahil kung manunumpa pa kayo, galing na iyan sa diyablo." ## Huwag Maghiganti 
+Sabihin mo na lang na 'Oo' kung oo, at 'Hindi' kung hindi; dahil kung manunumpa pa kayo, galing na iyan sa diyablo." 
+
+## Huwag Maghiganti 
 
 
 
@@ -1393,7 +1407,9 @@ Kung sapilitang ipapasan sa iyo ng isang sundalo ang dala niya ng isang kilometr
 
 
 
-Bigyan mo ang nanghihingi sa iyo, at huwag mong tanggihan ang nanghihiram sa iyo." ## Mahalin Ninyo ang Inyong Kaaway 
+Bigyan mo ang nanghihingi sa iyo, at huwag mong tanggihan ang nanghihiram sa iyo." 
+
+## Mahalin Ninyo ang Inyong Kaaway 
 
 
 

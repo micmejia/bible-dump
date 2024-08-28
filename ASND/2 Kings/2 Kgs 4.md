@@ -238,7 +238,9 @@ Nang mapuno na ang lahat ng sisidlan, sinabi niya sa isa sa kanyang mga anak, "B
 
 
 
-Pumunta ang babae kay Eliseo na lingkod ng Dios at sinabi niya ang nangyari sa kanya. Sinabi ni Eliseo sa kanya, "Umalis ka at ipagbili ang langis, at bayaran mo ang utang mo. May matitira ka pang sapat na pera para mabuhay kayo ng mga anak mo." ## Si Eliseo at ang Babaeng Taga-Shunem 
+Pumunta ang babae kay Eliseo na lingkod ng Dios at sinabi niya ang nangyari sa kanya. Sinabi ni Eliseo sa kanya, "Umalis ka at ipagbili ang langis, at bayaran mo ang utang mo. May matitira ka pang sapat na pera para mabuhay kayo ng mga anak mo." 
+
+## Si Eliseo at ang Babaeng Taga-Shunem 
 
 
 

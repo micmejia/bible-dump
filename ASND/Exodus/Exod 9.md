@@ -139,7 +139,9 @@ padadalhan ko ng nakamamatay na sakit ang mga hayop mo na nasa bukid – kabayo,
 
 
 
-Hindi magiging pareho ang trato ko sa mga hayop ng mga Israelita at sa mga hayop ng mga Egipcio, at walang mamamatay sa mga hayop ng mga Israelita.' " ###### 5-6 Ipinaalam ng Panginoon na gagawin niya ito kinabukasan, at nangyari nga. Namatay ang lahat ng hayop ng mga Egipcio, pero walang namatay ni isa man lang sa mga hayop ng mga Israelita. 
+Hindi magiging pareho ang trato ko sa mga hayop ng mga Israelita at sa mga hayop ng mga Egipcio, at walang mamamatay sa mga hayop ng mga Israelita.' " 
+
+###### 5-6 Ipinaalam ng Panginoon na gagawin niya ito kinabukasan, at nangyari nga. Namatay ang lahat ng hayop ng mga Egipcio, pero walang namatay ni isa man lang sa mga hayop ng mga Israelita. 
 
 
 

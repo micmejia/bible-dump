@@ -700,7 +700,9 @@ Sa halip, sulatan natin sila na huwag kumain ng mga pagkaing inihandog sa mga di
 
 
 
-Ito ang mga utos ni Moises na dapat nilang sundin para hindi mandiri ang mga Judio sa kanila, dahil mula pa noon, ang Kautusan ni Moises ay binabasa na ng mga Judio sa kanilang sambahan tuwing Araw ng Pamamahinga. At itinuturo nila ito sa bawat bayan." ## Ang Sulat para sa mga Hindi Judio 
+Ito ang mga utos ni Moises na dapat nilang sundin para hindi mandiri ang mga Judio sa kanila, dahil mula pa noon, ang Kautusan ni Moises ay binabasa na ng mga Judio sa kanilang sambahan tuwing Araw ng Pamamahinga. At itinuturo nila ito sa bawat bayan." 
+
+## Ang Sulat para sa mga Hindi Judio 
 
 
 

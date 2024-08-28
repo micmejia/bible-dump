@@ -568,7 +568,9 @@ Si Aaron ang magsasalita sa mga tao para sa iyo. Turuan mo siya ng mga sasabihin
 
 
 
-Dalhin mo ang baston mo para sa pamamagitan nito ay makagawa ka ng mga himala." ## Bumalik si Moises sa Egipto 
+Dalhin mo ang baston mo para sa pamamagitan nito ay makagawa ka ng mga himala." 
+
+## Bumalik si Moises sa Egipto 
 
 
 

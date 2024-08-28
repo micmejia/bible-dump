@@ -25,7 +25,9 @@ You have a few names even in Sardis who have not defiled their garments; and the
 He who overcomes shall be clothed in white garments, and I will not blot out his name from the Book of Life; but I will confess his name before My Father and before His angels. 
 
 ###### 6 
-"He who has an ear, let him hear what the Spirit says to the churches." ' ## The Faithful Church 
+"He who has an ear, let him hear what the Spirit says to the churches." ' 
+
+## The Faithful Church 
 
 ###### 7 
 "And to the angel of the church in Philadelphia write, 'These things says He who is holy, He who is true, "He who has the key of David, He who opens and no one shuts, and shuts and no one opens": 
@@ -46,7 +48,9 @@ Behold, I am coming quickly! Hold fast what you have, that no one may take your 
 He who overcomes, I will make him a pillar in the temple of My God, and he shall go out no more. I will write on him the name of My God and the name of the city of My God, the New Jerusalem, which comes down out of heaven from My God. And I will write on him My new name. 
 
 ###### 13 
-"He who has an ear, let him hear what the Spirit says to the churches." ' ## The Lukewarm Church 
+"He who has an ear, let him hear what the Spirit says to the churches." ' 
+
+## The Lukewarm Church 
 
 ###### 14 
 "And to the angel of the church of the Laodiceans write, 'These things says the Amen, the Faithful and True Witness, the Beginning of the creation of God: 

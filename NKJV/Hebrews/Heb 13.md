@@ -24,7 +24,9 @@ Marriage is honorable among all, and the bed undefiled; but fornicators and adul
 Let your conduct be without covetousness; be content with such things as you have. For He Himself has said, "I will never leave you nor forsake you." 
 
 ###### 6 
-So we may boldly say: "The Lord is my helper; I will not fear. What can man do to me?" ## Concluding Religious Directions 
+So we may boldly say: "The Lord is my helper; I will not fear. What can man do to me?" 
+
+## Concluding Religious Directions 
 
 ###### 7 
 Remember those who rule over you, who have spoken the word of God to you, whose faith follow, considering the outcome of their conduct. 

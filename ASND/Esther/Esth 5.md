@@ -271,7 +271,9 @@ Sumagot si Ester, "Ito po ang kahilingan ko,
 
 
 
-kung kalugod-lugod po ako sa inyo, at gusto ninyong ibigay ang kahilingan ko, minsan ko pa po kayong inaanyayahan at si Haman sa hapunan na ihahanda ko para sa inyo bukas. At saka ko po sasabihin ang kahilingan ko sa inyo." ## Nagplano si Haman na Patayin si Mordecai 
+kung kalugod-lugod po ako sa inyo, at gusto ninyong ibigay ang kahilingan ko, minsan ko pa po kayong inaanyayahan at si Haman sa hapunan na ihahanda ko para sa inyo bukas. At saka ko po sasabihin ang kahilingan ko sa inyo." 
+
+## Nagplano si Haman na Patayin si Mordecai 
 
 
 

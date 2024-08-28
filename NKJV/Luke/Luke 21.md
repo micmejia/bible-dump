@@ -19,13 +19,17 @@ and He saw also a certain poor widow putting in two mites.
 So He said, "Truly I say to you that this poor widow has put in more than all; 
 
 ###### 4 
-for all these out of their abundance have put in offerings for God, but she out of her poverty put in all the livelihood that she had." ## Jesus Predicts the Destruction of the Temple 
+for all these out of their abundance have put in offerings for God, but she out of her poverty put in all the livelihood that she had." 
+
+## Jesus Predicts the Destruction of the Temple 
 
 ###### 5 
 Then, as some spoke of the temple, how it was adorned with beautiful stones and donations, He said, 
 
 ###### 6 
-"These things which you see--the days will come in which not one stone shall be left upon another that shall not be thrown down." ## The Signs of the Times and the End of the Age 
+"These things which you see--the days will come in which not one stone shall be left upon another that shall not be thrown down." 
+
+## The Signs of the Times and the End of the Age 
 
 ###### 7 
 So they asked Him, saying, "Teacher, but when will these things be? And what sign will there be when these things are about to take place?" 
@@ -95,7 +99,9 @@ men's hearts failing them from fear and the expectation of those things which ar
 Then they will see the Son of Man coming in a cloud with power and great glory. 
 
 ###### 28 
-Now when these things begin to happen, look up and lift up your heads, because your redemption draws near." ## The Parable of the Fig Tree 
+Now when these things begin to happen, look up and lift up your heads, because your redemption draws near." 
+
+## The Parable of the Fig Tree 
 
 ###### 29 
 Then He spoke to them a parable: "Look at the fig tree, and all the trees. 

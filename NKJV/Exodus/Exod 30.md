@@ -37,7 +37,9 @@ And when Aaron lights the lamps at twilight, he shall burn incense on it, a perp
 You shall not offer strange incense on it, or a burnt offering, or a grain offering; nor shall you pour a drink offering on it. 
 
 ###### 10 
-And Aaron shall make atonement upon its horns once a year with the blood of the sin offering of atonement; once a year he shall make atonement upon it throughout your generations. It _is_ most holy to the Lord." ## The Ransom Money 
+And Aaron shall make atonement upon its horns once a year with the blood of the sin offering of atonement; once a year he shall make atonement upon it throughout your generations. It _is_ most holy to the Lord." 
+
+## The Ransom Money 
 
 ###### 11 
 Then the Lord spoke to Moses, saying: 
@@ -55,7 +57,9 @@ Everyone included among those who are numbered, from twenty years old and above,
 The rich shall not give more and the poor shall not give less than half a shekel, when _you_ give an offering to the Lord, to make atonement for yourselves. 
 
 ###### 16 
-And you shall take the atonement money of the children of Israel, and shall appoint it for the service of the tabernacle of meeting, that it may be a memorial for the children of Israel before the Lord, to make atonement for yourselves." ## The Bronze Laver 
+And you shall take the atonement money of the children of Israel, and shall appoint it for the service of the tabernacle of meeting, that it may be a memorial for the children of Israel before the Lord, to make atonement for yourselves." 
+
+## The Bronze Laver 
 
 ###### 17 
 Then the Lord spoke to Moses, saying: 
@@ -70,7 +74,9 @@ for Aaron and his sons shall wash their hands and their feet in water from it.
 When they go into the tabernacle of meeting, or when they come near the altar to minister, to burn an offering made by fire to the Lord, they shall wash with water, lest they die. 
 
 ###### 21 
-So they shall wash their hands and their feet, lest they die. And it shall be a statute forever to them--to him and his descendants throughout their generations." ## The Holy Anointing Oil 
+So they shall wash their hands and their feet, lest they die. And it shall be a statute forever to them--to him and his descendants throughout their generations." 
+
+## The Holy Anointing Oil 
 
 ###### 22 
 Moreover the Lord spoke to Moses, saying: 
@@ -106,7 +112,9 @@ And you shall anoint Aaron and his sons, and consecrate them, that _they_ may mi
 It shall not be poured on man's flesh; nor shall you make _any other_ like it, according to its composition. It _is_ holy, _and_ it shall be holy to you. 
 
 ###### 33 
-Whoever compounds _any_ like it, or whoever puts _any_ of it on an outsider, shall be cut off from his people.' " ## The Incense 
+Whoever compounds _any_ like it, or whoever puts _any_ of it on an outsider, shall be cut off from his people.' " 
+
+## The Incense 
 
 ###### 34 
 And the Lord said to Moses: "Take sweet spices, stacte and onycha and galbanum, and pure frankincense with _these_ sweet spices; there shall be equal amounts of each. 

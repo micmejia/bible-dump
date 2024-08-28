@@ -238,7 +238,9 @@ Ngunit ito ang gusto ko sa inyo: kinasusuklaman ninyo ang mga ginagawa ng mga Ni
 
 
 
-"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na Espiritu sa mga iglesya. "Ang magtatagumpay ay papayagan kong kumain ng bunga ng punongkahoy na nagbibigay ng buhay. Ang punong ito ay nasa paraiso ng Dios." ## Ang Sulat para sa Iglesya sa Smirna 
+"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na Espiritu sa mga iglesya. "Ang magtatagumpay ay papayagan kong kumain ng bunga ng punongkahoy na nagbibigay ng buhay. Ang punong ito ay nasa paraiso ng Dios." 
+
+## Ang Sulat para sa Iglesya sa Smirna 
 
 
 
@@ -370,7 +372,9 @@ Huwag kayong matakot sa mga paghihirap na malapit na ninyong danasin. Tandaan ni
 
 
 
-"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na Espiritu sa mga iglesya. "Ang magtatagumpay ay hindi makakaranas ng ikalawang kamatayan." ## Ang Sulat para sa Iglesya sa Pergamum 
+"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na Espiritu sa mga iglesya. "Ang magtatagumpay ay hindi makakaranas ng ikalawang kamatayan." 
+
+## Ang Sulat para sa Iglesya sa Pergamum 
 
 
 
@@ -568,7 +572,9 @@ Kaya magsisi kayo sa mga kasalanan ninyo! Sapagkat kung hindi, pupunta ako riyan
 
 
 
-"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na Espiritu sa mga iglesya. "Ang magtatagumpay ay bibigyan ko ng pagkain na inilaan ko sa langit. Bibigyan ko rin ang bawat isa sa kanila ng puting bato na may nakasulat na bagong pangalan na walang ibang nakakaalam kundi ang makakatanggap nito." ## Ang Sulat para sa Iglesya sa Tiatira 
+"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na Espiritu sa mga iglesya. "Ang magtatagumpay ay bibigyan ko ng pagkain na inilaan ko sa langit. Bibigyan ko rin ang bawat isa sa kanila ng puting bato na may nakasulat na bagong pangalan na walang ibang nakakaalam kundi ang makakatanggap nito." 
+
+## Ang Sulat para sa Iglesya sa Tiatira 
 
 
 

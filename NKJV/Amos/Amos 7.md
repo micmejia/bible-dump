@@ -38,7 +38,9 @@ Thus He showed me: Behold, the Lord stood on a wall made with a plumb line, with
 And the Lord said to me, "Amos, what do you see?" And I said, "A plumb line." Then the Lord said: "Behold, I am setting a plumb line In the midst of My people Israel; I will not pass by them anymore. 
 
 ###### 9 
-The high places of Isaac shall be desolate, And the sanctuaries of Israel shall be laid waste. I will rise with the sword against the house of Jeroboam." ## Amaziah's Complaint 
+The high places of Isaac shall be desolate, And the sanctuaries of Israel shall be laid waste. I will rise with the sword against the house of Jeroboam." 
+
+## Amaziah's Complaint 
 
 ###### 10 
 Then Amaziah the priest of Bethel sent to Jeroboam king of Israel, saying, "Amos has conspired against you in the midst of the house of Israel. The land is not able to bear all his words. 

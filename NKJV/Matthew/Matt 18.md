@@ -73,7 +73,9 @@ And if he refuses to hear them, tell it to the church. But if he refuses even to
 "Again I say to you that if two of you agree on earth concerning anything that they ask, it will be done for them by My Father in heaven. 
 
 ###### 20 
-For where two or three are gathered together in My name, I am there in the midst of them." ## The Parable of the Unforgiving Servant 
+For where two or three are gathered together in My name, I am there in the midst of them." 
+
+## The Parable of the Unforgiving Servant 
 
 ###### 21 
 Then Peter came to Him and said, "Lord, how often shall my brother sin against me, and I forgive him? Up to seven times?" 

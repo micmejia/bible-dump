@@ -436,7 +436,9 @@ hindi na siya obligadong tumulong pa sa kanila.
 
 
 
-Pinapawalang-halaga ninyo ang utos ng Dios sa pamamagitan ng mga tradisyong minana ninyo sa inyong mga ninuno. At marami pa kayong ginagawa na tulad nito." ## Ang Nagpaparumi sa Tao 
+Pinapawalang-halaga ninyo ang utos ng Dios sa pamamagitan ng mga tradisyong minana ninyo sa inyong mga ninuno. At marami pa kayong ginagawa na tulad nito." 
+
+## Ang Nagpaparumi sa Tao 
 
 
 
@@ -766,7 +768,9 @@ pangangalunya, kasakiman, at paggawa ng lahat ng uri ng kasamaan tulad ng pandar
 
 
 
-Ang lahat ng kasamaang ito ay nanggagaling sa puso ng tao, at siyang nagpaparumi sa kanya." ## Ang Pananampalataya ng Babaeng Hindi Judio 
+Ang lahat ng kasamaang ito ay nanggagaling sa puso ng tao, at siyang nagpaparumi sa kanya." 
+
+## Ang Pananampalataya ng Babaeng Hindi Judio 
 
 
 

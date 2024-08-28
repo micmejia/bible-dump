@@ -43,7 +43,9 @@ And even now the ax is laid to the root of the trees. Therefore every tree which
 I indeed baptize you with water unto repentance, but He who is coming after me is mightier than I, whose sandals I am not worthy to carry. He will baptize you with the Holy Spirit and fire. 
 
 ###### 12 
-His winnowing fan is in His hand, and He will thoroughly clean out His threshing floor, and gather His wheat into the barn; but He will burn up the chaff with unquenchable fire." ## John Baptizes Jesus 
+His winnowing fan is in His hand, and He will thoroughly clean out His threshing floor, and gather His wheat into the barn; but He will burn up the chaff with unquenchable fire." 
+
+## John Baptizes Jesus 
 
 ###### 13 
 Then Jesus came from Galilee to John at the Jordan to be baptized by him. 

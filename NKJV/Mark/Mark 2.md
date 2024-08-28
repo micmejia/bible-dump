@@ -43,7 +43,9 @@ But that you may know that the Son of Man has power on earth to forgive sins"--H
 "I say to you, arise, take up your bed, and go to your house." 
 
 ###### 12 
-Immediately he arose, took up the bed, and went out in the presence of them all, so that all were amazed and glorified God, saying, "We never saw anything like this!" ## Matthew the Tax Collector 
+Immediately he arose, took up the bed, and went out in the presence of them all, so that all were amazed and glorified God, saying, "We never saw anything like this!" 
+
+## Matthew the Tax Collector 
 
 ###### 13 
 Then He went out again by the sea; and all the multitude came to Him, and He taught them. 
@@ -58,7 +60,9 @@ Now it happened, as He was dining in Levi's house, that many tax collectors and 
 And when the scribes and Pharisees saw Him eating with the tax collectors and sinners, they said to His disciples, "How is it that He eats and drinks with tax collectors and sinners?" 
 
 ###### 17 
-When Jesus heard it, He said to them, "Those who are well have no need of a physician, but those who are sick. I did not come to call the righteous, but sinners, to repentance." ## Jesus Is Questioned About Fasting 
+When Jesus heard it, He said to them, "Those who are well have no need of a physician, but those who are sick. I did not come to call the righteous, but sinners, to repentance." 
+
+## Jesus Is Questioned About Fasting 
 
 ###### 18 
 The disciples of John and of the Pharisees were fasting. Then they came and said to Him, "Why do the disciples of John and of the Pharisees fast, but Your disciples do not fast?" 
@@ -73,7 +77,9 @@ But the days will come when the bridegroom will be taken away from them, and the
 No one sews a piece of unshrunk cloth on an old garment; or else the new piece pulls away from the old, and the tear is made worse. 
 
 ###### 22 
-And no one puts new wine into old wineskins; or else the new wine bursts the wineskins, the wine is spilled, and the wineskins are ruined. But new wine must be put into new wineskins." ## Jesus Is Lord of the Sabbath 
+And no one puts new wine into old wineskins; or else the new wine bursts the wineskins, the wine is spilled, and the wineskins are ruined. But new wine must be put into new wineskins." 
+
+## Jesus Is Lord of the Sabbath 
 
 ###### 23 
 Now it happened that He went through the grainfields on the Sabbath; and as they went His disciples began to pluck the heads of grain. 

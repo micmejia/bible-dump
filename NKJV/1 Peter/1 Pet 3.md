@@ -47,7 +47,9 @@ For "He who would love life And see good days, Let him refrain his tongue from e
 Let him turn away from evil and do good; Let him seek peace and pursue it. 
 
 ###### 12 
-For the eyes of the Lord are on the righteous, And His ears are open to their prayers; But the face of the Lord is against those who do evil." ## Suffering for Right and Wrong 
+For the eyes of the Lord are on the righteous, And His ears are open to their prayers; But the face of the Lord is against those who do evil." 
+
+## Suffering for Right and Wrong 
 
 ###### 13 
 And who is he who will harm you if you become followers of what is good? 

@@ -66,7 +66,9 @@ At my first defense no one stood with me, but all forsook me. May it not be char
 But the Lord stood with me and strengthened me, so that the message might be preached fully through me, and that all the Gentiles might hear. Also I was delivered out of the mouth of the lion. 
 
 ###### 18 
-And the Lord will deliver me from every evil work and preserve me for His heavenly kingdom. To Him be glory forever and ever. Amen! ## Come Before Winter 
+And the Lord will deliver me from every evil work and preserve me for His heavenly kingdom. To Him be glory forever and ever. Amen! 
+
+## Come Before Winter 
 
 ###### 19 
 Greet Prisca and Aquila, and the household of Onesiphorus. 

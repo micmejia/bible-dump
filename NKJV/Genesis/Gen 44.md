@@ -58,7 +58,9 @@ And Joseph said to them, "What deed _is_ this you have done? Did you not know th
 Then Judah said, "What shall we say to my lord? What shall we speak? Or how shall we clear ourselves? God has found out the iniquity of your servants; here we are, my lord's slaves, both we and _he_ also with whom the cup was found." 
 
 ###### 17 
-But he said, "Far be it from me that I should do so; the man in whose hand the cup was found, he shall be my slave. And as for you, go up in peace to your father." ## Judah Intercedes for Benjamin 
+But he said, "Far be it from me that I should do so; the man in whose hand the cup was found, he shall be my slave. And as for you, go up in peace to your father." 
+
+## Judah Intercedes for Benjamin 
 
 ###### 18 
 Then Judah came near to him and said: "O my lord, please let your servant speak a word in my lord's hearing, and do not let your anger burn against your servant; for you _are_ even like Pharaoh. 

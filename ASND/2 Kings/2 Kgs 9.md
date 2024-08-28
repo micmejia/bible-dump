@@ -436,7 +436,9 @@ Sumagot sila, "Hindi totoo iyan. Sabihin mo sa amin kung ano talaga ang sinabi n
 
 
 
-Nang marinig ito ng mga opisyal, tinanggal nila ang mga balabal nila at inilatag sa hagdanan para kay Jehu. Pinatunog nila ang trumpeta at sumigaw, "Si Jehu na ang hari!" ## Pinatay ni Jehu sina Joram at Ahazia 
+Nang marinig ito ng mga opisyal, tinanggal nila ang mga balabal nila at inilatag sa hagdanan para kay Jehu. Pinatunog nila ang trumpeta at sumigaw, "Si Jehu na ang hari!" 
+
+## Pinatay ni Jehu sina Joram at Ahazia 
 
 
 

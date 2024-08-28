@@ -339,7 +339,9 @@ Sinabi ng Panginoon, "Sumigaw kayo sa kagalakan, kayong mga mamamayan ng Zion, a
 
 
 
-Ipaaalis niya ang mga karwahe at mga kabayong pandigma sa Israel at sa Juda. Babaliin ang mga panang ginagamit sa pandigma. Ang haring darating ay magdadala ng kapayapaan sa mga bansa. Maghahari siya mula sa isang dagat hanggang sa isa pang dagat, at mula sa Ilog ng Eufrates hanggang sa dulo ng mundo." ## Palalayain ng Dios ang Nabihag na mga Taga-Israel 
+Ipaaalis niya ang mga karwahe at mga kabayong pandigma sa Israel at sa Juda. Babaliin ang mga panang ginagamit sa pandigma. Ang haring darating ay magdadala ng kapayapaan sa mga bansa. Maghahari siya mula sa isang dagat hanggang sa isa pang dagat, at mula sa Ilog ng Eufrates hanggang sa dulo ng mundo." 
+
+## Palalayain ng Dios ang Nabihag na mga Taga-Israel 
 
 
 
@@ -438,7 +440,9 @@ Kayong mga binihag na umaasang mapalaya, bumalik na kayo sa inyong mga lugar kun
 
 
 
-Gagamitin kong parang pana ang Juda at parang palaso ang Israel. Gagawin kong parang espada ng kawal ang mga taga-Zion, at lilipulin nila ang mga taga-Grecia." ## Tutulungan ng Dios ang mga Taga-Israel 
+Gagamitin kong parang pana ang Juda at parang palaso ang Israel. Gagawin kong parang espada ng kawal ang mga taga-Zion, at lilipulin nila ang mga taga-Grecia." 
+
+## Tutulungan ng Dios ang mga Taga-Israel 
 
 
 

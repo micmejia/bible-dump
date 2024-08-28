@@ -52,7 +52,9 @@ Where am I to get meat to give to all these people? For they weep all over me, s
 I am not able to bear all these people alone, because the burden _is_ too heavy for me. 
 
 ###### 15 
-If You treat me like this, please kill me here and now--if I have found favor in Your sight--and do not let me see my wretchedness!" ## The Seventy Elders 
+If You treat me like this, please kill me here and now--if I have found favor in Your sight--and do not let me see my wretchedness!" 
+
+## The Seventy Elders 
 
 ###### 16 
 So the Lord said to Moses: "Gather to Me seventy men of the elders of Israel, whom you know to be the elders of the people and officers over them; bring them to the tabernacle of meeting, that they may stand there with you. 

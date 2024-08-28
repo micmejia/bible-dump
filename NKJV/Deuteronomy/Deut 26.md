@@ -52,7 +52,9 @@ then you shall say before the Lord your God: 'I have removed the holy _tithe_ fr
 I have not eaten any of it when in mourning, nor have I removed _any_ of it for an unclean _use,_ nor given _any_ of it for the dead. I have obeyed the voice of the Lord my God, and have done according to all that You have commanded me. 
 
 ###### 15 
-Look down from Your holy habitation, from heaven, and bless Your people Israel and the land which You have given us, just as You swore to our fathers, "a land flowing with milk and honey." ' ## A Special People of God 
+Look down from Your holy habitation, from heaven, and bless Your people Israel and the land which You have given us, just as You swore to our fathers, "a land flowing with milk and honey." ' 
+
+## A Special People of God 
 
 ###### 16 
 "This day the Lord your God commands you to observe these statutes and judgments; therefore you shall be careful to observe them with all your heart and with all your soul. 

@@ -76,7 +76,9 @@ For from within, out of the heart of men, proceed evil thoughts, adulteries, for
 thefts, covetousness, wickedness, deceit, lewdness, an evil eye, blasphemy, pride, foolishness. 
 
 ###### 23 
-All these evil things come from within and defile a man." ## A Gentile Shows Her Faith 
+All these evil things come from within and defile a man." 
+
+## A Gentile Shows Her Faith 
 
 ###### 24 
 From there He arose and went to the region of Tyre and Sidon. And He entered a house and wanted no one to know it, but He could not be hidden. 

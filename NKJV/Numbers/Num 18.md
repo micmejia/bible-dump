@@ -28,7 +28,9 @@ And you shall attend to the duties of the sanctuary and the duties of the altar,
 Behold, I Myself have taken your brethren the Levites from among the children of Israel; _they are_ a gift to you, given by the Lord, to do the work of the tabernacle of meeting. 
 
 ###### 7 
-Therefore you and your sons with you shall attend to your priesthood for everything at the altar and behind the veil; and you shall serve. I give your priesthood _to you_ as a gift for service, but the outsider who comes near shall be put to death." ## Offerings for Support of the Priests 
+Therefore you and your sons with you shall attend to your priesthood for everything at the altar and behind the veil; and you shall serve. I give your priesthood _to you_ as a gift for service, but the outsider who comes near shall be put to death." 
+
+## Offerings for Support of the Priests 
 
 ###### 8 
 And the Lord spoke to Aaron: "Here, I Myself have also given you charge of My heave offerings, all the holy gifts of the children of Israel; I have given them as a portion to you and your sons, as an ordinance forever. 
@@ -81,7 +83,9 @@ Hereafter the children of Israel shall not come near the tabernacle of meeting, 
 But the Levites shall perform the work of the tabernacle of meeting, and they shall bear their iniquity; _it shall be_ a statute forever, throughout your generations, that among the children of Israel they shall have no inheritance. 
 
 ###### 24 
-For the tithes of the children of Israel, which they offer up _as_ a heave offering to the Lord, I have given to the Levites as an inheritance; therefore I have said to them, 'Among the children of Israel they shall have no inheritance.' " ## The Tithe of the Levites 
+For the tithes of the children of Israel, which they offer up _as_ a heave offering to the Lord, I have given to the Levites as an inheritance; therefore I have said to them, 'Among the children of Israel they shall have no inheritance.' " 
+
+## The Tithe of the Levites 
 
 ###### 25 
 Then the Lord spoke to Moses, saying, 

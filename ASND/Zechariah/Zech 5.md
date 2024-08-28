@@ -139,7 +139,9 @@ Sinabi ng anghel sa akin, "Nakasulat sa kasulatang iyan ang sumpang darating sa 
 
 
 
-Sinabi ng Makapangyarihang Panginoon, 'Ipapadala ko ang sumpang ito sa tahanan ng magnanakaw at sa tahanan ng sumusumpa ng kasinungalingan sa aking pangalan. Mananatili ito sa kanilang mga bahay at lubusang wawasakin ang mga ito.' " ## Ang Pangitain tungkol sa Babaeng Nasa Loob ng Kaing 
+Sinabi ng Makapangyarihang Panginoon, 'Ipapadala ko ang sumpang ito sa tahanan ng magnanakaw at sa tahanan ng sumusumpa ng kasinungalingan sa aking pangalan. Mananatili ito sa kanilang mga bahay at lubusang wawasakin ang mga ito.' " 
+
+## Ang Pangitain tungkol sa Babaeng Nasa Loob ng Kaing 
 
 
 

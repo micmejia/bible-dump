@@ -37,7 +37,9 @@ Just as it is written: "God has given them a spirit of stupor, Eyes that they sh
 And David says: "Let their table become a snare and a trap, A stumbling block and a recompense to them. 
 
 ###### 10 
-Let their eyes be darkened, so that they do not see, And bow down their back always." ## Israel's Rejection Not Final 
+Let their eyes be darkened, so that they do not see, And bow down their back always." 
+
+## Israel's Rejection Not Final 
 
 ###### 11 
 I say then, have they stumbled that they should fall? Certainly not! But through their fall, to provoke them to jealousy, salvation has come to the Gentiles. 

@@ -568,7 +568,9 @@ O Dios, pakinggan nʼyo ako. Tingnan nʼyo ang nakakawa naming kalagayan at ang 
 
 
 
-Panginoon, dinggin nʼyo po kami at patawarin. Tulungan nʼyo kami agad alang-alang sa inyong pangalan, dahil kayo ay kinikilalang Dios sa inyong bayan at ng inyong mga mamamayan." ## Ipinaliwanag ni Gabriel ang Kahulugan ng Pangitain 
+Panginoon, dinggin nʼyo po kami at patawarin. Tulungan nʼyo kami agad alang-alang sa inyong pangalan, dahil kayo ay kinikilalang Dios sa inyong bayan at ng inyong mga mamamayan." 
+
+## Ipinaliwanag ni Gabriel ang Kahulugan ng Pangitain 
 
 
 

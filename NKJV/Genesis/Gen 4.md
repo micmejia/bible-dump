@@ -81,7 +81,9 @@ And as for Zillah, she also bore Tubal-Cain, an instructor of every craftsman in
 Then Lamech said to his wives: "Adah and Zillah, hear my voice; Wives of Lamech, listen to my speech! For I have killed a man for wounding me, Even a young man for hurting me. 
 
 ###### 24 
-If Cain shall be avenged sevenfold, Then Lamech seventy-sevenfold." ## A New Son 
+If Cain shall be avenged sevenfold, Then Lamech seventy-sevenfold." 
+
+## A New Son 
 
 ###### 25 
 And Adam knew his wife again, and she bore a son and named him Seth, "For God has appointed another seed for me instead of Abel, whom Cain killed." 

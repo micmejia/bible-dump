@@ -31,7 +31,9 @@ And you shall measure outside the city on the east side two thousand cubits, on 
 So all the cities you will give to the Levites _shall be_ forty-eight; these _you shall give_ with their common-land. 
 
 ###### 8 
-And the cities which you will give _shall be_ from the possession of the children of Israel; from the larger _tribe_ you shall give many, from the smaller you shall give few. Each shall give some of its cities to the Levites, in proportion to the inheritance that each receives." ## Cities of Refuge 
+And the cities which you will give _shall be_ from the possession of the children of Israel; from the larger _tribe_ you shall give many, from the smaller you shall give few. Each shall give some of its cities to the Levites, in proportion to the inheritance that each receives." 
+
+## Cities of Refuge 
 
 ###### 9 
 Then the Lord spoke to Moses, saying, 

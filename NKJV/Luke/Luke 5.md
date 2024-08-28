@@ -89,7 +89,9 @@ But that you may know that the Son of Man has power on earth to forgive sins"--H
 Immediately he rose up before them, took up what he had been lying on, and departed to his own house, glorifying God. 
 
 ###### 26 
-And they were all amazed, and they glorified God and were filled with fear, saying, "We have seen strange things today!" ## Matthew the Tax Collector 
+And they were all amazed, and they glorified God and were filled with fear, saying, "We have seen strange things today!" 
+
+## Matthew the Tax Collector 
 
 ###### 27 
 After these things He went out and saw a tax collector named Levi, sitting at the tax office. And He said to him, "Follow Me." 
@@ -107,7 +109,9 @@ And their scribes and the Pharisees complained against His disciples, saying, "W
 Jesus answered and said to them, "Those who are well have no need of a physician, but those who are sick. 
 
 ###### 32 
-I have not come to call the righteous, but sinners, to repentance." ## Jesus Is Questioned About Fasting 
+I have not come to call the righteous, but sinners, to repentance." 
+
+## Jesus Is Questioned About Fasting 
 
 ###### 33 
 Then they said to Him, "Why do the disciples of John fast often and make prayers, and likewise those of the Pharisees, but Yours eat and drink?" 

@@ -58,7 +58,9 @@ Then you will come from your place out of the far north, you and many peoples wi
 You will come up against My people Israel like a cloud, to cover the land. It will be in the latter days that I will bring you against My land, so that the nations may know Me, when I am hallowed in you, O Gog, before their eyes." 
 
 ###### 17 
-Thus says the Lord God: "Are you he of whom I have spoken in former days by My servants the prophets of Israel, who prophesied for years in those days that I would bring you against them? ## Judgment on Gog 
+Thus says the Lord God: "Are you he of whom I have spoken in former days by My servants the prophets of Israel, who prophesied for years in those days that I would bring you against them? 
+
+## Judgment on Gog 
 
 ###### 18 
 "And it will come to pass at the same time, when Gog comes against the land of Israel," says the Lord God, "that My fury will show in My face. 

@@ -55,7 +55,9 @@ But if the priest's daughter is a widow or divorced, and has no child, and has r
 They shall not profane the holy _offerings_ of the children of Israel, which they offer to the Lord, 
 
 ###### 16 
-or allow them to bear the guilt of trespass when they eat their holy _offerings;_ for I the Lord sanctify them.' " ## Offerings Accepted and Not Accepted 
+or allow them to bear the guilt of trespass when they eat their holy _offerings;_ for I the Lord sanctify them.' " 
+
+## Offerings Accepted and Not Accepted 
 
 ###### 17 
 And the Lord spoke to Moses, saying, 

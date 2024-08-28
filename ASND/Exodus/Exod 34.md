@@ -304,7 +304,9 @@ Nagpatirapa si Moises sa lupa at sumamba.
 
 
 
-Sinabi niya, "O Panginoon, kung nalulugod po kayo sa akin, nakikiusap po akong sumama kayo sa amin. Kahit na matigas ang ulo ng mga taong ito, patawarin po ninyo kami sa aming kasamaan at mga kasalanan. Tanggapin po ninyo kami bilang inyong mga mamamayan." ## Inulit ang Kasunduan 
+Sinabi niya, "O Panginoon, kung nalulugod po kayo sa akin, nakikiusap po akong sumama kayo sa amin. Kahit na matigas ang ulo ng mga taong ito, patawarin po ninyo kami sa aming kasamaan at mga kasalanan. Tanggapin po ninyo kami bilang inyong mga mamamayan." 
+
+## Inulit ang Kasunduan 
 
 
 

@@ -403,7 +403,9 @@ Sumagot siya, "Ang lalaking tinatawag na Jesus ay gumawa ng putik. Ipinahid niya
 
 
 
-Nagtanong ang mga tao, "Nasaan na siya?" Sumagot ang lalaki, "Hindi ko po alam." ## Inimbestigahan ng mga Pariseo ang Pagpapagaling 
+Nagtanong ang mga tao, "Nasaan na siya?" Sumagot ang lalaki, "Hindi ko po alam." 
+
+## Inimbestigahan ng mga Pariseo ang Pagpapagaling 
 
 
 

@@ -469,7 +469,9 @@ Kapag binuksan ko ang mga libingan ninyo at binuhay ko kayong muli, malalaman ni
 
 
 
-Ibibigay ko sa inyo ang aking Espiritu at mabubuhay kayo. Patitirahin ko kayo sa sarili ninyong lupain. At malalaman nga ninyo na ako ang Panginoon na tumutupad ng aking pangako. Ako, ang Panginoon, ang nagsasabi nito." ## Pinag-isa ang Juda at Israel 
+Ibibigay ko sa inyo ang aking Espiritu at mabubuhay kayo. Patitirahin ko kayo sa sarili ninyong lupain. At malalaman nga ninyo na ako ang Panginoon na tumutupad ng aking pangako. Ako, ang Panginoon, ang nagsasabi nito." 
+
+## Pinag-isa ang Juda at Israel 
 
 
 

@@ -902,7 +902,9 @@ Tungkol naman sa muling pagkabuhay, hindi nʼyo ba nabasa ang isinulat ni Moises
 
 
 
-Hindi siya Dios ng mga patay kundi ng mga buhay. Kaya maling-mali kayo!" ## Ang Pinakamahalagang Utos 
+Hindi siya Dios ng mga patay kundi ng mga buhay. Kaya maling-mali kayo!" 
+
+## Ang Pinakamahalagang Utos 
 
 
 
@@ -1335,7 +1337,9 @@ Mahilig silang maupo sa mga upuang pandangal sa mga sambahan at mga handaan.
 
 
 
-Dinadaya nila ang mga biyuda para makuha ang mga ari-arian ng mga ito, at pinagtatakpan nila ang mga ginagawa nila sa pamamagitan ng mahabang pagdarasal! Ang mga taong itoʼy tatanggap ng mas mabigat na parusa." ## Ang Kaloob ng Biyuda 
+Dinadaya nila ang mga biyuda para makuha ang mga ari-arian ng mga ito, at pinagtatakpan nila ang mga ginagawa nila sa pamamagitan ng mahabang pagdarasal! Ang mga taong itoʼy tatanggap ng mas mabigat na parusa." 
+
+## Ang Kaloob ng Biyuda 
 
 
 

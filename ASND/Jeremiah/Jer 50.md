@@ -667,7 +667,9 @@ Pero pababalikin ko ang mga Israelita sa bansa nila. Magiging parang mga tupa si
 
 
 
-Sa mga araw na iyon, wala nang makikitang mga kasalanan at pagsuway sa mga natitirang mga mamamayan ng Israel at Juda dahil patatawarin ko na sila. Ako, ang Panginoon, ang nagsasabi nito.' " ## Ang Parusa ng Panginoon sa Babilonia 
+Sa mga araw na iyon, wala nang makikitang mga kasalanan at pagsuway sa mga natitirang mga mamamayan ng Israel at Juda dahil patatawarin ko na sila. Ako, ang Panginoon, ang nagsasabi nito.' " 
+
+## Ang Parusa ng Panginoon sa Babilonia 
 
 
 

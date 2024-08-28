@@ -52,7 +52,9 @@ and I gave the purchase deed to Baruch the son of Neriah, son of Mahseiah, in th
 'Thus says the Lord of hosts, the God of Israel: "Take these deeds, both this purchase deed which is sealed and this deed which is open, and put them in an earthen vessel, that they may last many days." 
 
 ###### 15 
-For thus says the Lord of hosts, the God of Israel: "Houses and fields and vineyards shall be possessed again in this land." ' ## Jeremiah Prays for Understanding 
+For thus says the Lord of hosts, the God of Israel: "Houses and fields and vineyards shall be possessed again in this land." ' 
+
+## Jeremiah Prays for Understanding 
 
 ###### 16 
 "Now when I had delivered the purchase deed to Baruch the son of Neriah, I prayed to the Lord, saying: 
@@ -82,7 +84,9 @@ And they came in and took possession of it, but they have not obeyed Your voice 
 'Look, the siege mounds! They have come to the city to take it; and the city has been given into the hand of the Chaldeans who fight against it, because of the sword and famine and pestilence. What You have spoken has happened; there You see it! 
 
 ###### 25 
-And You have said to me, O Lord God, "Buy the field for money, and take witnesses"!--yet the city has been given into the hand of the Chaldeans.' " ## God's Assurance of the People's Return 
+And You have said to me, O Lord God, "Buy the field for money, and take witnesses"!--yet the city has been given into the hand of the Chaldeans.' " 
+
+## God's Assurance of the People's Return 
 
 ###### 26 
 Then the word of the Lord came to Jeremiah, saying, 

@@ -403,7 +403,9 @@ Sinabi ni Balak kay Balaam, "Ano itong ginawa mo sa akin? Dinala kita rito para 
 
 
 
-Sumagot si Balaam, "Kailangang sabihin ko ang sinabi ng Panginoon sa akin." ## Ang Ikalawang Mensahe ni Balaam 
+Sumagot si Balaam, "Kailangang sabihin ko ang sinabi ng Panginoon sa akin." 
+
+## Ang Ikalawang Mensahe ni Balaam 
 
 
 
@@ -865,7 +867,9 @@ Pagkatapos, sinabi ni Balak kay Balaam, "Kung hindi mo sila susumpain, huwag mo 
 
 
 
-Sumagot si Balaam, "Hindi baʼt sinabihan na kita na kailangang gawin ko kung ano ang sasabihin ng Panginoon sa akin?" ## Ang Ikatlong Mensahe ni Balaam 
+Sumagot si Balaam, "Hindi baʼt sinabihan na kita na kailangang gawin ko kung ano ang sasabihin ng Panginoon sa akin?" 
+
+## Ang Ikatlong Mensahe ni Balaam 
 
 
 

@@ -55,7 +55,9 @@ I will scatter to every wind all who are around him to help him, and all his tro
 "Then they shall know that I am the Lord, when I scatter them among the nations and disperse them throughout the countries. 
 
 ###### 16 
-But I will spare a few of their men from the sword, from famine, and from pestilence, that they may declare all their abominations among the Gentiles wherever they go. Then they shall know that I am the Lord." ## Judgment Not Postponed 
+But I will spare a few of their men from the sword, from famine, and from pestilence, that they may declare all their abominations among the Gentiles wherever they go. Then they shall know that I am the Lord." 
+
+## Judgment Not Postponed 
 
 ###### 17 
 Moreover the word of the Lord came to me, saying, 

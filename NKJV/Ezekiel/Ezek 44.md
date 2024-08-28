@@ -16,7 +16,9 @@ Then He brought me back to the outer gate of the sanctuary which faces toward th
 And the Lord said to me, "This gate shall be shut; it shall not be opened, and no man shall enter by it, because the Lord God of Israel has entered by it; therefore it shall be shut. 
 
 ###### 3 
-As for the prince, because he is the prince, he may sit in it to eat bread before the Lord; he shall enter by way of the vestibule of the gateway, and go out the same way." ## Those Admitted to the Temple 
+As for the prince, because he is the prince, he may sit in it to eat bread before the Lord; he shall enter by way of the vestibule of the gateway, and go out the same way." 
+
+## Those Admitted to the Temple 
 
 ###### 4 
 Also He brought me by way of the north gate to the front of the temple; so I looked, and behold, the glory of the Lord filled the house of the Lord; and I fell on my face. 

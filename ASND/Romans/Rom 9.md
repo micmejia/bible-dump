@@ -900,7 +900,9 @@ dahil mabilis at matindi ang gagawing paghatol ng Panginoon sa mga tao sa mundo.
 
 
 
-Sinabi rin ni Isaias, "Kung ang Panginoong Makapangyarihan ay walang itinira sa ating lahi, natulad na sana tayo sa Sodom at Gomora." ## Ang Israel at ang Magandang Balita 
+Sinabi rin ni Isaias, "Kung ang Panginoong Makapangyarihan ay walang itinira sa ating lahi, natulad na sana tayo sa Sodom at Gomora." 
+
+## Ang Israel at ang Magandang Balita 
 
 
 

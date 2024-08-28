@@ -31,7 +31,9 @@ With what shall I come before the Lord, And bow myself before the High God? Shal
 Will the Lord be pleased with thousands of rams, Ten thousand rivers of oil? Shall I give my firstborn for my transgression, The fruit of my body for the sin of my soul? 
 
 ###### 8 
-He has shown you, O man, what is good; And what does the Lord require of you But to do justly, To love mercy, And to walk humbly with your God? ## Punishment of Israel's Injustice 
+He has shown you, O man, what is good; And what does the Lord require of you But to do justly, To love mercy, And to walk humbly with your God? 
+
+## Punishment of Israel's Injustice 
 
 ###### 9 
 The Lord's voice cries to the city-- Wisdom shall see Your name: "Hear the rod! Who has appointed it? 

@@ -84,7 +84,9 @@ Therefore by their fruits you will know them.
 Many will say to Me in that day, 'Lord, Lord, have we not prophesied in Your name, cast out demons in Your name, and done many wonders in Your name?' 
 
 ###### 23 
-And then I will declare to them, 'I never knew you; depart from Me, you who practice lawlessness!' ## Build on the Rock 
+And then I will declare to them, 'I never knew you; depart from Me, you who practice lawlessness!' 
+
+## Build on the Rock 
 
 ###### 24 
 "Therefore whoever hears these sayings of Mine, and does them, I will liken him to a wise man who built his house on the rock: 

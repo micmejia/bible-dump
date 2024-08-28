@@ -336,7 +336,9 @@ Pero maya-maya, sinalubong sila ni Jesus sa daan at binati. Lumapit sila kay Jes
 
 
 
-Sinabi sa kanila ni Jesus, "Huwag kayong matakot. Puntahan ninyo ang aking mga kapatid at sabihin sa kanila na pumunta sila sa Galilea. Doon nila ako makikita." ## Ang Ulat ng Mga Guwardya 
+Sinabi sa kanila ni Jesus, "Huwag kayong matakot. Puntahan ninyo ang aking mga kapatid at sabihin sa kanila na pumunta sila sa Galilea. Doon nila ako makikita." 
+
+## Ang Ulat ng Mga Guwardya 
 
 
 

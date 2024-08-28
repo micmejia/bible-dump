@@ -869,7 +869,9 @@ Tumayo agad ang paralitiko sa harap ng lahat, binuhat nga niya ang kanyang higaa
 
 
 
-Namangha ang lahat at pinuri nila ang Dios. Sinabi nila, "Kahanga-hanga ang mga bagay na nakita natin ngayon!" ## Tinawag ni Jesus si Levi 
+Namangha ang lahat at pinuri nila ang Dios. Sinabi nila, "Kahanga-hanga ang mga bagay na nakita natin ngayon!" 
+
+## Tinawag ni Jesus si Levi 
 
 
 
@@ -1067,7 +1069,9 @@ Sinagot sila ni Jesus, "Ang mga taong walang sakit ay hindi nangangailangan ng d
 
 
 
-Hindi ako naparito upang tawagin ang mga taong matuwid sa sarili nilang paningin, kundi ang mga makasalanan upang magsisi sila sa kanilang mga kasalanan." ## Ang Tanong tungkol sa Pag-aayuno 
+Hindi ako naparito upang tawagin ang mga taong matuwid sa sarili nilang paningin, kundi ang mga makasalanan upang magsisi sila sa kanilang mga kasalanan." 
+
+## Ang Tanong tungkol sa Pag-aayuno 
 
 
 

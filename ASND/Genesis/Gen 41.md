@@ -1195,7 +1195,9 @@ Sa mga panahong iyon, ipaipon nʼyo rin po sa kanila ang lahat ng makokolekta ni
 
 
 
-Ang mga pagkaing ito ay ilalaan para sa mga tao kapag dumating na ang pitong taong taggutom sa Egipto, para hindi sila magutom." ## Ginawang Tagapamahala si Jose sa Egipto 
+Ang mga pagkaing ito ay ilalaan para sa mga tao kapag dumating na ang pitong taong taggutom sa Egipto, para hindi sila magutom." 
+
+## Ginawang Tagapamahala si Jose sa Egipto 
 
 
 

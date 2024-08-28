@@ -1005,7 +1005,9 @@ Kaya kung paanong binigyan ako ng aking Ama ng kapangyarihang maghari, kayo rin 
 
 
 
-Makakasalo ko kayo sa aking mesa sa aking kaharian, at uupo kayo sa mga trono upang mamahala sa 12 lahi ng Israel." ## Sinabi ni Jesus na Ikakaila Siya ni Pedro 
+Makakasalo ko kayo sa aking mesa sa aking kaharian, at uupo kayo sa mga trono upang mamahala sa 12 lahi ng Israel." 
+
+## Sinabi ni Jesus na Ikakaila Siya ni Pedro 
 
 
 
@@ -1137,7 +1139,9 @@ Sumagot si Simon, "Panginoon, handa po akong mabilanggo o mamatay na kasama niny
 
 
 
-Pero sinabi sa kanya ni Jesus, "Pedro, tandaan mo, bago tumilaok ang manok ngayong gabi, tatlong beses mong ikakaila na kilala mo ako." ## Sa Panahon ng Kahirapan 
+Pero sinabi sa kanya ni Jesus, "Pedro, tandaan mo, bago tumilaok ang manok ngayong gabi, tatlong beses mong ikakaila na kilala mo ako." 
+
+## Sa Panahon ng Kahirapan 
 
 
 
@@ -1535,7 +1539,9 @@ Pagkatapos, tumayo siya at binalikan ang mga tagasunod niya, pero nadatnan niya 
 
 
 
-Kaya sinabi niya sa kanila, "Bakit kayo natutulog? Bumangon kayo at manalangin, upang hindi kayo madaig ng tukso." ## Ang Pagdakip kay Jesus 
+Kaya sinabi niya sa kanila, "Bakit kayo natutulog? Bumangon kayo at manalangin, upang hindi kayo madaig ng tukso." 
+
+## Ang Pagdakip kay Jesus 
 
 
 
@@ -1766,7 +1772,9 @@ Pagkatapos, kinausap ni Jesus ang mga namamahalang pari, mga opisyal ng mga guwa
 
 
 
-Araw-araw akong nasa templo, at naroon din kayo. Bakit hindi nʼyo ako dinakip? Ngunit ito na ang pagkakataong ibinigay sa inyo upang dakpin ako. At sa sandaling ito ay naghahari ang kadiliman." ## Ipinagkaila ni Pedro na Kilala Niya si Jesus 
+Araw-araw akong nasa templo, at naroon din kayo. Bakit hindi nʼyo ako dinakip? Ngunit ito na ang pagkakataong ibinigay sa inyo upang dakpin ako. At sa sandaling ito ay naghahari ang kadiliman." 
+
+## Ipinagkaila ni Pedro na Kilala Niya si Jesus 
 
 
 

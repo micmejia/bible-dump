@@ -103,7 +103,9 @@ For who is greater, he who sits at the table, or he who serves? Is it not he who
 And I bestow upon you a kingdom, just as My Father bestowed one upon Me, 
 
 ###### 30 
-that you may eat and drink at My table in My kingdom, and sit on thrones judging the twelve tribes of Israel." ## Jesus Predicts Peter's Denial 
+that you may eat and drink at My table in My kingdom, and sit on thrones judging the twelve tribes of Israel." 
+
+## Jesus Predicts Peter's Denial 
 
 ###### 31 
 And the Lord said, "Simon, Simon! Indeed, Satan has asked for you, that he may sift you as wheat. 
@@ -115,7 +117,9 @@ But I have prayed for you, that your faith should not fail; and when you have re
 But he said to Him, "Lord, I am ready to go with You, both to prison and to death." 
 
 ###### 34 
-Then He said, "I tell you, Peter, the rooster shall not crow this day before you will deny three times that you know Me." ## Supplies for the Road 
+Then He said, "I tell you, Peter, the rooster shall not crow this day before you will deny three times that you know Me." 
+
+## Supplies for the Road 
 
 ###### 35 
 And He said to them, "When I sent you without money bag, knapsack, and sandals, did you lack anything?" So they said, "Nothing." 
@@ -127,7 +131,9 @@ Then He said to them, "But now, he who has a money bag, let him take it, and lik
 For I say to you that this which is written must still be accomplished in Me: 'And He was numbered with the transgressors.' For the things concerning Me have an end." 
 
 ###### 38 
-So they said, "Lord, look, here are two swords." And He said to them, "It is enough." ## The Prayer in the Garden 
+So they said, "Lord, look, here are two swords." And He said to them, "It is enough." 
+
+## The Prayer in the Garden 
 
 ###### 39 
 Coming out, He went to the Mount of Olives, as He was accustomed, and His disciples also followed Him. 
@@ -151,7 +157,9 @@ And being in agony, He prayed more earnestly. Then His sweat became like great d
 When He rose up from prayer, and had come to His disciples, He found them sleeping from sorrow. 
 
 ###### 46 
-Then He said to them, "Why do you sleep? Rise and pray, lest you enter into temptation." ## Betrayal and Arrest in Gethsemane 
+Then He said to them, "Why do you sleep? Rise and pray, lest you enter into temptation." 
+
+## Betrayal and Arrest in Gethsemane 
 
 ###### 47 
 And while He was still speaking, behold, a multitude; and he who was called Judas, one of the twelve, went before them and drew near to Jesus to kiss Him. 
@@ -172,7 +180,9 @@ But Jesus answered and said, "Permit even this." And He touched his ear and heal
 Then Jesus said to the chief priests, captains of the temple, and the elders who had come to Him, "Have you come out, as against a robber, with swords and clubs? 
 
 ###### 53 
-When I was with you daily in the temple, you did not try to seize Me. But this is your hour, and the power of darkness." ## Peter Denies Jesus, and Weeps Bitterly 
+When I was with you daily in the temple, you did not try to seize Me. But this is your hour, and the power of darkness." 
+
+## Peter Denies Jesus, and Weeps Bitterly 
 
 ###### 54 
 Having arrested Him, they led Him and brought Him into the high priest's house. But Peter followed at a distance. 

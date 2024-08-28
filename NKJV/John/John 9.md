@@ -43,7 +43,9 @@ Therefore they said to him, "How were your eyes opened?"
 He answered and said, "A Man called Jesus made clay and anointed my eyes and said to me, 'Go to the pool of Siloam and wash.' So I went and washed, and I received sight." 
 
 ###### 12 
-Then they said to him, "Where is He?" He said, "I do not know." ## The Pharisees Excommunicate the Healed Man 
+Then they said to him, "Where is He?" He said, "I do not know." 
+
+## The Pharisees Excommunicate the Healed Man 
 
 ###### 13 
 They brought him who formerly was blind to the Pharisees. 

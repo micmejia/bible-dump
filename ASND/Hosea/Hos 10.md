@@ -271,7 +271,9 @@ Mawawala ang kanyang hari na parang kahoy na tinangay ng agos.
 
 
 
-Gigibain ang mga sambahan sa mga matataas na lugar ng Aven, na naging dahilan ng pagkakasala ng mga taga-Israel. Matatakpan ang kanilang mga altar ng matataas na damo at mga halamang may tinik. Sasabihin nila sa mga bundok at mga burol, 'Tabunan ninyo kami!' " ## Hinatulan ang Israel 
+Gigibain ang mga sambahan sa mga matataas na lugar ng Aven, na naging dahilan ng pagkakasala ng mga taga-Israel. Matatakpan ang kanilang mga altar ng matataas na damo at mga halamang may tinik. Sasabihin nila sa mga bundok at mga burol, 'Tabunan ninyo kami!' " 
+
+## Hinatulan ang Israel 
 
 
 

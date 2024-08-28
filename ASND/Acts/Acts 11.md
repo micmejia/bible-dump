@@ -601,7 +601,9 @@ Kaya ang nangyari sa kanila ay nagpapatunay na ang ibinigay ng Dios sa ating mga
 
 
 
-Nang marinig ito ng mga kapatid na Judio, hindi na nila binatikos si Pedro, sa halip ay nagpuri sila sa Dios. Sinabi nila, "Kung ganoon, ibinigay din ng Dios sa mga hindi Judio ang pagkakataon na magsisi para matanggap nila ang buhay na walang hanggan." ## Ang Iglesya ng Antioc sa Syria 
+Nang marinig ito ng mga kapatid na Judio, hindi na nila binatikos si Pedro, sa halip ay nagpuri sila sa Dios. Sinabi nila, "Kung ganoon, ibinigay din ng Dios sa mga hindi Judio ang pagkakataon na magsisi para matanggap nila ang buhay na walang hanggan." 
+
+## Ang Iglesya ng Antioc sa Syria 
 
 
 

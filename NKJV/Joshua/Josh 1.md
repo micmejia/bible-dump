@@ -33,7 +33,9 @@ Only be strong and very courageous, that you may observe to do according to all 
 This Book of the Law shall not depart from your mouth, but you shall meditate in it day and night, that you may observe to do according to all that is written in it. For then you will make your way prosperous, and then you will have good success. 
 
 ###### 9 
-Have I not commanded you? Be strong and of good courage; do not be afraid, nor be dismayed, for the Lord your God _is_ with you wherever you go." ## The Order to Cross the Jordan 
+Have I not commanded you? Be strong and of good courage; do not be afraid, nor be dismayed, for the Lord your God _is_ with you wherever you go." 
+
+## The Order to Cross the Jordan 
 
 ###### 10 
 Then Joshua commanded the officers of the people, saying, 

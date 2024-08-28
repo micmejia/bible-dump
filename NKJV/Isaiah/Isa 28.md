@@ -52,7 +52,9 @@ But the word of the Lord was to them, "Precept upon precept, precept upon precep
 Therefore hear the word of the Lord, you scornful men, Who rule this people who _are_ in Jerusalem, 
 
 ###### 15 
-Because you have said, "We have made a covenant with death, And with Sheol we are in agreement. When the overflowing scourge passes through, It will not come to us, For we have made lies our refuge, And under falsehood we have hidden ourselves." ## A Cornerstone in Zion 
+Because you have said, "We have made a covenant with death, And with Sheol we are in agreement. When the overflowing scourge passes through, It will not come to us, For we have made lies our refuge, And under falsehood we have hidden ourselves." 
+
+## A Cornerstone in Zion 
 
 ###### 16 
 Therefore thus says the Lord God: "Behold, I lay in Zion a stone for a foundation, A tried stone, a precious cornerstone, a sure foundation; Whoever believes will not act hastily. 

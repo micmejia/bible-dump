@@ -34,7 +34,9 @@ The law of truth was in his mouth, And injustice was not found on his lips. He w
 But you have departed from the way; You have caused many to stumble at the law. You have corrupted the covenant of Levi," Says the Lord of hosts. 
 
 ###### 9 
-"Therefore I also have made you contemptible and base Before all the people, Because you have not kept My ways But have shown partiality in the law." ## Treachery of Infidelity 
+"Therefore I also have made you contemptible and base Before all the people, Because you have not kept My ways But have shown partiality in the law." 
+
+## Treachery of Infidelity 
 
 ###### 10 
 Have we not all one Father? Has not one God created us? Why do we deal treacherously with one another By profaning the covenant of the fathers? 

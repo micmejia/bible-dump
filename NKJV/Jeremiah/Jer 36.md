@@ -66,7 +66,9 @@ And they asked Baruch, saying, "Tell us now, how did you write all these words--
 So Baruch answered them, "He proclaimed with his mouth all these words to me, and I wrote them with ink in the book." 
 
 ###### 19 
-Then the princes said to Baruch, "Go and hide, you and Jeremiah; and let no one know where you are." ## The King Destroys Jeremiah's Scroll 
+Then the princes said to Baruch, "Go and hide, you and Jeremiah; and let no one know where you are." 
+
+## The King Destroys Jeremiah's Scroll 
 
 ###### 20 
 And they went to the king, into the court; but they stored the scroll in the chamber of Elishama the scribe, and told all the words in the hearing of the king. 

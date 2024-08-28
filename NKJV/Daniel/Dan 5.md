@@ -43,7 +43,9 @@ The queen, because of the words of the king and his lords, came to the banquet h
 There is a man in your kingdom in whom is the Spirit of the Holy God. And in the days of your father, light and understanding and wisdom, like the wisdom of the gods, were found in him; and King Nebuchadnezzar your father--your father the king--made him chief of the magicians, astrologers, Chaldeans, and soothsayers. 
 
 ###### 12 
-Inasmuch as an excellent spirit, knowledge, understanding, interpreting dreams, solving riddles, and explaining enigmas were found in this Daniel, whom the king named Belteshazzar, now let Daniel be called, and he will give the interpretation." ## The Writing on the Wall Explained 
+Inasmuch as an excellent spirit, knowledge, understanding, interpreting dreams, solving riddles, and explaining enigmas were found in this Daniel, whom the king named Belteshazzar, now let Daniel be called, and he will give the interpretation." 
+
+## The Writing on the Wall Explained 
 
 ###### 13 
 Then Daniel was brought in before the king. The king spoke, and said to Daniel, "Are you that Daniel who is one of the captives from Judah, whom my father the king brought from Judah? 

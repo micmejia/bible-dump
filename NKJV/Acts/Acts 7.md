@@ -142,7 +142,9 @@ And they made a calf in those days, offered sacrifices to the idol, and rejoiced
 Then God turned and gave them up to worship the host of heaven, as it is written in the book of the Prophets: 'Did you offer Me slaughtered animals and sacrifices during forty years in the wilderness, O house of Israel? 
 
 ###### 43 
-You also took up the tabernacle of Moloch, And the star of your god Remphan, Images which you made to worship; And I will carry you away beyond Babylon.' ## God's True Tabernacle 
+You also took up the tabernacle of Moloch, And the star of your god Remphan, Images which you made to worship; And I will carry you away beyond Babylon.' 
+
+## God's True Tabernacle 
 
 ###### 44 
 "Our fathers had the tabernacle of witness in the wilderness, as He appointed, instructing Moses to make it according to the pattern that he had seen, 
@@ -163,7 +165,9 @@ But Solomon built Him a house.
 'Heaven is My throne, And earth is My footstool. What house will you build for Me? says the Lord, Or what is the place of My rest? 
 
 ###### 50 
-Has My hand not made all these things?' ## Israel Resists the Holy Spirit 
+Has My hand not made all these things?' 
+
+## Israel Resists the Holy Spirit 
 
 ###### 51 
 "You stiff-necked and uncircumcised in heart and ears! You always resist the Holy Spirit; as your fathers did, so do you. 
@@ -172,7 +176,9 @@ Has My hand not made all these things?' ## Israel Resists the Holy Spirit
 Which of the prophets did your fathers not persecute? And they killed those who foretold the coming of the Just One, of whom you now have become the betrayers and murderers, 
 
 ###### 53 
-who have received the law by the direction of angels and have not kept it." ## Stephen the Martyr 
+who have received the law by the direction of angels and have not kept it." 
+
+## Stephen the Martyr 
 
 ###### 54 
 When they heard these things they were cut to the heart, and they gnashed at him with their teeth. 

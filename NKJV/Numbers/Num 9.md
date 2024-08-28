@@ -49,7 +49,9 @@ They shall leave none of it until morning, nor break one of its bones. According
 But the man who _is_ clean and is not on a journey, and ceases to keep the Passover, that same person shall be cut off from among his people, because he did not bring the offering of the Lord at its appointed time; that man shall bear his sin. 
 
 ###### 14 
-'And if a stranger dwells among you, and would keep the Lord's Passover, he must do so according to the rite of the Passover and according to its ceremony; you shall have one ordinance, both for the stranger and the native of the land.' " ## The Cloud and the Fire 
+'And if a stranger dwells among you, and would keep the Lord's Passover, he must do so according to the rite of the Passover and according to its ceremony; you shall have one ordinance, both for the stranger and the native of the land.' " 
+
+## The Cloud and the Fire 
 
 ###### 15 
 Now on the day that the tabernacle was raised up, the cloud covered the tabernacle, the tent of the Testimony; from evening until morning it was above the tabernacle like the appearance of fire. 

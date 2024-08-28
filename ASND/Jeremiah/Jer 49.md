@@ -205,7 +205,9 @@ Ako, ang Panginoong Dios na Makapangyarihan, ay magpapadala sa inyo ng mga kaawa
 
 
 
-Pero darating ang araw na ibabalik ko sa mabuting kalagayan ang mga taga-Ammon. Ako, ang Panginoon, ang nagsasabi nito." ## Ang Mensahe tungkol sa Edom 
+Pero darating ang araw na ibabalik ko sa mabuting kalagayan ang mga taga-Ammon. Ako, ang Panginoon, ang nagsasabi nito." 
+
+## Ang Mensahe tungkol sa Edom 
 
 
 
@@ -733,7 +735,9 @@ At dahil sa matinding pagkawasak ng Edom, mayayanig ang lupa at ang iyakan ng mg
 
 
 
-Tingnan nʼyo! Ang kaaway ay parang agila na lumilipad na dadagit sa mga taga-Bozra. Sa panahong iyon, matatakot at magiging parang babaeng malapit nang manganak ang mga sundalo sa Edom." ## Ang Mensahe tungkol sa Damascus 
+Tingnan nʼyo! Ang kaaway ay parang agila na lumilipad na dadagit sa mga taga-Bozra. Sa panahong iyon, matatakot at magiging parang babaeng malapit nang manganak ang mga sundalo sa Edom." 
+
+## Ang Mensahe tungkol sa Damascus 
 
 
 
@@ -898,7 +902,9 @@ Ang mga kabataan niyang lalaki ay mamamatay sa mga lansangan pati ang lahat ng k
 
 
 
-Susunugin ko ang mga pader ng Damascus, pati ang matitibay na palasyo ni Haring Ben Hadad." ## Ang Mensahe tungkol sa Kedar at Hazor 
+Susunugin ko ang mga pader ng Damascus, pati ang matitibay na palasyo ni Haring Ben Hadad." 
+
+## Ang Mensahe tungkol sa Kedar at Hazor 
 
 
 
@@ -1096,7 +1102,9 @@ Ang mga kamelyo nila at ang lahat ng kawan nila ay magiging inyo. Pangangalatin 
 
 
 
-Magiging malungkot ang Hazor magpakailanman at walang taong maninirahan doon kundi magiging tirahan na lang ng mga asong-gubat.' " ## Ang Mensahe tungkol sa Elam 
+Magiging malungkot ang Hazor magpakailanman at walang taong maninirahan doon kundi magiging tirahan na lang ng mga asong-gubat.' " 
+
+## Ang Mensahe tungkol sa Elam 
 
 
 

@@ -54,7 +54,9 @@ So David said to him, "How was it you were not afraid to put forth your hand to 
 Then David called one of the young men and said, "Go near, _and_ execute him!" And he struck him so that he died. 
 
 ###### 16 
-So David said to him, "Your blood _is_ on your own head, for your own mouth has testified against you, saying, 'I have killed the Lord's anointed.' " ## The Song of the Bow 
+So David said to him, "Your blood _is_ on your own head, for your own mouth has testified against you, saying, 'I have killed the Lord's anointed.' " 
+
+## The Song of the Bow 
 
 ###### 17 
 Then David lamented with this lamentation over Saul and over Jonathan his son, 

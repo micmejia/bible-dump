@@ -733,7 +733,9 @@ Sumagot ang Panginoon, "Kayong mga mamamayan ng Efraim ay aking minamahal na mga
 
 
 
-Kailan pa kayo babalik sa akin, mga anak kong naliligaw? Gagawa ako ng bagong bagay sa mundo – ang babae na ang magtatanggol sa lalaki." ## Ang Darating na Kasaganaan ng Israel 
+Kailan pa kayo babalik sa akin, mga anak kong naliligaw? Gagawa ako ng bagong bagay sa mundo – ang babae na ang magtatanggol sa lalaki." 
+
+## Ang Darating na Kasaganaan ng Israel 
 
 
 

@@ -273,7 +273,9 @@ May mga binhi namang nahulog sa lupang may matitinik na damo. Sabay na tumubo an
 
 
 
-Ang iba namaʼy nahulog sa mabuting lupa. Tumubo ang mga ito at namunga nang napakarami." Pagkatapos, sinabi ni Jesus, "Kayong mga nakikinig, dapat nʼyo itong pag-isipan!" ## Ang Layunin ng mga Talinghaga 
+Ang iba namaʼy nahulog sa mabuting lupa. Tumubo ang mga ito at namunga nang napakarami." Pagkatapos, sinabi ni Jesus, "Kayong mga nakikinig, dapat nʼyo itong pag-isipan!" 
+
+## Ang Layunin ng mga Talinghaga 
 
 
 
@@ -339,7 +341,9 @@ Tinanong si Jesus ng mga tagasunod niya kung ano ang kahulugan ng talinghaga na 
 
 
 
-Sumagot si Jesus, "Ipinagkaloob sa inyo na malaman ang mga lihim tungkol sa paghahari ng Dios, ngunit sa ibaʼy ipinapahayag ito sa pamamagitan ng talinghaga, upang 'tumingin man silaʼy hindi makakita, at makinig man silaʼy hindi makaunawa.' " ## Ang Kahulugan ng Talinghaga tungkol sa Manghahasik 
+Sumagot si Jesus, "Ipinagkaloob sa inyo na malaman ang mga lihim tungkol sa paghahari ng Dios, ngunit sa ibaʼy ipinapahayag ito sa pamamagitan ng talinghaga, upang 'tumingin man silaʼy hindi makakita, at makinig man silaʼy hindi makaunawa.' " 
+
+## Ang Kahulugan ng Talinghaga tungkol sa Manghahasik 
 
 
 
@@ -504,7 +508,9 @@ Ang lupang may matitinik na damo, kung saan nahulog ang iba pang binhi ay ang mg
 
 
 
-Ngunit ang mabuting lupang hinasikan ng binhi ay ang mga taong nakikinig sa salita ng Dios, at iniingatan ito sa kanilang malinis at tapat na puso, at pinagsisikapang sundin hanggang sa silaʼy mamunga." ## Ang Aral Mula sa Ilaw 
+Ngunit ang mabuting lupang hinasikan ng binhi ay ang mga taong nakikinig sa salita ng Dios, at iniingatan ito sa kanilang malinis at tapat na puso, at pinagsisikapang sundin hanggang sa silaʼy mamunga." 
+
+## Ang Aral Mula sa Ilaw 
 
 
 
@@ -603,7 +609,9 @@ Ganoon din naman, walang natatagong hindi mahahayag at walang lihim na hindi mal
 
 
 
-"Kaya makinig kayong mabuti sa sinasabi ko, dahil ang taong sumusunod sa narinig niyang katotohanan ay bibigyan pa ng pang-unawa. Ngunit ang taong hindi sumusunod sa katotohanan, kahit ang inaakala niyang nauunawaan niya ay kukunin pa sa kanya." ## Ang Ina at mga Kapatid ni Jesus 
+"Kaya makinig kayong mabuti sa sinasabi ko, dahil ang taong sumusunod sa narinig niyang katotohanan ay bibigyan pa ng pang-unawa. Ngunit ang taong hindi sumusunod sa katotohanan, kahit ang inaakala niyang nauunawaan niya ay kukunin pa sa kanya." 
+
+## Ang Ina at mga Kapatid ni Jesus 
 
 
 
@@ -702,7 +710,9 @@ Kaya may nagsabi kay Jesus, "Nasa labas po ang inyong ina at mga kapatid, at gus
 
 
 
-Sumagot si Jesus, "Ang mga nakikinig at sumusunod sa salita ng Dios ang siya kong ina at mga kapatid." ## Pinatigil ni Jesus ang Malakas na Hangin at Alon 
+Sumagot si Jesus, "Ang mga nakikinig at sumusunod sa salita ng Dios ang siya kong ina at mga kapatid." 
+
+## Pinatigil ni Jesus ang Malakas na Hangin at Alon 
 
 
 
@@ -834,7 +844,9 @@ Nilapitan si Jesus ng mga tagasunod niya at ginising, "Guro! Guro! Lulubog na ta
 
 
 
-Pagkatapos, tinanong ni Jesus ang mga tagasunod niya, "Nasaan ang pananampalataya ninyo?" Namangha sila at natakot, at nag-usap-usap, "Sino kaya ito? Kahit ang hangin at ang alon ay inuutusan niya, at sinusunod siya!" ## Pinagaling ni Jesus ang Taong Sinaniban ng Masamang Espiritu 
+Pagkatapos, tinanong ni Jesus ang mga tagasunod niya, "Nasaan ang pananampalataya ninyo?" Namangha sila at natakot, at nag-usap-usap, "Sino kaya ito? Kahit ang hangin at ang alon ay inuutusan niya, at sinusunod siya!" 
+
+## Pinagaling ni Jesus ang Taong Sinaniban ng Masamang Espiritu 
 
 
 

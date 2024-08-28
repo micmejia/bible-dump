@@ -471,7 +471,9 @@ Kaya kung maghahanda ka, imbitahin mo rin ang mga mahihirap, mga lumpo, mga pila
 
 
 
-Sa ganoon ay pagpapalain ka, dahil kahit hindi ka nila masusuklian, ang Dios ang magsusukli sa iyo sa araw ng muling pagkabuhay ng mga matuwid." ## Ang Talinghaga tungkol sa Malaking Handaan 
+Sa ganoon ay pagpapalain ka, dahil kahit hindi ka nila masusuklian, ang Dios ang magsusukli sa iyo sa araw ng muling pagkabuhay ng mga matuwid." 
+
+## Ang Talinghaga tungkol sa Malaking Handaan 
 
 
 
@@ -801,7 +803,9 @@ Kaya sinabi ng amo niya, 'Pumunta ka sa mga kalsada at mga daan sa labas ng baya
 
 
 
-Tinitiyak ko sa inyo, ni isa man sa mga una kong inimbita ay hindi makakatikim ng handa ko.' " ## Ang Pagsunod sa Panginoon 
+Tinitiyak ko sa inyo, ni isa man sa mga una kong inimbita ay hindi makakatikim ng handa ko.' " 
+
+## Ang Pagsunod sa Panginoon 
 
 
 
@@ -1098,7 +1102,9 @@ At kung sa palagay niyaʼy hindi niya kaya, magpapadala na lang siya ng mga sugo
 
 
 
-Ganyan din ang gawin ninyo. Isipin muna ninyong mabuti ang pagsunod sa akin, dahil kung hindi ninyo magagawang talikuran ang lahat ng nasa inyo ay hindi kayo maaaring maging tagasunod ko." ## Ang Aral Mula sa Asin 
+Ganyan din ang gawin ninyo. Isipin muna ninyong mabuti ang pagsunod sa akin, dahil kung hindi ninyo magagawang talikuran ang lahat ng nasa inyo ay hindi kayo maaaring maging tagasunod ko." 
+
+## Ang Aral Mula sa Asin 
 
 
 

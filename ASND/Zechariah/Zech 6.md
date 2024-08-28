@@ -271,7 +271,9 @@ Nang papalabas pa lang ang malalakas na kabayo, nagmamadali na silang lumibot sa
 
 
 
-At malakas na sinabi ng Panginoon sa akin, "Tingnan mo ang mga kabayong patungo sa isang lugar sa hilaga. Sila ang magbibigay ng kapahingahan sa aking Espiritu sa dakong iyon sa hilaga." ## Ang Korona para kay Josue 
+At malakas na sinabi ng Panginoon sa akin, "Tingnan mo ang mga kabayong patungo sa isang lugar sa hilaga. Sila ang magbibigay ng kapahingahan sa aking Espiritu sa dakong iyon sa hilaga." 
+
+## Ang Korona para kay Josue 
 
 
 

@@ -700,7 +700,9 @@ Ang taong gumagawa ng masama ay ayaw sa liwanag at hindi lumalapit sa liwanag, d
 
 
 
-Ngunit ang namumuhay sa katotohanan ay lumalapit sa liwanag, upang malaman ng lahat na ang mabubuti niyang gawa ay nagawa niya sa tulong ng Dios." ## Si Jesus at si Juan 
+Ngunit ang namumuhay sa katotohanan ay lumalapit sa liwanag, upang malaman ng lahat na ang mabubuti niyang gawa ay nagawa niya sa tulong ng Dios." 
+
+## Si Jesus at si Juan 
 
 
 
@@ -997,7 +999,9 @@ Kagaya sa isang kasal: ang babaeng ikakasal ay para sa lalaking ikakasal, at ang
 
 
 
-Kailangang lalo pa siyang makilala, at ako namaʼy makalimutan na." ## Ang Nagmula sa Langit 
+Kailangang lalo pa siyang makilala, at ako namaʼy makalimutan na." 
+
+## Ang Nagmula sa Langit 
 
 
 

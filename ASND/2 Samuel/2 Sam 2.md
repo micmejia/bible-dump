@@ -238,7 +238,9 @@ Ipakita sana ng Panginoon ang pagmamahal at katapatan niya sa inyo, at ipapakita
 
 
 
-At ngayon, magpakatatag kayo at lakasan nʼyo ang loob nʼyo kahit patay na ang hari ninyong si Saul. Ako naman ay pinili ng mga taga-Juda bilang kanilang hari." ## Ang Alitan sa Pagitan ng Pamilya nina David at Saul 
+At ngayon, magpakatatag kayo at lakasan nʼyo ang loob nʼyo kahit patay na ang hari ninyong si Saul. Ako naman ay pinili ng mga taga-Juda bilang kanilang hari." 
+
+## Ang Alitan sa Pagitan ng Pamilya nina David at Saul 
 
 
 

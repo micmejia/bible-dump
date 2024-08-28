@@ -76,7 +76,9 @@ Take heed, do not turn to iniquity, For you have chosen this rather than afflict
 "Behold, God is exalted by His power; Who teaches like Him? 
 
 ###### 23 
-Who has assigned Him His way, Or who has said, 'You have done wrong'? ## Elihu Proclaims God's Majesty 
+Who has assigned Him His way, Or who has said, 'You have done wrong'? 
+
+## Elihu Proclaims God's Majesty 
 
 ###### 24 
 "Remember to magnify His work, Of which men have sung. 

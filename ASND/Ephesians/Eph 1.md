@@ -340,7 +340,9 @@ Kayo man ay napabilang na kay Cristo nang marinig ninyo ang katotohanan, ang Mag
 
 
 
-Ang Banal na Espiritu ang katibayan na matatanggap natin mula sa Dios ang ipinangako niya sa atin bilang mga anak niya, hanggang sa matanggap natin ang lubos na kaligtasan. At dahil dito, papupurihan siya! ## Ang Panalangin ni Pablo 
+Ang Banal na Espiritu ang katibayan na matatanggap natin mula sa Dios ang ipinangako niya sa atin bilang mga anak niya, hanggang sa matanggap natin ang lubos na kaligtasan. At dahil dito, papupurihan siya! 
+
+## Ang Panalangin ni Pablo 
 
 
 

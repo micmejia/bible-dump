@@ -33,7 +33,9 @@ An area twenty-five thousand cubits long and ten thousand wide shall belong to t
 "The prince shall have a section on one side and the other of the holy district and the city's property; and bordering on the holy district and the city's property, extending westward on the west side and eastward on the east side, the length shall be side by side with one of the tribal portions, from the west border to the east border. 
 
 ###### 8 
-The land shall be his possession in Israel; and My princes shall no more oppress My people, but they shall give the rest of the land to the house of Israel, according to their tribes." ## Laws Governing the Prince 
+The land shall be his possession in Israel; and My princes shall no more oppress My people, but they shall give the rest of the land to the house of Israel, according to their tribes." 
+
+## Laws Governing the Prince 
 
 ###### 9 
 'Thus says the Lord God: "Enough, O princes of Israel! Remove violence and plundering, execute justice and righteousness, and stop dispossessing My people," says the Lord God. 
@@ -60,7 +62,9 @@ And one lamb shall be given from a flock of two hundred, from the rich pastures 
 "All the people of the land shall give this offering for the prince in Israel. 
 
 ###### 17 
-Then it shall be the prince's part to give burnt offerings, grain offerings, and drink offerings, at the feasts, the New Moons, the Sabbaths, and at all the appointed seasons of the house of Israel. He shall prepare the sin offering, the grain offering, the burnt offering, and the peace offerings to make atonement for the house of Israel." ## Keeping the Feasts 
+Then it shall be the prince's part to give burnt offerings, grain offerings, and drink offerings, at the feasts, the New Moons, the Sabbaths, and at all the appointed seasons of the house of Israel. He shall prepare the sin offering, the grain offering, the burnt offering, and the peace offerings to make atonement for the house of Israel." 
+
+## Keeping the Feasts 
 
 ###### 18 
 'Thus says the Lord God: "In the first month, on the first day of the month, you shall take a young bull without blemish and cleanse the sanctuary. 

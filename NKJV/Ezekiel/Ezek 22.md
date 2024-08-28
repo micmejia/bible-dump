@@ -55,7 +55,9 @@ Can your heart endure, or can your hands remain strong, in the days when I shall
 I will scatter you among the nations, disperse you throughout the countries, and remove your filthiness completely from you. 
 
 ###### 16 
-You shall defile yourself in the sight of the nations; then you shall know that I am the Lord." ' " ## Israel in the Furnace 
+You shall defile yourself in the sight of the nations; then you shall know that I am the Lord." ' " 
+
+## Israel in the Furnace 
 
 ###### 17 
 The word of the Lord came to me, saying, 
@@ -73,7 +75,9 @@ As men gather silver, bronze, iron, lead, and tin into the midst of a furnace, t
 Yes, I will gather you and blow on you with the fire of My wrath, and you shall be melted in its midst. 
 
 ###### 22 
-As silver is melted in the midst of a furnace, so shall you be melted in its midst; then you shall know that I, the Lord, have poured out My fury on you.' " ## Israel's Wicked Leaders 
+As silver is melted in the midst of a furnace, so shall you be melted in its midst; then you shall know that I, the Lord, have poured out My fury on you.' " 
+
+## Israel's Wicked Leaders 
 
 ###### 23 
 And the word of the Lord came to me, saying, 

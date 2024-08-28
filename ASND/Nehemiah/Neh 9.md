@@ -1228,7 +1228,9 @@ Ito po ang dahilan kaya kamiʼy mga alipin ngayon sa lupaing ito na ibinigay nʼ
 
 
 
-Ang masaganang ani ng mga lupain ay napupunta sa mga hari na pinaghari nʼyo sa amin dahil sa aming mga kasalanan. Ginagawa nila ang gusto nilang gawin sa amin at sa mga alaga naming hayop, at sobra-sobra ang aming pagtitiis." ## Gumawa ng Kasunduan ang mga Tao 
+Ang masaganang ani ng mga lupain ay napupunta sa mga hari na pinaghari nʼyo sa amin dahil sa aming mga kasalanan. Ginagawa nila ang gusto nilang gawin sa amin at sa mga alaga naming hayop, at sobra-sobra ang aming pagtitiis." 
+
+## Gumawa ng Kasunduan ang mga Tao 
 
 
 

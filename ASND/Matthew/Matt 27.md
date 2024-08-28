@@ -339,7 +339,9 @@ Sa pangyayaring iyon, natupad ang ipinahayag ni Propeta Jeremias nang sabihin ni
 
 
 
-at ginamit nila ang pera bilang pambili ng bukid ng magpapalayok, ayon sa iniutos sa akin ng Panginoon." ## Inimbestigahan ni Pilato si Jesus 
+at ginamit nila ang pera bilang pambili ng bukid ng magpapalayok, ayon sa iniutos sa akin ng Panginoon." 
+
+## Inimbestigahan ni Pilato si Jesus 
 
 
 

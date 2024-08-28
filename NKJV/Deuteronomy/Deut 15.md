@@ -42,7 +42,9 @@ Beware lest there be a wicked thought in your heart, saying, 'The seventh year, 
 You shall surely give to him, and your heart should not be grieved when you give to him, because for this thing the Lord your God will bless you in all your works and in all to which you put your hand. 
 
 ###### 11 
-For the poor will never cease from the land; therefore I command you, saying, 'You shall open your hand wide to your brother, to your poor and your needy, in your land.' ## The Law Concerning Bondservants 
+For the poor will never cease from the land; therefore I command you, saying, 'You shall open your hand wide to your brother, to your poor and your needy, in your land.' 
+
+## The Law Concerning Bondservants 
 
 ###### 12 
 "If your brother, a Hebrew man, or a Hebrew woman, is sold to you and serves you six years, then in the seventh year you shall let him go free from you. 

@@ -43,7 +43,9 @@ It shall be that fishermen will stand by it from En Gedi to En Eglaim; they will
 But its swamps and marshes will not be healed; they will be given over to salt. 
 
 ###### 12 
-Along the bank of the river, on this side and that, will grow all kinds of trees used for food; their leaves will not wither, and their fruit will not fail. They will bear fruit every month, because their water flows from the sanctuary. Their fruit will be for food, and their leaves for medicine." ## Borders of the Land 
+Along the bank of the river, on this side and that, will grow all kinds of trees used for food; their leaves will not wither, and their fruit will not fail. They will bear fruit every month, because their water flows from the sanctuary. Their fruit will be for food, and their leaves for medicine." 
+
+## Borders of the Land 
 
 ###### 13 
 Thus says the Lord God: "These are the borders by which you shall divide the land as an inheritance among the twelve tribes of Israel. Joseph shall have two portions. 

@@ -52,7 +52,9 @@ And the Lord said to Abraham, "Why did Sarah laugh, saying, 'Shall I surely bear
 Is anything too hard for the Lord? At the appointed time I will return to you, according to the time of life, and Sarah shall have a son." 
 
 ###### 15 
-But Sarah denied _it,_ saying, "I did not laugh," for she was afraid. And He said, "No, but you did laugh!" ## Abraham Intercedes for Sodom 
+But Sarah denied _it,_ saying, "I did not laugh," for she was afraid. And He said, "No, but you did laugh!" 
+
+## Abraham Intercedes for Sodom 
 
 ###### 16 
 Then the men rose from there and looked toward Sodom, and Abraham went with them to send them on the way. 

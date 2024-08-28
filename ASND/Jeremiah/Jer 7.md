@@ -964,7 +964,9 @@ Kaya ito ang sabihin mo sa kanila: Ito ang bansa na ang mga mamamayan ay ayaw su
 
 
 
-Mga taga-Jerusalem, kalbuhin nʼyo ang buhok nʼyo at itapon ito para ipakitang nagdadalamhati kayo. Umiyak kayo roon sa kabundukan, dahil itinakwil at pinabayaan na ng Panginoon ang lahi nʼyo na nagpagalit sa kanya." ## Ang Lambak ng Patayan 
+Mga taga-Jerusalem, kalbuhin nʼyo ang buhok nʼyo at itapon ito para ipakitang nagdadalamhati kayo. Umiyak kayo roon sa kabundukan, dahil itinakwil at pinabayaan na ng Panginoon ang lahi nʼyo na nagpagalit sa kanya." 
+
+## Ang Lambak ng Patayan 
 
 
 

@@ -16,7 +16,9 @@ Then it was, when the wall was built and I had hung the doors, when the gatekeep
 that I gave the charge of Jerusalem to my brother Hanani, and Hananiah the leader of the citadel, for he _was_ a faithful man and feared God more than many. 
 
 ###### 3 
-And I said to them, "Do not let the gates of Jerusalem be opened until the sun is hot; and while they stand _guard,_ let them shut and bar the doors; and appoint guards from among the inhabitants of Jerusalem, one at his watch station and another in front of his own house." ## The Captives Who Returned to Jerusalem 
+And I said to them, "Do not let the gates of Jerusalem be opened until the sun is hot; and while they stand _guard,_ let them shut and bar the doors; and appoint guards from among the inhabitants of Jerusalem, one at his watch station and another in front of his own house." 
+
+## The Captives Who Returned to Jerusalem 
 
 ###### 4 
 Now the city _was_ large and spacious, but the people in it _were_ few, and the houses _were_ not rebuilt. 

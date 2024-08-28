@@ -172,7 +172,9 @@ Pumasok siya sa bahay ng Dios at kumuha ng tinapay na inihandog sa Dios at kinai
 
 
 
-At sinabi pa ni Jesus sa kanila, "Ako na Anak ng Tao ang siyang makapagsasabi kung ano ang nararapat gawin sa Araw ng Pamamahinga." ## Ang Lalaking Paralisado ang Isang Kamay 
+At sinabi pa ni Jesus sa kanila, "Ako na Anak ng Tao ang siyang makapagsasabi kung ano ang nararapat gawin sa Araw ng Pamamahinga." 
+
+## Ang Lalaking Paralisado ang Isang Kamay 
 
 
 
@@ -871,7 +873,9 @@ Nakakaawa kayong mga busog ngayon, dahil magugutom kayo. Nakakaawa kayong mga tu
 
 
 
-Nakakaawa kayo kung pinupuri kayo ng lahat ng tao, dahil ganoon din ang ginawa ng kanilang mga ninuno sa mga huwad na propeta." ## Mahalin ang mga Kaaway 
+Nakakaawa kayo kung pinupuri kayo ng lahat ng tao, dahil ganoon din ang ginawa ng kanilang mga ninuno sa mga huwad na propeta." 
+
+## Mahalin ang mga Kaaway 
 
 
 
@@ -1201,7 +1205,9 @@ Ito ang inyong gawin: Mahalin ninyo ang inyong mga kaaway at gumawa kayo ng mabu
 
 
 
-Maging maawain kayo tulad ng inyong Ama." ## Huwag Husgahan ang Kapwa 
+Maging maawain kayo tulad ng inyong Ama." 
+
+## Huwag Husgahan ang Kapwa 
 
 
 
@@ -1399,7 +1405,9 @@ Bakit mo pinupuna ang munting puwing sa mata ng kapwa mo, pero hindi mo naman pi
 
 
 
-Paano mo masasabi sa kanya, 'Kapatid, hayaan mong alisin ko ang puwing sa mata mo,' gayong hindi mo nakikita ang mala-trosong puwing sa mata mo? Mapagkunwari! Alisin mo muna ang mala-trosong puwing sa mata mo, nang sa ganoon ay makakita kang mabuti para maalis mo ang puwing sa mata ng kapwa mo." ## Nakikilala ang Puno sa Bunga Nito 
+Paano mo masasabi sa kanya, 'Kapatid, hayaan mong alisin ko ang puwing sa mata mo,' gayong hindi mo nakikita ang mala-trosong puwing sa mata mo? Mapagkunwari! Alisin mo muna ang mala-trosong puwing sa mata mo, nang sa ganoon ay makakita kang mabuti para maalis mo ang puwing sa mata ng kapwa mo." 
+
+## Nakikilala ang Puno sa Bunga Nito 
 
 
 
@@ -1498,7 +1506,9 @@ Ang bawat puno ay nakikilala sa bunga nito. Ang matitinik na halaman ay hindi na
 
 
 
-Ganoon din naman ang tao. Ang mabuting tao ay nagsasalita ng mabuti dahil puno ng kabutihan ang puso niya. Ngunit ang masamang tao ay nagsasalita ng masama dahil puno ng kasamaan ang puso niya. Sapagkat kung ano ang nasa puso ng isang tao, iyon din ang lumalabas sa kanyang bibig." ## Ang Dalawang Uri ng Taong Nagtayo ng Bahay 
+Ganoon din naman ang tao. Ang mabuting tao ay nagsasalita ng mabuti dahil puno ng kabutihan ang puso niya. Ngunit ang masamang tao ay nagsasalita ng masama dahil puno ng kasamaan ang puso niya. Sapagkat kung ano ang nasa puso ng isang tao, iyon din ang lumalabas sa kanyang bibig." 
+
+## Ang Dalawang Uri ng Taong Nagtayo ng Bahay 
 
 
 

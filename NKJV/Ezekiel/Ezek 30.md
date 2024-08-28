@@ -64,7 +64,9 @@ The young men of Aven and Pi Beseth shall fall by the sword, And these cities sh
 At Tehaphnehes the day shall also be darkened, When I break the yokes of Egypt there. And her arrogant strength shall cease in her; As for her, a cloud shall cover her, And her daughters shall go into captivity. 
 
 ###### 19 
-Thus I will execute judgments on Egypt, Then they shall know that I am the Lord." ' " ## Proclamation Against Pharaoh 
+Thus I will execute judgments on Egypt, Then they shall know that I am the Lord." ' " 
+
+## Proclamation Against Pharaoh 
 
 ###### 20 
 And it came to pass in the eleventh year, in the first month, on the seventh day of the month, that the word of the Lord came to me, saying, 

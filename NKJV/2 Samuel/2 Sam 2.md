@@ -28,7 +28,9 @@ So David sent messengers to the men of Jabesh Gilead, and said to them, "You _ar
 And now may the Lord show kindness and truth to you. I also will repay you this kindness, because you have done this thing. 
 
 ###### 7 
-Now therefore, let your hands be strengthened, and be valiant; for your master Saul is dead, and also the house of Judah has anointed me king over them." ## Ishbosheth Made King of Israel 
+Now therefore, let your hands be strengthened, and be valiant; for your master Saul is dead, and also the house of Judah has anointed me king over them." 
+
+## Ishbosheth Made King of Israel 
 
 ###### 8 
 But Abner the son of Ner, commander of Saul's army, took Ishbosheth the son of Saul and brought him over to Mahanaim; 

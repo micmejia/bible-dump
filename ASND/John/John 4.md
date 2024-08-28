@@ -1131,7 +1131,9 @@ Totoo ang kasabihang, 'Iba ang nagtatanim at iba rin ang umaani.'
 
 
 
-Sinugo ko kayo upang anihin ang hindi ninyo itinanim. Iba ang nagtanim ng salita ng Dios, at kayo ang umaani ng kanilang pinaghirapan." ## Maraming Samaritano ang Sumampalataya 
+Sinugo ko kayo upang anihin ang hindi ninyo itinanim. Iba ang nagtanim ng salita ng Dios, at kayo ang umaani ng kanilang pinaghirapan." 
+
+## Maraming Samaritano ang Sumampalataya 
 
 
 
@@ -1263,7 +1265,9 @@ Dahil sa pangangaral niya, marami pa sa kanila ang sumampalataya.
 
 
 
-Sinabi ng mga tao sa babae, "Sumasampalataya kami ngayon hindi lang dahil sa sinabi mo sa amin ang tungkol sa kanya, kundi dahil sa narinig namin mismo sa kanya. At alam naming siya nga ang Tagapagligtas ng mundo." ## Pinagaling ni Jesus ang Anak ng Isang Opisyal 
+Sinabi ng mga tao sa babae, "Sumasampalataya kami ngayon hindi lang dahil sa sinabi mo sa amin ang tungkol sa kanya, kundi dahil sa narinig namin mismo sa kanya. At alam naming siya nga ang Tagapagligtas ng mundo." 
+
+## Pinagaling ni Jesus ang Anak ng Isang Opisyal 
 
 
 

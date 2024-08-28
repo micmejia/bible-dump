@@ -46,7 +46,9 @@ You are wearied in the length of your way; Yet you did not say, 'There is no hop
 I will declare your righteousness And your works, For they will not profit you. 
 
 ###### 13 
-When you cry out, Let your collection of idols deliver you. But the wind will carry them all away, A breath will take them. But he who puts his trust in Me shall possess the land, And shall inherit My holy mountain." ## Healing for the Backslider 
+When you cry out, Let your collection of idols deliver you. But the wind will carry them all away, A breath will take them. But he who puts his trust in Me shall possess the land, And shall inherit My holy mountain." 
+
+## Healing for the Backslider 
 
 ###### 14 
 And one shall say, "Heap it up! Heap it up! Prepare the way, Take the stumbling block out of the way of My people." 

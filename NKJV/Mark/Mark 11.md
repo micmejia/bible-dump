@@ -93,7 +93,9 @@ Therefore I say to you, whatever things you ask when you pray, believe that you 
 "And whenever you stand praying, if you have anything against anyone, forgive him, that your Father in heaven may also forgive you your trespasses. 
 
 ###### 26 
-But if you do not forgive, neither will your Father in heaven forgive your trespasses." ## Jesus' Authority Questioned 
+But if you do not forgive, neither will your Father in heaven forgive your trespasses." 
+
+## Jesus' Authority Questioned 
 
 ###### 27 
 Then they came again to Jerusalem. And as He was walking in the temple, the chief priests, the scribes, and the elders came to Him. 

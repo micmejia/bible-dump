@@ -39,7 +39,9 @@ For now we live, if you stand fast in the Lord.
 For what thanks can we render to God for you, for all the joy with which we rejoice for your sake before our God, 
 
 ###### 10 
-night and day praying exceedingly that we may see your face and perfect what is lacking in your faith? ## Prayer for the Church 
+night and day praying exceedingly that we may see your face and perfect what is lacking in your faith? 
+
+## Prayer for the Church 
 
 ###### 11 
 Now may our God and Father Himself, and our Lord Jesus Christ, direct our way to you. 

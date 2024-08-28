@@ -99,7 +99,9 @@ So take the talent from him, and give it to him who has ten talents.
 'For to everyone who has, more will be given, and he will have abundance; but from him who does not have, even what he has will be taken away. 
 
 ###### 30 
-And cast the unprofitable servant into the outer darkness. There will be weeping and gnashing of teeth.' ## The Son of Man Will Judge the Nations 
+And cast the unprofitable servant into the outer darkness. There will be weeping and gnashing of teeth.' 
+
+## The Son of Man Will Judge the Nations 
 
 ###### 31 
 "When the Son of Man comes in His glory, and all the holy angels with Him, then He will sit on the throne of His glory. 

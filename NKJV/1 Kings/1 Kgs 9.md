@@ -34,7 +34,9 @@ then I will cut off Israel from the land which I have given them; and this house
 And _as for_ this house, _which_ is exalted, everyone who passes by it will be astonished and will hiss, and say, 'Why has the Lord done thus to this land and to this house?' 
 
 ###### 9 
-Then they will answer, 'Because they forsook the Lord their God, who brought their fathers out of the land of Egypt, and have embraced other gods, and worshiped them and served them; therefore the Lord has brought all this calamity on them.' " ## Solomon and Hiram Exchange Gifts 
+Then they will answer, 'Because they forsook the Lord their God, who brought their fathers out of the land of Egypt, and have embraced other gods, and worshiped them and served them; therefore the Lord has brought all this calamity on them.' " 
+
+## Solomon and Hiram Exchange Gifts 
 
 ###### 10 
 Now it happened at the end of twenty years, when Solomon had built the two houses, the house of the Lord and the king's house 

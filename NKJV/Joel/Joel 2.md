@@ -40,7 +40,9 @@ They run to and fro in the city, They run on the wall; They climb into the house
 The earth quakes before them, The heavens tremble; The sun and moon grow dark, And the stars diminish their brightness. 
 
 ###### 11 
-The Lord gives voice before His army, For His camp is very great; For strong is the One who executes His word. For the day of the Lord is great and very terrible; Who can endure it? ## A Call to Repentance 
+The Lord gives voice before His army, For His camp is very great; For strong is the One who executes His word. For the day of the Lord is great and very terrible; Who can endure it? 
+
+## A Call to Repentance 
 
 ###### 12 
 "Now, therefore," says the Lord, "Turn to Me with all your heart, With fasting, with weeping, and with mourning." 
@@ -58,7 +60,9 @@ Blow the trumpet in Zion, Consecrate a fast, Call a sacred assembly;
 Gather the people, Sanctify the congregation, Assemble the elders, Gather the children and nursing babes; Let the bridegroom go out from his chamber, And the bride from her dressing room. 
 
 ###### 17 
-Let the priests, who minister to the Lord, Weep between the porch and the altar; Let them say, "Spare Your people, O Lord, And do not give Your heritage to reproach, That the nations should rule over them. Why should they say among the peoples, 'Where is their God?' " ## The Land Refreshed 
+Let the priests, who minister to the Lord, Weep between the porch and the altar; Let them say, "Spare Your people, O Lord, And do not give Your heritage to reproach, That the nations should rule over them. Why should they say among the peoples, 'Where is their God?' " 
+
+## The Land Refreshed 
 
 ###### 18 
 Then the Lord will be zealous for His land, And pity His people. 

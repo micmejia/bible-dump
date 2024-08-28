@@ -19,7 +19,9 @@ And you shall swear, 'The Lord lives,' In truth, in judgment, and in righteousne
 For thus says the Lord to the men of Judah and Jerusalem: "Break up your fallow ground, And do not sow among thorns. 
 
 ###### 4 
-Circumcise yourselves to the Lord, And take away the foreskins of your hearts, You men of Judah and inhabitants of Jerusalem, Lest My fury come forth like fire, And burn so that no one can quench it, Because of the evil of your doings." ## An Imminent Invasion 
+Circumcise yourselves to the Lord, And take away the foreskins of your hearts, You men of Judah and inhabitants of Jerusalem, Lest My fury come forth like fire, And burn so that no one can quench it, Because of the evil of your doings." 
+
+## An Imminent Invasion 
 
 ###### 5 
 Declare in Judah and proclaim in Jerusalem, and say: "Blow the trumpet in the land; Cry, 'Gather together,' And say, 'Assemble yourselves, And let us go into the fortified cities.' 
@@ -61,7 +63,9 @@ For a voice declares from Dan And proclaims affliction from Mount Ephraim:
 Like keepers of a field they are against her all around, Because she has been rebellious against Me," says the Lord. 
 
 ###### 18 
-"Your ways and your doings Have procured these things for you. This is your wickedness, Because it is bitter, Because it reaches to your heart." ## Sorrow for the Doomed Nation 
+"Your ways and your doings Have procured these things for you. This is your wickedness, Because it is bitter, Because it reaches to your heart." 
+
+## Sorrow for the Doomed Nation 
 
 ###### 19 
 O my soul, my soul! I am pained in my very heart! My heart makes a noise in me; I cannot hold my peace, Because you have heard, O my soul, The sound of the trumpet, The alarm of war. 

@@ -48,7 +48,9 @@ Then the Lord spoke to Moses, saying:
 "Now behold, I Myself have taken the Levites from among the children of Israel instead of every firstborn who opens the womb among the children of Israel. Therefore the Levites shall be Mine, 
 
 ###### 13 
-because all the firstborn _are_ Mine. On the day that I struck all the firstborn in the land of Egypt, I sanctified to Myself all the firstborn in Israel, both man and beast. They shall be Mine: I _am_ the Lord." ## Census of the Levites Commanded 
+because all the firstborn _are_ Mine. On the day that I struck all the firstborn in the land of Egypt, I sanctified to Myself all the firstborn in Israel, both man and beast. They shall be Mine: I _am_ the Lord." 
+
+## Census of the Levites Commanded 
 
 ###### 14 
 Then the Lord spoke to Moses in the Wilderness of Sinai, saying: 

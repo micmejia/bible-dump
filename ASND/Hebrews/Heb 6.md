@@ -106,7 +106,9 @@ mga aral tungkol sa bautismo, pagpapatong ng kamay sa ulo, muling pagkabuhay ng 
 
 
 
-Sa halip, kung loloobin ng Dios, magpatuloy tayo sa malalalim na aralin, ###### 4-6 upang hindi natin siya talikuran. Sapagkat kung tatalikuran ng isang tao ang Dios, hindi na siya mapagsisisi at mapapanumbalik pa sa Dios. Naliwanagan na ang pag-iisip niya, nakatikim na ng mga biyaya mula sa langit, tumanggap ng Banal na Espiritu, nakatikim na ng kabutihang dulot ng salita ng Dios, at nakadama na ng kapangyarihang ihahayag sa huling araw. Pagkatapos, kung tumalikod pa rin siya sa Dios, hindi na siya mapagsisisi at mapapanumbalik sa Dios dahil para na rin niyang ipinakong muli sa krus at dinala sa kahihiyan ang Anak ng Dios. 
+Sa halip, kung loloobin ng Dios, magpatuloy tayo sa malalalim na aralin, 
+
+###### 4-6 upang hindi natin siya talikuran. Sapagkat kung tatalikuran ng isang tao ang Dios, hindi na siya mapagsisisi at mapapanumbalik pa sa Dios. Naliwanagan na ang pag-iisip niya, nakatikim na ng mga biyaya mula sa langit, tumanggap ng Banal na Espiritu, nakatikim na ng kabutihang dulot ng salita ng Dios, at nakadama na ng kapangyarihang ihahayag sa huling araw. Pagkatapos, kung tumalikod pa rin siya sa Dios, hindi na siya mapagsisisi at mapapanumbalik sa Dios dahil para na rin niyang ipinakong muli sa krus at dinala sa kahihiyan ang Anak ng Dios. 
 
 
 

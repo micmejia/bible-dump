@@ -306,7 +306,9 @@ Ayaw sumunod ng masasamang taong ito sa mga sinasabi ko. Sinusunod nila ang nais
 
 
 
-Kung papaano sanang ang sinturon ay nakakapit nang mahigpit sa baywang ng tao, nais ko rin sanang ang lahat ng mamamayan ng Israel at Juda ay kumapit nang mahigpit sa akin. Hinirang ko sila para papurihan nila ako at parangalan, pero ayaw nilang makinig sa akin. Ako, ang Panginoon, ang nagsasabi nito." ## Ang Talinghaga tungkol sa Sisidlang-balat ng Alak 
+Kung papaano sanang ang sinturon ay nakakapit nang mahigpit sa baywang ng tao, nais ko rin sanang ang lahat ng mamamayan ng Israel at Juda ay kumapit nang mahigpit sa akin. Hinirang ko sila para papurihan nila ako at parangalan, pero ayaw nilang makinig sa akin. Ako, ang Panginoon, ang nagsasabi nito." 
+
+## Ang Talinghaga tungkol sa Sisidlang-balat ng Alak 
 
 
 
@@ -405,7 +407,9 @@ Sabihin mo sa kanila na ito ang ibig kong sabihin: 'Parurusahan ko ang lahat ng 
 
 
 
-Pag-uumpugin ko ang mga magulang at ang mga anak nila. Hindi ako mahahabag sa pagpatay sa kanila. Ako, ang Panginoon, ang nagsasabi nito.' " ## Babala tungkol sa Kapalaluan 
+Pag-uumpugin ko ang mga magulang at ang mga anak nila. Hindi ako mahahabag sa pagpatay sa kanila. Ako, ang Panginoon, ang nagsasabi nito.' " 
+
+## Babala tungkol sa Kapalaluan 
 
 
 

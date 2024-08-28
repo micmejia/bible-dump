@@ -403,7 +403,9 @@ Kung totoong lumabag ako sa kautusan at dapat akong parusahan ng kamatayan, tata
 
 
 
-Nakipag-usap agad si Festus sa mga miyembro ng kanyang korte, at pagkatapos ay sinabi niya kay Pablo, "Dahil gusto mong lumapit sa Emperador, ipapadala kita sa kanya." ## Pinaharap si Pablo kay Haring Agripa 
+Nakipag-usap agad si Festus sa mga miyembro ng kanyang korte, at pagkatapos ay sinabi niya kay Pablo, "Dahil gusto mong lumapit sa Emperador, ipapadala kita sa kanya." 
+
+## Pinaharap si Pablo kay Haring Agripa 
 
 
 
@@ -733,7 +735,9 @@ Pero sinabi ni Pablo na lalapit na lang siya sa Emperador para ang Emperador na 
 
 
 
-Sinabi ni Agripa kay Festus, "Gusto kong mapakinggan ang taong ito." Sinabi ni Festus, "Sige, bukas mapapakinggan mo siya." ## Nagsalita si Pablo kay Agripa 
+Sinabi ni Agripa kay Festus, "Gusto kong mapakinggan ang taong ito." Sinabi ni Festus, "Sige, bukas mapapakinggan mo siya." 
+
+## Nagsalita si Pablo kay Agripa 
 
 
 

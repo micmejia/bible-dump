@@ -10,7 +10,9 @@ next: ['Isa 5']
 
 
 ###### 1 
-And in that day seven women shall take hold of one man, saying, "We will eat our own food and wear our own apparel; Only let us be called by your name, To take away our reproach." ## The Renewal of Zion 
+And in that day seven women shall take hold of one man, saying, "We will eat our own food and wear our own apparel; Only let us be called by your name, To take away our reproach." 
+
+## The Renewal of Zion 
 
 ###### 2 
 In that day the Branch of the Lord shall be beautiful and glorious; And the fruit of the earth _shall be_ excellent and appealing For those of Israel who have escaped. 

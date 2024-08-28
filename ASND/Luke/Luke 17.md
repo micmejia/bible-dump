@@ -139,7 +139,9 @@ Kaya mag-ingat kayo. "Kung magkasala sa iyo ang kapatid mo, pagsabihan mo siya. 
 
 
 
-Kahit pitong beses pa siyang magkasala sa iyo sa maghapon, kung pitong beses din siyang hihingi ng tawad sa iyo ay patawarin mo." ## Tungkol sa Pananampalataya 
+Kahit pitong beses pa siyang magkasala sa iyo sa maghapon, kung pitong beses din siyang hihingi ng tawad sa iyo ay patawarin mo." 
+
+## Tungkol sa Pananampalataya 
 
 
 
@@ -205,7 +207,9 @@ Sinabi ng mga apostol sa Panginoon, "Dagdagan po ninyo ang pananampalataya namin
 
 
 
-Sumagot ang Panginoon, "Kung may pananampalataya kayong kasinlaki lang ng buto ng mustasa, masasabi ninyo sa malaking punong ito, 'Mabunot ka at malipat sa dagat!' At susundin kayo nito." ## Ang Tungkulin ng Alipin 
+Sumagot ang Panginoon, "Kung may pananampalataya kayong kasinlaki lang ng buto ng mustasa, masasabi ninyo sa malaking punong ito, 'Mabunot ka at malipat sa dagat!' At susundin kayo nito." 
+
+## Ang Tungkulin ng Alipin 
 
 
 
@@ -337,7 +341,9 @@ Hindi pinasasalamatan ang alipin dahil ginagawa lang niya ang kanyang tungkulin.
 
 
 
-Ganoon din naman sa inyo. Pagkatapos ninyong gawin ang mga iniutos sa inyo, sabihin ninyo, 'Mga alipin lamang kami, at hindi nararapat papurihan dahil ginagawa lang namin ang aming tungkulin.' " ## Pinagaling ni Jesus ang Sampung Lalaking may Malubhang Sakit sa Balat 
+Ganoon din naman sa inyo. Pagkatapos ninyong gawin ang mga iniutos sa inyo, sabihin ninyo, 'Mga alipin lamang kami, at hindi nararapat papurihan dahil ginagawa lang namin ang aming tungkulin.' " 
+
+## Pinagaling ni Jesus ang Sampung Lalaking may Malubhang Sakit sa Balat 
 
 
 
@@ -634,7 +640,9 @@ Bakit hindi bumalik ang iba upang magpuri sa Dios maliban sa taong ito na hindi 
 
 
 
-Sinabi niya sa lalaki, "Tumayo ka at umuwi na. Iniligtas ka ng pananampalataya mo." ## Ang tungkol sa Paghahari ng Dios. 
+Sinabi niya sa lalaki, "Tumayo ka at umuwi na. Iniligtas ka ng pananampalataya mo." 
+
+## Ang tungkol sa Paghahari ng Dios. 
 
 
 

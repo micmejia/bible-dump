@@ -370,7 +370,9 @@ Inagaw natin ang lahat ng bayan na nasa talampas, ang buong Gilead at ang buong 
 
 
 
-(Si Haring Og lang ang nag-iisang natira sa mga lahi ng Refaimeo. Ang higaan niyang bakal ay may habang 13 talampakan at anim na talampakan ang lapad. Makikita pa ito ngayon sa Rabba na lungsod ng mga Ammonita.) ## Ang Paghahati-hati ng Lupa 
+(Si Haring Og lang ang nag-iisang natira sa mga lahi ng Refaimeo. Ang higaan niyang bakal ay may habang 13 talampakan at anim na talampakan ang lapad. Makikita pa ito ngayon sa Rabba na lungsod ng mga Ammonita.) 
+
+## Ang Paghahati-hati ng Lupa 
 
 
 
@@ -667,7 +669,9 @@ Ngunit iiwan ninyo ang inyong mga asawaʼt anak, at ang napakarami ninyong hayop
 
 
 
-Kapag naangkin na ng mga kapwa ninyo Israelita ang lupain sa kabila ng Jordan na ibinigay sa kanila ng Panginoon na inyong Dios, at kapag nabigyan na sila ng kasiguraduhan katulad ng kanyang ginawa sa inyo, makabalik na kayo sa lupaing ibinigay ko sa inyo.' ## Hindi Pinayagan si Moises na Makapasok sa Canaan 
+Kapag naangkin na ng mga kapwa ninyo Israelita ang lupain sa kabila ng Jordan na ibinigay sa kanila ng Panginoon na inyong Dios, at kapag nabigyan na sila ng kasiguraduhan katulad ng kanyang ginawa sa inyo, makabalik na kayo sa lupaing ibinigay ko sa inyo.' 
+
+## Hindi Pinayagan si Moises na Makapasok sa Canaan 
 
 
 

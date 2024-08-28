@@ -205,7 +205,9 @@ Ipapasamsam ko sa mga kaaway ang lahat ng kayamanan ng lungsod ng Jerusalemâ€¯â€
 
 
 
-Pati ikaw Pashur at ang buong sambahayan mo ay bibihagin at dadalhin sa Babilonia. At doon ka mamamatay at ililibing, pati ang lahat ng kaibigan mo na hinulaan mo ng kasinungalingan." ## Nagreklamo si Jeremias sa Panginoon 
+Pati ikaw Pashur at ang buong sambahayan mo ay bibihagin at dadalhin sa Babilonia. At doon ka mamamatay at ililibing, pati ang lahat ng kaibigan mo na hinulaan mo ng kasinungalingan." 
+
+## Nagreklamo si Jeremias sa Panginoon 
 
 
 

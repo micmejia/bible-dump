@@ -29,7 +29,9 @@ All this is for the transgression of Jacob And for the sins of the house of Isra
 "Therefore I will make Samaria a heap of ruins in the field, Places for planting a vineyard; I will pour down her stones into the valley, And I will uncover her foundations. 
 
 ###### 7 
-All her carved images shall be beaten to pieces, And all her pay as a harlot shall be burned with the fire; All her idols I will lay desolate, For she gathered it from the pay of a harlot, And they shall return to the pay of a harlot." ## Mourning for Israel and Judah 
+All her carved images shall be beaten to pieces, And all her pay as a harlot shall be burned with the fire; All her idols I will lay desolate, For she gathered it from the pay of a harlot, And they shall return to the pay of a harlot." 
+
+## Mourning for Israel and Judah 
 
 ###### 8 
 Therefore I will wail and howl, I will go stripped and naked; I will make a wailing like the jackals And a mourning like the ostriches, 

@@ -673,7 +673,9 @@ Sumagot sila, "May mga nagsasabing kayo po si Juan na tagapagbautismo. May nagsa
 
 
 
-Tinanong sila ni Jesus, "Pero para sa inyo, sino ako?" Sumagot si Pedro, "Kayo po ang Cristo!" ## Ang Unang Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
+Tinanong sila ni Jesus, "Pero para sa inyo, sino ako?" Sumagot si Pedro, "Kayo po ang Cristo!" 
+
+## Ang Unang Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
 
 
 
@@ -904,7 +906,9 @@ Kung ako at ang mga aral ko ay ikakahiya ninuman, ikakahiya ko rin siya kapag ak
 
 
 
-Sinasabi ko sa inyo ang totoo, may ilan sa inyo rito na hindi mamamatay hanggaʼt hindi nila nakikita ang paghahari ng Dios." ## Ang Pagbabagong-anyo ni Jesus 
+Sinasabi ko sa inyo ang totoo, may ilan sa inyo rito na hindi mamamatay hanggaʼt hindi nila nakikita ang paghahari ng Dios." 
+
+## Ang Pagbabagong-anyo ni Jesus 
 
 
 
@@ -1603,7 +1607,9 @@ Alam ni Jesus ang iniisip nila, kaya kumuha siya ng isang maliit na bata at pina
 
 
 
-Pagkatapos, sinabi niya sa kanila, "Ang sinumang tumatanggap sa batang tulad nito dahil sa akin ay tumatanggap sa akin. At ang tumatanggap sa akin ay tumatanggap sa aking Amang nagsugo sa akin. Sapagkat ang pinakamababa sa inyong lahat ang siyang pinakadakila." ## Kakampi Natin ang Hindi Laban sa Atin 
+Pagkatapos, sinabi niya sa kanila, "Ang sinumang tumatanggap sa batang tulad nito dahil sa akin ay tumatanggap sa akin. At ang tumatanggap sa akin ay tumatanggap sa aking Amang nagsugo sa akin. Sapagkat ang pinakamababa sa inyong lahat ang siyang pinakadakila." 
+
+## Kakampi Natin ang Hindi Laban sa Atin 
 
 
 
@@ -1669,7 +1675,9 @@ Sinabi ni Juan kay Jesus, "Guro, nakakita po kami ng taong nagpapalayas ng masas
 
 
 
-Pero sinabi sa kanya ni Jesus, "Huwag nʼyo siyang pagbawalan, dahil ang hindi laban sa atin ay kakampi natin." ## Hindi Tinanggap si Jesus sa Isang Nayon sa Samaria 
+Pero sinabi sa kanya ni Jesus, "Huwag nʼyo siyang pagbawalan, dahil ang hindi laban sa atin ay kakampi natin." 
+
+## Hindi Tinanggap si Jesus sa Isang Nayon sa Samaria 
 
 
 

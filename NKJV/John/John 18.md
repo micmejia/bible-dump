@@ -40,7 +40,9 @@ that the saying might be fulfilled which He spoke, "Of those whom You gave Me I 
 Then Simon Peter, having a sword, drew it and struck the high priest's servant, and cut off his right ear. The servant's name was Malchus. 
 
 ###### 11 
-So Jesus said to Peter, "Put your sword into the sheath. Shall I not drink the cup which My Father has given Me?" ## Before the High Priest 
+So Jesus said to Peter, "Put your sword into the sheath. Shall I not drink the cup which My Father has given Me?" 
+
+## Before the High Priest 
 
 ###### 12 
 Then the detachment of troops and the captain and the officers of the Jews arrested Jesus and bound Him. 

@@ -25,7 +25,9 @@ as it is written in the book of the words of Isaiah the prophet, saying: "The vo
 Every valley shall be filled And every mountain and hill brought low; The crooked places shall be made straight And the rough ways smooth; 
 
 ###### 6 
-And all flesh shall see the salvation of God.' " ## John Preaches to the People 
+And all flesh shall see the salvation of God.' " 
+
+## John Preaches to the People 
 
 ###### 7 
 Then he said to the multitudes that came out to be baptized by him, "Brood of vipers! Who warned you to flee from the wrath to come? 
@@ -75,7 +77,9 @@ also added this, above all, that he shut John up in prison.
 When all the people were baptized, it came to pass that Jesus also was baptized; and while He prayed, the heaven was opened. 
 
 ###### 22 
-And the Holy Spirit descended in bodily form like a dove upon Him, and a voice came from heaven which said, "You are My beloved Son; in You I am well pleased." ## The Genealogy of Jesus Christ 
+And the Holy Spirit descended in bodily form like a dove upon Him, and a voice came from heaven which said, "You are My beloved Son; in You I am well pleased." 
+
+## The Genealogy of Jesus Christ 
 
 ###### 23 
 Now Jesus Himself began His ministry at about thirty years of age, being (as was supposed) the son of Joseph, the son of Heli, 

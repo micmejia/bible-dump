@@ -106,7 +106,9 @@ Gagawin kong isang tanyag na bansa ang lahi mo. Pagpapalain kita at magiging tan
 
 
 
-Pagpapalain ko ang magmamagandang loob sa iyo. Pero isusumpa ko naman ang susumpa sa iyo. Sa pamamagitan mo, pagpapalain ko ang lahat ng tao sa mundo." ###### 4-5 Kaya umalis si Abram sa Haran at pumunta sa Canaan, ayon sa sinabi ng Panginoon sa kanya. Nasa 75 taong gulang noon si Abram. Sumama sa kanya ang pamangkin niyang si Lot. Kasama rin niya ang asawa niyang si Sarai at ang lahat ng ari-arian at aliping natipon nila sa Haran. 
+Pagpapalain ko ang magmamagandang loob sa iyo. Pero isusumpa ko naman ang susumpa sa iyo. Sa pamamagitan mo, pagpapalain ko ang lahat ng tao sa mundo." 
+
+###### 4-5 Kaya umalis si Abram sa Haran at pumunta sa Canaan, ayon sa sinabi ng Panginoon sa kanya. Nasa 75 taong gulang noon si Abram. Sumama sa kanya ang pamangkin niyang si Lot. Kasama rin niya ang asawa niyang si Sarai at ang lahat ng ari-arian at aliping natipon nila sa Haran. 
 
 
 

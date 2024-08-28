@@ -304,7 +304,9 @@ At kahit maganda at tanyag ang templong ito, sisirain ko ito. Magugulat at mamam
 
 
 
-Sasagot ang iba, 'Dahil itinakwil nila ang Panginoon na kanilang Dios na naglabas sa kanilang mga ninuno sa Egipto at naglingkod sila at sumamba sa ibang mga dios. Iyan ang dahilan kung bakit pinadalhan sila ng Panginoon ng mga kapahamakan.' " ## Ang Iba pang Naipatayo ni Solomon 
+Sasagot ang iba, 'Dahil itinakwil nila ang Panginoon na kanilang Dios na naglabas sa kanilang mga ninuno sa Egipto at naglingkod sila at sumamba sa ibang mga dios. Iyan ang dahilan kung bakit pinadalhan sila ng Panginoon ng mga kapahamakan.' " 
+
+## Ang Iba pang Naipatayo ni Solomon 
 
 
 

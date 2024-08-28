@@ -537,7 +537,9 @@ Sapagkat ipapahayag mo sa lahat ng tao ang iyong nakita at narinig.
 
 
 
-Ngayon, ano pa ang hinihintay mo? Tumayo ka na at magpabautismo, at tumawag sa Panginoon para maging malinis ka sa iyong mga kasalanan.' " ## Inutusan si Pablo na Mangaral sa mga Hindi Judio 
+Ngayon, ano pa ang hinihintay mo? Tumayo ka na at magpabautismo, at tumawag sa Panginoon para maging malinis ka sa iyong mga kasalanan.' " 
+
+## Inutusan si Pablo na Mangaral sa mga Hindi Judio 
 
 
 

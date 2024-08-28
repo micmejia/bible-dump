@@ -92,7 +92,9 @@ For when they rise from the dead, they neither marry nor are given in marriage, 
 But concerning the dead, that they rise, have you not read in the book of Moses, in the burning bush passage, how God spoke to him, saying, 'I am the God of Abraham, the God of Isaac, and the God of Jacob'? 
 
 ###### 27 
-He is not the God of the dead, but the God of the living. You are therefore greatly mistaken." ## The Scribes: Which Is the First Commandment of All? 
+He is not the God of the dead, but the God of the living. You are therefore greatly mistaken." 
+
+## The Scribes: Which Is the First Commandment of All? 
 
 ###### 28 
 Then one of the scribes came, and having heard them reasoning together, perceiving that He had answered them well, asked Him, "Which is the first commandment of all?" 
@@ -135,7 +137,9 @@ Then He said to them in His teaching, "Beware of the scribes, who desire to go a
 the best seats in the synagogues, and the best places at feasts, 
 
 ###### 40 
-who devour widows' houses, and for a pretense make long prayers. These will receive greater condemnation." ## The Widow's Two Mites 
+who devour widows' houses, and for a pretense make long prayers. These will receive greater condemnation." 
+
+## The Widow's Two Mites 
 
 ###### 41 
 Now Jesus sat opposite the treasury and saw how the people put money into the treasury. And many who were rich put in much. 

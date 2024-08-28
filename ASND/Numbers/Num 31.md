@@ -733,7 +733,9 @@ Pagkatapos, sinabi ng paring si Eleazar sa mga sundalo na nagpunta sa labanan, "
 
 
 
-Sa ikapitong araw, kailangang labhan ninyo ang inyong mga damit at ituturing na kayong malinis, at makakapasok na kayo sa kampo." ## Ang Paghahati-hati ng mga Nasamsam 
+Sa ikapitong araw, kailangang labhan ninyo ang inyong mga damit at ituturing na kayong malinis, at makakapasok na kayo sa kampo." 
+
+## Ang Paghahati-hati ng mga Nasamsam 
 
 
 

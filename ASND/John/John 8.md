@@ -370,7 +370,9 @@ Tumayo si Jesus at sinabi sa babae, "Babae, nasaan na sila? May humatol ba sa iy
 
 
 
-Sumagot ang babae, "Wala po." Sinabi ni Jesus sa kanya, "Hindi rin kita hahatulan. Maaari ka nang umalis, pero huwag ka na muling magkasala."] ## Si Jesus ang Ilaw ng Mundo 
+Sumagot ang babae, "Wala po." Sinabi ni Jesus sa kanya, "Hindi rin kita hahatulan. Maaari ka nang umalis, pero huwag ka na muling magkasala."] 
+
+## Si Jesus ang Ilaw ng Mundo 
 
 
 
@@ -1562,7 +1564,9 @@ Sino sa inyo ang makakapagsabi na nakagawa ako ng kasalanan? Wala! Bakit ayaw n 
 
 
 
-Ang mga anak ng Dios ay nakikinig sa salita ng Dios. Ngunit hindi kayo mga anak ng Dios kaya hindi kayo nakikinig." ## Si Jesus at si Abraham 
+Ang mga anak ng Dios ay nakikinig sa salita ng Dios. Ngunit hindi kayo mga anak ng Dios kaya hindi kayo nakikinig." 
+
+## Si Jesus at si Abraham 
 
 
 

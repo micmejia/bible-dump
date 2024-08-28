@@ -205,7 +205,9 @@ Nagtaka ako dahil nakita kong wala kahit isa ang tumulong sa akin. Kaya ako lang
 
 
 
-At sa galit ko, tinapakan ko ang mga bansa at pinasuray-suray sila na parang mga lasing. Ibinuhos ko sa lupa ang kanilang dugo." ## Ang Kabutihan ng Panginoon 
+At sa galit ko, tinapakan ko ang mga bansa at pinasuray-suray sila na parang mga lasing. Ibinuhos ko sa lupa ang kanilang dugo." 
+
+## Ang Kabutihan ng Panginoon 
 
 
 

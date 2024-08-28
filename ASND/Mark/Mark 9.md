@@ -40,7 +40,9 @@ next: ['Mark 10']
 
 
 
-Sinabi pa ni Jesus sa kanila, "Sinasabi ko sa inyo ang totoo, may ilan sa inyo rito na hindi mamamatay hanggaʼt hindi nila nakikitang dumarating ang paghahari ng Dios na dumarating nang may kapangyarihan." ## Ang Pagbabagong-anyo ni Jesus 
+Sinabi pa ni Jesus sa kanila, "Sinasabi ko sa inyo ang totoo, may ilan sa inyo rito na hindi mamamatay hanggaʼt hindi nila nakikitang dumarating ang paghahari ng Dios na dumarating nang may kapangyarihan." 
+
+## Ang Pagbabagong-anyo ni Jesus 
 
 
 
@@ -370,7 +372,9 @@ Kaya hindi nila sinabi kahit kanino ang pangyayaring iyon. Pero pinag-usapan nil
 
 
 
-Nagtanong sila kay Jesus, "Bakit sinasabi po ng mga tagapagturo ng Kautusan na kailangan daw munang dumating si Elias bago dumating ang Cristo?" 12-13Sumagot siya sa kanila, "Totoo iyan, kailangan ngang dumating muna si Elias upang ihanda ang lahat ng bagay. Ngunit sasabihin ko sa inyo: dumating na si Elias at ginawa ng mga tao ang gusto nilang gawin sa kanya ayon na rin sa isinulat tungkol sa kanya. Ngunit bakit nasusulat din na ako na Anak ng Tao ay magtitiis ng maraming hirap at itatakwil ng mga tao?" ## Pinagaling ni Jesus ang Batang Sinasaniban ng Masamang Espiritu 
+Nagtanong sila kay Jesus, "Bakit sinasabi po ng mga tagapagturo ng Kautusan na kailangan daw munang dumating si Elias bago dumating ang Cristo?" 12-13Sumagot siya sa kanila, "Totoo iyan, kailangan ngang dumating muna si Elias upang ihanda ang lahat ng bagay. Ngunit sasabihin ko sa inyo: dumating na si Elias at ginawa ng mga tao ang gusto nilang gawin sa kanya ayon na rin sa isinulat tungkol sa kanya. Ngunit bakit nasusulat din na ako na Anak ng Tao ay magtitiis ng maraming hirap at itatakwil ng mga tao?" 
+
+## Pinagaling ni Jesus ang Batang Sinasaniban ng Masamang Espiritu 
 
 
 
@@ -898,7 +902,9 @@ Nang pumasok na sina Jesus sa bahay na tinutuluyan nila, tinanong siya ng mga ta
 
 
 
-Sinagot sila ni Jesus, "Ang ganoong uri ng masamang espiritu ay mapapalayas lang sa pamamagitan ng panalangin." ## Ang Ikalawang Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
+Sinagot sila ni Jesus, "Ang ganoong uri ng masamang espiritu ay mapapalayas lang sa pamamagitan ng panalangin." 
+
+## Ang Ikalawang Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
 
 
 
@@ -1164,7 +1170,9 @@ Kumuha si Jesus ng isang maliit na bata at pinatayo sa harapan nila. Pagkatapos,
 
 
 
-"Ang sinumang tumatanggap sa batang tulad nito dahil sa akin ay tumatanggap din sa akin. At ang tumatanggap sa akin ay tumatanggap sa aking Amang nagsugo sa akin." ## Kakampi Natin ang Hindi Laban sa Atin 
+"Ang sinumang tumatanggap sa batang tulad nito dahil sa akin ay tumatanggap din sa akin. At ang tumatanggap sa akin ay tumatanggap sa aking Amang nagsugo sa akin." 
+
+## Kakampi Natin ang Hindi Laban sa Atin 
 
 
 
@@ -1296,7 +1304,9 @@ Ang hindi laban sa atin ay kakampi natin.
 
 
 
-Sinasabi ko sa inyo ang totoo, ang sinumang magbigay sa inyo ng kahit isang basong tubig, dahil kayo ay kay Cristo, ay tiyak na makakatanggap ng gantimpala." ## Mga Dahilan ng Pagkakasala 
+Sinasabi ko sa inyo ang totoo, ang sinumang magbigay sa inyo ng kahit isang basong tubig, dahil kayo ay kay Cristo, ay tiyak na makakatanggap ng gantimpala." 
+
+## Mga Dahilan ng Pagkakasala 
 
 
 

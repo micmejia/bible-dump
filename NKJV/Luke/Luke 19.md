@@ -37,7 +37,9 @@ Then Zacchaeus stood and said to the Lord, "Look, Lord, I give half of my goods 
 And Jesus said to him, "Today salvation has come to this house, because he also is a son of Abraham; 
 
 ###### 10 
-for the Son of Man has come to seek and to save that which was lost." ## The Parable of the Minas 
+for the Son of Man has come to seek and to save that which was lost." 
+
+## The Parable of the Minas 
 
 ###### 11 
 Now as they heard these things, He spoke another parable, because He was near Jerusalem and because they thought the kingdom of God would appear immediately. 
@@ -88,7 +90,9 @@ Why then did you not put my money in the bank, that at my coming I might have co
 'For I say to you, that to everyone who has will be given; and from him who does not have, even what he has will be taken away from him. 
 
 ###### 27 
-But bring here those enemies of mine, who did not want me to reign over them, and slay them before me.' " ## The Triumphal Entry 
+But bring here those enemies of mine, who did not want me to reign over them, and slay them before me.' " 
+
+## The Triumphal Entry 
 
 ###### 28 
 When He had said this, He went on ahead, going up to Jerusalem. 
@@ -127,7 +131,9 @@ saying: " 'Blessed is the King who comes in the name of the Lord!' Peace in heav
 And some of the Pharisees called to Him from the crowd, "Teacher, rebuke Your disciples." 
 
 ###### 40 
-But He answered and said to them, "I tell you that if these should keep silent, the stones would immediately cry out." ## Jesus Weeps over Jerusalem 
+But He answered and said to them, "I tell you that if these should keep silent, the stones would immediately cry out." 
+
+## Jesus Weeps over Jerusalem 
 
 ###### 41 
 Now as He drew near, He saw the city and wept over it, 
@@ -139,7 +145,9 @@ saying, "If you had known, even you, especially in this your day, the things tha
 For days will come upon you when your enemies will build an embankment around you, surround you and close you in on every side, 
 
 ###### 44 
-and level you, and your children within you, to the ground; and they will not leave in you one stone upon another, because you did not know the time of your visitation." ## Jesus Cleanses the Temple 
+and level you, and your children within you, to the ground; and they will not leave in you one stone upon another, because you did not know the time of your visitation." 
+
+## Jesus Cleanses the Temple 
 
 ###### 45 
 Then He went into the temple and began to drive out those who bought and sold in it, 

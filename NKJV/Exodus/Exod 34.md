@@ -34,7 +34,9 @@ keeping mercy for thousands, forgiving iniquity and transgression and sin, by no
 So Moses made haste and bowed his head toward the earth, and worshiped. 
 
 ###### 9 
-Then he said, "If now I have found grace in Your sight, O Lord, let my Lord, I pray, go among us, even though we _are_ a stiff-necked people; and pardon our iniquity and our sin, and take us as Your inheritance." ## The Covenant Renewed 
+Then he said, "If now I have found grace in Your sight, O Lord, let my Lord, I pray, go among us, even though we _are_ a stiff-necked people; and pardon our iniquity and our sin, and take us as Your inheritance." 
+
+## The Covenant Renewed 
 
 ###### 10 
 And He said: "Behold, I make a covenant. Before all your people I will do marvels such as have not been done in all the earth, nor in any nation; and all the people among whom you _are_ shall see the work of the Lord. For it _is_ an awesome thing that I will do with you. 

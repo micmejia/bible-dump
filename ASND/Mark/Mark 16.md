@@ -600,7 +600,9 @@ At ito ang mga palatandaang makikita sa mga taong sumasampalataya sa akin: sa pa
 
 
 
-kung dumampot man sila ng mga ahas o makainom ng anumang lason ay hindi sila mapapahamak; at gagaling ang mga may sakit na papatungan nila ng kanilang mga kamay." ## Ang Pag-akyat ni Jesus sa Langit 
+kung dumampot man sila ng mga ahas o makainom ng anumang lason ay hindi sila mapapahamak; at gagaling ang mga may sakit na papatungan nila ng kanilang mga kamay." 
+
+## Ang Pag-akyat ni Jesus sa Langit 
 
 
 

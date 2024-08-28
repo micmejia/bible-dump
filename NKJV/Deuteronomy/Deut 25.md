@@ -39,7 +39,9 @@ Then the elders of his city shall call him and speak to him. But _if_ he stands 
 then his brother's wife shall come to him in the presence of the elders, remove his sandal from his foot, spit in his face, and answer and say, 'So shall it be done to the man who will not build up his brother's house.' 
 
 ###### 10 
-And his name shall be called in Israel, 'The house of him who had his sandal removed.' ## Miscellaneous Laws 
+And his name shall be called in Israel, 'The house of him who had his sandal removed.' 
+
+## Miscellaneous Laws 
 
 ###### 11 
 "If _two_ men fight together, and the wife of one draws near to rescue her husband from the hand of the one attacking him, and puts out her hand and seizes him by the genitals, 

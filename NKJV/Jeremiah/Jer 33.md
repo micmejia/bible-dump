@@ -61,7 +61,9 @@ In those days Judah will be saved, And Jerusalem will dwell safely. And this is 
 "For thus says the Lord: 'David shall never lack a man to sit on the throne of the house of Israel; 
 
 ###### 18 
-nor shall the priests, the Levites, lack a man to offer burnt offerings before Me, to kindle grain offerings, and to sacrifice continually.' " ## The Permanence of God's Covenant 
+nor shall the priests, the Levites, lack a man to offer burnt offerings before Me, to kindle grain offerings, and to sacrifice continually.' " 
+
+## The Permanence of God's Covenant 
 
 ###### 19 
 And the word of the Lord came to Jeremiah, saying, 

@@ -403,7 +403,9 @@ Sumagot si Jesus, "Hindi matatanggap ng lahat ang turong ito, maliban na lang sa
 
 
 
-May ibaʼt ibang dahilan kung bakit ang ilan ay hindi nag-aasawa. May iba na ipinanganak na sadyang baog. Ang ibaʼy hindi makakapag-asawa dahil sinadyang kapunin. At may iba naman ay ayaw mag-asawa dahil sa pagpapahalaga nila sa kaharian ng Dios. Kung kaya ng sinuman na hindi mag-asawa, huwag na siyang mag-asawa." ## Pinagpala ni Jesus ang Maliliit na Bata 
+May ibaʼt ibang dahilan kung bakit ang ilan ay hindi nag-aasawa. May iba na ipinanganak na sadyang baog. Ang ibaʼy hindi makakapag-asawa dahil sinadyang kapunin. At may iba naman ay ayaw mag-asawa dahil sa pagpapahalaga nila sa kaharian ng Dios. Kung kaya ng sinuman na hindi mag-asawa, huwag na siyang mag-asawa." 
+
+## Pinagpala ni Jesus ang Maliliit na Bata 
 
 
 

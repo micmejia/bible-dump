@@ -159,7 +159,9 @@ Outside the inner gate were the chambers for the singers in the inner court, one
 Then he said to me, "This chamber which faces south is for the priests who have charge of the temple. 
 
 ###### 46 
-The chamber which faces north is for the priests who have charge of the altar; these are the sons of Zadok, from the sons of Levi, who come near the Lord to minister to Him." ## Dimensions of the Inner Court and Vestibule 
+The chamber which faces north is for the priests who have charge of the altar; these are the sons of Zadok, from the sons of Levi, who come near the Lord to minister to Him." 
+
+## Dimensions of the Inner Court and Vestibule 
 
 ###### 47 
 And he measured the court, one hundred cubits long and one hundred cubits wide, foursquare. The altar was in front of the temple. 

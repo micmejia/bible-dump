@@ -70,7 +70,9 @@ And this is the condemnation, that the light has come into the world, and men lo
 For everyone practicing evil hates the light and does not come to the light, lest his deeds should be exposed. 
 
 ###### 21 
-But he who does the truth comes to the light, that his deeds may be clearly seen, that they have been done in God." ## John the Baptist Exalts Christ 
+But he who does the truth comes to the light, that his deeds may be clearly seen, that they have been done in God." 
+
+## John the Baptist Exalts Christ 
 
 ###### 22 
 After these things Jesus and His disciples came into the land of Judea, and there He remained with them and baptized. 

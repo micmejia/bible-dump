@@ -304,7 +304,9 @@ Ang mga taong galing sa ibaʼt ibang bansa na dadaan sa lungsod na ito ay magtat
 
 
 
-At ito ang isasagot sa kanila, 'Dahil itinakwil nila ang kasunduan nila sa Panginoon na kanilang Dios, at sumamba sila at naglingkod sa mga dios-diosan.' " ## Ang Mensahe tungkol kay Jehoahaz 10-11Mga taga-Juda, huwag kayong umiyak sa pagpanaw ni Haring Josia. Sa halip, umiyak kayo nang lubos para sa anak niyang si Jehoahaz na pumalit sa kanya bilang hari ng Juda. Sapagkat binihag siya at hindi na siya makakabalik pa. Kaya hindi na niya makikita pang muli ang lupaing ito na sinilangan niya. Sapagkat ang Panginoon ang nagsabi na hindi na siya makakabalik. 
+At ito ang isasagot sa kanila, 'Dahil itinakwil nila ang kasunduan nila sa Panginoon na kanilang Dios, at sumamba sila at naglingkod sa mga dios-diosan.' " 
+
+## Ang Mensahe tungkol kay Jehoahaz 10-11Mga taga-Juda, huwag kayong umiyak sa pagpanaw ni Haring Josia. Sa halip, umiyak kayo nang lubos para sa anak niyang si Jehoahaz na pumalit sa kanya bilang hari ng Juda. Sapagkat binihag siya at hindi na siya makakabalik pa. Kaya hindi na niya makikita pang muli ang lupaing ito na sinilangan niya. Sapagkat ang Panginoon ang nagsabi na hindi na siya makakabalik. 
 
 
 

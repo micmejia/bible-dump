@@ -33,7 +33,9 @@ just as David also describes the blessedness of the man to whom God imputes righ
 "Blessed are those whose lawless deeds are forgiven, And whose sins are covered; 
 
 ###### 8 
-Blessed is the man to whom the Lord shall not impute sin." ## Abraham Justified Before Circumcision 
+Blessed is the man to whom the Lord shall not impute sin." 
+
+## Abraham Justified Before Circumcision 
 
 ###### 9 
 Does this blessedness then come upon the circumcised only, or upon the uncircumcised also? For we say that faith was accounted to Abraham for righteousness. 

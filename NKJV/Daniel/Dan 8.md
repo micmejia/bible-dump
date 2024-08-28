@@ -49,7 +49,9 @@ Because of transgression, an army was given over to the horn to oppose the daily
 Then I heard a holy one speaking; and another holy one said to that certain one who was speaking, "How long will the vision be, concerning the daily sacrifices and the transgression of desolation, the giving of both the sanctuary and the host to be trampled underfoot?" 
 
 ###### 14 
-And he said to me, "For two thousand three hundred days; then the sanctuary shall be cleansed." ## Gabriel Interprets the Vision 
+And he said to me, "For two thousand three hundred days; then the sanctuary shall be cleansed." 
+
+## Gabriel Interprets the Vision 
 
 ###### 15 
 Then it happened, when I, Daniel, had seen the vision and was seeking the meaning, that suddenly there stood before me one having the appearance of a man. 

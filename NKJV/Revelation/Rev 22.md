@@ -41,7 +41,9 @@ Then he said to me, "See that you do not do that. For I am your fellow servant, 
 And he said to me, "Do not seal the words of the prophecy of this book, for the time is at hand. 
 
 ###### 11 
-He who is unjust, let him be unjust still; he who is filthy, let him be filthy still; he who is righteous, let him be righteous still; he who is holy, let him be holy still." ## Jesus Testifies to the Churches 
+He who is unjust, let him be unjust still; he who is filthy, let him be filthy still; he who is righteous, let him be righteous still; he who is holy, let him be holy still." 
+
+## Jesus Testifies to the Churches 
 
 ###### 12 
 "And behold, I am coming quickly, and My reward is with Me, to give to every one according to his work. 

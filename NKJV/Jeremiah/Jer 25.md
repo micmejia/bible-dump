@@ -49,7 +49,9 @@ And this whole land shall be a desolation and an astonishment, and these nations
 So I will bring on that land all My words which I have pronounced against it, all that is written in this book, which Jeremiah has prophesied concerning all the nations. 
 
 ###### 14 
-(For many nations and great kings shall be served by them also; and I will repay them according to their deeds and according to the works of their own hands.)' " ## Judgment on the Nations 
+(For many nations and great kings shall be served by them also; and I will repay them according to their deeds and according to the works of their own hands.)' " 
+
+## Judgment on the Nations 
 
 ###### 15 
 For thus says the Lord God of Israel to me: "Take this wine cup of fury from My hand, and cause all the nations, to whom I send you, to drink it. 

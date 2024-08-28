@@ -370,7 +370,9 @@ ang banal at magandang damit ni Aaron at ng mga anak niya na isusuot nila kapag 
 
 
 
-ang langis na pamahid at ang mabangong insenso para sa Banal na Lugar. Gagawin nila itong lahat ayon sa iniutos ko sa iyo." ## Ang Araw ng Pamamahinga 
+ang langis na pamahid at ang mabangong insenso para sa Banal na Lugar. Gagawin nila itong lahat ayon sa iniutos ko sa iyo." 
+
+## Ang Araw ng Pamamahinga 
 
 
 

@@ -34,7 +34,9 @@ And some fell among thorns, and the thorns sprang up and choked them.
 But others fell on good ground and yielded a crop: some a hundredfold, some sixty, some thirty. 
 
 ###### 9 
-He who has ears to hear, let him hear!" ## The Purpose of Parables 
+He who has ears to hear, let him hear!" 
+
+## The Purpose of Parables 
 
 ###### 10 
 And the disciples came and said to Him, "Why do You speak to them in parables?" 
@@ -78,7 +80,9 @@ yet he has no root in himself, but endures only for a while. For when tribulatio
 Now he who received seed among the thorns is he who hears the word, and the cares of this world and the deceitfulness of riches choke the word, and he becomes unfruitful. 
 
 ###### 23 
-But he who received seed on the good ground is he who hears the word and understands it, who indeed bears fruit and produces: some a hundredfold, some sixty, some thirty." ## The Parable of the Wheat and the Tares 
+But he who received seed on the good ground is he who hears the word and understands it, who indeed bears fruit and produces: some a hundredfold, some sixty, some thirty." 
+
+## The Parable of the Wheat and the Tares 
 
 ###### 24 
 Another parable He put forth to them, saying: "The kingdom of heaven is like a man who sowed good seed in his field; 
@@ -99,22 +103,30 @@ He said to them, 'An enemy has done this.' The servants said to him, 'Do you wan
 But he said, 'No, lest while you gather up the tares you also uproot the wheat with them. 
 
 ###### 30 
-Let both grow together until the harvest, and at the time of harvest I will say to the reapers, "First gather together the tares and bind them in bundles to burn them, but gather the wheat into my barn." ' " ## The Parable of the Mustard Seed 
+Let both grow together until the harvest, and at the time of harvest I will say to the reapers, "First gather together the tares and bind them in bundles to burn them, but gather the wheat into my barn." ' " 
+
+## The Parable of the Mustard Seed 
 
 ###### 31 
 Another parable He put forth to them, saying: "The kingdom of heaven is like a mustard seed, which a man took and sowed in his field, 
 
 ###### 32 
-which indeed is the least of all the seeds; but when it is grown it is greater than the herbs and becomes a tree, so that the birds of the air come and nest in its branches." ## The Parable of the Leaven 
+which indeed is the least of all the seeds; but when it is grown it is greater than the herbs and becomes a tree, so that the birds of the air come and nest in its branches." 
+
+## The Parable of the Leaven 
 
 ###### 33 
-Another parable He spoke to them: "The kingdom of heaven is like leaven, which a woman took and hid in three measures of meal till it was all leavened." ## Prophecy and the Parables 
+Another parable He spoke to them: "The kingdom of heaven is like leaven, which a woman took and hid in three measures of meal till it was all leavened." 
+
+## Prophecy and the Parables 
 
 ###### 34 
 All these things Jesus spoke to the multitude in parables; and without a parable He did not speak to them, 
 
 ###### 35 
-that it might be fulfilled which was spoken by the prophet, saying: "I will open My mouth in parables; I will utter things kept secret from the foundation of the world." ## The Parable of the Tares Explained 
+that it might be fulfilled which was spoken by the prophet, saying: "I will open My mouth in parables; I will utter things kept secret from the foundation of the world." 
+
+## The Parable of the Tares Explained 
 
 ###### 36 
 Then Jesus sent the multitude away and went into the house. And His disciples came to Him, saying, "Explain to us the parable of the tares of the field." 
@@ -138,7 +150,9 @@ The Son of Man will send out His angels, and they will gather out of His kingdom
 and will cast them into the furnace of fire. There will be wailing and gnashing of teeth. 
 
 ###### 43 
-Then the righteous will shine forth as the sun in the kingdom of their Father. He who has ears to hear, let him hear! ## The Parable of the Hidden Treasure 
+Then the righteous will shine forth as the sun in the kingdom of their Father. He who has ears to hear, let him hear! 
+
+## The Parable of the Hidden Treasure 
 
 ###### 44 
 "Again, the kingdom of heaven is like treasure hidden in a field, which a man found and hid; and for joy over it he goes and sells all that he has and buys that field.
@@ -169,7 +183,9 @@ and cast them into the furnace of fire. There will be wailing and gnashing of te
 Jesus said to them, "Have you understood all these things?" They said to Him, "Yes, Lord." 
 
 ###### 52 
-Then He said to them, "Therefore every scribe instructed concerning the kingdom of heaven is like a householder who brings out of his treasure things new and old." ## Jesus Rejected at Nazareth 
+Then He said to them, "Therefore every scribe instructed concerning the kingdom of heaven is like a householder who brings out of his treasure things new and old." 
+
+## Jesus Rejected at Nazareth 
 
 ###### 53 
 Now it came to pass, when Jesus had finished these parables, that He departed from there. 

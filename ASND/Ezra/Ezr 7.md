@@ -605,7 +605,9 @@ Ipinapaalam din namin sa inyo na huwag ninyong pagbayarin ng buwis at ng iba pan
 
 
 
-Sinumang hindi tumupad sa Kautusan ng iyong Dios o kayaʼy sa kautusan ng hari ay parurusahan ng kamatayan, o paaalisin sa lugar niya, o kukunin ang ari-arian niya, o ikukulong siya." ## Pinuri ni Ezra ang Dios 
+Sinumang hindi tumupad sa Kautusan ng iyong Dios o kayaʼy sa kautusan ng hari ay parurusahan ng kamatayan, o paaalisin sa lugar niya, o kukunin ang ari-arian niya, o ikukulong siya." 
+
+## Pinuri ni Ezra ang Dios 
 
 
 

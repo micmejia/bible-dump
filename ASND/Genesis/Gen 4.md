@@ -801,7 +801,9 @@ Isang araw, sinabi ni Lamec sa dalawa niyang asawa, "Ada at Zila, mga asawa ko, 
 
 
 
-Kung pitong beses ang tindi ng ganti sa taong pumatay kay Cain, 77 beses ang tindi ng ganti sa taong papatay sa akin." ## Ang mga Lahi ni Set 
+Kung pitong beses ang tindi ng ganti sa taong pumatay kay Cain, 77 beses ang tindi ng ganti sa taong papatay sa akin." 
+
+## Ang mga Lahi ni Set 
 
 
 

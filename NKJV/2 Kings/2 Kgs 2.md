@@ -61,7 +61,9 @@ Then they said to him, "Look now, there are fifty strong men with your servants.
 But when they urged him till he was ashamed, he said, "Send _them!_" Therefore they sent fifty men, and they searched for three days but did not find him. 
 
 ###### 18 
-And when they came back to him, for he had stayed in Jericho, he said to them, "Did I not say to you, 'Do not go'?" ## Elisha Performs Miracles 
+And when they came back to him, for he had stayed in Jericho, he said to them, "Did I not say to you, 'Do not go'?" 
+
+## Elisha Performs Miracles 
 
 ###### 19 
 Then the men of the city said to Elisha, "Please notice, the situation of this city _is_ pleasant, as my lord sees; but the water _is_ bad, and the ground barren." 

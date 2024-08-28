@@ -635,7 +635,9 @@ Sinasabi ko sa iyo ang totoo, noong bata ka pa, ikaw mismo ang nagbibihis sa sar
 
 
 
-(Sinabi ito ni Jesus para ipahiwatig kung anong klaseng kamatayan ang daranasin ni Pedro upang maparangalan ang Panginoon.) Pagkatapos, sinabi ni Jesus kay Pedro, "Sumunod ka sa akin." ## Ang Tagasunod na Minamahal ni Jesus 
+(Sinabi ito ni Jesus para ipahiwatig kung anong klaseng kamatayan ang daranasin ni Pedro upang maparangalan ang Panginoon.) Pagkatapos, sinabi ni Jesus kay Pedro, "Sumunod ka sa akin." 
+
+## Ang Tagasunod na Minamahal ni Jesus 
 
 
 

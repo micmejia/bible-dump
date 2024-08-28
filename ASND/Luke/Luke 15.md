@@ -238,7 +238,9 @@ Pagkatapos, tatawagin ninyo ang inyong mga kaibigan at kapitbahay ninyo at sasab
 
 
 
-At sinabi ni Jesus, "Ganoon din sa langit, masayang-masaya sila roon dahil sa isang makasalanang nagsisisi kaysa sa 99 na matuwid na hindi nangangailangang magsisi." ## Ang Nawawalang Salaping Pilak 
+At sinabi ni Jesus, "Ganoon din sa langit, masayang-masaya sila roon dahil sa isang makasalanang nagsisisi kaysa sa 99 na matuwid na hindi nangangailangang magsisi." 
+
+## Ang Nawawalang Salaping Pilak 
 
 
 
@@ -337,7 +339,9 @@ Pagkatapos, tatawagin niya ang mga kaibigan at kapitbahay niya at sasabihin sa k
 
 
 
-At sinabi ni Jesus, "Ganoon din sa langit, masayang-masaya ang mga anghel ng Dios dahil sa isang makasalanang nagsisi." ## Ang Naglayas na Anak 
+At sinabi ni Jesus, "Ganoon din sa langit, masayang-masaya ang mga anghel ng Dios dahil sa isang makasalanang nagsisi." 
+
+## Ang Naglayas na Anak 
 
 
 

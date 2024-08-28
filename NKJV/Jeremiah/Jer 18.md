@@ -40,7 +40,9 @@ And the instant I speak concerning a nation and concerning a kingdom, to build a
 if it does evil in My sight so that it does not obey My voice, then I will relent concerning the good with which I said I would benefit it. 
 
 ###### 11 
-"Now therefore, speak to the men of Judah and to the inhabitants of Jerusalem, saying, 'Thus says the Lord: "Behold, I am fashioning a disaster and devising a plan against you. Return now every one from his evil way, and make your ways and your doings good." ' " ## God's Warning Rejected 
+"Now therefore, speak to the men of Judah and to the inhabitants of Jerusalem, saying, 'Thus says the Lord: "Behold, I am fashioning a disaster and devising a plan against you. Return now every one from his evil way, and make your ways and your doings good." ' " 
+
+## God's Warning Rejected 
 
 ###### 12 
 And they said, "That is hopeless! So we will walk according to our own plans, and we will every one obey the dictates of his evil heart." 
@@ -58,7 +60,9 @@ Will a man leave the snow water of Lebanon, Which comes from the rock of the fie
 To make their land desolate and a perpetual hissing; Everyone who passes by it will be astonished And shake his head. 
 
 ###### 17 
-I will scatter them as with an east wind before the enemy; I will show them the back and not the face In the day of their calamity." ## Jeremiah Persecuted 
+I will scatter them as with an east wind before the enemy; I will show them the back and not the face In the day of their calamity." 
+
+## Jeremiah Persecuted 
 
 ###### 18 
 Then they said, "Come and let us devise plans against Jeremiah; for the law shall not perish from the priest, nor counsel from the wise, nor the word from the prophet. Come and let us attack him with the tongue, and let us not give heed to any of his words." 

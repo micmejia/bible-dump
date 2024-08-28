@@ -104,7 +104,9 @@ You shall have one law for him who sins unintentionally, _for_ him who is native
 'But the person who does _anything_ presumptuously, _whether he is_ native-born or a stranger, that one brings reproach on the Lord, and he shall be cut off from among his people. 
 
 ###### 31 
-Because he has despised the word of the Lord, and has broken His commandment, that person shall be completely cut off; his guilt _shall be_ upon him.' " ## Penalty for Violating the Sabbath 
+Because he has despised the word of the Lord, and has broken His commandment, that person shall be completely cut off; his guilt _shall be_ upon him.' " 
+
+## Penalty for Violating the Sabbath 
 
 ###### 32 
 Now while the children of Israel were in the wilderness, they found a man gathering sticks on the Sabbath day. 

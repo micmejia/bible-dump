@@ -47,7 +47,9 @@ But he who denies Me before men will be denied before the angels of God.
 "Now when they bring you to the synagogues and magistrates and authorities, do not worry about how or what you should answer, or what you should say. 
 
 ###### 12 
-For the Holy Spirit will teach you in that very hour what you ought to say." ## The Parable of the Rich Fool 
+For the Holy Spirit will teach you in that very hour what you ought to say." 
+
+## The Parable of the Rich Fool 
 
 ###### 13 
 Then one from the crowd said to Him, "Teacher, tell my brother to divide the inheritance with me." 
@@ -74,7 +76,9 @@ And I will say to my soul, "Soul, you have many goods laid up for many years; ta
 But God said to him, 'Fool! This night your soul will be required of you; then whose will those things be which you have provided?' 
 
 ###### 21 
-"So is he who lays up treasure for himself, and is not rich toward God." ## Do Not Worry 
+"So is he who lays up treasure for himself, and is not rich toward God." 
+
+## Do Not Worry 
 
 ###### 22 
 Then He said to His disciples, "Therefore I say to you, do not worry about your life, what you will eat; nor about the body, what you will put on. 
@@ -174,7 +178,9 @@ Do you suppose that I came to give peace on earth? I tell you, not at all, but r
 For from now on five in one house will be divided: three against two, and two against three. 
 
 ###### 53 
-Father will be divided against son and son against father, mother against daughter and daughter against mother, mother-in-law against her daughter-in-law and daughter-in-law against her mother-in-law." ## Discern the Time 
+Father will be divided against son and son against father, mother against daughter and daughter against mother, mother-in-law against her daughter-in-law and daughter-in-law against her mother-in-law." 
+
+## Discern the Time 
 
 ###### 54 
 Then He also said to the multitudes, "Whenever you see a cloud rising out of the west, immediately you say, 'A shower is coming'; and so it is. 
@@ -183,7 +189,9 @@ Then He also said to the multitudes, "Whenever you see a cloud rising out of the
 And when you see the south wind blow, you say, 'There will be hot weather'; and there is. 
 
 ###### 56 
-Hypocrites! You can discern the face of the sky and of the earth, but how is it you do not discern this time? ## Make Peace with Your Adversary 
+Hypocrites! You can discern the face of the sky and of the earth, but how is it you do not discern this time? 
+
+## Make Peace with Your Adversary 
 
 ###### 57 
 "Yes, and why, even of yourselves, do you not judge what is right? 

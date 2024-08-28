@@ -31,7 +31,9 @@ Even to them I will give in My house And within My walls a place and a name Bett
 Even them I will bring to My holy mountain, And make them joyful in My house of prayer. Their burnt offerings and their sacrifices Will be accepted on My altar; For My house shall be called a house of prayer for all nations." 
 
 ###### 8 
-The Lord God, who gathers the outcasts of Israel, says, "Yet I will gather to him Others besides those who are gathered to him." ## Israel's Irresponsible Leaders 
+The Lord God, who gathers the outcasts of Israel, says, "Yet I will gather to him Others besides those who are gathered to him." 
+
+## Israel's Irresponsible Leaders 
 
 ###### 9 
 All you beasts of the field, come to devour, All you beasts in the forest. 

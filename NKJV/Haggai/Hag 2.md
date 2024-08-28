@@ -33,7 +33,9 @@ and I will shake all nations, and they shall come to the Desire of All Nations, 
 'The silver is Mine, and the gold is Mine,' says the Lord of hosts. 
 
 ###### 9 
-'The glory of this latter temple shall be greater than the former,' says the Lord of hosts. 'And in this place I will give peace,' says the Lord of hosts." ## The People Are Defiled 
+'The glory of this latter temple shall be greater than the former,' says the Lord of hosts. 'And in this place I will give peace,' says the Lord of hosts." 
+
+## The People Are Defiled 
 
 ###### 10 
 On the twenty-fourth day of the ninth month, in the second year of Darius, the word of the Lord came by Haggai the prophet, saying, 
@@ -65,7 +67,9 @@ I struck you with blight and mildew and hail in all the labors of your hands; ye
 'Consider now from this day forward, from the twenty-fourth day of the ninth month, from the day that the foundation of the Lord's temple was laid--consider it: 
 
 ###### 19 
-Is the seed still in the barn? As yet the vine, the fig tree, the pomegranate, and the olive tree have not yielded fruit. But from this day I will bless you.' " ## Zerubbabel Chosen as a Signet 
+Is the seed still in the barn? As yet the vine, the fig tree, the pomegranate, and the olive tree have not yielded fruit. But from this day I will bless you.' " 
+
+## Zerubbabel Chosen as a Signet 
 
 ###### 20 
 And again the word of the Lord came to Haggai on the twenty-fourth day of the month, saying, 

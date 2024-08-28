@@ -38,7 +38,9 @@ So they went out quickly from the tomb with fear and great joy, and ran to bring
 And as they went to tell His disciples, behold, Jesus met them, saying, "Rejoice!" So they came and held Him by the feet and worshiped Him. 
 
 ###### 10 
-Then Jesus said to them, "Do not be afraid. Go and tell My brethren to go to Galilee, and there they will see Me." ## The Soldiers Are Bribed 
+Then Jesus said to them, "Do not be afraid. Go and tell My brethren to go to Galilee, and there they will see Me." 
+
+## The Soldiers Are Bribed 
 
 ###### 11 
 Now while they were going, behold, some of the guard came into the city and reported to the chief priests all the things that had happened. 

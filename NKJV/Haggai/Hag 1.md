@@ -39,7 +39,9 @@ Go up to the mountains and bring wood and build the temple, that I may take plea
 Therefore the heavens above you withhold the dew, and the earth withholds its fruit. 
 
 ###### 11 
-For I called for a drought on the land and the mountains, on the grain and the new wine and the oil, on whatever the ground brings forth, on men and livestock, and on all the labor of your hands." ## The People's Obedience 
+For I called for a drought on the land and the mountains, on the grain and the new wine and the oil, on whatever the ground brings forth, on men and livestock, and on all the labor of your hands." 
+
+## The People's Obedience 
 
 ###### 12 
 Then Zerubbabel the son of Shealtiel, and Joshua the son of Jehozadak, the high priest, with all the remnant of the people, obeyed the voice of the Lord their God, and the words of Haggai the prophet, as the Lord their God had sent him; and the people feared the presence of the Lord. 

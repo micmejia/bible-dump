@@ -34,7 +34,9 @@ Therefore do according to your wisdom, and do not let his gray hair go down to t
 "And see, _you have_ with you Shimei the son of Gera, a Benjamite from Bahurim, who cursed me with a malicious curse in the day when I went to Mahanaim. But he came down to meet me at the Jordan, and I swore to him by the Lord, saying, 'I will not put you to death with the sword.' 
 
 ###### 9 
-Now therefore, do not hold him guiltless, for you _are_ a wise man and know what you ought to do to him; but bring his gray hair down to the grave with blood." ## Death of David 
+Now therefore, do not hold him guiltless, for you _are_ a wise man and know what you ought to do to him; but bring his gray hair down to the grave with blood." 
+
+## Death of David 
 
 ###### 10 
 So David rested with his fathers, and was buried in the City of David. 

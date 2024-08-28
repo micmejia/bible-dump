@@ -337,7 +337,9 @@ At ngayon, tingnan nʼyo! May dumarating na mga karwahe na hila-hila ng dalawang
 
 
 
-Pagkatapos, sinabi ko, "Mga kapwa kong mga Israelita, na parang mga trigong ginigiik, sinasabi ko sa inyo ang mga bagay na aking napakinggan sa Panginoong Makapangyarihan, ang Dios ng Israel." ## Ang Mensahe tungkol sa Edom 
+Pagkatapos, sinabi ko, "Mga kapwa kong mga Israelita, na parang mga trigong ginigiik, sinasabi ko sa inyo ang mga bagay na aking napakinggan sa Panginoong Makapangyarihan, ang Dios ng Israel." 
+
+## Ang Mensahe tungkol sa Edom 
 
 
 
@@ -403,7 +405,9 @@ Ang mensaheng itoʼy tungkol sa Edom: May taong mula sa Edom na palaging nagtata
 
 
 
-Sumagot ako, "Mag-uumaga na pero sasapit na naman ang gabi. Kung gusto mong magtanong ulit bumalik ka na lang." ## Ang Mensahe tungkol sa Arabia 
+Sumagot ako, "Mag-uumaga na pero sasapit na naman ang gabi. Kung gusto mong magtanong ulit bumalik ka na lang." 
+
+## Ang Mensahe tungkol sa Arabia 
 
 
 

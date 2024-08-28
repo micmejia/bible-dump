@@ -7,7 +7,9 @@ next: ['Neh 9']
 # Nehemiah 8
 
 ***
-# Nehemias 8 (Ang Salita ng Dios (Tagalog Contemporary Bible)) ###### 2-3 Kaya nang araw na iyon, ang unang araw ng ikapitong buwan, dinala ng paring si Ezra ang Kautusan sa harap ng mga tao – mga lalaki, babae, at mga batang nakakaunawa na. Binasa niya ito sa kanila nang malakas mula sa pagsikat ng araw hanggang tanghali, doon sa plasa na nasa harapan ng Pintuan ng Tubig. At pinakinggang mabuti ng lahat ang Aklat ng Kautusan. 
+# Nehemias 8 (Ang Salita ng Dios (Tagalog Contemporary Bible)) 
+
+###### 2-3 Kaya nang araw na iyon, ang unang araw ng ikapitong buwan, dinala ng paring si Ezra ang Kautusan sa harap ng mga tao – mga lalaki, babae, at mga batang nakakaunawa na. Binasa niya ito sa kanila nang malakas mula sa pagsikat ng araw hanggang tanghali, doon sa plasa na nasa harapan ng Pintuan ng Tubig. At pinakinggang mabuti ng lahat ang Aklat ng Kautusan. 
 
 
 

@@ -502,7 +502,9 @@ Hindi ko po ito kinain habang nagdadalamhati ako; hindi ko ito ginalaw habang it
 
 
 
-Tingnan po ninyo kami mula sa inyong banal na tahanan sa langit, at pagpalain ang mga mamamayan ninyong Israelita at ang maganda at masaganang lupain na ibinigay ninyo sa amin ayon sa ipinangako ninyo sa aming mga ninuno.' ## Sundin ang mga Utos ng Panginoon 
+Tingnan po ninyo kami mula sa inyong banal na tahanan sa langit, at pagpalain ang mga mamamayan ninyong Israelita at ang maganda at masaganang lupain na ibinigay ninyo sa amin ayon sa ipinangako ninyo sa aming mga ninuno.' 
+
+## Sundin ang mga Utos ng Panginoon 
 
 
 

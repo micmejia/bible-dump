@@ -139,7 +139,9 @@ Sinabi ni Jesus, "Sinasabi ko sa inyo ang totoo, mas malaki ang ibinigay ng biyu
 
 
 
-Sapagkat silang lahat ay nagbigay galing sa sobra nilang pera, pero ang biyuda ay nagbigay sa kabila ng kanyang kahirapan. Ibinigay niya ang lahat ng ikabubuhay niya." ## Sinabi ni Jesus ang tungkol sa Pagkawasak ng Templo 
+Sapagkat silang lahat ay nagbigay galing sa sobra nilang pera, pero ang biyuda ay nagbigay sa kabila ng kanyang kahirapan. Ibinigay niya ang lahat ng ikabubuhay niya." 
+
+## Sinabi ni Jesus ang tungkol sa Pagkawasak ng Templo 
 
 
 
@@ -205,7 +207,9 @@ May ilan doon na nag-uusap tungkol sa mga mamahaling bato ng templo at mga palam
 
 
 
-"Darating ang araw na ang lahat ng nakikita ninyong iyan ay magigiba at walang maiiwang bato na magkapatong." ## Mga Paghihirap at Pag-uusig na Darating 
+"Darating ang araw na ang lahat ng nakikita ninyong iyan ay magigiba at walang maiiwang bato na magkapatong." 
+
+## Mga Paghihirap at Pag-uusig na Darating 
 
 
 
@@ -935,7 +939,9 @@ At makikita nila ako na Anak ng Tao na dumarating mula sa ulap na taglay ang kap
 
 
 
-Kapag nagsimula nang mangyari ang mga bagay na ito, umasa kayo at maghintay dahil malapit na ang pagliligtas sa inyo." ## Ang Aral Mula sa Puno ng Igos 
+Kapag nagsimula nang mangyari ang mga bagay na ito, umasa kayo at maghintay dahil malapit na ang pagliligtas sa inyo." 
+
+## Ang Aral Mula sa Puno ng Igos 
 
 
 
@@ -1100,7 +1106,9 @@ Sinasabi ko sa inyo ang totoo, matutupad ang lahat ng ito bago mawala ang henera
 
 
 
-Ang langit at ang lupa ay maglalaho, ngunit ang mga salita ko ay mananatili magpakailanman." ## Maging Handa Kayo 
+Ang langit at ang lupa ay maglalaho, ngunit ang mga salita ko ay mananatili magpakailanman." 
+
+## Maging Handa Kayo 
 
 
 

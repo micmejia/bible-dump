@@ -39,7 +39,9 @@ Therefore that field has been called the Field of Blood to this day.
 Then was fulfilled what was spoken by Jeremiah the prophet, saying, "And they took the thirty pieces of silver, the value of Him who was priced, whom they of the children of Israel priced, 
 
 ###### 10 
-and gave them for the potter's field, as the Lord directed me." ## Jesus Faces Pilate 
+and gave them for the potter's field, as the Lord directed me." 
+
+## Jesus Faces Pilate 
 
 ###### 11 
 Now Jesus stood before the governor. And the governor asked Him, saying, "Are You the King of the Jews?" Jesus said to him, "It is as you say." 

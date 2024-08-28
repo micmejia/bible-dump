@@ -58,7 +58,9 @@ For _in_ six days the Lord made the heavens and the earth, the sea, and all that
 "You shall not bear false witness against your neighbor. 
 
 ###### 17 
-"You shall not covet your neighbor's house; you shall not covet your neighbor's wife, nor his male servant, nor his female servant, nor his ox, nor his donkey, nor anything that _is_ your neighbor's." ## The People Afraid of God's Presence 
+"You shall not covet your neighbor's house; you shall not covet your neighbor's wife, nor his male servant, nor his female servant, nor his ox, nor his donkey, nor anything that _is_ your neighbor's." 
+
+## The People Afraid of God's Presence 
 
 ###### 18 
 Now all the people witnessed the thunderings, the lightning flashes, the sound of the trumpet, and the mountain smoking; and when the people saw _it,_ they trembled and stood afar off. 

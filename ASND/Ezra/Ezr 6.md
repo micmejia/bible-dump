@@ -403,7 +403,9 @@ para makapag-alay sila ng mga handog na makakalugod sa Dios ng kalangitan, at ma
 
 
 
-Nawaʼy ang Dios na pumili sa Jerusalem bilang lugar kung saan siya sasambahin, ang siyang lumipol sa kahit sinong hari o kayaʼy bansa na hindi tutupad sa utos na ito at gigiba ng templong ito sa Jerusalem. "Ako, si Darius, ang nag-utos nito. Dapat itong tuparin." ## Itinalaga ang Templo 
+Nawaʼy ang Dios na pumili sa Jerusalem bilang lugar kung saan siya sasambahin, ang siyang lumipol sa kahit sinong hari o kayaʼy bansa na hindi tutupad sa utos na ito at gigiba ng templong ito sa Jerusalem. "Ako, si Darius, ang nag-utos nito. Dapat itong tuparin." 
+
+## Itinalaga ang Templo 
 
 
 

@@ -469,7 +469,9 @@ si Elifelet, si Jeuel, at si Shemaya at ang 60 lalaking kasama nila, na galing s
 
 
 
-si Utai at si Zacur at ang 70 lalaking kasama niya, na galing sa pamilya ni Bigvai." ## Ang Pagbalik nina sa Ezra sa Jerusalem 
+si Utai at si Zacur at ang 70 lalaking kasama niya, na galing sa pamilya ni Bigvai." 
+
+## Ang Pagbalik nina sa Ezra sa Jerusalem 
 
 
 

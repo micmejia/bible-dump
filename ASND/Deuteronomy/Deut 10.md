@@ -370,7 +370,9 @@ Sinabi pa ni Moises, "Gaya ng ginawa ko noong una, nanatili ako sa bundok sa loo
 
 
 
-Sinabi niya sa akin, 'Lumakad ka at pamunuan ang mga Israelita sa pagpasok at sa pag-angkin sa lupaing ipinangako kong ibibigay sa inyo at sa inyong mga ninuno.' ## Igalang at Sundin ang Panginoon 
+Sinabi niya sa akin, 'Lumakad ka at pamunuan ang mga Israelita sa pagpasok at sa pag-angkin sa lupaing ipinangako kong ibibigay sa inyo at sa inyong mga ninuno.' 
+
+## Igalang at Sundin ang Panginoon 
 
 
 

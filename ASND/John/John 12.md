@@ -271,7 +271,9 @@ Pero sinabi ni Jesus, "Hayaan mo siya. Ibinuhos niya ito sa katawan ko bilang pa
 
 
 
-Lagi nʼyong nakakasama ang mga mahihirap, pero akoʼy hindi nʼyo laging makakasama." ## Ang Planong Pagpatay kay Lazarus 
+Lagi nʼyong nakakasama ang mga mahihirap, pero akoʼy hindi nʼyo laging makakasama." 
+
+## Ang Planong Pagpatay kay Lazarus 
 
 
 
@@ -636,7 +638,9 @@ Kaya marami ang sumalubong kay Jesus, dahil nabalitaan nila ang ginawa niyang hi
 
 
 
-Dahil dito, nag-usap-usap ang mga Pariseo, "Tingnan ninyo, sumusunod na sa kanya ang lahat ng tao, at wala tayong magawa!" ## May mga Griegong Naghanap kay Jesus 
+Dahil dito, nag-usap-usap ang mga Pariseo, "Tingnan ninyo, sumusunod na sa kanya ang lahat ng tao, at wala tayong magawa!" 
+
+## May mga Griegong Naghanap kay Jesus 
 
 
 
@@ -867,7 +871,9 @@ Ang taong labis na nagpapahalaga sa kanyang buhay ay mawawalan nito, ngunit ang 
 
 
 
-Ang sinumang gustong maglingkod sa akin ay dapat sumunod sa akin, at kung nasaan ako naroon din dapat siya. Ang sinumang naglilingkod sa akin ay pararangalan ng Ama." ## Ipinahiwatig ni Jesus ang Kanyang Kamatayan 
+Ang sinumang gustong maglingkod sa akin ay dapat sumunod sa akin, at kung nasaan ako naroon din dapat siya. Ang sinumang naglilingkod sa akin ay pararangalan ng Ama." 
+
+## Ipinahiwatig ni Jesus ang Kanyang Kamatayan 
 
 
 

@@ -669,7 +669,9 @@ Isang araw, pagkatapos mabautismuhan ni Juan ang mga tao, nagpabautismo rin si J
 
 
 
-at bumaba sa kanya ang Banal na Espiritu sa anyo ng isang kalapati. At may boses na narinig mula sa langit na nagsabi, "Ikaw ang minamahal kong Anak; lubos kitang kinalulugdan." ## Ang mga Ninuno ni Jesus 
+at bumaba sa kanya ang Banal na Espiritu sa anyo ng isang kalapati. At may boses na narinig mula sa langit na nagsabi, "Ikaw ang minamahal kong Anak; lubos kitang kinalulugdan." 
+
+## Ang mga Ninuno ni Jesus 
 
 
 

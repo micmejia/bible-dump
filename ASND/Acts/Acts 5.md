@@ -139,7 +139,9 @@ Agad namang nagtanong si Pedro, "Ananias, bakit ka nagpalinlang kay Satanas? Nag
 
 
 
-Hindi baʼt ikaw ang may-ari ng lupang iyon bago mo ibinenta? At nang maibenta na, hindi baʼt nasa sa iyo ang pagpapasya kung ano ang gagawin mo sa pera? Bakit mo pa nagawa ang ganito? Nagsinungaling ka hindi lang sa tao kundi lalung-lalo na sa Dios." ###### 5-6 Pagkarinig noon ni Ananias, natumba siya at namatay. Agad naman siyang nilapitan ng mga binata at binalot ang kanyang bangkay. Pagkatapos, dinala nila siya palabas at inilibing. At ang lahat ng nakarinig sa pangyayaring iyon ay lubhang natakot. 
+Hindi baʼt ikaw ang may-ari ng lupang iyon bago mo ibinenta? At nang maibenta na, hindi baʼt nasa sa iyo ang pagpapasya kung ano ang gagawin mo sa pera? Bakit mo pa nagawa ang ganito? Nagsinungaling ka hindi lang sa tao kundi lalung-lalo na sa Dios." 
+
+###### 5-6 Pagkarinig noon ni Ananias, natumba siya at namatay. Agad naman siyang nilapitan ng mga binata at binalot ang kanyang bangkay. Pagkatapos, dinala nila siya palabas at inilibing. At ang lahat ng nakarinig sa pangyayaring iyon ay lubhang natakot. 
 
 
 

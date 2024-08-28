@@ -72,7 +72,9 @@ And if _any_ of the flesh of the sacrifice of his peace offering is eaten at all
 But the person who eats the flesh of the sacrifice of the peace offering that _belongs_ to the Lord, while he is unclean, that person shall be cut off from his people. 
 
 ###### 21 
-Moreover the person who touches any unclean thing, _such as_ human uncleanness, _an_ unclean animal, or any abominable unclean thing, and who eats the flesh of the sacrifice of the peace offering that _belongs_ to the Lord, that person shall be cut off from his people.' " ## Fat and Blood May Not Be Eaten 
+Moreover the person who touches any unclean thing, _such as_ human uncleanness, _an_ unclean animal, or any abominable unclean thing, and who eats the flesh of the sacrifice of the peace offering that _belongs_ to the Lord, that person shall be cut off from his people.' " 
+
+## Fat and Blood May Not Be Eaten 
 
 ###### 22 
 And the Lord spoke to Moses, saying, 
@@ -90,7 +92,9 @@ For whoever eats the fat of the animal of which men offer an offering made by fi
 Moreover you shall not eat any blood in any of your dwellings, _whether_ of bird or beast. 
 
 ###### 27 
-Whoever eats any blood, that person shall be cut off from his people.' " ## The Portion of Aaron and His Sons 
+Whoever eats any blood, that person shall be cut off from his people.' " 
+
+## The Portion of Aaron and His Sons 
 
 ###### 28 
 Then the Lord spoke to Moses, saying, 

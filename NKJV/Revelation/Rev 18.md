@@ -69,7 +69,9 @@ and cried out when they saw the smoke of her burning, saying, 'What is like this
 "They threw dust on their heads and cried out, weeping and wailing, and saying, 'Alas, alas, that great city, in which all who had ships on the sea became rich by her wealth! For in one hour she is made desolate.' 
 
 ###### 20 
-"Rejoice over her, O heaven, and you holy apostles and prophets, for God has avenged you on her!" ## Finality of Babylon's Fall 
+"Rejoice over her, O heaven, and you holy apostles and prophets, for God has avenged you on her!" 
+
+## Finality of Babylon's Fall 
 
 ###### 21 
 Then a mighty angel took up a stone like a great millstone and threw it into the sea, saying, "Thus with violence the great city Babylon shall be thrown down, and shall not be found anymore. 

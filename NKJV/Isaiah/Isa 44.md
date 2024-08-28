@@ -33,7 +33,9 @@ One will say, 'I am the Lord's'; Another will call himself by the name of Jacob;
 And who can proclaim as I do? Then let him declare it and set it in order for Me, Since I appointed the ancient people. And the things that are coming and shall come, Let them show these to them. 
 
 ###### 8 
-Do not fear, nor be afraid; Have I not told you from that time, and declared it? You are My witnesses. Is there a God besides Me? Indeed there is no other Rock; I know not one.' " ## Idolatry Is Foolishness 
+Do not fear, nor be afraid; Have I not told you from that time, and declared it? You are My witnesses. Is there a God besides Me? Indeed there is no other Rock; I know not one.' " 
+
+## Idolatry Is Foolishness 
 
 ###### 9 
 Those who make an image, all of them are useless, And their precious things shall not profit; They are their own witnesses; They neither see nor know, that they may be ashamed. 
@@ -69,7 +71,9 @@ They do not know nor understand; For He has shut their eyes, so that they cannot
 And no one considers in his heart, Nor is there knowledge nor understanding to say, "I have burned half of it in the fire, Yes, I have also baked bread on its coals; I have roasted meat and eaten it; And shall I make the rest of it an abomination? Shall I fall down before a block of wood?" 
 
 ###### 20 
-He feeds on ashes; A deceived heart has turned him aside; And he cannot deliver his soul, Nor say, "Is there not a lie in my right hand?" ## Israel Is Not Forgotten 
+He feeds on ashes; A deceived heart has turned him aside; And he cannot deliver his soul, Nor say, "Is there not a lie in my right hand?" 
+
+## Israel Is Not Forgotten 
 
 ###### 21 
 "Remember these, O Jacob, And Israel, for you are My servant; I have formed you, you are My servant; O Israel, you will not be forgotten by Me! 

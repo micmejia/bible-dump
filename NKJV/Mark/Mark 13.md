@@ -13,7 +13,9 @@ next: ['Mark 14']
 Then as He went out of the temple, one of His disciples said to Him, "Teacher, see what manner of stones and what buildings are here!" 
 
 ###### 2 
-And Jesus answered and said to him, "Do you see these great buildings? Not one stone shall be left upon another, that shall not be thrown down." ## The Signs of the Times and the End of the Age 
+And Jesus answered and said to him, "Do you see these great buildings? Not one stone shall be left upon another, that shall not be thrown down." 
+
+## The Signs of the Times and the End of the Age 
 
 ###### 3 
 Now as He sat on the Mount of Olives opposite the temple, Peter, James, John, and Andrew asked Him privately, 

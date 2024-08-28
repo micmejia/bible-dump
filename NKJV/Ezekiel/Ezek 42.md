@@ -49,7 +49,9 @@ And corresponding to the doors of the chambers that were facing south, as one en
 Then he said to me, "The north chambers and the south chambers, which are opposite the separating courtyard, are the holy chambers where the priests who approach the Lord shall eat the most holy offerings. There they shall lay the most holy offerings--the grain offering, the sin offering, and the trespass offering--for the place is holy. 
 
 ###### 14 
-When the priests enter them, they shall not go out of the holy chamber into the outer court; but there they shall leave their garments in which they minister, for they are holy. They shall put on other garments; then they may approach that which is for the people." ## Outer Dimensions of the Temple 
+When the priests enter them, they shall not go out of the holy chamber into the outer court; but there they shall leave their garments in which they minister, for they are holy. They shall put on other garments; then they may approach that which is for the people." 
+
+## Outer Dimensions of the Temple 
 
 ###### 15 
 Now when he had finished measuring the inner temple, he brought me out through the gateway that faces toward the east, and measured it all around. 

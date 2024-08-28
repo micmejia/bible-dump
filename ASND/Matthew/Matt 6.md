@@ -139,7 +139,9 @@ Sa halip, kung magbibigay kayo ng tulong, huwag na ninyo itong ipaalam kahit sa 
 
 
 
-upang maging lihim ang pagbibigay ninyo. At ang inyong Amang nakakakita sa ginagawa ninyo nang lihim ang siyang magbibigay ng gantimpala sa inyo." ## Ang Turo tungkol sa Pananalangin 
+upang maging lihim ang pagbibigay ninyo. At ang inyong Amang nakakakita sa ginagawa ninyo nang lihim ang siyang magbibigay ng gantimpala sa inyo." 
+
+## Ang Turo tungkol sa Pananalangin 
 
 
 
@@ -502,7 +504,9 @@ Kung pinapatawad ninyo ang mga taong nagkasala sa inyo, patatawarin din kayo ng 
 
 
 
-Ngunit kung hindi ninyo sila pinapatawad, hindi rin kayo patatawarin ng inyong Ama." ## Ang Turo tungkol sa Pag-aayuno 
+Ngunit kung hindi ninyo sila pinapatawad, hindi rin kayo patatawarin ng inyong Ama." 
+
+## Ang Turo tungkol sa Pag-aayuno 
 
 
 
@@ -601,7 +605,9 @@ Sa halip, kung mag-aayuno kayo, maghilamos at mag-ayos kayo ng sarili,
 
 
 
-upang hindi malaman ng mga tao na nag-aayuno kayo, maliban sa inyong Ama na hindi nakikita. At ang inyong Ama na nakakakita sa ginagawa ninyo nang lihim ang magbibigay ng gantimpala sa inyo." ## Ang Kayamanan sa Langit 
+upang hindi malaman ng mga tao na nag-aayuno kayo, maliban sa inyong Ama na hindi nakikita. At ang inyong Ama na nakakakita sa ginagawa ninyo nang lihim ang magbibigay ng gantimpala sa inyo." 
+
+## Ang Kayamanan sa Langit 
 
 
 
@@ -700,7 +706,9 @@ Sa halip, mag-ipon kayo ng kayamanan sa langit, kung saan walang insekto at kala
 
 
 
-Sapagkat kung nasaan ang inyong kayamanan, naroon din ang inyong puso." ## Ang Ilaw ng Katawan 
+Sapagkat kung nasaan ang inyong kayamanan, naroon din ang inyong puso." 
+
+## Ang Ilaw ng Katawan 
 
 
 
@@ -766,7 +774,9 @@ Sapagkat kung nasaan ang inyong kayamanan, naroon din ang inyong puso." ## Ang I
 
 
 
-Ngunit kung malabo ang iyong mata, madidiliman ang buo mong katawan. Kaya kung ang nagsisilbing ilaw mo ay walang ibinibigay na liwanag, napakadilim ng kalagayan mo." ## Sino ang Dapat Nating Paglingkuran, Ang Dios o ang Kayamanan? 
+Ngunit kung malabo ang iyong mata, madidiliman ang buo mong katawan. Kaya kung ang nagsisilbing ilaw mo ay walang ibinibigay na liwanag, napakadilim ng kalagayan mo." 
+
+## Sino ang Dapat Nating Paglingkuran, Ang Dios o ang Kayamanan? 
 
 
 

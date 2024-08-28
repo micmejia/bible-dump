@@ -42,7 +42,9 @@ Now give me wisdom and knowledge, that I may go out and come in before this peop
 Then God said to Solomon: "Because this was in your heart, and you have not asked riches or wealth or honor or the life of your enemies, nor have you asked long life--but have asked wisdom and knowledge for yourself, that you may judge My people over whom I have made you king-- 
 
 ###### 12 
-wisdom and knowledge _are_ granted to you; and I will give you riches and wealth and honor, such as none of the kings have had who _were_ before you, nor shall any after you have the like." ## Solomon's Military and Economic Power 
+wisdom and knowledge _are_ granted to you; and I will give you riches and wealth and honor, such as none of the kings have had who _were_ before you, nor shall any after you have the like." 
+
+## Solomon's Military and Economic Power 
 
 ###### 13 
 So Solomon came to Jerusalem from the high place that _was_ at Gibeon, from before the tabernacle of meeting, and reigned over Israel. 

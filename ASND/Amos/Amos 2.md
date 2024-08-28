@@ -106,7 +106,9 @@ Kaya susunugin ko ang Moab pati na ang matitibay na bahagi ng Keriot. Mamamatay 
 
 
 
-Mamamatay pati ang kanilang hari at ang lahat ng kanyang mga opisyal. Ako, ang Panginoon, ang nagsasabi nito." ## Ang Parusa sa Bansang Juda 
+Mamamatay pati ang kanilang hari at ang lahat ng kanyang mga opisyal. Ako, ang Panginoon, ang nagsasabi nito." 
+
+## Ang Parusa sa Bansang Juda 
 
 
 
@@ -172,7 +174,9 @@ Ito ang sinasabi ng Panginoon tungkol sa Juda: "Dahil sa patuloy na pagkakasala 
 
 
 
-Kaya susunugin ko ang Juda pati na ang matitibay na bahagi ng Jerusalem." ## Ang Parusa sa Bansang Israel 
+Kaya susunugin ko ang Juda pati na ang matitibay na bahagi ng Jerusalem." 
+
+## Ang Parusa sa Bansang Israel 
 
 
 

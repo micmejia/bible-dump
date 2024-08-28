@@ -51,7 +51,9 @@ For it is shameful even to speak of those things which are done by them in secre
 But all things that are exposed are made manifest by the light, for whatever makes manifest is light. 
 
 ###### 14 
-Therefore He says: "Awake, you who sleep, Arise from the dead, And Christ will give you light." ## Walk in Wisdom 
+Therefore He says: "Awake, you who sleep, Arise from the dead, And Christ will give you light." 
+
+## Walk in Wisdom 
 
 ###### 15 
 See then that you walk circumspectly, not as fools but as wise, 

@@ -24,7 +24,9 @@ Therefore say to them, 'Thus says the Lord of hosts: "Return to Me," says the Lo
 "Your fathers, where are they? And the prophets, do they live forever? 
 
 ###### 6 
-Yet surely My words and My statutes, Which I commanded My servants the prophets, Did they not overtake your fathers? "So they returned and said: 'Just as the Lord of hosts determined to do to us, According to our ways and according to our deeds, So He has dealt with us.' " ' " ## Vision of the Horses 
+Yet surely My words and My statutes, Which I commanded My servants the prophets, Did they not overtake your fathers? "So they returned and said: 'Just as the Lord of hosts determined to do to us, According to our ways and according to our deeds, So He has dealt with us.' " ' " 
+
+## Vision of the Horses 
 
 ###### 7 
 On the twenty-fourth day of the eleventh month, which is the month Shebat, in the second year of Darius, the word of the Lord came to Zechariah the son of Berechiah, the son of Iddo the prophet: 
@@ -39,7 +41,9 @@ Then I said, "My lord, what are these?" So the angel who talked with me said to 
 And the man who stood among the myrtle trees answered and said, "These are the ones whom the Lord has sent to walk to and fro throughout the earth." 
 
 ###### 11 
-So they answered the Angel of the Lord, who stood among the myrtle trees, and said, "We have walked to and fro throughout the earth, and behold, all the earth is resting quietly." ## The Lord Will Comfort Zion 
+So they answered the Angel of the Lord, who stood among the myrtle trees, and said, "We have walked to and fro throughout the earth, and behold, all the earth is resting quietly." 
+
+## The Lord Will Comfort Zion 
 
 ###### 12 
 Then the Angel of the Lord answered and said, "O Lord of hosts, how long will You not have mercy on Jerusalem and on the cities of Judah, against which You were angry these seventy years?" 
@@ -57,7 +61,9 @@ I am exceedingly angry with the nations at ease; For I was a little angry, And t
 'Therefore thus says the Lord: "I am returning to Jerusalem with mercy; My house shall be built in it," says the Lord of hosts, "And a surveyor's line shall be stretched out over Jerusalem." ' 
 
 ###### 17 
-"Again proclaim, saying, 'Thus says the Lord of hosts: "My cities shall again spread out through prosperity; The Lord will again comfort Zion, And will again choose Jerusalem." ' " ## Vision of the Horns 
+"Again proclaim, saying, 'Thus says the Lord of hosts: "My cities shall again spread out through prosperity; The Lord will again comfort Zion, And will again choose Jerusalem." ' " 
+
+## Vision of the Horns 
 
 ###### 18 
 Then I raised my eyes and looked, and there were four horns. 

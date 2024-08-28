@@ -45,7 +45,9 @@ let it be known to you all, and to all the people of Israel, that by the name of
 This is the 'stone which was rejected by you builders, which has become the chief cornerstone.' 
 
 ###### 12 
-Nor is there salvation in any other, for there is no other name under heaven given among men by which we must be saved." ## The Name of Jesus Forbidden 
+Nor is there salvation in any other, for there is no other name under heaven given among men by which we must be saved." 
+
+## The Name of Jesus Forbidden 
 
 ###### 13 
 Now when they saw the boldness of Peter and John, and perceived that they were uneducated and untrained men, they marveled. And they realized that they had been with Jesus. 

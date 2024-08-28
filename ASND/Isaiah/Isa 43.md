@@ -436,7 +436,9 @@ Nagpahayag ako na ililigtas ko kayo, at tinupad ko nga ito. Walang ibang Dios na
 
 
 
-Mula pa noon ako na ang Dios. Walang makakatakas sa aking mga kamay. Walang makakapagbago ng mga ginagawa ko." ## Nangako ang Dios na Tutulungan niya ang Kanyang mga Mamamayan 
+Mula pa noon ako na ang Dios. Walang makakatakas sa aking mga kamay. Walang makakapagbago ng mga ginagawa ko." 
+
+## Nangako ang Dios na Tutulungan niya ang Kanyang mga Mamamayan 
 
 
 

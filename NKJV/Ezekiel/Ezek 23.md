@@ -118,7 +118,9 @@ You will be filled with drunkenness and sorrow, The cup of horror and desolation
 You shall drink and drain it, You shall break its shards, And tear at your own breasts; For I have spoken,' Says the Lord God. 
 
 ###### 35 
-"Therefore thus says the Lord God: 'Because you have forgotten Me and cast Me behind your back, Therefore you shall bear the penalty Of your lewdness and your harlotry.' " ## Both Sisters Judged 
+"Therefore thus says the Lord God: 'Because you have forgotten Me and cast Me behind your back, Therefore you shall bear the penalty Of your lewdness and your harlotry.' " 
+
+## Both Sisters Judged 
 
 ###### 36 
 The Lord also said to me: "Son of man, will you judge Oholah and Oholibah? Then declare to them their abominations. 

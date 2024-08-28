@@ -73,7 +73,9 @@ Dinala ako roon ng Panginoon at may nakita akong isang tao na ang mukha ay paran
 
 
 
-Sinabi sa akin ng taong iyon, "Anak ng tao, makinig ka at tingnan mong mabuti ang ipapakita ko sa iyo dahil ito ang dahilan kung bakit kita dinala rito. Pagkatapos, sabihin mo sa mga mamamayan ng Israel ang lahat ng nakita mo." ## Ang Pintuan sa Gawing Silangan 
+Sinabi sa akin ng taong iyon, "Anak ng tao, makinig ka at tingnan mong mabuti ang ipapakita ko sa iyo dahil ito ang dahilan kung bakit kita dinala rito. Pagkatapos, sabihin mo sa mga mamamayan ng Israel ang lahat ng nakita mo." 
+
+## Ang Pintuan sa Gawing Silangan 
 
 
 

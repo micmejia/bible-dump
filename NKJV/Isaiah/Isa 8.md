@@ -37,7 +37,9 @@ He will pass through Judah, He will overflow and pass over, He will reach up to 
 "Be shattered, O you peoples, and be broken in pieces! Give ear, all you from far countries. Gird yourselves, but be broken in pieces; Gird yourselves, but be broken in pieces. 
 
 ###### 10 
-Take counsel together, but it will come to nothing; Speak the word, but it will not stand, For God _is_ with us." ## Fear God, Heed His Word 
+Take counsel together, but it will come to nothing; Speak the word, but it will not stand, For God _is_ with us." 
+
+## Fear God, Heed His Word 
 
 ###### 11 
 For the Lord spoke thus to me with a strong hand, and instructed me that I should not walk in the way of this people, saying: 

@@ -73,13 +73,17 @@ And it happened, as He was alone praying, that His disciples joined Him, and He 
 So they answered and said, "John the Baptist, but some say Elijah; and others say that one of the old prophets has risen again." 
 
 ###### 20 
-He said to them, "But who do you say that I am?" Peter answered and said, "The Christ of God." ## Jesus Predicts His Death and Resurrection 
+He said to them, "But who do you say that I am?" Peter answered and said, "The Christ of God." 
+
+## Jesus Predicts His Death and Resurrection 
 
 ###### 21 
 And He strictly warned and commanded them to tell this to no one, 
 
 ###### 22 
-saying, "The Son of Man must suffer many things, and be rejected by the elders and chief priests and scribes, and be killed, and be raised the third day." ## Take Up the Cross and Follow Him 
+saying, "The Son of Man must suffer many things, and be rejected by the elders and chief priests and scribes, and be killed, and be raised the third day." 
+
+## Take Up the Cross and Follow Him 
 
 ###### 23 
 Then He said to them all, "If anyone desires to come after Me, let him deny himself, and take up his cross daily, and follow Me. 
@@ -94,7 +98,9 @@ For what profit is it to a man if he gains the whole world, and is himself destr
 For whoever is ashamed of Me and My words, of him the Son of Man will be ashamed when He comes in His own glory, and in His Father's, and of the holy angels. 
 
 ###### 27 
-But I tell you truly, there are some standing here who shall not taste death till they see the kingdom of God." ## Jesus Transfigured on the Mount 
+But I tell you truly, there are some standing here who shall not taste death till they see the kingdom of God." 
+
+## Jesus Transfigured on the Mount 
 
 ###### 28 
 Now it came to pass, about eight days after these sayings, that He took Peter, John, and James and went up on the mountain to pray. 
@@ -163,13 +169,17 @@ Then a dispute arose among them as to which of them would be greatest.
 And Jesus, perceiving the thought of their heart, took a little child and set him by Him, 
 
 ###### 48 
-and said to them, "Whoever receives this little child in My name receives Me; and whoever receives Me receives Him who sent Me. For he who is least among you all will be great." ## Jesus Forbids Sectarianism 
+and said to them, "Whoever receives this little child in My name receives Me; and whoever receives Me receives Him who sent Me. For he who is least among you all will be great." 
+
+## Jesus Forbids Sectarianism 
 
 ###### 49 
 Now John answered and said, "Master, we saw someone casting out demons in Your name, and we forbade him because he does not follow with us." 
 
 ###### 50 
-But Jesus said to him, "Do not forbid him, for he who is not against us is on our side." ## A Samaritan Village Rejects the Savior 
+But Jesus said to him, "Do not forbid him, for he who is not against us is on our side." 
+
+## A Samaritan Village Rejects the Savior 
 
 ###### 51 
 Now it came to pass, when the time had come for Him to be received up, that He steadfastly set His face to go to Jerusalem, 

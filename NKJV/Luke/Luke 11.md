@@ -19,7 +19,9 @@ So He said to them, "When you pray, say: Our Father in heaven, Hallowed be Your 
 Give us day by day our daily bread. 
 
 ###### 4 
-And forgive us our sins, For we also forgive everyone who is indebted to us. And do not lead us into temptation, But deliver us from the evil one." ## A Friend Comes at Midnight 
+And forgive us our sins, For we also forgive everyone who is indebted to us. And do not lead us into temptation, But deliver us from the evil one." 
+
+## A Friend Comes at Midnight 
 
 ###### 5 
 And He said to them, "Which of you shall have a friend, and go to him at midnight and say to him, 'Friend, lend me three loaves; 
@@ -48,7 +50,9 @@ If a son asks for bread from any father among you, will he give him a stone? Or 
 Or if he asks for an egg, will he offer him a scorpion? 
 
 ###### 13 
-If you then, being evil, know how to give good gifts to your children, how much more will your heavenly Father give the Holy Spirit to those who ask Him!" ## A House Divided Cannot Stand 
+If you then, being evil, know how to give good gifts to your children, how much more will your heavenly Father give the Holy Spirit to those who ask Him!" 
+
+## A House Divided Cannot Stand 
 
 ###### 14 
 And He was casting out a demon, and it was mute. So it was, when the demon had gone out, that the mute spoke; and the multitudes marveled. 
@@ -89,13 +93,17 @@ He who is not with Me is against Me, and he who does not gather with Me scatters
 And when he comes, he finds it swept and put in order. 
 
 ###### 26 
-Then he goes and takes with him seven other spirits more wicked than himself, and they enter and dwell there; and the last state of that man is worse than the first." ## Keeping the Word 
+Then he goes and takes with him seven other spirits more wicked than himself, and they enter and dwell there; and the last state of that man is worse than the first." 
+
+## Keeping the Word 
 
 ###### 27 
 And it happened, as He spoke these things, that a certain woman from the crowd raised her voice and said to Him, "Blessed is the womb that bore You, and the breasts which nursed You!" 
 
 ###### 28 
-But He said, "More than that, blessed are those who hear the word of God and keep it!" ## Seeking a Sign 
+But He said, "More than that, blessed are those who hear the word of God and keep it!" 
+
+## Seeking a Sign 
 
 ###### 29 
 And while the crowds were thickly gathered together, He began to say, "This is an evil generation. It seeks a sign, and no sign will be given to it except the sign of Jonah the prophet. 
@@ -121,7 +129,9 @@ The lamp of the body is the eye. Therefore, when your eye is good, your whole bo
 Therefore take heed that the light which is in you is not darkness. 
 
 ###### 36 
-If then your whole body is full of light, having no part dark, the whole body will be full of light, as when the bright shining of a lamp gives you light." ## Woe to the Pharisees and Lawyers 
+If then your whole body is full of light, having no part dark, the whole body will be full of light, as when the bright shining of a lamp gives you light." 
+
+## Woe to the Pharisees and Lawyers 
 
 ###### 37 
 And as He spoke, a certain Pharisee asked Him to dine with him. So He went in and sat down to eat. 

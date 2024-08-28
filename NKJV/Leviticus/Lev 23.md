@@ -35,7 +35,9 @@ And on the fifteenth day of the same month _is_ the Feast of Unleavened Bread to
 On the first day you shall have a holy convocation; you shall do no customary work on it. 
 
 ###### 8 
-But you shall offer an offering made by fire to the Lord for seven days. The seventh day _shall be_ a holy convocation; you shall do no customary work _on it_.' " ## The Feast of Firstfruits 
+But you shall offer an offering made by fire to the Lord for seven days. The seventh day _shall be_ a holy convocation; you shall do no customary work _on it_.' " 
+
+## The Feast of Firstfruits 
 
 ###### 9 
 And the Lord spoke to Moses, saying, 
@@ -79,7 +81,9 @@ The priest shall wave them with the bread of the firstfruits _as_ a wave offerin
 And you shall proclaim on the same day _that_ it is a holy convocation to you. You shall do no customary work _on it_. _It shall be_ a statute forever in all your dwellings throughout your generations. 
 
 ###### 22 
-'When you reap the harvest of your land, you shall not wholly reap the corners of your field when you reap, nor shall you gather any gleaning from your harvest. You shall leave them for the poor and for the stranger: I _am_ the Lord your God.' " ## The Feast of Trumpets 
+'When you reap the harvest of your land, you shall not wholly reap the corners of your field when you reap, nor shall you gather any gleaning from your harvest. You shall leave them for the poor and for the stranger: I _am_ the Lord your God.' " 
+
+## The Feast of Trumpets 
 
 ###### 23 
 Then the Lord spoke to Moses, saying, 
@@ -88,7 +92,9 @@ Then the Lord spoke to Moses, saying,
 "Speak to the children of Israel, saying: 'In the seventh month, on the first _day_ of the month, you shall have a sabbath-_rest_, a memorial of blowing of trumpets, a holy convocation. 
 
 ###### 25 
-You shall do no customary work _on it;_ and you shall offer an offering made by fire to the Lord.' " ## The Day of Atonement 
+You shall do no customary work _on it;_ and you shall offer an offering made by fire to the Lord.' " 
+
+## The Day of Atonement 
 
 ###### 26 
 And the Lord spoke to Moses, saying: 
@@ -109,7 +115,9 @@ And any person who does any work on that same day, that person I will destroy fr
 You shall do no manner of work; _it shall be_ a statute forever throughout your generations in all your dwellings. 
 
 ###### 32 
-It _shall be_ to you a sabbath of _solemn_ rest, and you shall afflict your souls; on the ninth _day_ of the month at evening, from evening to evening, you shall celebrate your sabbath." ## The Feast of Tabernacles 
+It _shall be_ to you a sabbath of _solemn_ rest, and you shall afflict your souls; on the ninth _day_ of the month at evening, from evening to evening, you shall celebrate your sabbath." 
+
+## The Feast of Tabernacles 
 
 ###### 33 
 Then the Lord spoke to Moses, saying, 

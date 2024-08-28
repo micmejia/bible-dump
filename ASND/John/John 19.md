@@ -1234,7 +1234,9 @@ Nangyari ang mga bagay na ito upang matupad ang sinasabi sa Kasulatan: "Walang m
 
 
 
-Sinasabi rin sa isa pang bahagi ng Kasulatan, "Pagmamasdan nila ang taong sinaksak nila." ## Ang Paglilibing kay Jesus 
+Sinasabi rin sa isa pang bahagi ng Kasulatan, "Pagmamasdan nila ang taong sinaksak nila." 
+
+## Ang Paglilibing kay Jesus 
 
 
 

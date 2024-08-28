@@ -238,7 +238,9 @@ sinabi ni Isaias sa kanila, "Sabihin ninyo sa inyong amo na ito ang sinasabi ng 
 
 
 
-Pakinggan mo! Pupuspusin ko ng espiritu ang hari ng Asiria. Makakarinig siya ng balita na magpapabalik sa kanya sa sarili niyang bansa. At doon ko siya ipapapatay sa pamamagitan ng espada.' " ## Muling Pinagbantaan ng Asiria ang Juda 
+Pakinggan mo! Pupuspusin ko ng espiritu ang hari ng Asiria. Makakarinig siya ng balita na magpapabalik sa kanya sa sarili niyang bansa. At doon ko siya ipapapatay sa pamamagitan ng espada.' " 
+
+## Muling Pinagbantaan ng Asiria ang Juda 
 
 
 
@@ -436,7 +438,9 @@ Nailigtas ba ang mga bansang ito ng dios nila? Ang mga lungsod ng Gozan, Haran, 
 
 
 
-May nagawa ba ang hari ng Hamat, Arpad, Sefarvaim, Hena at Iva?' " ## Ang Panalangin ni Hezekia 
+May nagawa ba ang hari ng Hamat, Arpad, Sefarvaim, Hena at Iva?' " 
+
+## Ang Panalangin ni Hezekia 
 
 
 

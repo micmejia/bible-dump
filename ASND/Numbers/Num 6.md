@@ -700,7 +700,9 @@ Pagkatapos, kukunin ito ng pari at itataas sa presensya ng Panginoon bilang hand
 
 
 
-"Ito ang tuntunin para sa isang Nazareo. Pero kung mangangako ang isang Nazareo na maghahandog siya sa Panginoon na sobra sa ipinatutupad sa kanyang panata, dapat niya itong sundin." ## Ang Pagbendisyon ng mga Pari 
+"Ito ang tuntunin para sa isang Nazareo. Pero kung mangangako ang isang Nazareo na maghahandog siya sa Panginoon na sobra sa ipinatutupad sa kanyang panata, dapat niya itong sundin." 
+
+## Ang Pagbendisyon ng mga Pari 
 
 
 

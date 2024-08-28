@@ -304,7 +304,9 @@ Tinanong ako ng Panginoon, "Amos, ano ang nakikita mo?" Sumagot ako, "Hulog po."
 
 
 
-Gigibain ko ang mga sambahan sa matataas na lugar na sinasambahan ng mga Israelita na lahi ni Isaac. At ipapasalakay ko sa mga kaaway ng Israel ang kaharian ni Haring Jeroboam." ## Si Amos at si Amazia 
+Gigibain ko ang mga sambahan sa matataas na lugar na sinasambahan ng mga Israelita na lahi ni Isaac. At ipapasalakay ko sa mga kaaway ng Israel ang kaharian ni Haring Jeroboam." 
+
+## Si Amos at si Amazia 
 
 
 

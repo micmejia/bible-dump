@@ -161,7 +161,9 @@ and that repentance and remission of sins should be preached in His name to all 
 And you are witnesses of these things. 
 
 ###### 49 
-Behold, I send the Promise of My Father upon you; but tarry in the city of Jerusalem until you are endued with power from on high." ## The Ascension 
+Behold, I send the Promise of My Father upon you; but tarry in the city of Jerusalem until you are endued with power from on high." 
+
+## The Ascension 
 
 ###### 50 
 And He led them out as far as Bethany, and He lifted up His hands and blessed them. 

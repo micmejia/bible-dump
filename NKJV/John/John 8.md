@@ -43,7 +43,9 @@ When Jesus had raised Himself up and saw no one but the woman, He said to her, "
 She said, "No one, Lord." And Jesus said to her, "Neither do I condemn you; go and sin no more." 
 
 ###### 12 
-Then Jesus spoke to them again, saying, "I am the light of the world. He who follows Me shall not walk in darkness, but have the light of life." ## Jesus Defends His Self-Witness 
+Then Jesus spoke to them again, saying, "I am the light of the world. He who follows Me shall not walk in darkness, but have the light of life." 
+
+## Jesus Defends His Self-Witness 
 
 ###### 13 
 The Pharisees therefore said to Him, "You bear witness of Yourself; Your witness is not true." 
@@ -154,7 +156,9 @@ But because I tell the truth, you do not believe Me.
 Which of you convicts Me of sin? And if I tell the truth, why do you not believe Me? 
 
 ###### 47 
-He who is of God hears God's words; therefore you do not hear, because you are not of God." ## Before Abraham Was, I AM 
+He who is of God hears God's words; therefore you do not hear, because you are not of God." 
+
+## Before Abraham Was, I AM 
 
 ###### 48 
 Then the Jews answered and said to Him, "Do we not say rightly that You are a Samaritan and have a demon?" 

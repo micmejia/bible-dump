@@ -106,7 +106,9 @@ Sa loob ng anim na araw, gawin ninyo ang mga gawain ninyo, pero sa ikapitong ara
 
 
 
-Kaya huwag na huwag kayong magtatrabaho, kahit na magsindi ng apoy sa bahay ninyo para magluto sa araw na iyon." ## Ang mga Handog para sa Toldang Sambahan 
+Kaya huwag na huwag kayong magtatrabaho, kahit na magsindi ng apoy sa bahay ninyo para magluto sa araw na iyon." 
+
+## Ang mga Handog para sa Toldang Sambahan 
 
 
 

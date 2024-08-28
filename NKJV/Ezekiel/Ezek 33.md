@@ -40,7 +40,9 @@ Nevertheless if you warn the wicked to turn from his way, and he does not turn f
 "Therefore you, O son of man, say to the house of Israel: 'Thus you say, "If our transgressions and our sins lie upon us, and we pine away in them, how can we then live?" ' 
 
 ###### 11 
-Say to them: 'As I live,' says the Lord God, 'I have no pleasure in the death of the wicked, but that the wicked turn from his way and live. Turn, turn from your evil ways! For why should you die, O house of Israel?' ## The Fairness of God's Judgment 
+Say to them: 'As I live,' says the Lord God, 'I have no pleasure in the death of the wicked, but that the wicked turn from his way and live. Turn, turn from your evil ways! For why should you die, O house of Israel?' 
+
+## The Fairness of God's Judgment 
 
 ###### 12 
 "Therefore you, O son of man, say to the children of your people: 'The righteousness of the righteous man shall not deliver him in the day of his transgression; as for the wickedness of the wicked, he shall not fall because of it in the day that he turns from his wickedness; nor shall the righteous be able to live because of his righteousness in the day that he sins.' 
@@ -67,7 +69,9 @@ When the righteous turns from his righteousness and commits iniquity, he shall d
 But when the wicked turns from his wickedness and does what is lawful and right, he shall live because of it. 
 
 ###### 20 
-Yet you say, 'The way of the Lord is not fair.' O house of Israel, I will judge every one of you according to his own ways." ## The Fall of Jerusalem 
+Yet you say, 'The way of the Lord is not fair.' O house of Israel, I will judge every one of you according to his own ways." 
+
+## The Fall of Jerusalem 
 
 ###### 21 
 And it came to pass in the twelfth year of our captivity, in the tenth month, on the fifth day of the month, that one who had escaped from Jerusalem came to me and said, "The city has been captured!" 
@@ -96,7 +100,9 @@ You rely on your sword, you commit abominations, and you defile one another's wi
 For I will make the land most desolate, her arrogant strength shall cease, and the mountains of Israel shall be so desolate that no one will pass through. 
 
 ###### 29 
-Then they shall know that I am the Lord, when I have made the land most desolate because of all their abominations which they have committed." ' ## Hearing and Not Doing 
+Then they shall know that I am the Lord, when I have made the land most desolate because of all their abominations which they have committed." ' 
+
+## Hearing and Not Doing 
 
 ###### 30 
 "As for you, son of man, the children of your people are talking about you beside the walls and in the doors of the houses; and they speak to one another, everyone saying to his brother, 'Please come and hear what the word is that comes from the Lord.' 

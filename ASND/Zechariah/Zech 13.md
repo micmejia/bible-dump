@@ -139,7 +139,9 @@ Sa halip sasabihin nilang, 'Hindi ako propeta. Isa akong magbubukid mula noong b
 
 
 
-At kung may magtatanong tungkol sa mga sugat nila sa katawan, sasabihin nila, 'Nakuha ko ito sa bahay ng aking mga kaibigan.' " ## Mamamatay ang Pastol at Mangangalat ang Kanyang mga Tupa 
+At kung may magtatanong tungkol sa mga sugat nila sa katawan, sasabihin nila, 'Nakuha ko ito sa bahay ng aking mga kaibigan.' " 
+
+## Mamamatay ang Pastol at Mangangalat ang Kanyang mga Tupa 
 
 
 

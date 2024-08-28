@@ -601,7 +601,9 @@ At tungkol naman sa mga taong naniniwala sa sinabi nila, ang mga bangkay nilaʼy
 
 
 
-Kung pupunta ako sa mga bukid at lungsod, nakikita ko ang mga bangkay ng mga namatay sa digmaan at taggutom. Ang mga propeta at pari ay patuloy sa gawain nila pero hindi nila alam kung ano ang ginagawa nila." ## Lumapit ang mga Tao sa Panginoon 
+Kung pupunta ako sa mga bukid at lungsod, nakikita ko ang mga bangkay ng mga namatay sa digmaan at taggutom. Ang mga propeta at pari ay patuloy sa gawain nila pero hindi nila alam kung ano ang ginagawa nila." 
+
+## Lumapit ang mga Tao sa Panginoon 
 
 
 

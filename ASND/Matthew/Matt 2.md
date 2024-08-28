@@ -438,7 +438,9 @@ Kaya nang gabi ring iyon, umalis papuntang Egipto si Jose, kasama ang bata at an
 
 
 
-At nanatili sila roon hanggang sa mamatay si Herodes. Sa gayon, natupad ang sinabi ng Panginoon sa pamamagitan ng propeta, "Tinawag ko mula sa Egipto ang aking anak." ## Ipinapatay ni Herodes ang mga Batang Lalaki 
+At nanatili sila roon hanggang sa mamatay si Herodes. Sa gayon, natupad ang sinabi ng Panginoon sa pamamagitan ng propeta, "Tinawag ko mula sa Egipto ang aking anak." 
+
+## Ipinapatay ni Herodes ang mga Batang Lalaki 
 
 
 
@@ -537,7 +539,9 @@ Sa ginawang kalupitan ni Herodes, natupad ang sinabi ni Propeta Jeremias,
 
 
 
-"May narinig na iyakan at malakas na panaghoy sa Rama. Iniiyakan ni Raquel ang pagkamatay ng kanyang mga anak, at ayaw niyang magpaaliw dahil patay na ang mga ito." ## Ang Pagbabalik Mula sa Egipto 
+"May narinig na iyakan at malakas na panaghoy sa Rama. Iniiyakan ni Raquel ang pagkamatay ng kanyang mga anak, at ayaw niyang magpaaliw dahil patay na ang mga ito." 
+
+## Ang Pagbabalik Mula sa Egipto 
 
 
 

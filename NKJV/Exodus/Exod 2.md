@@ -37,7 +37,9 @@ And Pharaoh's daughter said to her, "Go." So the maiden went and called the chil
 Then Pharaoh's daughter said to her, "Take this child away and nurse him for me, and I will give _you_ your wages." So the woman took the child and nursed him. 
 
 ###### 10 
-And the child grew, and she brought him to Pharaoh's daughter, and he became her son. So she called his name Moses, saying, "Because I drew him out of the water." ## Moses Flees to Midian 
+And the child grew, and she brought him to Pharaoh's daughter, and he became her son. So she called his name Moses, saying, "Because I drew him out of the water." 
+
+## Moses Flees to Midian 
 
 ###### 11 
 Now it came to pass in those days, when Moses was grown, that he went out to his brethren and looked at their burdens. And he saw an Egyptian beating a Hebrew, one of his brethren. 

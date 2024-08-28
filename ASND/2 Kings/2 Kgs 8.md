@@ -205,7 +205,9 @@ Habang ikinukwento ni Gehazi sa hari kung paano binuhay ni Eliseo ang isang bata
 
 
 
-Tinanong ng hari ang babae kung totoo ba ang tungkol doon at sinabi ng babae na totoo iyon. Kaya nagpatawag ang hari ng isang opisyal para tulungan ang babae. Sinabi niya sa opisyal, "Tulungan mo siyang maibalik ang lahat ng nawala sa kanya, kasama ang lahat ng perang dapat kinita niya na galing sa bukid niya mula nang siyaʼy umalis hanggang ngayon." ## Pinatay ni Hazael si Ben Hadad 
+Tinanong ng hari ang babae kung totoo ba ang tungkol doon at sinabi ng babae na totoo iyon. Kaya nagpatawag ang hari ng isang opisyal para tulungan ang babae. Sinabi niya sa opisyal, "Tulungan mo siyang maibalik ang lahat ng nawala sa kanya, kasama ang lahat ng perang dapat kinita niya na galing sa bukid niya mula nang siyaʼy umalis hanggang ngayon." 
+
+## Pinatay ni Hazael si Ben Hadad 
 
 
 

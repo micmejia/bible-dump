@@ -702,7 +702,9 @@ Sumagot si Jesus, "Dahil mahina ang pananampalataya ninyo. Sinasabi ko sa inyo a
 
 
 
-[Ngunit ang ganoong uri ng masamang espiritu ay mapapalayas lang sa pamamagitan ng panalangin at pag-aayuno.] ## Ang Ikalawang Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
+[Ngunit ang ganoong uri ng masamang espiritu ay mapapalayas lang sa pamamagitan ng panalangin at pag-aayuno.] 
+
+## Ang Ikalawang Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
 
 
 

@@ -568,7 +568,9 @@ Kaya ito ang sinasabi ng Panginoong Dios na Makapangyarihan: "Darating ang araw 
 
 
 
-May mga iyakan din sa inyong mga taniman ng ubas. Mangyayari ito dahil parurusahan ko kayo. Ako, ang Panginoon, ang nagsasabi nito." ## Ang Araw ng Paghatol ng Dios 
+May mga iyakan din sa inyong mga taniman ng ubas. Mangyayari ito dahil parurusahan ko kayo. Ako, ang Panginoon, ang nagsasabi nito." 
+
+## Ang Araw ng Paghatol ng Dios 
 
 
 

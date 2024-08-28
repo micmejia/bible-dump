@@ -534,7 +534,9 @@ Pagkatapos, tinawag ni David ang isa sa mga tauhan niya at inutusan, "Patayin mo
 
 
 
-Sinabi ni David, "Ikaw ang dapat sisihin sa kamatayan mo. Ikaw na mismo ang tumestigo laban sa sarili mo nang sabihin mong pinatay mo ang piniling hari ng Panginoon." ## Ang Awit ng Kalungkutan ni David para kina Saul at Jonatan 
+Sinabi ni David, "Ikaw ang dapat sisihin sa kamatayan mo. Ikaw na mismo ang tumestigo laban sa sarili mo nang sabihin mong pinatay mo ang piniling hari ng Panginoon." 
+
+## Ang Awit ng Kalungkutan ni David para kina Saul at Jonatan 
 
 
 

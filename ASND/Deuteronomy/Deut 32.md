@@ -1492,7 +1492,9 @@ Ito nga ang inawit ni Moises kasama si Josue sa harapan ng mga Israelita. 45-46P
 
 
 
-Hindi lang karaniwang salita ang mga utos na ito; magbibigay ito sa inyo ng buhay. Kung susundin ninyo ito, mabubuhay kayo nang matagal sa lupain na aangkinin ninyo sa kabila ng Jordan." ## Ipinaalam ang Kamatayan ni Moises 
+Hindi lang karaniwang salita ang mga utos na ito; magbibigay ito sa inyo ng buhay. Kung susundin ninyo ito, mabubuhay kayo nang matagal sa lupain na aangkinin ninyo sa kabila ng Jordan." 
+
+## Ipinaalam ang Kamatayan ni Moises 
 
 
 

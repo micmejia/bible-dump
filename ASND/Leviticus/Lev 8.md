@@ -40,7 +40,9 @@ next: ['Lev 9']
 
 
 
-Sinabi ng Panginoon kay Moises, ###### 2-3 "Papuntahin mo si Aaron at ang mga anak niyang lalaki roon sa pintuan ng Toldang Tipanan, at tipunin mo ang lahat ng taga-Israel doon. Sabihin mo sa mga pari na dalhin nila ang kanilang mga damit pampari, ang langis na pamahid, ang toro na handog sa paglilinis, ang dalawang lalaking tupa, at ang basket na may tinapay na walang pampaalsa." 
+Sinabi ng Panginoon kay Moises, 
+
+###### 2-3 "Papuntahin mo si Aaron at ang mga anak niyang lalaki roon sa pintuan ng Toldang Tipanan, at tipunin mo ang lahat ng taga-Israel doon. Sabihin mo sa mga pari na dalhin nila ang kanilang mga damit pampari, ang langis na pamahid, ang toro na handog sa paglilinis, ang dalawang lalaking tupa, at ang basket na may tinapay na walang pampaalsa." 
 
 
 

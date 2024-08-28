@@ -46,7 +46,9 @@ I, the Lord, search the heart, I test the mind, Even to give every man according
 A glorious high throne from the beginning Is the place of our sanctuary. 
 
 ###### 13 
-O Lord, the hope of Israel, All who forsake You shall be ashamed. "Those who depart from Me Shall be written in the earth, Because they have forsaken the Lord, The fountain of living waters." ## Jeremiah Prays for Deliverance 
+O Lord, the hope of Israel, All who forsake You shall be ashamed. "Those who depart from Me Shall be written in the earth, Because they have forsaken the Lord, The fountain of living waters." 
+
+## Jeremiah Prays for Deliverance 
 
 ###### 14 
 Heal me, O Lord, and I shall be healed; Save me, and I shall be saved, For You are my praise. 
@@ -61,7 +63,9 @@ As for me, I have not hurried away from being a shepherd who follows You, Nor ha
 Do not be a terror to me; You are my hope in the day of doom. 
 
 ###### 18 
-Let them be ashamed who persecute me, But do not let me be put to shame; Let them be dismayed, But do not let me be dismayed. Bring on them the day of doom, And destroy them with double destruction! ## Hallow the Sabbath Day 
+Let them be ashamed who persecute me, But do not let me be put to shame; Let them be dismayed, But do not let me be dismayed. Bring on them the day of doom, And destroy them with double destruction! 
+
+## Hallow the Sabbath Day 
 
 ###### 19 
 Thus the Lord said to me: "Go and stand in the gate of the children of the people, by which the kings of Judah come in and by which they go out, and in all the gates of Jerusalem; 

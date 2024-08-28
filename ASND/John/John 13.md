@@ -667,7 +667,9 @@ Sinasabi ko ito sa inyo bago pa man mangyari, upang kapag nangyari na ay maniwal
 
 
 
-Sinasabi ko sa inyo ang totoo, ang tumatanggap sa mga taong isinugo ko ay tumatanggap sa akin, at ang tumatanggap sa akin ay tumatanggap sa nagsugo sa akin." ## Inihayag ni Jesus na May Magtatraydor sa Kanya 
+Sinasabi ko sa inyo ang totoo, ang tumatanggap sa mga taong isinugo ko ay tumatanggap sa akin, at ang tumatanggap sa akin ay tumatanggap sa nagsugo sa akin." 
+
+## Inihayag ni Jesus na May Magtatraydor sa Kanya 
 
 
 
@@ -1164,7 +1166,9 @@ Kaya isang bagong utos ang ibinibigay ko sa inyo: Magmahalan kayo. Kung paano ko
 
 
 
-Kung nagmamahalan kayo, malalaman ng lahat ng tao na mga tagasunod ko kayo." ## Sinabi ni Jesus na Ikakaila Siya ni Pedro 
+Kung nagmamahalan kayo, malalaman ng lahat ng tao na mga tagasunod ko kayo." 
+
+## Sinabi ni Jesus na Ikakaila Siya ni Pedro 
 
 
 

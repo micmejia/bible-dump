@@ -10,7 +10,9 @@ next: ['Exod 37']
 
 
 ###### 1 
-"And Bezalel and Aholiab, and every gifted artisan in whom the Lord has put wisdom and understanding, to know how to do all manner of work for the service of the sanctuary, shall do according to all that the Lord has commanded." ## The People Give More than Enough 
+"And Bezalel and Aholiab, and every gifted artisan in whom the Lord has put wisdom and understanding, to know how to do all manner of work for the service of the sanctuary, shall do according to all that the Lord has commanded." 
+
+## The People Give More than Enough 
 
 ###### 2 
 Then Moses called Bezalel and Aholiab, and every gifted artisan in whose heart the Lord had put wisdom, everyone whose heart was stirred, to come and do the work. 

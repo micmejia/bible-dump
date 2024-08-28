@@ -172,7 +172,9 @@ Sinabi ni Pilato sa mga namamahalang pari at sa mga tao, "Wala akong nakitang ka
 
 
 
-Pero mapilit sila at sinabing, "Ginugulo niya ang mga tao sa buong Judea sa pamamagitan ng mga turo niya. Nagsimula siya sa Galilea at narito na siya ngayon sa Jerusalem." ## Dinala naman si Jesus kay Herodes 
+Pero mapilit sila at sinabing, "Ginugulo niya ang mga tao sa buong Judea sa pamamagitan ng mga turo niya. Nagsimula siya sa Galilea at narito na siya ngayon sa Jerusalem." 
+
+## Dinala naman si Jesus kay Herodes 
 
 
 
@@ -1430,7 +1432,9 @@ Pagkatapos ay sinabi niya, "Jesus, alalahanin nʼyo ako kapag naghahari na kayo.
 
 
 
-Sumagot si Jesus, "Sasabihin ko sa iyo ang totoo, ngayon din ay makakasama kita sa Paraiso." ## Ang Pagkamatay ni Jesus 44-45Nang mag-aalas dose na ng tanghali, nawala ang liwanag ng araw, at dumilim sa buong lupain sa loob ng tatlong oras. At ang kurtina sa loob ng templo ay nahati mula sa itaas hanggang sa ibaba. 
+Sumagot si Jesus, "Sasabihin ko sa iyo ang totoo, ngayon din ay makakasama kita sa Paraiso." 
+
+## Ang Pagkamatay ni Jesus 44-45Nang mag-aalas dose na ng tanghali, nawala ang liwanag ng araw, at dumilim sa buong lupain sa loob ng tatlong oras. At ang kurtina sa loob ng templo ay nahati mula sa itaas hanggang sa ibaba. 
 
 
 

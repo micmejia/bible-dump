@@ -469,7 +469,9 @@ Gusto lamang nila akong takutin at magkasala sa pamamagitan ng pagsunod sa sinas
 
 
 
-Kaya nanalangin ako, "O aking Dios, huwag nʼyo pong kalimutan na parusahan si Tobia at si Sanbalat sa kanilang masamang ginawa, pati na ang babaeng propeta na si Noadias at ang iba pang mga propeta na naghahangad na takutin ako." ## Natapos ang Pagpapatayo ng Pader 
+Kaya nanalangin ako, "O aking Dios, huwag nʼyo pong kalimutan na parusahan si Tobia at si Sanbalat sa kanilang masamang ginawa, pati na ang babaeng propeta na si Noadias at ang iba pang mga propeta na naghahangad na takutin ako." 
+
+## Natapos ang Pagpapatayo ng Pader 
 
 
 

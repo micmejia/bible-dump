@@ -438,7 +438,9 @@ Nang marinig ito ni Jesus, sinabi niya sa kanila, "Hindi ang mga walang sakit an
 
 
 
-Umalis na kayo at pag-isipan nʼyo kung ano ang kahulugan ng sinasabing ito ng Kasulatan: 'Hindi ang handog ninyo ang hinahangad ko kundi ang maging maawain kayo.' Sapagkat naparito ako hindi upang tawagin ang mga taong matuwid sa kanilang sariling paningin, kundi ang mga makasalanan." ## Ang Tanong tungkol sa Pag-aayuno 
+Umalis na kayo at pag-isipan nʼyo kung ano ang kahulugan ng sinasabing ito ng Kasulatan: 'Hindi ang handog ninyo ang hinahangad ko kundi ang maging maawain kayo.' Sapagkat naparito ako hindi upang tawagin ang mga taong matuwid sa kanilang sariling paningin, kundi ang mga makasalanan." 
+
+## Ang Tanong tungkol sa Pag-aayuno 
 
 
 
@@ -570,7 +572,9 @@ Sinabi pa ni Jesus, "Walang nagtatagpi ng bagong tela sa lumang damit, dahil kap
 
 
 
-Wala ring naglalagay ng bagong alak sa lumang sisidlang-balat, dahil puputok ang sisidlan at matatapon ang alak, at ang sisidlan ay hindi na mapapakinabangan pa. Sa halip, inilalagay ang bagong alak sa bagong sisidlang-balat, at pareho silang magtatagal." ## Ang Anak ng Pinuno at ang Babaeng Dinudugo 
+Wala ring naglalagay ng bagong alak sa lumang sisidlang-balat, dahil puputok ang sisidlan at matatapon ang alak, at ang sisidlan ay hindi na mapapakinabangan pa. Sa halip, inilalagay ang bagong alak sa bagong sisidlang-balat, at pareho silang magtatagal." 
+
+## Ang Anak ng Pinuno at ang Babaeng Dinudugo 
 
 
 
@@ -1135,7 +1139,9 @@ Pinalayas ni Jesus ang masamang espiritu, at nakapagsalita ang pipi. Namangha an
 
 
 
-Pero sinabi ng mga Pariseo, "Ang pinuno ng masasamang espiritu ang nagbigay sa kanya ng kapangyarihang magpalayas ng masasamang espiritu." ## Naawa si Jesus sa mga Tao 
+Pero sinabi ng mga Pariseo, "Ang pinuno ng masasamang espiritu ang nagbigay sa kanya ng kapangyarihang magpalayas ng masasamang espiritu." 
+
+## Naawa si Jesus sa mga Tao 
 
 
 

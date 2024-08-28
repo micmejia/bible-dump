@@ -436,7 +436,9 @@ At kung hindi kayo mapagkakatiwalaan sa kayamanan ng iba, sino ang magbibigay sa
 
 
 
-"Walang aliping makapaglilingkod nang sabay sa dalawang amo. Sapagkat tatanggihan niya ang isa at susundin naman ang isa, magiging tapat siya sa isa at tatalikuran ang isa. Ganoon din naman, hindi kayo makapaglilingkod nang sabay sa Dios at sa kayamanan." ## Ang Iba pang mga Itinuro ni Jesus 
+"Walang aliping makapaglilingkod nang sabay sa dalawang amo. Sapagkat tatanggihan niya ang isa at susundin naman ang isa, magiging tapat siya sa isa at tatalikuran ang isa. Ganoon din naman, hindi kayo makapaglilingkod nang sabay sa Dios at sa kayamanan." 
+
+## Ang Iba pang mga Itinuro ni Jesus 
 
 
 

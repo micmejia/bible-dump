@@ -73,7 +73,9 @@ Dalawang araw na lang noon bago sumapit ang Pista ng Paglampas ng Anghel at Pist
 
 
 
-Sinabi nila, "Huwag nating gawin sa pista dahil baka magkagulo ang mga tao." ## Binuhusan ng Pabango si Jesus 
+Sinabi nila, "Huwag nating gawin sa pista dahil baka magkagulo ang mga tao." 
+
+## Binuhusan ng Pabango si Jesus 
 
 
 
@@ -304,7 +306,9 @@ Ginawa ng babaeng ito ang makakaya niya para sa akin. Binuhusan niya ng pabango 
 
 
 
-Sinasabi ko sa inyo ang totoo, kahit saan man ipapangaral ang Magandang Balita sa buong mundo, ipapahayag din ang ginawa niyang ito sa akin bilang pag-alaala sa kanya." ## Nakipagkasundo si Judas sa mga Kaaway ni Jesus 
+Sinasabi ko sa inyo ang totoo, kahit saan man ipapangaral ang Magandang Balita sa buong mundo, ipapahayag din ang ginawa niyang ito sa akin bilang pag-alaala sa kanya." 
+
+## Nakipagkasundo si Judas sa mga Kaaway ni Jesus 
 
 
 
@@ -636,7 +640,9 @@ Sinabi ni Jesus sa kanila, "Isa siya sa inyong 12 na kasabay kong nagsasawsaw ng
 
 
 
-Ako na Anak ng Tao ay papatayin ayon sa sinasabi ng Kasulatan, ngunit nakakaawa ang taong magtatraydor sa akin. Mabuti pang hindi na siya ipinanganak." ## Huling Hapunan ni Jesus 
+Ako na Anak ng Tao ay papatayin ayon sa sinasabi ng Kasulatan, ngunit nakakaawa ang taong magtatraydor sa akin. Mabuti pang hindi na siya ipinanganak." 
+
+## Huling Hapunan ni Jesus 
 
 
 
@@ -1333,7 +1339,9 @@ Sa ikatlong pagbalik ni Jesus, sinabi niya sa kanila, "Natutulog pa rin ba kayo 
 
 
 
-Tayo na! Narito na ang nagtatraydor sa akin." ## Ang Pagdakip kay Jesus 
+Tayo na! Narito na ang nagtatraydor sa akin." 
+
+## Ang Pagdakip kay Jesus 
 
 
 

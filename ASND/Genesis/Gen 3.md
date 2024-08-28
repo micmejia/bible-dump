@@ -436,7 +436,9 @@ Sumagot ang lalaki, "Ang babae po kasi na ibinigay nʼyo sa akin ay binigyan ako
 
 
 
-Tinanong ng Panginoong Dios ang babae, "Bakit mo ginawa iyon?" Sumagot ang babae, "Nilinlang po kasi ako ng ahas, kaya kumain po ako." ## Pinarusahan sila ng Dios 
+Tinanong ng Panginoong Dios ang babae, "Bakit mo ginawa iyon?" Sumagot ang babae, "Nilinlang po kasi ako ng ahas, kaya kumain po ako." 
+
+## Pinarusahan sila ng Dios 
 
 
 

@@ -40,7 +40,9 @@ I will set My face against that man and make him a sign and a proverb, and I wil
 And they shall bear their iniquity; the punishment of the prophet shall be the same as the punishment of the one who inquired, 
 
 ###### 11 
-that the house of Israel may no longer stray from Me, nor be profaned anymore with all their transgressions, but that they may be My people and I may be their God," says the Lord God.' " ## Judgment on Persistent Unfaithfulness 
+that the house of Israel may no longer stray from Me, nor be profaned anymore with all their transgressions, but that they may be My people and I may be their God," says the Lord God.' " 
+
+## Judgment on Persistent Unfaithfulness 
 
 ###### 12 
 The word of the Lord came again to me, saying: 

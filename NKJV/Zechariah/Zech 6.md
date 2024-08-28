@@ -31,7 +31,9 @@ The one with the black horses is going to the north country, the white are going
 Then the strong steeds went out, eager to go, that they might walk to and fro throughout the earth. And He said, "Go, walk to and fro throughout the earth." So they walked to and fro throughout the earth. 
 
 ###### 8 
-And He called to me, and spoke to me, saying, "See, those who go toward the north country have given rest to My Spirit in the north country." ## The Command to Crown Joshua 
+And He called to me, and spoke to me, saying, "See, those who go toward the north country have given rest to My Spirit in the north country." 
+
+## The Command to Crown Joshua 
 
 ###### 9 
 Then the word of the Lord came to me, saying: 

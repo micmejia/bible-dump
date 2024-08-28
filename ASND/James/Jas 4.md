@@ -405,7 +405,9 @@ Mga kapatid, huwag ninyong siraan ang isaʼt isa. Ang naninira o humahatol sa ka
 
 
 
-Ngunit ang Dios lang ang nagbigay ng Kautusan at siya lamang ang hukom. Tanging siya ang may kakayahang magligtas at magparusa. Kaya sino ka para husgahan ang kapwa mo? ## Paalala sa Pagmamalaki 
+Ngunit ang Dios lang ang nagbigay ng Kautusan at siya lamang ang hukom. Tanging siya ang may kakayahang magligtas at magparusa. Kaya sino ka para husgahan ang kapwa mo? 
+
+## Paalala sa Pagmamalaki 
 
 
 

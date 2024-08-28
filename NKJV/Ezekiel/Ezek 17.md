@@ -70,7 +70,9 @@ Therefore thus says the Lord God: "As I live, surely My oath which he despised, 
 I will spread My net over him, and he shall be taken in My snare. I will bring him to Babylon and try him there for the treason which he committed against Me. 
 
 ###### 21 
-All his fugitives with all his troops shall fall by the sword, and those who remain shall be scattered to every wind; and you shall know that I, the Lord, have spoken." ## Israel Exalted at Last 
+All his fugitives with all his troops shall fall by the sword, and those who remain shall be scattered to every wind; and you shall know that I, the Lord, have spoken." 
+
+## Israel Exalted at Last 
 
 ###### 22 
 Thus says the Lord God: "I will take also one of the highest branches of the high cedar and set it out. I will crop off from the topmost of its young twigs a tender one, and will plant it on a high and prominent mountain. 

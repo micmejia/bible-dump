@@ -469,7 +469,9 @@ Pero kahit ganito ang gawin mo, hindi pa rin maaalis ng apoy ang kalawang.'
 
 
 
-Ako, ang Panginoon, ay nagsasabing, dumating na ang panahon ng aking pagpaparusa at walang makapipigil sa akin. Hindi na kita kahahabagan at hindi na magbabago ang isip ko. Hahatulan kita ayon sa iyong pamumuhay at mga ginawa. Ako, ang Panginoong Dios, ang nagsasabi nito." ## Ang Pagpatay sa Asawa ni Ezekiel 
+Ako, ang Panginoon, ay nagsasabing, dumating na ang panahon ng aking pagpaparusa at walang makapipigil sa akin. Hindi na kita kahahabagan at hindi na magbabago ang isip ko. Hahatulan kita ayon sa iyong pamumuhay at mga ginawa. Ako, ang Panginoong Dios, ang nagsasabi nito." 
+
+## Ang Pagpatay sa Asawa ni Ezekiel 
 
 
 

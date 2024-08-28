@@ -436,7 +436,9 @@ Pero sinabi ni Moises sa Panginoon, "Kung ang mga Israelita nga poʼy hindi naki
 
 
 
-Sinabi ng Panginoon kina Moises at Aaron, "Sabihin ninyo sa mga Israelita at sa Faraon na hari ng Egipto na inutusan ko kayong pangunahan ang mga Israelita para lumabas ng Egipto." ## Ang mga Ninuno nina Moises at Aaron 
+Sinabi ng Panginoon kina Moises at Aaron, "Sabihin ninyo sa mga Israelita at sa Faraon na hari ng Egipto na inutusan ko kayong pangunahan ang mga Israelita para lumabas ng Egipto." 
+
+## Ang mga Ninuno nina Moises at Aaron 
 
 
 

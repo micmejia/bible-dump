@@ -667,7 +667,9 @@ Pero rito na lang muna kayo matulog ngayong gabi katulad ng ginawa ng iba ninyon
 
 
 
-Noong gabing iyon, sinabi ng Dios kay Balaam, "Pumunta rito ang mga taong ito para tawagin ka, sumama ka na lang sa kanila, pero ang mga sasabihin ko lang sa iyo ang gawin mo." ## Ang Asno ni Balaam 
+Noong gabing iyon, sinabi ng Dios kay Balaam, "Pumunta rito ang mga taong ito para tawagin ka, sumama ka na lang sa kanila, pero ang mga sasabihin ko lang sa iyo ang gawin mo." 
+
+## Ang Asno ni Balaam 
 
 
 

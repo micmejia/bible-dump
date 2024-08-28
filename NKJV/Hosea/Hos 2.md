@@ -10,7 +10,9 @@ next: ['Hos 3']
 
 
 ###### 1 
-Say to your brethren, 'My people,' And to your sisters, 'Mercy is shown.' ## God's Unfaithful People 
+Say to your brethren, 'My people,' And to your sisters, 'Mercy is shown.' 
+
+## God's Unfaithful People 
 
 ###### 2 
 "Bring charges against your mother, bring charges; For she is not My wife, nor am I her Husband! Let her put away her harlotries from her sight, And her adulteries from between her breasts; 

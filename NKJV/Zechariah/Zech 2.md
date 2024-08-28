@@ -22,7 +22,9 @@ And there was the angel who talked with me, going out; and another angel was com
 who said to him, "Run, speak to this young man, saying: 'Jerusalem shall be inhabited as towns without walls, because of the multitude of men and livestock in it. 
 
 ###### 5 
-For I,' says the Lord, 'will be a wall of fire all around her, and I will be the glory in her midst.' " ## Future Joy of Zion and Many Nations 
+For I,' says the Lord, 'will be a wall of fire all around her, and I will be the glory in her midst.' " 
+
+## Future Joy of Zion and Many Nations 
 
 ###### 6 
 "Up, up! Flee from the land of the north," says the Lord; "for I have spread you abroad like the four winds of heaven," says the Lord. 

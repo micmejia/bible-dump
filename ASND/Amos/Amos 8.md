@@ -106,7 +106,9 @@ Tinanong niya ako, "Amos, ano ang nakikita mo?" Sumagot ako, "Isang basket po ng
 
 
 
-Sa araw na iyon, ang masasayang awitan sa templo ay magiging iyakan dahil kakalat ang patay kahit saan. At wala nang maririnig na ingay. Ako, ang Panginoong Dios, ang nagsasabi nito." ## Ang Kasalanan ng mga Mayayamang Israelita 
+Sa araw na iyon, ang masasayang awitan sa templo ay magiging iyakan dahil kakalat ang patay kahit saan. At wala nang maririnig na ingay. Ako, ang Panginoong Dios, ang nagsasabi nito." 
+
+## Ang Kasalanan ng mga Mayayamang Israelita 
 
 
 

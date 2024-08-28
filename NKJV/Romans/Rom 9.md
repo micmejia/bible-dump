@@ -48,7 +48,9 @@ And not only this, but when Rebecca also had conceived by one man, even by our f
 it was said to her, "The older shall serve the younger." 
 
 ###### 13 
-As it is written, "Jacob I have loved, but Esau I have hated." ## Israel's Rejection and God's Justice 
+As it is written, "Jacob I have loved, but Esau I have hated." 
+
+## Israel's Rejection and God's Justice 
 
 ###### 14 
 What shall we say then? Is there unrighteousness with God? Certainly not! 
@@ -96,7 +98,9 @@ Isaiah also cries out concerning Israel: "Though the number of the children of I
 For He will finish the work and cut it short in righteousness, Because the Lord will make a short work upon the earth." 
 
 ###### 29 
-And as Isaiah said before: "Unless the Lord of Sabaoth had left us a seed, We would have become like Sodom, And we would have been made like Gomorrah." ## Present Condition of Israel 
+And as Isaiah said before: "Unless the Lord of Sabaoth had left us a seed, We would have become like Sodom, And we would have been made like Gomorrah." 
+
+## Present Condition of Israel 
 
 ###### 30 
 What shall we say then? That Gentiles, who did not pursue righteousness, have attained to righteousness, even the righteousness of faith; 

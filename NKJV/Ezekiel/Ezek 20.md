@@ -103,7 +103,9 @@ Therefore say to the house of Israel, 'Thus says the Lord God: "Are you defiling
 For when you offer your gifts and make your sons pass through the fire, you defile yourselves with all your idols, even to this day. So shall I be inquired of by you, O house of Israel? As I live," says the Lord God, "I will not be inquired of by you. 
 
 ###### 32 
-What you have in your mind shall never be, when you say, 'We will be like the Gentiles, like the families in other countries, serving wood and stone.' ## God Will Restore Israel 
+What you have in your mind shall never be, when you say, 'We will be like the Gentiles, like the families in other countries, serving wood and stone.' 
+
+## God Will Restore Israel 
 
 ###### 33 
 "As I live," says the Lord God, "surely with a mighty hand, with an outstretched arm, and with fury poured out, I will rule over you. 
@@ -139,7 +141,9 @@ Then you shall know that I am the Lord, when I bring you into the land of Israel
 And there you shall remember your ways and all your doings with which you were defiled; and you shall loathe yourselves in your own sight because of all the evils that you have committed. 
 
 ###### 44 
-Then you shall know that I am the Lord, when I have dealt with you for My name's sake, not according to your wicked ways nor according to your corrupt doings, O house of Israel," says the Lord God.' " ## Fire in the Forest 
+Then you shall know that I am the Lord, when I have dealt with you for My name's sake, not according to your wicked ways nor according to your corrupt doings, O house of Israel," says the Lord God.' " 
+
+## Fire in the Forest 
 
 ###### 45 
 Furthermore the word of the Lord came to me, saying, 

@@ -568,7 +568,9 @@ Sa gabi, pinapasok ng mga magnanakaw ang mga bahay. Sa araw, nagtatago sila dahi
 
 
 
-Itinuturing nilang liwanag ang dilim, dahil gusto nila ang nakakatakot na kadiliman." ## Ang Sagot ni Zofar 
+Itinuturing nilang liwanag ang dilim, dahil gusto nila ang nakakatakot na kadiliman." 
+
+## Ang Sagot ni Zofar 
 
 
 

@@ -79,7 +79,9 @@ Then God remembered Rachel, and God listened to her and opened her womb.
 And she conceived and bore a son, and said, "God has taken away my reproach." 
 
 ###### 24 
-So she called his name Joseph, and said, "The Lord shall add to me another son." ## Jacob's Agreement with Laban 
+So she called his name Joseph, and said, "The Lord shall add to me another son." 
+
+## Jacob's Agreement with Laban 
 
 ###### 25 
 And it came to pass, when Rachel had borne Joseph, that Jacob said to Laban, "Send me away, that I may go to my own place and to my country. 

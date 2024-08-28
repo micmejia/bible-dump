@@ -31,7 +31,9 @@ This he said, not that he cared for the poor, but because he was a thief, and ha
 But Jesus said, "Let her alone; she has kept this for the day of My burial. 
 
 ###### 8 
-For the poor you have with you always, but Me you do not have always." ## The Plot to Kill Lazarus 
+For the poor you have with you always, but Me you do not have always." 
+
+## The Plot to Kill Lazarus 
 
 ###### 9 
 Now a great many of the Jews knew that He was there; and they came, not for Jesus' sake only, but that they might also see Lazarus, whom He had raised from the dead. 
@@ -66,7 +68,9 @@ Therefore the people, who were with Him when He called Lazarus out of his tomb a
 For this reason the people also met Him, because they heard that He had done this sign. 
 
 ###### 19 
-The Pharisees therefore said among themselves, "You see that you are accomplishing nothing. Look, the world has gone after Him!" ## The Fruitful Grain of Wheat 
+The Pharisees therefore said among themselves, "You see that you are accomplishing nothing. Look, the world has gone after Him!" 
+
+## The Fruitful Grain of Wheat 
 
 ###### 20 
 Now there were certain Greeks among those who came up to worship at the feast. 

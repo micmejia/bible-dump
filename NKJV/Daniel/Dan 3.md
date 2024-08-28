@@ -63,7 +63,9 @@ Shadrach, Meshach, and Abed-Nego answered and said to the king, "O Nebuchadnezza
 If that is the case, our God whom we serve is able to deliver us from the burning fiery furnace, and He will deliver us from your hand, O king. 
 
 ###### 18 
-But if not, let it be known to you, O king, that we do not serve your gods, nor will we worship the gold image which you have set up." ## Saved in Fiery Trial 
+But if not, let it be known to you, O king, that we do not serve your gods, nor will we worship the gold image which you have set up." 
+
+## Saved in Fiery Trial 
 
 ###### 19 
 Then Nebuchadnezzar was full of fury, and the expression on his face changed toward Shadrach, Meshach, and Abed-Nego. He spoke and commanded that they heat the furnace seven times more than it was usually heated. 
@@ -84,7 +86,9 @@ And these three men, Shadrach, Meshach, and Abed-Nego, fell down bound into the 
 Then King Nebuchadnezzar was astonished; and he rose in haste and spoke, saying to his counselors, "Did we not cast three men bound into the midst of the fire?" They answered and said to the king, "True, O king." 
 
 ###### 25 
-"Look!" he answered, "I see four men loose, walking in the midst of the fire; and they are not hurt, and the form of the fourth is like the Son of God." ## Nebuchadnezzar Praises God 
+"Look!" he answered, "I see four men loose, walking in the midst of the fire; and they are not hurt, and the form of the fourth is like the Son of God." 
+
+## Nebuchadnezzar Praises God 
 
 ###### 26 
 Then Nebuchadnezzar went near the mouth of the burning fiery furnace and spoke, saying, "Shadrach, Meshach, and Abed-Nego, servants of the Most High God, come out, and come here." Then Shadrach, Meshach, and Abed-Nego came from the midst of the fire. 

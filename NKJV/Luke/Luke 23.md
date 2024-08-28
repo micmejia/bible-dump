@@ -22,7 +22,9 @@ Then Pilate asked Him, saying, "Are You the King of the Jews?" He answered him a
 So Pilate said to the chief priests and the crowd, "I find no fault in this Man." 
 
 ###### 5 
-But they were the more fierce, saying, "He stirs up the people, teaching throughout all Judea, beginning from Galilee to this place." ## Jesus Faces Herod 
+But they were the more fierce, saying, "He stirs up the people, teaching throughout all Judea, beginning from Galilee to this place." 
+
+## Jesus Faces Herod 
 
 ###### 6 
 When Pilate heard of Galilee, he asked if the Man were a Galilean. 
@@ -140,7 +142,9 @@ And we indeed justly, for we receive the due reward of our deeds; but this Man h
 Then he said to Jesus, "Lord, remember me when You come into Your kingdom." 
 
 ###### 43 
-And Jesus said to him, "Assuredly, I say to you, today you will be with Me in Paradise." ## Jesus Dies on the Cross 
+And Jesus said to him, "Assuredly, I say to you, today you will be with Me in Paradise." 
+
+## Jesus Dies on the Cross 
 
 ###### 44 
 Now it was about the sixth hour, and there was darkness over all the earth until the ninth hour. 

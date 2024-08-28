@@ -173,7 +173,9 @@ pero si Esau, hindi. Winasak ko ang kanyang mga kabundukan, kaya naging tirahan 
 
 
 
-Makikita ninyo ang kanilang pagkawasak at sasabihin ninyo, 'Makapangyarihan ang Panginoon kahit sa labas ng Israel.' " ## Sinaway ng Panginoon ang mga Pari 
+Makikita ninyo ang kanilang pagkawasak at sasabihin ninyo, 'Makapangyarihan ang Panginoon kahit sa labas ng Israel.' " 
+
+## Sinaway ng Panginoon ang mga Pari 
 
 
 

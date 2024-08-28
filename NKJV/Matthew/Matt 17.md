@@ -72,7 +72,9 @@ Then the disciples came to Jesus privately and said, "Why could we not cast it o
 So Jesus said to them, "Because of your unbelief; for assuredly, I say to you, if you have faith as a mustard seed, you will say to this mountain, 'Move from here to there,' and it will move; and nothing will be impossible for you. 
 
 ###### 21 
-However, this kind does not go out except by prayer and fasting." ## Jesus Again Predicts His Death and Resurrection 
+However, this kind does not go out except by prayer and fasting." 
+
+## Jesus Again Predicts His Death and Resurrection 
 
 ###### 22 
 Now while they were staying in Galilee, Jesus said to them, "The Son of Man is about to be betrayed into the hands of men, 

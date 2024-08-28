@@ -135,7 +135,9 @@ _There_ I was! In the day the drought consumed me, and the frost by night, and m
 Thus I have been in your house twenty years; I served you fourteen years for your two daughters, and six years for your flock, and you have changed my wages ten times. 
 
 ###### 42 
-Unless the God of my father, the God of Abraham and the Fear of Isaac, had been with me, surely now you would have sent me away empty-handed. God has seen my affliction and the labor of my hands, and rebuked _you_ last night." ## Laban's Covenant with Jacob 
+Unless the God of my father, the God of Abraham and the Fear of Isaac, had been with me, surely now you would have sent me away empty-handed. God has seen my affliction and the labor of my hands, and rebuked _you_ last night." 
+
+## Laban's Covenant with Jacob 
 
 ###### 43 
 And Laban answered and said to Jacob, "_These_ daughters _are_ my daughters, and _these_ children _are_ my children, and _this_ flock _is_ my flock; all that you see _is_ mine. But what can I do this day to these my daughters or to their children whom they have borne? 

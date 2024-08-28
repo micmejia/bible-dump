@@ -61,7 +61,9 @@ And the people to whom they prophesy shall be cast out in the streets of Jerusal
 "Therefore you shall say this word to them: 'Let my eyes flow with tears night and day, And let them not cease; For the virgin daughter of my people Has been broken with a mighty stroke, with a very severe blow. 
 
 ###### 18 
-If I go out to the field, Then behold, those slain with the sword! And if I enter the city, Then behold, those sick from famine! Yes, both prophet and priest go about in a land they do not know.' " ## The People Plead for Mercy 
+If I go out to the field, Then behold, those slain with the sword! And if I enter the city, Then behold, those sick from famine! Yes, both prophet and priest go about in a land they do not know.' " 
+
+## The People Plead for Mercy 
 
 ###### 19 
 Have You utterly rejected Judah? Has Your soul loathed Zion? Why have You stricken us so that there is no healing for us? We looked for peace, but there was no good; And for the time of healing, and there was trouble. 

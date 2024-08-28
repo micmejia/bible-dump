@@ -31,7 +31,9 @@ Then the Lord said, "Hear what the unjust judge said.
 And shall God not avenge His own elect who cry out day and night to Him, though He bears long with them? 
 
 ###### 8 
-I tell you that He will avenge them speedily. Nevertheless, when the Son of Man comes, will He really find faith on the earth?" ## The Parable of the Pharisee and the Tax Collector 
+I tell you that He will avenge them speedily. Nevertheless, when the Son of Man comes, will He really find faith on the earth?" 
+
+## The Parable of the Pharisee and the Tax Collector 
 
 ###### 9 
 Also He spoke this parable to some who trusted in themselves that they were righteous, and despised others: 
@@ -49,7 +51,9 @@ I fast twice a week; I give tithes of all that I possess.'
 And the tax collector, standing afar off, would not so much as raise his eyes to heaven, but beat his breast, saying, 'God, be merciful to me a sinner!' 
 
 ###### 14 
-I tell you, this man went down to his house justified rather than the other; for everyone who exalts himself will be humbled, and he who humbles himself will be exalted." ## Jesus Blesses Little Children 
+I tell you, this man went down to his house justified rather than the other; for everyone who exalts himself will be humbled, and he who humbles himself will be exalted." 
+
+## Jesus Blesses Little Children 
 
 ###### 15 
 Then they also brought infants to Him that He might touch them; but when the disciples saw it, they rebuked them. 
@@ -58,7 +62,9 @@ Then they also brought infants to Him that He might touch them; but when the dis
 But Jesus called them to Him and said, "Let the little children come to Me, and do not forbid them; for of such is the kingdom of God. 
 
 ###### 17 
-Assuredly, I say to you, whoever does not receive the kingdom of God as a little child will by no means enter it." ## Jesus Counsels the Rich Young Ruler 
+Assuredly, I say to you, whoever does not receive the kingdom of God as a little child will by no means enter it." 
+
+## Jesus Counsels the Rich Young Ruler 
 
 ###### 18 
 Now a certain ruler asked Him, saying, "Good Teacher, what shall I do to inherit eternal life?" 
@@ -99,7 +105,9 @@ Then Peter said, "See, we have left all and followed You."
 So He said to them, "Assuredly, I say to you, there is no one who has left house or parents or brothers or wife or children, for the sake of the kingdom of God, 
 
 ###### 30 
-who shall not receive many times more in this present time, and in the age to come eternal life." ## Jesus a Third Time Predicts His Death and Resurrection 
+who shall not receive many times more in this present time, and in the age to come eternal life." 
+
+## Jesus a Third Time Predicts His Death and Resurrection 
 
 ###### 31 
 Then He took the twelve aside and said to them, "Behold, we are going up to Jerusalem, and all things that are written by the prophets concerning the Son of Man will be accomplished. 

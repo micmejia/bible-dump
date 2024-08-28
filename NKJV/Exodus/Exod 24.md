@@ -31,7 +31,9 @@ And Moses took half the blood and put _it_ in basins, and half the blood he spri
 Then he took the Book of the Covenant and read in the hearing of the people. And they said, "All that the Lord has said we will do, and be obedient." 
 
 ###### 8 
-And Moses took the blood, sprinkled _it_ on the people, and said, "This is the blood of the covenant which the Lord has made with you according to all these words." ## On the Mountain with God 
+And Moses took the blood, sprinkled _it_ on the people, and said, "This is the blood of the covenant which the Lord has made with you according to all these words." 
+
+## On the Mountain with God 
 
 ###### 9 
 Then Moses went up, also Aaron, Nadab, and Abihu, and seventy of the elders of Israel, 

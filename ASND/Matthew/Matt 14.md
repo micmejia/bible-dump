@@ -1100,7 +1100,9 @@ Pagkasakay nilang dalawa sa bangka, biglang tumigil ang malakas na hangin.
 
 
 
-At sinamba siya ng mga nasa bangka at sinabi, "Talagang kayo nga po ang Anak ng Dios." ## Pinagaling ni Jesus ang mga May Sakit sa Genesaret 
+At sinamba siya ng mga nasa bangka at sinabi, "Talagang kayo nga po ang Anak ng Dios." 
+
+## Pinagaling ni Jesus ang mga May Sakit sa Genesaret 
 
 
 

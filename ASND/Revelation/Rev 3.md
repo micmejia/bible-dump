@@ -205,7 +205,9 @@ Ang magtatagumpay ay bibihisan ng puting damit at hindi ko aalisin ang pangalan 
 
 
 
-"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na Espiritu sa mga iglesya." ## Ang Sulat para sa Iglesya sa Filadelfia 
+"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na Espiritu sa mga iglesya." 
+
+## Ang Sulat para sa Iglesya sa Filadelfia 
 
 
 
@@ -436,7 +438,9 @@ Ang magtatagumpay ay gagawin kong parang haligi sa bahay ng aking Dios, at hindi
 
 
 
-"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na Espiritu sa mga iglesya." ## Ang Sulat para sa Iglesya sa Laodicea 
+"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na Espiritu sa mga iglesya." 
+
+## Ang Sulat para sa Iglesya sa Laodicea 
 
 
 

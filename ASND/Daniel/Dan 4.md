@@ -601,7 +601,9 @@ Ito ang hatol na sinabi ng anghel para malaman ng lahat na ang Kataas-taasang Di
 
 
 
-"Ito ang panaginip ko, Belteshazar. Sabihin mo sa akin ang kahulugan nito dahil wala ni isa man sa mga marunong sa aking kaharian ang makapagpaliwanag sa akin ng kahulugan nito. Pero maipapaliwanag mo ito sapagkat nasa iyo ang espiritu ng mga dios." ## Ipinaliwanag ni Daniel ang Kahulugan ng Panaginip 
+"Ito ang panaginip ko, Belteshazar. Sabihin mo sa akin ang kahulugan nito dahil wala ni isa man sa mga marunong sa aking kaharian ang makapagpaliwanag sa akin ng kahulugan nito. Pero maipapaliwanag mo ito sapagkat nasa iyo ang espiritu ng mga dios." 
+
+## Ipinaliwanag ni Daniel ang Kahulugan ng Panaginip 
 
 
 

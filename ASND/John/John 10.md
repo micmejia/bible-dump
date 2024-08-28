@@ -636,7 +636,9 @@ Marami sa kanila ang nagsasabi, "Baliw siya at sinasaniban ng masamang espiritu.
 
 
 
-Pero sinabi naman ng iba, "Hindi makakapagturo nang ganyan ang sinasaniban ng masamang espiritu. At isa pa, paano siya makakapagpagaling ng bulag kung totoong sinasaniban nga siya?" ## Itinakwil ng mga Judio si Jesus 
+Pero sinabi naman ng iba, "Hindi makakapagturo nang ganyan ang sinasaniban ng masamang espiritu. At isa pa, paano siya makakapagpagaling ng bulag kung totoong sinasaniban nga siya?" 
+
+## Itinakwil ng mga Judio si Jesus 
 
 
 

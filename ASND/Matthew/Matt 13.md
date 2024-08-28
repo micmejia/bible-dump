@@ -304,7 +304,9 @@ Ang iba namaʼy nahulog sa mabuting lupa, lumago at namunga. Ang ibaʼy napakara
 
 
 
-Kayong mga nakikinig, dapat ninyo itong pag-isipan!" ## Ang Layunin ng mga Talinghaga 
+Kayong mga nakikinig, dapat ninyo itong pag-isipan!" 
+
+## Ang Layunin ng mga Talinghaga 
 
 
 
@@ -568,7 +570,9 @@ Ngunit mapalad kayo, dahil nakakakita kayo at nakakaunawa.
 
 
 
-Sinasabi ko sa inyo ang totoo, maraming propeta at matutuwid na tao noon ang naghangad na makakita at makarinig ng nakikita at naririnig ninyo ngayon, pero hindi ito nangyari sa kanilang panahon." ## Ang Kahulugan ng Talinghaga tungkol sa Manghahasik 
+Sinasabi ko sa inyo ang totoo, maraming propeta at matutuwid na tao noon ang naghangad na makakita at makarinig ng nakikita at naririnig ninyo ngayon, pero hindi ito nangyari sa kanilang panahon." 
+
+## Ang Kahulugan ng Talinghaga tungkol sa Manghahasik 
 
 
 
@@ -766,7 +770,9 @@ Ang lupang may matitinik na damo, kung saan nahulog ang iba pang binhi ay ang mg
 
 
 
-Ngunit ang mabuting lupang hinasikan ng binhi ay ang mga taong nakikinig sa salita ng Dios at nakakaunawa nito. Kaya namumunga ito sa kanilang buhay. Ang ibaʼy napakarami ang bunga, ang ibaʼy marami, at ang iba namaʼy katamtaman lang." ## Ang Talinghaga tungkol sa mga Damo sa Triguhan 
+Ngunit ang mabuting lupang hinasikan ng binhi ay ang mga taong nakikinig sa salita ng Dios at nakakaunawa nito. Kaya namumunga ito sa kanilang buhay. Ang ibaʼy napakarami ang bunga, ang ibaʼy marami, at ang iba namaʼy katamtaman lang." 
+
+## Ang Talinghaga tungkol sa mga Damo sa Triguhan 
 
 
 
@@ -997,7 +1003,9 @@ Sumagot siya, 'Huwag, baka mabunot din ninyo pati ang trigo.
 
 
 
-Hayaan na lang muna ninyong lumagong pareho hanggang sa anihan. Kapag dumating na ang panahong iyon, sasabihin ko sa mga tagapag-ani na unahin muna nilang bunutin ang masasamang damo, at bigkisin para sunugin. Pagkatapos, ipapaani ko sa kanila ang trigo at ipapaimbak sa aking bodega.' " ## Ang Paghahalintulad sa Buto ng Mustasa 
+Hayaan na lang muna ninyong lumagong pareho hanggang sa anihan. Kapag dumating na ang panahong iyon, sasabihin ko sa mga tagapag-ani na unahin muna nilang bunutin ang masasamang damo, at bigkisin para sunugin. Pagkatapos, ipapaani ko sa kanila ang trigo at ipapaimbak sa aking bodega.' " 
+
+## Ang Paghahalintulad sa Buto ng Mustasa 
 
 
 
@@ -1063,7 +1071,9 @@ Ikinuwento pa sa kanila ni Jesus ang paghahalintulad na ito: "Ang kaharian ng Di
 
 
 
-Ito ang pinakamaliit sa lahat ng buto. Ngunit kapag tumubo at lumaki na, nagiging mas mataas ito kaysa sa ibang mga halamang gulay, na parang punongkahoy ang taas, at pinupugaran ng mga ibon ang mga sanga nito." ## Ang Paghahalintulad sa Pampaalsa 
+Ito ang pinakamaliit sa lahat ng buto. Ngunit kapag tumubo at lumaki na, nagiging mas mataas ito kaysa sa ibang mga halamang gulay, na parang punongkahoy ang taas, at pinupugaran ng mga ibon ang mga sanga nito." 
+
+## Ang Paghahalintulad sa Pampaalsa 
 
 
 
@@ -1096,7 +1106,9 @@ Ito ang pinakamaliit sa lahat ng buto. Ngunit kapag tumubo at lumaki na, nagigin
 
 
 
-Isa pang paghahalintulad ang ikinuwento ni Jesus: "Ang kaharian ng Dios ay katulad ng pampaalsang inihalo ng babae sa isang malaking planggana ng harina, at napaalsa nito ang buong masa ng harina." ## Ang Paggamit ni Jesus ng mga Paghahalintulad o mga Talinghaga 
+Isa pang paghahalintulad ang ikinuwento ni Jesus: "Ang kaharian ng Dios ay katulad ng pampaalsang inihalo ng babae sa isang malaking planggana ng harina, at napaalsa nito ang buong masa ng harina." 
+
+## Ang Paggamit ni Jesus ng mga Paghahalintulad o mga Talinghaga 
 
 
 
@@ -1162,7 +1174,9 @@ Gumamit si Jesus ng mga paghahalintulad o mga talinghaga sa lahat ng kanyang pan
 
 
 
-Sa ganitong paraan ay natupad ang sinabi ng Dios sa pamamagitan ng kanyang propeta: "Magsasalita ako sa kanila sa pamamagitan ng paghahalintulad. Sasabihin ko sa kanila ang mga bagay na nalilihim mula pa nang likhain ang mundo." ## Ang Kahulugan ng Talinghaga tungkol sa mga Damo sa Triguhan 
+Sa ganitong paraan ay natupad ang sinabi ng Dios sa pamamagitan ng kanyang propeta: "Magsasalita ako sa kanila sa pamamagitan ng paghahalintulad. Sasabihin ko sa kanila ang mga bagay na nalilihim mula pa nang likhain ang mundo." 
+
+## Ang Kahulugan ng Talinghaga tungkol sa mga Damo sa Triguhan 
 
 
 
@@ -1426,7 +1440,9 @@ Itatapon sila sa nagliliyab na apoy, at dooʼy iiyak sila at magngangalit ang ka
 
 
 
-Pero ang matutuwid ay magniningning na parang araw sa kaharian ng kanilang Ama. Kayong mga nakikinig, dapat ninyo itong pag-isipan!" ## Ang Paghahalintulad sa Natatagong Kayamanan 
+Pero ang matutuwid ay magniningning na parang araw sa kaharian ng kanilang Ama. Kayong mga nakikinig, dapat ninyo itong pag-isipan!" 
+
+## Ang Paghahalintulad sa Natatagong Kayamanan 
 
 
 
@@ -1459,7 +1475,9 @@ Pero ang matutuwid ay magniningning na parang araw sa kaharian ng kanilang Ama. 
 
 
 
-Sinabi pa ni Jesus, "Ang kaharian ng Dios ay katulad ng kayamanang nakabaon sa isang bukid. Nang mahukay ito ng isang tao, itinago niya itong muli. At sa tuwa niyaʼy umuwi siya at ipinagbili ang lahat ng kanyang ari-arian, at binili niya ang bukid na iyon." ## Ang Paghahalintulad sa Perlas 
+Sinabi pa ni Jesus, "Ang kaharian ng Dios ay katulad ng kayamanang nakabaon sa isang bukid. Nang mahukay ito ng isang tao, itinago niya itong muli. At sa tuwa niyaʼy umuwi siya at ipinagbili ang lahat ng kanyang ari-arian, at binili niya ang bukid na iyon." 
+
+## Ang Paghahalintulad sa Perlas 
 
 
 
@@ -1525,7 +1543,9 @@ Sinabi pa ni Jesus, "Ang kaharian ng Dios ay katulad ng kayamanang nakabaon sa i
 
 
 
-Nang makatagpo siya ng isang mamahaling perlas, ipinagbili niya ang lahat ng kanyang ari-arian at binili ang perlas na iyon." ## Ang Paghahalintulad sa Lambat 
+Nang makatagpo siya ng isang mamahaling perlas, ipinagbili niya ang lahat ng kanyang ari-arian at binili ang perlas na iyon." 
+
+## Ang Paghahalintulad sa Lambat 
 
 
 
@@ -1723,7 +1743,9 @@ Pagkatapos, tinanong sila ni Jesus, "Naunawaan ba ninyong lahat ang sinabi ko?" 
 
 
 
-At sinabi ni Jesus sa kanila, "Kaya nga, ang bawat tagapagturo ng Kautusan na naturuan tungkol sa kaharian ng Dios ay maitutulad sa isang may-ari ng bahay na maraming ari-arian sa bodega niya. Hindi lang ang mga lumang bagay ang kanyang inilalabas sa bodega kundi pati ang mga bago." ## Hindi Tinanggap si Jesus sa Nazaret 
+At sinabi ni Jesus sa kanila, "Kaya nga, ang bawat tagapagturo ng Kautusan na naturuan tungkol sa kaharian ng Dios ay maitutulad sa isang may-ari ng bahay na maraming ari-arian sa bodega niya. Hindi lang ang mga lumang bagay ang kanyang inilalabas sa bodega kundi pati ang mga bago." 
+
+## Hindi Tinanggap si Jesus sa Nazaret 
 
 
 

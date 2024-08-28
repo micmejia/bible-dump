@@ -436,7 +436,9 @@ Kung magtitiis tayo, maghahari rin tayong kasama niya. Kung itatakwil natin siya
 
 
 
-Kung hindi man tayo tapat, mananatili siyang tapat, dahil hindi niya maikakaila ang kanyang sarili." ## Ang Karapat-dapat na Alagad ng Dios 
+Kung hindi man tayo tapat, mananatili siyang tapat, dahil hindi niya maikakaila ang kanyang sarili." 
+
+## Ang Karapat-dapat na Alagad ng Dios 
 
 
 

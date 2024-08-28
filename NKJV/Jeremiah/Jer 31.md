@@ -49,7 +49,9 @@ Therefore they shall come and sing in the height of Zion, Streaming to the goodn
 "Then shall the virgin rejoice in the dance, And the young men and the old, together; For I will turn their mourning to joy, Will comfort them, And make them rejoice rather than sorrow. 
 
 ###### 14 
-I will satiate the soul of the priests with abundance, And My people shall be satisfied with My goodness, says the Lord." ## Mercy on Ephraim 
+I will satiate the soul of the priests with abundance, And My people shall be satisfied with My goodness, says the Lord." 
+
+## Mercy on Ephraim 
 
 ###### 15 
 Thus says the Lord: "A voice was heard in Ramah, Lamentation and bitter weeping, Rachel weeping for her children, Refusing to be comforted for her children, Because they are no more." 
@@ -73,7 +75,9 @@ Is Ephraim My dear son? Is he a pleasant child? For though I spoke against him, 
 "Set up signposts, Make landmarks; Set your heart toward the highway, The way in which you went. Turn back, O virgin of Israel, Turn back to these your cities. 
 
 ###### 22 
-How long will you gad about, O you backsliding daughter? For the Lord has created a new thing in the earth-- A woman shall encompass a man." ## Future Prosperity of Judah 
+How long will you gad about, O you backsliding daughter? For the Lord has created a new thing in the earth-- A woman shall encompass a man." 
+
+## Future Prosperity of Judah 
 
 ###### 23 
 Thus says the Lord of hosts, the God of Israel: "They shall again use this speech in the land of Judah and in its cities, when I bring back their captivity: 'The Lord bless you, O home of justice, and mountain of holiness!' 

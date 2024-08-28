@@ -436,7 +436,9 @@ At kung humihingi siya ng itlog, alakdan ba ang ibibigay ninyo?
 
 
 
-Kung kayong masasama ay marunong magbigay ng mabubuting bagay sa mga anak ninyo, gaano pa kaya ang inyong Amang nasa langit! Ibibigay niya ang Banal na Espiritu sa mga humihingi sa kanya." ## Si Jesus at si Satanas 
+Kung kayong masasama ay marunong magbigay ng mabubuting bagay sa mga anak ninyo, gaano pa kaya ang inyong Amang nasa langit! Ibibigay niya ang Banal na Espiritu sa mga humihingi sa kanya." 
+
+## Si Jesus at si Satanas 
 
 
 
@@ -766,7 +768,9 @@ Pero kapag sinalakay siya ng isang taong mas malakas kaysa sa kanya, matatalo si
 
 
 
-"Ang hindi kumakampi sa akin ay laban sa akin, at ang hindi tumutulong sa pagtitipon ko ay nagkakalat." ## Ang Pagbabalik ng Masamang Espiritu 
+"Ang hindi kumakampi sa akin ay laban sa akin, at ang hindi tumutulong sa pagtitipon ko ay nagkakalat." 
+
+## Ang Pagbabalik ng Masamang Espiritu 
 
 
 
@@ -865,7 +869,9 @@ Kung sa pagbabalik niya ay makita niyang malinis at maayos ang lahat,
 
 
 
-aalis siya at tatawag ng pito pang espiritu na mas masama kaysa sa kanya. Papasok sila sa taong iyon at doon maninirahan. Kaya lalo pang sasama ang kalagayan ng taong iyon kaysa sa dati." ## Ang Tunay na Mapalad 
+aalis siya at tatawag ng pito pang espiritu na mas masama kaysa sa kanya. Papasok sila sa taong iyon at doon maninirahan. Kaya lalo pang sasama ang kalagayan ng taong iyon kaysa sa dati." 
+
+## Ang Tunay na Mapalad 
 
 
 
@@ -931,7 +937,9 @@ Nagsasalita pa si Jesus nang biglang sumigaw ang isang babae sa gitna ng karamih
 
 
 
-Pero sumagot si Jesus, "Higit na mapalad ang mga nakikinig at sumusunod sa salita ng Dios." ## Humingi ng Himala ang mga Tao 
+Pero sumagot si Jesus, "Higit na mapalad ang mga nakikinig at sumusunod sa salita ng Dios." 
+
+## Humingi ng Himala ang mga Tao 
 
 
 
@@ -1063,7 +1071,9 @@ Sa Araw ng Paghuhukom, tatayo ang Reyna ng Timog at ipapamukha sa henerasyong it
 
 
 
-Maging ang mga taga-Nineve ay tatayo rin at hahatulan ang henerasyong ito, dahil nagsisi sila nang mangaral sa kanila si Jonas. At ngayon, narito ang isang nakahihigit pa kay Jonas, na nangangaral sa inyo, pero ayaw ninyong magsisi." ## Ang Ilaw ng Katawan 
+Maging ang mga taga-Nineve ay tatayo rin at hahatulan ang henerasyong ito, dahil nagsisi sila nang mangaral sa kanila si Jonas. At ngayon, narito ang isang nakahihigit pa kay Jonas, na nangangaral sa inyo, pero ayaw ninyong magsisi." 
+
+## Ang Ilaw ng Katawan 
 
 
 
@@ -1195,7 +1205,9 @@ Kaya tiyakin mong naliwanagan ka, dahil baka ang liwanag na inaakala mong nasa s
 
 
 
-Kung naliwanagan ang buo mong katawan, at walang bahaging nadiliman, magiging maliwanag ang lahat, na parang may ilaw na lumiliwanag sa iyo." ## Tinuligsa ni Jesus ang mga Pariseo at mga Tagapagturo ng Kautusan 
+Kung naliwanagan ang buo mong katawan, at walang bahaging nadiliman, magiging maliwanag ang lahat, na parang may ilaw na lumiliwanag sa iyo." 
+
+## Tinuligsa ni Jesus ang mga Pariseo at mga Tagapagturo ng Kautusan 
 
 
 

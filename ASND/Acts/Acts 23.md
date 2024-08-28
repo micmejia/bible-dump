@@ -370,7 +370,9 @@ Lalong uminit ang kanilang pagtatalo, hanggang sa natakot ang kumander na baka p
 
 
 
-Kinagabihan, nagpakita ang Panginoon kay Pablo at sinabi sa kanya, "Huwag kang matakot! Sapagkat kung paano ka nagpahayag tungkol sa akin dito sa Jerusalem, ganoon din ang gagawin mo sa Roma." ## Ang Planong Pagpatay kay Pablo 12-13Kinaumagahan, nagpulong ang mahigit 40 Judio, at nagplano sila kung ano ang kanilang gagawin. Nanumpa sila na hindi sila kakain at iinom hanggaʼt hindi nila napapatay si Pablo. 
+Kinagabihan, nagpakita ang Panginoon kay Pablo at sinabi sa kanya, "Huwag kang matakot! Sapagkat kung paano ka nagpahayag tungkol sa akin dito sa Jerusalem, ganoon din ang gagawin mo sa Roma." 
+
+## Ang Planong Pagpatay kay Pablo 12-13Kinaumagahan, nagpulong ang mahigit 40 Judio, at nagplano sila kung ano ang kanilang gagawin. Nanumpa sila na hindi sila kakain at iinom hanggaʼt hindi nila napapatay si Pablo. 
 
 
 

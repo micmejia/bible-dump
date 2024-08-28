@@ -370,7 +370,9 @@ At kung wala siyang kapatid na lalaki, ibigay ang kanyang lupa sa kapatid na lal
 
 
 
-Kung walang kapatid na lalaki ang kanyang ama, ibigay ang kanyang lupa sa pinakamalapit niyang kamag-anak at ang kanyang kamag-anak ang magmamana ng lupa. Itoʼy susundin ng mga Israelita bilang isang legal na kautusang dapat sundin, ayon sa iniutos ko sa iyo, Moises." ## Pinili si Josue Bilang Kapalit ni Moises 
+Kung walang kapatid na lalaki ang kanyang ama, ibigay ang kanyang lupa sa pinakamalapit niyang kamag-anak at ang kanyang kamag-anak ang magmamana ng lupa. Itoʼy susundin ng mga Israelita bilang isang legal na kautusang dapat sundin, ayon sa iniutos ko sa iyo, Moises." 
+
+## Pinili si Josue Bilang Kapalit ni Moises 
 
 
 

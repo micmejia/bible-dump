@@ -13,7 +13,9 @@ next: ['Exod 14']
 Then the Lord spoke to Moses, saying, 
 
 ###### 2 
-"Consecrate to Me all the firstborn, whatever opens the womb among the children of Israel, _both_ of man and beast; it is Mine." ## The Feast of Unleavened Bread 
+"Consecrate to Me all the firstborn, whatever opens the womb among the children of Israel, _both_ of man and beast; it is Mine." 
+
+## The Feast of Unleavened Bread 
 
 ###### 3 
 And Moses said to the people: "Remember this day in which you went out of Egypt, out of the house of bondage; for by strength of hand the Lord brought you out of this _place._ No leavened bread shall be eaten. 
@@ -57,7 +59,9 @@ So it shall be, when your son asks you in time to come, saying, 'What _is_ this?
 And it came to pass, when Pharaoh was stubborn about letting us go, that the Lord killed all the firstborn in the land of Egypt, both the firstborn of man and the firstborn of beast. Therefore I sacrifice to the Lord all males that open the womb, but all the firstborn of my sons I redeem.' 
 
 ###### 16 
-It shall be as a sign on your hand and as frontlets between your eyes, for by strength of hand the Lord brought us out of Egypt." ## The Wilderness Way 
+It shall be as a sign on your hand and as frontlets between your eyes, for by strength of hand the Lord brought us out of Egypt." 
+
+## The Wilderness Way 
 
 ###### 17 
 Then it came to pass, when Pharaoh had let the people go, that God did not lead them _by_ way of the land of the Philistines, although that _was_ near; for God said, "Lest perhaps the people change their minds when they see war, and return to Egypt." 

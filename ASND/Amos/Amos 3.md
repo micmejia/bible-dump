@@ -273,7 +273,9 @@ Sa katunayan, hindi gumagawa ng anuman ang Panginoong Dios na hindi muna niya ip
 
 
 
-Sino ang hindi matatakot kung umaatungal na ang leon? Sino kaya ang hindi magpapahayag ng mensahe ng Panginoong Dios kung ang Panginoong Dios na mismo ang nagsasalita sa kanya? ## Ang Hatol ng Dios sa Samaria 
+Sino ang hindi matatakot kung umaatungal na ang leon? Sino kaya ang hindi magpapahayag ng mensahe ng Panginoong Dios kung ang Panginoong Dios na mismo ang nagsasalita sa kanya? 
+
+## Ang Hatol ng Dios sa Samaria 
 
 
 

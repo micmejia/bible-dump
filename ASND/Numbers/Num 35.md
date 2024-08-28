@@ -271,7 +271,9 @@ Kaya 48 lahat ang mga bayan na inyong ibibigay sa mga Levita kasama ang kanilang
 
 
 
-Manggagaling ang mga bayan na ito sa mga lupain ng mga lahi ng Israel. Ang lahi na may maraming parte ay magbibigay ng maraming bayan at ang lahi na may kaunting parte ay magbibigay ng kaunti." ## Ang Lungsod na Tanggulan 
+Manggagaling ang mga bayan na ito sa mga lupain ng mga lahi ng Israel. Ang lahi na may maraming parte ay magbibigay ng maraming bayan at ang lahi na may kaunting parte ay magbibigay ng kaunti." 
+
+## Ang Lungsod na Tanggulan 
 
 
 

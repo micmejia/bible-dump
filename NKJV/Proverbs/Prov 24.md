@@ -73,7 +73,9 @@ For there will be no prospect for the evil _man;_ The lamp of the wicked will be
 My son, fear the Lord and the king; Do not associate with those given to change; 
 
 ###### 22 
-For their calamity will rise suddenly, And who knows the ruin those two can bring? ## Further Sayings of the Wise 
+For their calamity will rise suddenly, And who knows the ruin those two can bring? 
+
+## Further Sayings of the Wise 
 
 ###### 23 
 These _things_ also _belong_ to the wise: _It is_ not good to show partiality in judgment. 

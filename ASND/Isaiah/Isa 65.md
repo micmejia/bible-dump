@@ -172,7 +172,9 @@ Umuupo sila kung gabi sa mga libingan at sa mga lihim na lugar para makipag-usap
 
 
 
-Sinasabi nila sa iba, 'Huwag kang lumapit sa akin baka akoʼy madungisan. Mas banal ako kaysa sa iyo!' Naiinis ako sa ganitong mga tao. At ang galit ko sa kanila ay parang apoy na nagniningas sa buong maghapon." ###### 6-7 Sinabi pa ng Panginoon, "Makinig kayo, nakasulat na ang hatol para sa aking mga mamamayan. Hindi maaaring manahimik na lamang ako; maghihiganti ako. Gagantihan ko sila ng nararapat sa kanilang mga kasalanan pati ang mga kasalanan ng kanilang mga ninuno. Sapagkat nagsunog sila ng mga insenso at nilapastangan ako sa mga bundok at mga burol. Kaya gagantihan ko sila ng nararapat sa kanilang mga ginawa." 
+Sinasabi nila sa iba, 'Huwag kang lumapit sa akin baka akoʼy madungisan. Mas banal ako kaysa sa iyo!' Naiinis ako sa ganitong mga tao. At ang galit ko sa kanila ay parang apoy na nagniningas sa buong maghapon." 
+
+###### 6-7 Sinabi pa ng Panginoon, "Makinig kayo, nakasulat na ang hatol para sa aking mga mamamayan. Hindi maaaring manahimik na lamang ako; maghihiganti ako. Gagantihan ko sila ng nararapat sa kanilang mga kasalanan pati ang mga kasalanan ng kanilang mga ninuno. Sapagkat nagsunog sila ng mga insenso at nilapastangan ako sa mga bundok at mga burol. Kaya gagantihan ko sila ng nararapat sa kanilang mga ginawa." 
 
 
 

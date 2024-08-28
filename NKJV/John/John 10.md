@@ -72,7 +72,9 @@ Therefore there was a division again among the Jews because of these sayings.
 And many of them said, "He has a demon and is mad. Why do you listen to Him?" 
 
 ###### 21 
-Others said, "These are not the words of one who has a demon. Can a demon open the eyes of the blind?" ## The Shepherd Knows His Sheep 
+Others said, "These are not the words of one who has a demon. Can a demon open the eyes of the blind?" 
+
+## The Shepherd Knows His Sheep 
 
 ###### 22 
 Now it was the Feast of Dedication in Jerusalem, and it was winter. 
@@ -99,7 +101,9 @@ And I give them eternal life, and they shall never perish; neither shall anyone 
 My Father, who has given them to Me, is greater than all; and no one is able to snatch them out of My Father's hand. 
 
 ###### 30 
-I and My Father are one." ## Renewed Efforts to Stone Jesus 
+I and My Father are one." 
+
+## Renewed Efforts to Stone Jesus 
 
 ###### 31 
 Then the Jews took up stones again to stone Him. 

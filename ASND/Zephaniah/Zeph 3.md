@@ -435,7 +435,9 @@ Pero mag-iiwan ako sa Jerusalem ng mga taong aba at mahihirap na hihingi ng tulo
 
 
 
-Ang mga Israelitang ito ay hindi gagawa ng masama; hindi sila magsisinungaling o mandadaya. Kakain at matutulog silang payapa at walang kinatatakutan." ## Matutuwa ang mga Israelita 
+Ang mga Israelitang ito ay hindi gagawa ng masama; hindi sila magsisinungaling o mandadaya. Kakain at matutulog silang payapa at walang kinatatakutan." 
+
+## Matutuwa ang mga Israelita 
 
 
 

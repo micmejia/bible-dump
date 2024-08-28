@@ -39,7 +39,9 @@ I will camp around My house Because of the army, Because of him who passes by an
 "Rejoice greatly, O daughter of Zion! Shout, O daughter of Jerusalem! Behold, your King is coming to you; He is just and having salvation, Lowly and riding on a donkey, A colt, the foal of a donkey. 
 
 ###### 10 
-I will cut off the chariot from Ephraim And the horse from Jerusalem; The battle bow shall be cut off. He shall speak peace to the nations; His dominion shall be 'from sea to sea, And from the River to the ends of the earth.' ## God Will Save His People 
+I will cut off the chariot from Ephraim And the horse from Jerusalem; The battle bow shall be cut off. He shall speak peace to the nations; His dominion shall be 'from sea to sea, And from the River to the ends of the earth.' 
+
+## God Will Save His People 
 
 ###### 11 
 "As for you also, Because of the blood of your covenant, I will set your prisoners free from the waterless pit. 

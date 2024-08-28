@@ -37,7 +37,9 @@ And you shall write very plainly on the stones all the words of this law."
 Then Moses and the priests, the Levites, spoke to all Israel, saying, "Take heed and listen, O Israel: This day you have become the people of the Lord your God. 
 
 ###### 10 
-Therefore you shall obey the voice of the Lord your God, and observe His commandments and His statutes which I command you today." ## Curses Pronounced from Mount Ebal 
+Therefore you shall obey the voice of the Lord your God, and observe His commandments and His statutes which I command you today." 
+
+## Curses Pronounced from Mount Ebal 
 
 ###### 11 
 And Moses commanded the people on the same day, saying, 

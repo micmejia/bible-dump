@@ -63,7 +63,9 @@ But rise and stand on your feet; for I have appeared to you for this purpose, to
 I will deliver you from the Jewish people, as well as from the Gentiles, to whom I now send you, 
 
 ###### 18 
-to open their eyes, in order to turn them from darkness to light, and from the power of Satan to God, that they may receive forgiveness of sins and an inheritance among those who are sanctified by faith in Me.' ## Paul's Post-Conversion Life 
+to open their eyes, in order to turn them from darkness to light, and from the power of Satan to God, that they may receive forgiveness of sins and an inheritance among those who are sanctified by faith in Me.' 
+
+## Paul's Post-Conversion Life 
 
 ###### 19 
 "Therefore, King Agrippa, I was not disobedient to the heavenly vision, 
@@ -78,7 +80,9 @@ For these reasons the Jews seized me in the temple and tried to kill me.
 Therefore, having obtained help from God, to this day I stand, witnessing both to small and great, saying no other things than those which the prophets and Moses said would come-- 
 
 ###### 23 
-that the Christ would suffer, that He would be the first to rise from the dead, and would proclaim light to the Jewish people and to the Gentiles." ## Agrippa Parries Paul's Challenge 
+that the Christ would suffer, that He would be the first to rise from the dead, and would proclaim light to the Jewish people and to the Gentiles." 
+
+## Agrippa Parries Paul's Challenge 
 
 ###### 24 
 Now as he thus made his defense, Festus said with a loud voice, "Paul, you are beside yourself! Much learning is driving you mad!" 

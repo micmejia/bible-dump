@@ -139,7 +139,9 @@ Hinawakan siya ni Jesus at sinabi, "Gusto ko. Luminis ka!" Agad na gumaling ang 
 
 
 
-At sinabi sa kanya ni Jesus, "Huwag mo itong sasabihin kaninuman. Sa halip, pumunta ka sa pari at magpasuri. Pagkatapos, maghandog ka ayon sa iniutos ni Moises bilang patunay na malinis ka na." ## Pinagaling ni Jesus ang Utusan ng Kapitan 
+At sinabi sa kanya ni Jesus, "Huwag mo itong sasabihin kaninuman. Sa halip, pumunta ka sa pari at magpasuri. Pagkatapos, maghandog ka ayon sa iniutos ni Moises bilang patunay na malinis ka na." 
+
+## Pinagaling ni Jesus ang Utusan ng Kapitan 
 
 
 
@@ -570,7 +572,9 @@ Nang magtakip-silim na, maraming sinasaniban ng masasamang espiritu ang dinala n
 
 
 
-Ginawa niya ang mga ito upang matupad ang sinabi ni Propeta Isaias, "Kinuha niya ang ating mga sakit at inalis ang ating mga karamdaman." ## Ang Pagsunod kay Jesus 
+Ginawa niya ang mga ito upang matupad ang sinabi ni Propeta Isaias, "Kinuha niya ang ating mga sakit at inalis ang ating mga karamdaman." 
+
+## Ang Pagsunod kay Jesus 
 
 
 
@@ -735,7 +739,9 @@ Isa pa sa mga tagasunod niya ang nagsabi, "Panginoon, pauwiin po muna ninyo ako 
 
 
 
-Pero sinabi ni Jesus sa kanya, "Sumunod ka sa akin at ipaubaya mo sa mga patay ang paglilibing ng kanilang patay." ## Pinatigil ni Jesus ang Malakas na Hangin at Alon 
+Pero sinabi ni Jesus sa kanya, "Sumunod ka sa akin at ipaubaya mo sa mga patay ang paglilibing ng kanilang patay." 
+
+## Pinatigil ni Jesus ang Malakas na Hangin at Alon 
 
 
 
@@ -900,7 +906,9 @@ Sumagot si Jesus, "Bakit kayo natatakot? Kay liit ng inyong pananampalataya." Bu
 
 
 
-Namangha ang mga tagasunod niya at sinabi, "Anong klaseng tao ito? Kahit ang hangin at mga alon ay napapasunod niya!" ## Pinagaling ni Jesus ang Dalawang Lalaking Sinasaniban ng Masasamang Espiritu 
+Namangha ang mga tagasunod niya at sinabi, "Anong klaseng tao ito? Kahit ang hangin at mga alon ay napapasunod niya!" 
+
+## Pinagaling ni Jesus ang Dalawang Lalaking Sinasaniban ng Masasamang Espiritu 
 
 
 

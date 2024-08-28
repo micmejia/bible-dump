@@ -49,7 +49,9 @@ So when they were filled, He said to His disciples, "Gather up the fragments tha
 Therefore they gathered them up, and filled twelve baskets with the fragments of the five barley loaves which were left over by those who had eaten. 
 
 ###### 14 
-Then those men, when they had seen the sign that Jesus did, said, "This is truly the Prophet who is to come into the world." ## Jesus Walks on the Sea 
+Then those men, when they had seen the sign that Jesus did, said, "This is truly the Prophet who is to come into the world." 
+
+## Jesus Walks on the Sea 
 
 ###### 15 
 Therefore when Jesus perceived that they were about to come and take Him by force to make Him king, He departed again to the mountain by Himself alone. 
@@ -129,7 +131,9 @@ For I have come down from heaven, not to do My own will, but the will of Him who
 This is the will of the Father who sent Me, that of all He has given Me I should lose nothing, but should raise it up at the last day. 
 
 ###### 40 
-And this is the will of Him who sent Me, that everyone who sees the Son and believes in Him may have everlasting life; and I will raise him up at the last day." ## Rejected by His Own 
+And this is the will of Him who sent Me, that everyone who sees the Son and believes in Him may have everlasting life; and I will raise him up at the last day." 
+
+## Rejected by His Own 
 
 ###### 41 
 The Jews then complained about Him, because He said, "I am the bread which came down from heaven." 

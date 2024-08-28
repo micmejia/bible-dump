@@ -19,7 +19,9 @@ The width of the entryway was ten cubits, and the side walls of the entrance wer
 Also he went inside and measured the doorposts, two cubits; and the entrance, six cubits high; and the width of the entrance, seven cubits. 
 
 ###### 4 
-He measured the length, twenty cubits; and the width, twenty cubits, beyond the sanctuary; and he said to me, "This is the Most Holy Place." ## The Side Chambers on the Wall 
+He measured the length, twenty cubits; and the width, twenty cubits, beyond the sanctuary; and he said to me, "This is the Most Holy Place." 
+
+## The Side Chambers on the Wall 
 
 ###### 5 
 Next, he measured the wall of the temple, six cubits. The width of each side chamber all around the temple was four cubits on every side. 

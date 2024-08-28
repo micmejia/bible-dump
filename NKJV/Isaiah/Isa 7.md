@@ -34,7 +34,9 @@ thus says the Lord God: "It shall not stand, Nor shall it come to pass.
 For the head of Syria _is_ Damascus, And the head of Damascus _is_ Rezin. Within sixty-five years Ephraim will be broken, _So that it will_ not _be_ a people. 
 
 ###### 9 
-The head of Ephraim _is_ Samaria, And the head of Samaria _is_ Remaliah's son. If you will not believe, Surely you shall not be established." ' " ## The Immanuel Prophecy 
+The head of Ephraim _is_ Samaria, And the head of Samaria _is_ Remaliah's son. If you will not believe, Surely you shall not be established." ' " 
+
+## The Immanuel Prophecy 
 
 ###### 10 
 Moreover the Lord spoke again to Ahaz, saying, 

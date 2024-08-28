@@ -337,7 +337,9 @@ Sinabi sa kanya ni Jesus, "Dumating na ngayon ang kaligtasan sa sambahayang ito,
 
 
 
-Sapagkat ako na Anak ng Tao ay naparito upang hanapin at iligtas ang naliligaw." ## Ang Talinghaga tungkol sa Tatlong Alipin 
+Sapagkat ako na Anak ng Tao ay naparito upang hanapin at iligtas ang naliligaw." 
+
+## Ang Talinghaga tungkol sa Tatlong Alipin 
 
 
 
@@ -898,7 +900,9 @@ Sumagot ang hari, 'Tandaan ninyo: ang mayroon ay bibigyan pa, ngunit ang wala, k
 
 
 
-Tungkol naman sa mga kaaway ko na ayaw pasakop sa akin bilang hari, dalhin nʼyo sila rito at patayin sa harap ko.' " ## Ang Matagumpay na Pagpasok ni Jesus sa Jerusalem 
+Tungkol naman sa mga kaaway ko na ayaw pasakop sa akin bilang hari, dalhin nʼyo sila rito at patayin sa harap ko.' " 
+
+## Ang Matagumpay na Pagpasok ni Jesus sa Jerusalem 
 
 
 
@@ -1327,7 +1331,9 @@ Sinabi sa kanya ng ilang Pariseong kasama ng karamihan, "Guro, sawayin mo ang mg
 
 
 
-Pero sinagot sila ni Jesus, "Sinasabi ko sa inyo: kung tatahimik sila, ang mga bato na ang sisigaw ng papuri." ## Umiyak si Jesus para sa mga Taga-Jerusalem 
+Pero sinagot sila ni Jesus, "Sinasabi ko sa inyo: kung tatahimik sila, ang mga bato na ang sisigaw ng papuri." 
+
+## Umiyak si Jesus para sa mga Taga-Jerusalem 
 
 
 
@@ -1459,7 +1465,9 @@ Darating ang araw na papaligiran kayo ng kuta ng inyong mga kaaway. Palilibutan 
 
 
 
-Lilipulin nila kayo at ang inyong mga anak, at wawasakin nila ang lungsod ninyo. Wala silang iiwang bato na magkapatong. Mangyayari ang lahat ng ito sa inyo, dahil binalewala ninyo ang araw ng pagliligtas sa inyo ng Dios." ## Ang Pagmamalasakit ni Jesus sa Templo 
+Lilipulin nila kayo at ang inyong mga anak, at wawasakin nila ang lungsod ninyo. Wala silang iiwang bato na magkapatong. Mangyayari ang lahat ng ito sa inyo, dahil binalewala ninyo ang araw ng pagliligtas sa inyo ng Dios." 
+
+## Ang Pagmamalasakit ni Jesus sa Templo 
 
 
 

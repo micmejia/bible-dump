@@ -46,7 +46,9 @@ Therefore if you have not been faithful in the unrighteous mammon, who will comm
 And if you have not been faithful in what is another man's, who will give you what is your own? 
 
 ###### 13 
-"No servant can serve two masters; for either he will hate the one and love the other, or else he will be loyal to the one and despise the other. You cannot serve God and mammon." ## The Law, the Prophets, and the Kingdom 
+"No servant can serve two masters; for either he will hate the one and love the other, or else he will be loyal to the one and despise the other. You cannot serve God and mammon." 
+
+## The Law, the Prophets, and the Kingdom 
 
 ###### 14 
 Now the Pharisees, who were lovers of money, also heard all these things, and they derided Him. 

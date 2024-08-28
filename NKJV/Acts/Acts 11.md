@@ -61,7 +61,9 @@ Then I remembered the word of the Lord, how He said, 'John indeed baptized with 
 If therefore God gave them the same gift as He gave us when we believed on the Lord Jesus Christ, who was I that I could withstand God?" 
 
 ###### 18 
-When they heard these things they became silent; and they glorified God, saying, "Then God has also granted to the Gentiles repentance to life." ## Barnabas and Saul at Antioch 
+When they heard these things they became silent; and they glorified God, saying, "Then God has also granted to the Gentiles repentance to life." 
+
+## Barnabas and Saul at Antioch 
 
 ###### 19 
 Now those who were scattered after the persecution that arose over Stephen traveled as far as Phoenicia, Cyprus, and Antioch, preaching the word to no one but the Jews only. 

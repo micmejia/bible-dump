@@ -801,7 +801,9 @@ Ngayon, kung tinutuli nʼyo nga ang bata sa Araw ng Pamamahinga para hindi masuw
 
 
 
-Huwag kayong humusga ayon lang sa nakikita ninyo, kundi humusga kayo ayon sa nararapat." ## Nagtanong ang mga Tao kung si Jesus nga ba ang Cristo 
+Huwag kayong humusga ayon lang sa nakikita ninyo, kundi humusga kayo ayon sa nararapat." 
+
+## Nagtanong ang mga Tao kung si Jesus nga ba ang Cristo 
 
 
 
@@ -1032,7 +1034,9 @@ Dahil sa mga sinabing ito ni Jesus, gusto na sana siyang dakpin ng mga pinuno ng
 
 
 
-Sa kabila nito, marami pa rin sa mga tao ang sumampalataya sa kanya. Sinabi nila, "Siya na nga ang Cristo, dahil walang makakahigit sa mga himalang ginagawa niya." ## Inutusan ang mga Guwardya sa Templo na Dakpin si Jesus 
+Sa kabila nito, marami pa rin sa mga tao ang sumampalataya sa kanya. Sinabi nila, "Siya na nga ang Cristo, dahil walang makakahigit sa mga himalang ginagawa niya." 
+
+## Inutusan ang mga Guwardya sa Templo na Dakpin si Jesus 
 
 
 
@@ -1197,7 +1201,9 @@ Nagtanungan ang mga pinuno ng mga Judio, "Saan kaya niya balak pumunta at hindi 
 
 
 
-Bakit kaya niya sinabing, 'Hahanapin ninyo ako ngunit hindi ninyo ako makikita, dahil hindi kayo makakapunta sa aking pupuntahan'?" ## Ang Tubig na Nagbibigay-buhay 
+Bakit kaya niya sinabing, 'Hahanapin ninyo ako ngunit hindi ninyo ako makikita, dahil hindi kayo makakapunta sa aking pupuntahan'?" 
+
+## Ang Tubig na Nagbibigay-buhay 
 
 
 
@@ -1296,7 +1302,9 @@ Sapagkat sinasabi sa Kasulatan na dadaloy ang tubig na nagbibigay-buhay mula sa 
 
 
 
-(Ang tubig na tinutukoy ni Jesus ay ang Banal na Espiritu na malapit nang tanggapin ng mga sumasampalataya sa kanya. Hindi pa naipagkakaloob ang Banal na Espiritu nang panahong iyon dahil hindi pa nakabalik sa langit si Jesus.) ## Ang Paniniwala ng mga Tao tungkol kay Jesus 
+(Ang tubig na tinutukoy ni Jesus ay ang Banal na Espiritu na malapit nang tanggapin ng mga sumasampalataya sa kanya. Hindi pa naipagkakaloob ang Banal na Espiritu nang panahong iyon dahil hindi pa nakabalik sa langit si Jesus.) 
+
+## Ang Paniniwala ng mga Tao tungkol kay Jesus 
 
 
 

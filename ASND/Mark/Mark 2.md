@@ -337,7 +337,9 @@ Ngayon, papatunayan ko sa inyo sa pamamagitan ng pagpapagaling sa taong ito na a
 
 
 
-Tumayo nga ang paralitiko, agad na binuhat ang kanyang higaan at lumabas habang nakatingin ang lahat. Namangha ang lahat at pinuri nila ang Dios. Sinabi nila, "Ngayon lang kami nakakita ng ganito." ## Tinawag ni Jesus si Levi 
+Tumayo nga ang paralitiko, agad na binuhat ang kanyang higaan at lumabas habang nakatingin ang lahat. Namangha ang lahat at pinuri nila ang Dios. Sinabi nila, "Ngayon lang kami nakakita ng ganito." 
+
+## Tinawag ni Jesus si Levi 
 
 
 
@@ -502,7 +504,9 @@ May mga Pariseong tagapagturo ng Kautusan na naroon. Nang makita nilang kumakain
 
 
 
-Narinig iyon ni Jesus, kaya sinagot niya ang mga ito, "Ang mga taong walang sakit ay hindi nangangailangan ng doktor, kundi ang mga may sakit. Naparito ako hindi upang tawagin ang mga taong matuwid sa kanilang sariling paningin, kundi ang mga makasalanan." ## Ang Tanong tungkol sa Pag-aayuno 
+Narinig iyon ni Jesus, kaya sinagot niya ang mga ito, "Ang mga taong walang sakit ay hindi nangangailangan ng doktor, kundi ang mga may sakit. Naparito ako hindi upang tawagin ang mga taong matuwid sa kanilang sariling paningin, kundi ang mga makasalanan." 
+
+## Ang Tanong tungkol sa Pag-aayuno 
 
 
 
@@ -667,7 +671,9 @@ Sinabi pa ni Jesus, "Walang nagtatagpi ng bagong tela sa lumang damit, dahil uur
 
 
 
-Wala ring naglalagay ng bagong alak sa lumang sisidlang-balat, dahil puputok ang sisidlan at matatapon ang alak, at pareho itong hindi na mapapakinabangan. Sa halip, inilalagay ang bagong alak sa bagong sisidlang-balat." ## Ang Tanong tungkol sa Araw ng Pamamahinga 
+Wala ring naglalagay ng bagong alak sa lumang sisidlang-balat, dahil puputok ang sisidlan at matatapon ang alak, at pareho itong hindi na mapapakinabangan. Sa halip, inilalagay ang bagong alak sa bagong sisidlang-balat." 
+
+## Ang Tanong tungkol sa Araw ng Pamamahinga 
 
 
 

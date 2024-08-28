@@ -403,7 +403,9 @@ Ngunit kung ayaw kayong tanggapin sa isang bayan, umalis kayo, at habang naglala
 
 
 
-Sinabi pa ni Jesus sa mga tagasunod niya, "Tinitiyak ko sa inyo na sa Araw ng Paghuhukom, mas mabigat na parusa ang tatanggapin nila kaysa sa mga taga-Sodom." ## Babala sa mga Bayang Hindi Nagsisisi 
+Sinabi pa ni Jesus sa mga tagasunod niya, "Tinitiyak ko sa inyo na sa Araw ng Paghuhukom, mas mabigat na parusa ang tatanggapin nila kaysa sa mga taga-Sodom." 
+
+## Babala sa mga Bayang Hindi Nagsisisi 
 
 
 
@@ -535,7 +537,9 @@ At kayo namang mga taga-Capernaum, inaakala ninyong pupurihin kayo kahit sa lang
 
 
 
-Pagkatapos, sinabi ni Jesus sa mga sinugo niya, "Ang nakikinig sa inyoʼy nakikinig sa akin, ang nagtatakwil sa inyoʼy nagtatakwil sa akin, at ang nagtatakwil sa akin ay nagtatakwil sa nagsugo sa akin." ## Bumalik ang 72 Tagasunod ni Jesus 
+Pagkatapos, sinabi ni Jesus sa mga sinugo niya, "Ang nakikinig sa inyoʼy nakikinig sa akin, ang nagtatakwil sa inyoʼy nagtatakwil sa akin, at ang nagtatakwil sa akin ay nagtatakwil sa nagsugo sa akin." 
+
+## Bumalik ang 72 Tagasunod ni Jesus 
 
 
 
@@ -667,7 +671,9 @@ Binigyan ko kayo ng kapangyarihang daigin ang masasamang espiritu at ang lahat n
 
 
 
-Ganoon pa man, huwag kayong matuwa dahil napapasunod ninyo ang masasamang espiritu kundi matuwa kayo dahil nakasulat sa langit ang pangalan ninyo." ## Napuno si Jesus ng Kagalakang Mula sa Banal na Espiritu 
+Ganoon pa man, huwag kayong matuwa dahil napapasunod ninyo ang masasamang espiritu kundi matuwa kayo dahil nakasulat sa langit ang pangalan ninyo." 
+
+## Napuno si Jesus ng Kagalakang Mula sa Banal na Espiritu 
 
 
 
@@ -799,7 +805,9 @@ Humarap si Jesus sa mga tagasunod niya at sinabi sa kanila ng sarilinan, "Mapala
 
 
 
-Sinasabi ko sa inyo na maraming propeta at mga hari noon ang naghangad na makakita at makarinig ng nakikita at naririnig ninyo ngayon, pero hindi ito nangyari sa panahon nila." ## Ang Mabuting Samaritano 
+Sinasabi ko sa inyo na maraming propeta at mga hari noon ang naghangad na makakita at makarinig ng nakikita at naririnig ninyo ngayon, pero hindi ito nangyari sa panahon nila." 
+
+## Ang Mabuting Samaritano 
 
 
 
@@ -1228,7 +1236,9 @@ Nagtanong ngayon si Jesus sa tagapagturo ng Kautusan, "Sa palagay mo, sino sa ta
 
 
 
-Sumagot siya, "Ang tao pong nagpakita ng awa sa kanya." Sinabi sa kanya ni Jesus, "Lumakad ka at ganoon din ang gawin mo." ## Dumalaw si Jesus kina Marta at Maria 
+Sumagot siya, "Ang tao pong nagpakita ng awa sa kanya." Sinabi sa kanya ni Jesus, "Lumakad ka at ganoon din ang gawin mo." 
+
+## Dumalaw si Jesus kina Marta at Maria 
 
 
 

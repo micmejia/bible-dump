@@ -25,7 +25,9 @@ It shall come to pass that if anyone still prophesies, then his father and mothe
 But he will say, 'I am no prophet, I am a farmer; for a man taught me to keep cattle from my youth.' 
 
 ###### 6 
-And one will say to him, 'What are these wounds between your arms?' Then he will answer, 'Those with which I was wounded in the house of my friends.' ## The Shepherd Savior 
+And one will say to him, 'What are these wounds between your arms?' Then he will answer, 'Those with which I was wounded in the house of my friends.' 
+
+## The Shepherd Savior 
 
 ###### 7 
 "Awake, O sword, against My Shepherd, Against the Man who is My Companion," Says the Lord of hosts. "Strike the Shepherd, And the sheep will be scattered; Then I will turn My hand against the little ones. 

@@ -19,7 +19,9 @@ For if the word spoken through angels proved steadfast, and every transgression 
 how shall we escape if we neglect so great a salvation, which at the first began to be spoken by the Lord, and was confirmed to us by those who heard Him, 
 
 ###### 4 
-God also bearing witness both with signs and wonders, with various miracles, and gifts of the Holy Spirit, according to His own will? ## The Son Made Lower than Angels 
+God also bearing witness both with signs and wonders, with various miracles, and gifts of the Holy Spirit, according to His own will? 
+
+## The Son Made Lower than Angels 
 
 ###### 5 
 For He has not put the world to come, of which we speak, in subjection to angels. 

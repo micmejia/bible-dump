@@ -1066,7 +1066,9 @@ Noong unaʼy hindi ko rin kilala kung sino siya, ngunit ang Dios na nag-utos sa 
 
 
 
-Nakita ko ito at nagpapatotoo ako na siya ang Anak ng Dios." ## Ang mga Unang Tagasunod ni Jesus 
+Nakita ko ito at nagpapatotoo ako na siya ang Anak ng Dios." 
+
+## Ang mga Unang Tagasunod ni Jesus 
 
 
 
@@ -1330,7 +1332,9 @@ Kinaumagahan, hinanap kaagad ni Andres ang kapatid niyang si Simon at sinabi sa 
 
 
 
-Isinama niya si Simon kay Jesus. At nang makarating sila kay Jesus, tiningnan ni Jesus si Simon at sinabi, "Ikaw si Simon na anak ni Juan, mula ngayon ay tatawagin ka nang Cefas." (Ang Cefas ay pareho rin ng pangalang Pedro.) ## Ang Pagtawag ni Jesus kina Felipe at Natanael 
+Isinama niya si Simon kay Jesus. At nang makarating sila kay Jesus, tiningnan ni Jesus si Simon at sinabi, "Ikaw si Simon na anak ni Juan, mula ngayon ay tatawagin ka nang Cefas." (Ang Cefas ay pareho rin ng pangalang Pedro.) 
+
+## Ang Pagtawag ni Jesus kina Felipe at Natanael 
 
 
 

@@ -106,7 +106,9 @@ Ibinigay ko ang tungkulin ng pamamahala sa Jerusalem sa kapatid kong si Hanani k
 
 
 
-Sinabi ko sa kanila, "Huwag nʼyong pabayaang nakabukas ang mga pintuan ng lungsod kapag tanghaling-tapat, kahit may mga guwardya pa na nagbabantay. Dapat nakasara ito at nakakandado. Maglagay din kayo ng mga guwardya mula sa mga mamamayan ng Jerusalem. Ang iba sa kanila ay ilagay sa pader na malapit sa mga bahay nila, at ang iba naman ay ilagay sa ibang bahagi ng pader." ## Ang Talaan ng mga Tao na Bumalik mula sa Pagkabihag. 
+Sinabi ko sa kanila, "Huwag nʼyong pabayaang nakabukas ang mga pintuan ng lungsod kapag tanghaling-tapat, kahit may mga guwardya pa na nagbabantay. Dapat nakasara ito at nakakandado. Maglagay din kayo ng mga guwardya mula sa mga mamamayan ng Jerusalem. Ang iba sa kanila ay ilagay sa pader na malapit sa mga bahay nila, at ang iba naman ay ilagay sa ibang bahagi ng pader." 
+
+## Ang Talaan ng mga Tao na Bumalik mula sa Pagkabihag. 
 
 
 

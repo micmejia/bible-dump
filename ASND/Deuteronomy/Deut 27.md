@@ -337,7 +337,9 @@ Sinabi pa ni Moises at ng mga pari na mga Levita sa lahat ng Israelita, "Makinig
 
 
 
-Kaya sundin ninyo ang Panginoon na inyong Dios at tuparin ang lahat ng utos at tuntunin niyang ibinibigay ko sa inyo ngayon." ## Ang mga Sumpa 
+Kaya sundin ninyo ang Panginoon na inyong Dios at tuparin ang lahat ng utos at tuntunin niyang ibinibigay ko sa inyo ngayon." 
+
+## Ang mga Sumpa 
 
 
 

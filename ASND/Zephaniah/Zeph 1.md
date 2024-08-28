@@ -437,7 +437,9 @@ Mag-iyakan kayo, kayong mga naninirahan sa mababang bahagi ng lungsod ng Jerusal
 
 
 
-Aagawin sa mga taong ito ang kanilang mga pag-aari at wawasakin ang kanilang mga bahay. Hindi sila ang titira sa mga bahay na kanilang itinayo. At hindi sila ang iinom ng inuming mula sa ubas na kanilang itinanim." ## Ang Nakakatakot na Araw ng Pagpaparusa ng Panginoon 
+Aagawin sa mga taong ito ang kanilang mga pag-aari at wawasakin ang kanilang mga bahay. Hindi sila ang titira sa mga bahay na kanilang itinayo. At hindi sila ang iinom ng inuming mula sa ubas na kanilang itinanim." 
+
+## Ang Nakakatakot na Araw ng Pagpaparusa ng Panginoon 
 
 
 

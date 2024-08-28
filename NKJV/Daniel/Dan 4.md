@@ -61,7 +61,9 @@ Let his heart be changed from that of a man, Let him be given the heart of a bea
 'This decision is by the decree of the watchers, And the sentence by the word of the holy ones, In order that the living may know That the Most High rules in the kingdom of men, Gives it to whomever He will, And sets over it the lowest of men.' 
 
 ###### 18 
-"This dream I, King Nebuchadnezzar, have seen. Now you, Belteshazzar, declare its interpretation, since all the wise men of my kingdom are not able to make known to me the interpretation; but you are able, for the Spirit of the Holy God is in you." ## Daniel Explains the Second Dream 
+"This dream I, King Nebuchadnezzar, have seen. Now you, Belteshazzar, declare its interpretation, since all the wise men of my kingdom are not able to make known to me the interpretation; but you are able, for the Spirit of the Holy God is in you." 
+
+## Daniel Explains the Second Dream 
 
 ###### 19 
 Then Daniel, whose name was Belteshazzar, was astonished for a time, and his thoughts troubled him. So the king spoke, and said, "Belteshazzar, do not let the dream or its interpretation trouble you." Belteshazzar answered and said, "My lord, may the dream concern those who hate you, and its interpretation concern your enemies! 
@@ -88,7 +90,9 @@ They shall drive you from men, your dwelling shall be with the beasts of the fie
 "And inasmuch as they gave the command to leave the stump and roots of the tree, your kingdom shall be assured to you, after you come to know that Heaven rules. 
 
 ###### 27 
-Therefore, O king, let my advice be acceptable to you; break off your sins by being righteous, and your iniquities by showing mercy to the poor. Perhaps there may be a lengthening of your prosperity." ## Nebuchadnezzar's Humiliation 
+Therefore, O king, let my advice be acceptable to you; break off your sins by being righteous, and your iniquities by showing mercy to the poor. Perhaps there may be a lengthening of your prosperity." 
+
+## Nebuchadnezzar's Humiliation 
 
 ###### 28 
 All this came upon King Nebuchadnezzar. 

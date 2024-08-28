@@ -22,7 +22,9 @@ I tell you, no; but unless you repent you will all likewise perish.
 Or those eighteen on whom the tower in Siloam fell and killed them, do you think that they were worse sinners than all other men who dwelt in Jerusalem? 
 
 ###### 5 
-I tell you, no; but unless you repent you will all likewise perish." ## The Parable of the Barren Fig Tree 
+I tell you, no; but unless you repent you will all likewise perish." 
+
+## The Parable of the Barren Fig Tree 
 
 ###### 6 
 He also spoke this parable: "A certain man had a fig tree planted in his vineyard, and he came seeking fruit on it and found none. 
@@ -34,7 +36,9 @@ Then he said to the keeper of his vineyard, 'Look, for three years I have come s
 But he answered and said to him, 'Sir, let it alone this year also, until I dig around it and fertilize it. 
 
 ###### 9 
-And if it bears fruit, well. But if not, after that you can cut it down.' " ## A Spirit of Infirmity 
+And if it bears fruit, well. But if not, after that you can cut it down.' " 
+
+## A Spirit of Infirmity 
 
 ###### 10 
 Now He was teaching in one of the synagogues on the Sabbath. 
@@ -66,13 +70,17 @@ And when He said these things, all His adversaries were put to shame; and all th
 Then He said, "What is the kingdom of God like? And to what shall I compare it? 
 
 ###### 19 
-It is like a mustard seed, which a man took and put in his garden; and it grew and became a large tree, and the birds of the air nested in its branches." ## The Parable of the Leaven 
+It is like a mustard seed, which a man took and put in his garden; and it grew and became a large tree, and the birds of the air nested in its branches." 
+
+## The Parable of the Leaven 
 
 ###### 20 
 And again He said, "To what shall I liken the kingdom of God? 
 
 ###### 21 
-It is like leaven, which a woman took and hid in three measures of meal till it was all leavened." ## The Narrow Way 
+It is like leaven, which a woman took and hid in three measures of meal till it was all leavened." 
+
+## The Narrow Way 
 
 ###### 22 
 And He went through the cities and villages, teaching, and journeying toward Jerusalem. 

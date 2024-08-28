@@ -370,7 +370,9 @@ Nang pumasok si Jesus sa Jerusalem, nagkagulo ang buong lungsod, at nagtanungan 
 
 
 
-Sumagot ang mga kasama ni Jesus, "Siya ang propetang si Jesus na taga-Nazaret, na sakop ng Galilea." ## Ang Pagmamalasakit ni Jesus sa Templo 
+Sumagot ang mga kasama ni Jesus, "Siya ang propetang si Jesus na taga-Nazaret, na sakop ng Galilea." 
+
+## Ang Pagmamalasakit ni Jesus sa Templo 
 
 
 
@@ -735,7 +737,9 @@ Sumagot si Jesus, "Sinasabi ko sa inyo ang totoo, kung may pananampalataya kayo 
 
 
 
-Anumang hilingin ninyo sa Dios sa panalangin ay matatanggap ninyo kung sumasampalataya kayo." ## Ang Tanong tungkol sa Awtoridad ni Jesus 
+Anumang hilingin ninyo sa Dios sa panalangin ay matatanggap ninyo kung sumasampalataya kayo." 
+
+## Ang Tanong tungkol sa Awtoridad ni Jesus 
 
 
 
@@ -900,7 +904,9 @@ Pero kung sasabihin nating mula sa tao, magagalit sa atin ang mga tao, dahil nan
 
 
 
-Kaya sumagot sila, "Hindi namin alam." At sinabi ni Jesus sa kanila, "Kung ganoon, hindi ko rin sasabihin sa inyo kung saan nagmula ang awtoridad ko na gumawa ng mga bagay na ito." ## Ang Talinghaga tungkol sa Dalawang Anak 
+Kaya sumagot sila, "Hindi namin alam." At sinabi ni Jesus sa kanila, "Kung ganoon, hindi ko rin sasabihin sa inyo kung saan nagmula ang awtoridad ko na gumawa ng mga bagay na ito." 
+
+## Ang Talinghaga tungkol sa Dalawang Anak 
 
 
 
@@ -1065,7 +1071,9 @@ Sino ngayon sa dalawa ang sumunod sa kalooban ng kanilang ama?" Sumagot sila, "A
 
 
 
-Sapagkat dumating sa inyo si Juan na tagapagbautismo, at itinuro sa inyo ang tamang daan sa matuwid na pamumuhay, pero hindi kayo naniwala. Pero ang mga maniningil ng buwis at ang mga babaeng bayaran ay naniwala sa kanya. At kahit na nakita ninyo ito, hindi pa rin kayo nagsisi sa mga kasalanan ninyo at naniwala sa kanya." ## Ang Talinghaga tungkol sa Masasamang Magsasaka 
+Sapagkat dumating sa inyo si Juan na tagapagbautismo, at itinuro sa inyo ang tamang daan sa matuwid na pamumuhay, pero hindi kayo naniwala. Pero ang mga maniningil ng buwis at ang mga babaeng bayaran ay naniwala sa kanya. At kahit na nakita ninyo ito, hindi pa rin kayo nagsisi sa mga kasalanan ninyo at naniwala sa kanya." 
+
+## Ang Talinghaga tungkol sa Masasamang Magsasaka 
 
 
 

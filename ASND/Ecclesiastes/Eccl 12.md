@@ -270,7 +270,9 @@ Kung magkagayon, babalik ka sa lupa kung saan ka nagmula at ang espiritu moʼy b
 
 
 
-Sabi ng mangangaral, "Walang kabuluhan! Tunay na walang kabuluhan ang lahat!" ## Paggalang at Pagsunod sa Dios 
+Sabi ng mangangaral, "Walang kabuluhan! Tunay na walang kabuluhan ang lahat!" 
+
+## Paggalang at Pagsunod sa Dios 
 
 
 

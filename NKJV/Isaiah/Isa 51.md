@@ -55,7 +55,9 @@ The captive exile hastens, that he may be loosed, That he should not die in the 
 But I am the Lord your God, Who divided the sea whose waves roared-- The Lord of hosts is His name. 
 
 ###### 16 
-And I have put My words in your mouth; I have covered you with the shadow of My hand, That I may plant the heavens, Lay the foundations of the earth, And say to Zion, 'You are My people.' " ## God's Fury Removed 
+And I have put My words in your mouth; I have covered you with the shadow of My hand, That I may plant the heavens, Lay the foundations of the earth, And say to Zion, 'You are My people.' " 
+
+## God's Fury Removed 
 
 ###### 17 
 Awake, awake! Stand up, O Jerusalem, You who have drunk at the hand of the Lord The cup of His fury; You have drunk the dregs of the cup of trembling, And drained it out. 

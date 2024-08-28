@@ -34,7 +34,9 @@ To open blind eyes, To bring out prisoners from the prison, Those who sit in dar
 I _am_ the Lord, that _is_ My name; And My glory I will not give to another, Nor My praise to carved images. 
 
 ###### 9 
-Behold, the former things have come to pass, And new things I declare; Before they spring forth I tell you of them." ## Praise to the Lord 
+Behold, the former things have come to pass, And new things I declare; Before they spring forth I tell you of them." 
+
+## Praise to the Lord 
 
 ###### 10 
 Sing to the Lord a new song, _And_ His praise from the ends of the earth, You who go down to the sea, and all that is in it, You coastlands and you inhabitants of them! 
@@ -69,7 +71,9 @@ They shall be turned back, They shall be greatly ashamed, Who trust in carved im
 Who _is_ blind but My servant, Or deaf as My messenger _whom_ I send? Who _is_ blind as _he who is_ perfect, And blind as the Lord's servant? 
 
 ###### 20 
-Seeing many things, but you do not observe; Opening the ears, but he does not hear." ## Israel's Obstinate Disobedience 
+Seeing many things, but you do not observe; Opening the ears, but he does not hear." 
+
+## Israel's Obstinate Disobedience 
 
 ###### 21 
 The Lord is well pleased for His righteousness' sake; He will exalt the law and make _it_ honorable. 

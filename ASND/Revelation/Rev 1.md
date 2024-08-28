@@ -208,7 +208,9 @@ Magsipaghanda kayo! Darating si Jesus na nasa mga ulap. Makikita siya ng lahat n
 
 
 
-Ang Panginoong Dios ang makapangyarihan sa lahat. Kung ano siya noon, ganoon din siya ngayon at maging sa hinaharap. Kaya sinabi niya, "Ako ang Alpha at ang Omega." ## Nagpakita si Cristo kay Juan 
+Ang Panginoong Dios ang makapangyarihan sa lahat. Kung ano siya noon, ganoon din siya ngayon at maging sa hinaharap. Kaya sinabi niya, "Ako ang Alpha at ang Omega." 
+
+## Nagpakita si Cristo kay Juan 
 
 
 

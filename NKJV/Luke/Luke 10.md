@@ -57,7 +57,9 @@ But it will be more tolerable for Tyre and Sidon at the judgment than for you.
 And you, Capernaum, who are exalted to heaven, will be brought down to Hades. 
 
 ###### 16 
-He who hears you hears Me, he who rejects you rejects Me, and he who rejects Me rejects Him who sent Me." ## The Seventy Return with Joy 
+He who hears you hears Me, he who rejects you rejects Me, and he who rejects Me rejects Him who sent Me." 
+
+## The Seventy Return with Joy 
 
 ###### 17 
 Then the seventy returned with joy, saying, "Lord, even the demons are subject to us in Your name." 
@@ -69,7 +71,9 @@ And He said to them, "I saw Satan fall like lightning from heaven.
 Behold, I give you the authority to trample on serpents and scorpions, and over all the power of the enemy, and nothing shall by any means hurt you. 
 
 ###### 20 
-Nevertheless do not rejoice in this, that the spirits are subject to you, but rather rejoice because your names are written in heaven." ## Jesus Rejoices in the Spirit 
+Nevertheless do not rejoice in this, that the spirits are subject to you, but rather rejoice because your names are written in heaven." 
+
+## Jesus Rejoices in the Spirit 
 
 ###### 21 
 In that hour Jesus rejoiced in the Spirit and said, "I thank You, Father, Lord of heaven and earth, that You have hidden these things from the wise and prudent and revealed them to babes. Even so, Father, for so it seemed good in Your sight. 
@@ -81,7 +85,9 @@ All things have been delivered to Me by My Father, and no one knows who the Son 
 Then He turned to His disciples and said privately, "Blessed are the eyes which see the things you see; 
 
 ###### 24 
-for I tell you that many prophets and kings have desired to see what you see, and have not seen it, and to hear what you hear, and have not heard it." ## The Parable of the Good Samaritan 
+for I tell you that many prophets and kings have desired to see what you see, and have not seen it, and to hear what you hear, and have not heard it." 
+
+## The Parable of the Good Samaritan 
 
 ###### 25 
 And behold, a certain lawyer stood up and tested Him, saying, "Teacher, what shall I do to inherit eternal life?" 
@@ -120,7 +126,9 @@ On the next day, when he departed, he took out two denarii, gave them to the inn
 So which of these three do you think was neighbor to him who fell among the thieves?" 
 
 ###### 37 
-And he said, "He who showed mercy on him." Then Jesus said to him, "Go and do likewise." ## Mary and Martha Worship and Serve 
+And he said, "He who showed mercy on him." Then Jesus said to him, "Go and do likewise." 
+
+## Mary and Martha Worship and Serve 
 
 ###### 38 
 Now it happened as they went that He entered a certain village; and a certain woman named Martha welcomed Him into her house. 

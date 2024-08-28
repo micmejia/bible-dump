@@ -72,7 +72,9 @@ Inutusan ng Panginoon si Moises
 
 
 
-na sabihin ito sa mga Israelita: Kung ang isang tao ay inihandog sa Panginoon bilang pagtupad sa isang panata, ang taong iyon ay maaari pang matubos sa panatang iyon, ###### 3-7 kung babayaran niya ng pilak, ang kanyang halaga ay kinakailangang ayon sa bigat ng pilak sa timbangang ginagamit ng mga pari: Sa edad na isang buwan hanggang apat na taon lalaki: limang pirasong pilak babae: tatlong pirasong pilak Sa edad na lima hanggang 19 na taon lalaki: 20 pirasong pilak babae: sampung pirasong pilak Sa edad na 20 hanggang 59 na taon lalaki: 50 pirasong pilak babae: 30 pirasong pilak Sa edad na 60 taon pataas lalaki: 15 pirasong pilak babae: sampung pirasong pilak. 
+na sabihin ito sa mga Israelita: Kung ang isang tao ay inihandog sa Panginoon bilang pagtupad sa isang panata, ang taong iyon ay maaari pang matubos sa panatang iyon, 
+
+###### 3-7 kung babayaran niya ng pilak, ang kanyang halaga ay kinakailangang ayon sa bigat ng pilak sa timbangang ginagamit ng mga pari: Sa edad na isang buwan hanggang apat na taon lalaki: limang pirasong pilak babae: tatlong pirasong pilak Sa edad na lima hanggang 19 na taon lalaki: 20 pirasong pilak babae: sampung pirasong pilak Sa edad na 20 hanggang 59 na taon lalaki: 50 pirasong pilak babae: 30 pirasong pilak Sa edad na 60 taon pataas lalaki: 15 pirasong pilak babae: sampung pirasong pilak. 
 
 
 

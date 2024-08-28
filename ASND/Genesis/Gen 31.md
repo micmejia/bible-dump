@@ -1329,7 +1329,9 @@ Sa loob ng 20 taon na pagtira ko sa inyo, 14 na taon akong naglingkod sa iyo par
 
 
 
-Kung hindi siguro ako sinamahan ng Dios na ginagalang ng aking ama na si Isaac, na siya ring Dios ni Abraham, baka pinalayas mo na ako nang walang dalang anuman. Pero nakita ng Dios ang paghihirap ko at pagtatrabaho, kaya binalaan ka niya kagabi." ## Ang Kasunduan nina Jacob at Laban 
+Kung hindi siguro ako sinamahan ng Dios na ginagalang ng aking ama na si Isaac, na siya ring Dios ni Abraham, baka pinalayas mo na ako nang walang dalang anuman. Pero nakita ng Dios ang paghihirap ko at pagtatrabaho, kaya binalaan ka niya kagabi." 
+
+## Ang Kasunduan nina Jacob at Laban 
 
 
 

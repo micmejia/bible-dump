@@ -52,7 +52,9 @@ Yes, I will cause men to walk on you, My people Israel; they shall take possessi
 therefore you shall devour men no more, nor bereave your nation anymore," says the Lord God. 
 
 ###### 15 
-"Nor will I let you hear the taunts of the nations anymore, nor bear the reproach of the peoples anymore, nor shall you cause your nation to stumble anymore," says the Lord God.' " ## The Renewal of Israel 
+"Nor will I let you hear the taunts of the nations anymore, nor bear the reproach of the peoples anymore, nor shall you cause your nation to stumble anymore," says the Lord God.' " 
+
+## The Renewal of Israel 
 
 ###### 16 
 Moreover the word of the Lord came to me, saying: 

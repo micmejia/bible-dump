@@ -469,7 +469,9 @@ na kahit ibigay mo pa sa akin ang iyong palasyong puno ng pilak at ginto, hindi 
 
 
 
-Uuwi ako ngayon din sa aking mga kababayan, pero bago ako umalis, paaalalahanan muna kita kung ano ang gagawin ng mga Israelitang ito sa iyong mga mamamayan balang araw." ## Ang Ikaapat na Mensahe ni Balaam 
+Uuwi ako ngayon din sa aking mga kababayan, pero bago ako umalis, paaalalahanan muna kita kung ano ang gagawin ng mga Israelitang ito sa iyong mga mamamayan balang araw." 
+
+## Ang Ikaapat na Mensahe ni Balaam 
 
 
 
@@ -634,7 +636,9 @@ Sasakupin niya ang Edom na kanyang kaaway, na tinatawag din na Seir, habang tuma
 
 
 
-Mamumuno ang isang pinuno sa Israel at ibabagsak niya ang mga natirang buhay sa lungsod ng Moab." ## Ang Huling Mensahe ni Balaam 
+Mamumuno ang isang pinuno sa Israel at ibabagsak niya ang mga natirang buhay sa lungsod ng Moab." 
+
+## Ang Huling Mensahe ni Balaam 
 
 
 

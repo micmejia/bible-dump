@@ -832,7 +832,9 @@ Ito rin ang nangyari nang sinalakay ng taga-Caftor ang mga taga-Avim na naninira
 
 
 
-Mula ngayon, loloobin kong matakot sa inyo ang lahat ng bansa sa buong mundo. Manginginig sa takot ang makakarinig ng tungkol sa inyo.' ## Natalo ang Hari ng Heshbon na si Sihon 
+Mula ngayon, loloobin kong matakot sa inyo ang lahat ng bansa sa buong mundo. Manginginig sa takot ang makakarinig ng tungkol sa inyo.' 
+
+## Natalo ang Hari ng Heshbon na si Sihon 
 
 
 

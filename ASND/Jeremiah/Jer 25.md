@@ -469,7 +469,9 @@ Ipapadama ko sa bansa nila ang lahat ng sinabi ko laban sa kanila at sa iba pang
 
 
 
-Aalipinin sila ng maraming bansa at ng mga makapangyarihang hari. Parurusahan ko sila ayon sa mga ginawa nila." ## Ang Tasang Puno ng Galit ng Dios 
+Aalipinin sila ng maraming bansa at ng mga makapangyarihang hari. Parurusahan ko sila ayon sa mga ginawa nila." 
+
+## Ang Tasang Puno ng Galit ng Dios 
 
 
 

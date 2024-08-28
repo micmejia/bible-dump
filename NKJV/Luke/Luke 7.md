@@ -116,7 +116,9 @@ For John the Baptist came neither eating bread nor drinking wine, and you say, '
 The Son of Man has come eating and drinking, and you say, 'Look, a glutton and a winebibber, a friend of tax collectors and sinners!' 
 
 ###### 35 
-But wisdom is justified by all her children." ## A Sinful Woman Forgiven 
+But wisdom is justified by all her children." 
+
+## A Sinful Woman Forgiven 
 
 ###### 36 
 Then one of the Pharisees asked Him to eat with him. And He went to the Pharisee's house, and sat down to eat. 

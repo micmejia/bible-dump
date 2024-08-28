@@ -238,7 +238,9 @@ Gagawin kong pastulan ng mga kamelyo ang lungsod ng Rabba, at ang buong Ammon ay
 
 
 
-parurusahan ko kayo. Ipapaubaya ko kayo sa ibang bansa para kunin ang mga ari-arian ninyo. Lilipulin ko kayo at uubusin hanggang wala nang matira sa inyo, at malalaman ninyong ako ang Panginoon.' " ## Ang Mensahe Laban sa Moab 
+parurusahan ko kayo. Ipapaubaya ko kayo sa ibang bansa para kunin ang mga ari-arian ninyo. Lilipulin ko kayo at uubusin hanggang wala nang matira sa inyo, at malalaman ninyong ako ang Panginoon.' " 
+
+## Ang Mensahe Laban sa Moab 
 
 
 
@@ -370,7 +372,9 @@ Ipapasakop ko ang mga ito sa mga tao sa silangan at aariin din silang katulad ng
 
 
 
-Parurusahan ko ang Moab, at malalaman nila na ako ang Panginoon." ## Ang Mensahe Laban sa Edom 
+Parurusahan ko ang Moab, at malalaman nila na ako ang Panginoon." 
+
+## Ang Mensahe Laban sa Edom 
 
 
 
@@ -469,7 +473,9 @@ Kaya ako, ang Panginoong Dios ay nagsasabing, parurusahan ko ang Edom. Papatayin
 
 
 
-Maghihiganti ako sa Edom sa pamamagitan ng mga mamamayan kong Israelita. Parurusahan nila ang mga taga-Edom ayon sa matinding galit ko sa kanila, at malalaman ng mga taga-Edom kung paano ako maghiganti. Ako, ang Panginoong Dios, ang nagsasabi nito." ## Ang Mensahe Laban sa Filistia 
+Maghihiganti ako sa Edom sa pamamagitan ng mga mamamayan kong Israelita. Parurusahan nila ang mga taga-Edom ayon sa matinding galit ko sa kanila, at malalaman ng mga taga-Edom kung paano ako maghiganti. Ako, ang Panginoong Dios, ang nagsasabi nito." 
+
+## Ang Mensahe Laban sa Filistia 
 
 
 

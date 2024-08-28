@@ -54,7 +54,9 @@ For you, brethren, have been called to liberty; only do not use liberty as an op
 For all the law is fulfilled in one word, even in this: "You shall love your neighbor as yourself." 
 
 ###### 15 
-But if you bite and devour one another, beware lest you be consumed by one another! ## Walking in the Spirit 
+But if you bite and devour one another, beware lest you be consumed by one another! 
+
+## Walking in the Spirit 
 
 ###### 16 
 I say then: Walk in the Spirit, and you shall not fulfill the lust of the flesh. 

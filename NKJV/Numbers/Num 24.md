@@ -49,7 +49,9 @@ So Balaam said to Balak, "Did I not also speak to your messengers whom you sent 
 'If Balak were to give me his house full of silver and gold, I could not go beyond the word of the Lord, to do good or bad of my own will. What the Lord says, that I must speak'? 
 
 ###### 14 
-And now, indeed, I am going to my people. Come, I will advise you what this people will do to your people in the latter days." ## Balaam's Fourth Prophecy 
+And now, indeed, I am going to my people. Come, I will advise you what this people will do to your people in the latter days." 
+
+## Balaam's Fourth Prophecy 
 
 ###### 15 
 So he took up his oracle and said: "The utterance of Balaam the son of Beor, And the utterance of the man whose eyes are opened; 

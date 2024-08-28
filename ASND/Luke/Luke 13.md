@@ -172,7 +172,9 @@ Katulad din ng 18 taong nabagsakan ng tore ng Siloam at namatay. Ang akala ba ni
 
 
 
-Hindi! Ngunit tinitiyak ko sa inyo: mapapahamak din kayo tulad nila kung hindi nʼyo pagsisisihan ang mga kasalanan ninyo." ## Ang Punong Hindi Namumunga 
+Hindi! Ngunit tinitiyak ko sa inyo: mapapahamak din kayo tulad nila kung hindi nʼyo pagsisisihan ang mga kasalanan ninyo." 
+
+## Ang Punong Hindi Namumunga 
 
 
 
@@ -304,7 +306,9 @@ Pero sumagot ang tagapag-alaga, 'Hayaan nʼyo na lang po muna ang puno sa taon n
 
 
 
-Baka sakaling magbunga sa darating na taon. Ngunit kung hindi pa rin, putulin na natin.' " ## Pinagaling ni Jesus ang Babaeng Baluktot ang Katawan 
+Baka sakaling magbunga sa darating na taon. Ngunit kung hindi pa rin, putulin na natin.' " 
+
+## Pinagaling ni Jesus ang Babaeng Baluktot ang Katawan 
 
 
 
@@ -636,7 +640,9 @@ Nagpatuloy si Jesus sa pagtuturo niya, "Ano kaya ang katulad ng paghahari ng Dio
 
 
 
-Katulad ito ng isang buto ng mustasa na itinanim ng isang tao sa kanyang taniman. Tumubo iyon at lumaki na parang punongkahoy ang taas, at pinamugaran ng mga ibon ang mga sanga nito." ## Ang Paghahalintulad sa Pampaalsa 
+Katulad ito ng isang buto ng mustasa na itinanim ng isang tao sa kanyang taniman. Tumubo iyon at lumaki na parang punongkahoy ang taas, at pinamugaran ng mga ibon ang mga sanga nito." 
+
+## Ang Paghahalintulad sa Pampaalsa 
 
 
 
@@ -702,7 +708,9 @@ Sinabi pa ni Jesus, "Sa ano ko pa kaya maihahambing ang paghahari ng Dios?
 
 
 
-Katulad ito ng pampaalsang inihalo ng isang babae sa malaking planggana ng harina, at napaalsa nito ang buong masa ng harina." ## Ang Makipot na Pintuan 
+Katulad ito ng pampaalsang inihalo ng isang babae sa malaking planggana ng harina, at napaalsa nito ang buong masa ng harina." 
+
+## Ang Makipot na Pintuan 
 
 
 
@@ -999,7 +1007,9 @@ Makikita rin ninyo ang mga hindi Judio mula sa ibaʼt ibang dako ng mundo na kas
 
 
 
-May mga hamak ngayon na magiging dakila, at may mga dakila ngayon na magiging hamak." ## Ang Pag-ibig ni Jesus sa mga Taga-Jerusalem 
+May mga hamak ngayon na magiging dakila, at may mga dakila ngayon na magiging hamak." 
+
+## Ang Pag-ibig ni Jesus sa mga Taga-Jerusalem 
 
 
 

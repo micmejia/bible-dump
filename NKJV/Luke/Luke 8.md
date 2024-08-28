@@ -33,13 +33,17 @@ Some fell on rock; and as soon as it sprang up, it withered away because it lack
 And some fell among thorns, and the thorns sprang up with it and choked it. 
 
 ###### 8 
-But others fell on good ground, sprang up, and yielded a crop a hundredfold." When He had said these things He cried, "He who has ears to hear, let him hear!" ## The Purpose of Parables 
+But others fell on good ground, sprang up, and yielded a crop a hundredfold." When He had said these things He cried, "He who has ears to hear, let him hear!" 
+
+## The Purpose of Parables 
 
 ###### 9 
 Then His disciples asked Him, saying, "What does this parable mean?" 
 
 ###### 10 
-And He said, "To you it has been given to know the mysteries of the kingdom of God, but to the rest it is given in parables, that 'Seeing they may not see, And hearing they may not understand.' ## The Parable of the Sower Explained 
+And He said, "To you it has been given to know the mysteries of the kingdom of God, but to the rest it is given in parables, that 'Seeing they may not see, And hearing they may not understand.' 
+
+## The Parable of the Sower Explained 
 
 ###### 11 
 "Now the parable is this: The seed is the word of God. 
@@ -65,7 +69,9 @@ But the ones that fell on the good ground are those who, having heard the word w
 For nothing is secret that will not be revealed, nor anything hidden that will not be known and come to light. 
 
 ###### 18 
-Therefore take heed how you hear. For whoever has, to him more will be given; and whoever does not have, even what he seems to have will be taken from him." ## Jesus' Mother and Brothers Come to Him 
+Therefore take heed how you hear. For whoever has, to him more will be given; and whoever does not have, even what he seems to have will be taken from him." 
+
+## Jesus' Mother and Brothers Come to Him 
 
 ###### 19 
 Then His mother and brothers came to Him, and could not approach Him because of the crowd. 
@@ -74,7 +80,9 @@ Then His mother and brothers came to Him, and could not approach Him because of 
 And it was told Him by some, who said, "Your mother and Your brothers are standing outside, desiring to see You." 
 
 ###### 21 
-But He answered and said to them, "My mother and My brothers are these who hear the word of God and do it." ## Wind and Wave Obey Jesus 
+But He answered and said to them, "My mother and My brothers are these who hear the word of God and do it." 
+
+## Wind and Wave Obey Jesus 
 
 ###### 22 
 Now it happened, on a certain day, that He got into a boat with His disciples. And He said to them, "Let us cross over to the other side of the lake." And they launched out. 
@@ -86,7 +94,9 @@ But as they sailed He fell asleep. And a windstorm came down on the lake, and th
 And they came to Him and awoke Him, saying, "Master, Master, we are perishing!" Then He arose and rebuked the wind and the raging of the water. And they ceased, and there was a calm. 
 
 ###### 25 
-But He said to them, "Where is your faith?" And they were afraid, and marveled, saying to one another, "Who can this be? For He commands even the winds and water, and they obey Him!" ## A Demon-Possessed Man Healed 
+But He said to them, "Where is your faith?" And they were afraid, and marveled, saying to one another, "Who can this be? For He commands even the winds and water, and they obey Him!" 
+
+## A Demon-Possessed Man Healed 
 
 ###### 26 
 Then they sailed to the country of the Gadarenes, which is opposite Galilee. 

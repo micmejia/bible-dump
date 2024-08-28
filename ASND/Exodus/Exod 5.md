@@ -700,7 +700,9 @@ Pagkagaling nila sa Faraon, nakita nila sina Moises at Aaron na naghihintay sa k
 
 
 
-Sinabi nila kina Moises at Aaron, "Parusahan sana kayo ng Panginoon. Dahil sa inyo nagalit sa amin ang Faraon at ang mga tauhan niya. Magiging dahilan nila ang ginawa ninyo para patayin kami." ## Ang Pangako ng Dios na Ililigtas ang mga Israelita 
+Sinabi nila kina Moises at Aaron, "Parusahan sana kayo ng Panginoon. Dahil sa inyo nagalit sa amin ang Faraon at ang mga tauhan niya. Magiging dahilan nila ang ginawa ninyo para patayin kami." 
+
+## Ang Pangako ng Dios na Ililigtas ang mga Israelita 
 
 
 

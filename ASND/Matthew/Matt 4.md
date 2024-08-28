@@ -570,7 +570,9 @@ Nabubuhay sa kadiliman ang mga tao roon, ngunit makakakita sila ng matinding liw
 
 
 
-Simula noon, nangaral na si Jesus. At ito ang kanyang mensahe: "Pagsisihan na ninyo ang inyong mga kasalanan, dahil malapit na ang paghahari ng Dios." ## Tinawag ni Jesus ang Apat na Mangingisda 
+Simula noon, nangaral na si Jesus. At ito ang kanyang mensahe: "Pagsisihan na ninyo ang inyong mga kasalanan, dahil malapit na ang paghahari ng Dios." 
+
+## Tinawag ni Jesus ang Apat na Mangingisda 
 
 
 

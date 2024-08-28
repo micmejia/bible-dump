@@ -43,7 +43,9 @@ For from the top of the rocks I see him, And from the hills I behold him; There!
 Then Balak said to Balaam, "What have you done to me? I took you to curse my enemies, and look, you have blessed _them_ bountifully!" 
 
 ###### 12 
-So he answered and said, "Must I not take heed to speak what the Lord has put in my mouth?" ## Balaam's Second Prophecy 
+So he answered and said, "Must I not take heed to speak what the Lord has put in my mouth?" 
+
+## Balaam's Second Prophecy 
 
 ###### 13 
 Then Balak said to him, "Please come with me to another place from which you may see them; you shall see only the outer part of them, and shall not see them all; curse them for me from there." 
@@ -85,7 +87,9 @@ Look, a people rises like a lioness, And lifts itself up like a lion; It shall n
 Then Balak said to Balaam, "Neither curse them at all, nor bless them at all!" 
 
 ###### 26 
-So Balaam answered and said to Balak, "Did I not tell you, saying, 'All that the Lord speaks, that I must do'?" ## Balaam's Third Prophecy 
+So Balaam answered and said to Balak, "Did I not tell you, saying, 'All that the Lord speaks, that I must do'?" 
+
+## Balaam's Third Prophecy 
 
 ###### 27 
 Then Balak said to Balaam, "Please come, I will take you to another place; perhaps it will please God that you may curse them for me from there." 

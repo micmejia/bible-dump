@@ -966,7 +966,9 @@ Huwag kayong magtaka tungkol dito, dahil darating ang panahon na maririnig ng la
 
 
 
-at babangon sila mula sa kanilang libingan. Ang mga gumawa ng mabuti ay bibigyan ng buhay na walang hanggan, at ang mga gumawa ng masama ay parurusahan." ## Ang mga Nagpapatotoo kay Jesus 
+at babangon sila mula sa kanilang libingan. Ang mga gumawa ng mabuti ay bibigyan ng buhay na walang hanggan, at ang mga gumawa ng masama ay parurusahan." 
+
+## Ang mga Nagpapatotoo kay Jesus 
 
 
 

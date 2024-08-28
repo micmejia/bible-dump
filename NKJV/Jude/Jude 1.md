@@ -56,7 +56,9 @@ raging waves of the sea, foaming up their own shame; wandering stars for whom is
 Now Enoch, the seventh from Adam, prophesied about these men also, saying, "Behold, the Lord comes with ten thousands of His saints, 
 
 ###### 15 
-to execute judgment on all, to convict all who are ungodly among them of all their ungodly deeds which they have committed in an ungodly way, and of all the harsh things which ungodly sinners have spoken against Him." ## Apostates Predicted 
+to execute judgment on all, to convict all who are ungodly among them of all their ungodly deeds which they have committed in an ungodly way, and of all the harsh things which ungodly sinners have spoken against Him." 
+
+## Apostates Predicted 
 
 ###### 16 
 These are grumblers, complainers, walking according to their own lusts; and they mouth great swelling words, flattering people to gain advantage. 

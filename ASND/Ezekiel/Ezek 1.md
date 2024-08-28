@@ -72,7 +72,9 @@ Habang nakatingin ako, may nakita akong bagyong paparating mula sa hilaga. Kumik
 
 
 
-Sa gitna ng ulap, may nakita akong apat na buhay na nilalang, parang mga tao, ###### 6-8 pero bawat isa sa kanila ay may apat na mukha at apat na pakpak. Tuwid ang kanilang mga binti at ang mga paa nila ay parang paa ng baka, kumikinang ito na parang tanso. May mga kamay silang katulad ng kamay ng tao na nasa ilalim ng kanilang mga pakpak. 
+Sa gitna ng ulap, may nakita akong apat na buhay na nilalang, parang mga tao, 
+
+###### 6-8 pero bawat isa sa kanila ay may apat na mukha at apat na pakpak. Tuwid ang kanilang mga binti at ang mga paa nila ay parang paa ng baka, kumikinang ito na parang tanso. May mga kamay silang katulad ng kamay ng tao na nasa ilalim ng kanilang mga pakpak. 
 
 
 

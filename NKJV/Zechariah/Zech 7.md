@@ -28,7 +28,9 @@ Then the word of the Lord of hosts came to me, saying,
 When you eat and when you drink, do you not eat and drink for yourselves? 
 
 ###### 7 
-Should you not have obeyed the words which the Lord proclaimed through the former prophets when Jerusalem and the cities around it were inhabited and prosperous, and the South and the Lowland were inhabited?' " ## Disobedience Resulted in Captivity 
+Should you not have obeyed the words which the Lord proclaimed through the former prophets when Jerusalem and the cities around it were inhabited and prosperous, and the South and the Lowland were inhabited?' " 
+
+## Disobedience Resulted in Captivity 
 
 ###### 8 
 Then the word of the Lord came to Zechariah, saying, 

@@ -40,7 +40,9 @@ Then the word of the Lord came to me, saying,
 This evil people, who refuse to hear My words, who follow the dictates of their hearts, and walk after other gods to serve them and worship them, shall be just like this sash which is profitable for nothing. 
 
 ###### 11 
-For as the sash clings to the waist of a man, so I have caused the whole house of Israel and the whole house of Judah to cling to Me,' says the Lord, 'that they may become My people, for renown, for praise, and for glory; but they would not hear.' ## Symbol of the Wine Bottles 
+For as the sash clings to the waist of a man, so I have caused the whole house of Israel and the whole house of Judah to cling to Me,' says the Lord, 'that they may become My people, for renown, for praise, and for glory; but they would not hear.' 
+
+## Symbol of the Wine Bottles 
 
 ###### 12 
 "Therefore you shall speak to them this word: 'Thus says the Lord God of Israel: "Every bottle shall be filled with wine." ' "And they will say to you, 'Do we not certainly know that every bottle will be filled with wine?' 
@@ -49,7 +51,9 @@ For as the sash clings to the waist of a man, so I have caused the whole house o
 "Then you shall say to them, 'Thus says the Lord: "Behold, I will fill all the inhabitants of this land--even the kings who sit on David's throne, the priests, the prophets, and all the inhabitants of Jerusalem--with drunkenness! 
 
 ###### 14 
-And I will dash them one against another, even the fathers and the sons together," says the Lord. "I will not pity nor spare nor have mercy, but will destroy them." ' " ## Pride Precedes Captivity 
+And I will dash them one against another, even the fathers and the sons together," says the Lord. "I will not pity nor spare nor have mercy, but will destroy them." ' " 
+
+## Pride Precedes Captivity 
 
 ###### 15 
 Hear and give ear: Do not be proud, For the Lord has spoken. 

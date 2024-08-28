@@ -55,7 +55,9 @@ Then I will make their waters clear, And make their rivers run like oil," Says t
 "When I make the land of Egypt desolate, And the country is destitute of all that once filled it, When I strike all who dwell in it, Then they shall know that I am the Lord. 
 
 ###### 16 
-"This is the lamentation With which they shall lament her; The daughters of the nations shall lament her; They shall lament for her, for Egypt, And for all her multitude," Says the Lord God.' " ## Egypt and Others Consigned to the Pit 
+"This is the lamentation With which they shall lament her; The daughters of the nations shall lament her; They shall lament for her, for Egypt, And for all her multitude," Says the Lord God.' " 
+
+## Egypt and Others Consigned to the Pit 
 
 ###### 17 
 It came to pass also in the twelfth year, on the fifteenth day of the month, that the word of the Lord came to me, saying: 

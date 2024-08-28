@@ -270,7 +270,9 @@ Muli silang maninirahan na kinakalinga ko. Sila ay uunlad na parang trigong yuma
 
 
 
-"Mga taga-Israel, lumayo na kayo sa mga dios-diosan. Ako ang tutugon ng inyong mga dalangin at ako ang kakalinga sa inyo. Poprotektahan ko kayo; akoʼy magiging parang puno ng sipres na mayabong na magbibigay ng lilim. Ako ang nagpapaunlad sa inyo." ## Huling Payo 
+"Mga taga-Israel, lumayo na kayo sa mga dios-diosan. Ako ang tutugon ng inyong mga dalangin at ako ang kakalinga sa inyo. Poprotektahan ko kayo; akoʼy magiging parang puno ng sipres na mayabong na magbibigay ng lilim. Ako ang nagpapaunlad sa inyo." 
+
+## Huling Payo 
 
 
 

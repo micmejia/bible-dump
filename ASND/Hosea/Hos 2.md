@@ -40,7 +40,9 @@ next: ['Hos 3']
 
 
 
-"Kaya tawagin ninyo ang inyong kapwa Israelita na 'Aking mga mamamayan' at 'Kinaawaan.' " ## Sumama sa Ibang Lalaki si Gomer 
+"Kaya tawagin ninyo ang inyong kapwa Israelita na 'Aking mga mamamayan' at 'Kinaawaan.' " 
+
+## Sumama sa Ibang Lalaki si Gomer 
 
 
 

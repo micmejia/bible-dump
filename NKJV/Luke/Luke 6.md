@@ -22,7 +22,9 @@ But Jesus answering them said, "Have you not even read this, what David did when
 how he went into the house of God, took and ate the showbread, and also gave some to those with him, which is not lawful for any but the priests to eat?" 
 
 ###### 5 
-And He said to them, "The Son of Man is also Lord of the Sabbath." ## Healing on the Sabbath 
+And He said to them, "The Son of Man is also Lord of the Sabbath." 
+
+## Healing on the Sabbath 
 
 ###### 6 
 Now it happened on another Sabbath, also, that He entered the synagogue and taught. And a man was there whose right hand was withered. 

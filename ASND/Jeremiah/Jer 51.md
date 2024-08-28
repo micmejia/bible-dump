@@ -469,7 +469,9 @@ O Babilonia, sagana ka sa tubig at sagana ka rin sa kayamanan. Pero dumating na 
 
 
 
-Sumumpa ang Panginoong Makapangyarihan sa sarili niya na sinasabi, "Ipapasalakay ko kayo sa napakaraming kaaway na kasindami ng balang, at sisigaw sila ng tagumpay laban sa inyo." ## Ang Pagpupuri sa Dios 
+Sumumpa ang Panginoong Makapangyarihan sa sarili niya na sinasabi, "Ipapasalakay ko kayo sa napakaraming kaaway na kasindami ng balang, at sisigaw sila ng tagumpay laban sa inyo." 
+
+## Ang Pagpupuri sa Dios 
 
 
 
@@ -1859,7 +1861,9 @@ Lalasingin ko ang kanyang mga tagapamahala, marurunong, mga pinuno, mga punong s
 
 
 
-Sinabi pa ng Panginoong Makapangyarihan, "Wawasakin ang makakapal na pader ng Babilonia at susunugin ang matataas niyang pintuan. Magiging walang kabuluhan ang lahat ng pinaghirapan ng mga mamamayan niya dahil ang lahat ng iyon ay masusunog lang." ## Ang Mensahe ni Jeremias para sa Babilonia 
+Sinabi pa ng Panginoong Makapangyarihan, "Wawasakin ang makakapal na pader ng Babilonia at susunugin ang matataas niyang pintuan. Magiging walang kabuluhan ang lahat ng pinaghirapan ng mga mamamayan niya dahil ang lahat ng iyon ay masusunog lang." 
+
+## Ang Mensahe ni Jeremias para sa Babilonia 
 
 
 

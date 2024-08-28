@@ -471,7 +471,9 @@ Pati tuloy ang ibang mga kapatid na Judio ay nakigaya sa pagkukunwari niya, at m
 
 
 
-Nang makita kong hindi na ayon sa katotohanan ng Magandang Balita ang ginagawa nila, pinagsabihan ko si Pedro sa harap ng lahat, "Bakit mo pinipilit ang mga hindi Judio na mamuhay na parang mga Judio? Ikaw nga mismo na isang Judio ay namumuhay na parang hindi Judio." ## Ang Kaligtasan ay para sa Lahat 
+Nang makita kong hindi na ayon sa katotohanan ng Magandang Balita ang ginagawa nila, pinagsabihan ko si Pedro sa harap ng lahat, "Bakit mo pinipilit ang mga hindi Judio na mamuhay na parang mga Judio? Ikaw nga mismo na isang Judio ay namumuhay na parang hindi Judio." 
+
+## Ang Kaligtasan ay para sa Lahat 
 
 
 

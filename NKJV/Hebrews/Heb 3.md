@@ -54,7 +54,9 @@ but exhort one another daily, while it is called "Today," lest any of you be har
 For we have become partakers of Christ if we hold the beginning of our confidence steadfast to the end, 
 
 ###### 15 
-while it is said: "Today, if you will hear His voice, Do not harden your hearts as in the rebellion." ## Failure of the Wilderness Wanderers 
+while it is said: "Today, if you will hear His voice, Do not harden your hearts as in the rebellion." 
+
+## Failure of the Wilderness Wanderers 
 
 ###### 16 
 For who, having heard, rebelled? Indeed, was it not all who came out of Egypt, led by Moses? 

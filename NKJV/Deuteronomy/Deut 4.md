@@ -129,7 +129,9 @@ driving out from before you nations greater and mightier than you, to bring you 
 Therefore know this day, and consider _it_ in your heart, that the Lord Himself _is_ God in heaven above and on the earth beneath; _there is_ no other. 
 
 ###### 40 
-You shall therefore keep His statutes and His commandments which I command you today, that it may go well with you and with your children after you, and that you may prolong _your_ days in the land which the Lord your God is giving you for all time." ## Cities of Refuge East of the Jordan 
+You shall therefore keep His statutes and His commandments which I command you today, that it may go well with you and with your children after you, and that you may prolong _your_ days in the land which the Lord your God is giving you for all time." 
+
+## Cities of Refuge East of the Jordan 
 
 ###### 41 
 Then Moses set apart three cities on this side of the Jordan, toward the rising of the sun, 

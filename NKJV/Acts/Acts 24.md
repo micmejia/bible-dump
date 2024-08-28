@@ -72,7 +72,9 @@ They ought to have been here before you to object if they had anything against m
 Or else let those who are here themselves say if they found any wrongdoing in me while I stood before the council, 
 
 ###### 21 
-unless it is for this one statement which I cried out, standing among them, 'Concerning the resurrection of the dead I am being judged by you this day.' " ## Felix Procrastinates 
+unless it is for this one statement which I cried out, standing among them, 'Concerning the resurrection of the dead I am being judged by you this day.' " 
+
+## Felix Procrastinates 
 
 ###### 22 
 But when Felix heard these things, having more accurate knowledge of the Way, he adjourned the proceedings and said, "When Lysias the commander comes down, I will make a decision on your case." 

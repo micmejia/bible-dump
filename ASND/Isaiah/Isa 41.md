@@ -667,7 +667,9 @@ Patutubuin ko sa ilang ang mga puno ng sedro, akasya, mirto, olibo, pino, enebro
 
 
 
-para makita, malaman, at maunawaan ng mga tao na ang lumikha nito ay ako, ang Panginoon, ang Banal na Dios ng Israel." ## Walang Kabuluhan ang mga Dios-diosan 
+para makita, malaman, at maunawaan ng mga tao na ang lumikha nito ay ako, ang Panginoon, ang Banal na Dios ng Israel." 
+
+## Walang Kabuluhan ang mga Dios-diosan 
 
 
 

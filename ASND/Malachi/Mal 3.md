@@ -40,7 +40,9 @@ next: ['Mal 4']
 
 
 
-Makinig kayo sa sinasabi ng Panginoong Makapangyarihan: "Ipapadala ko ang aking mensahero. Mauuna siya sa iyo upang ihanda ang dadaanan mo. At ang Panginoon na inyong hinihintay ay biglang darating sa kanyang templo. Darating ang inyong pinakahihintay na sugo na magsasagawa ng aking kasunduan." ###### 2-3 Pero sino ang makatatagal sa araw ng kanyang pagdating? Sino ang makakaharap sa kanya kapag nagpakita na siya? Sapagkat para siyang apoy na nagpapadalisay ng bakal o parang sabon na nakakalinis. Lilinisin niya ang mga paring Levita, tulad ng pagpapadalisay ng pilak at ginto, upang maging malinis ang kanilang buhay at maging karapat-dapat silang maghandog sa Panginoon. 
+Makinig kayo sa sinasabi ng Panginoong Makapangyarihan: "Ipapadala ko ang aking mensahero. Mauuna siya sa iyo upang ihanda ang dadaanan mo. At ang Panginoon na inyong hinihintay ay biglang darating sa kanyang templo. Darating ang inyong pinakahihintay na sugo na magsasagawa ng aking kasunduan." 
+
+###### 2-3 Pero sino ang makatatagal sa araw ng kanyang pagdating? Sino ang makakaharap sa kanya kapag nagpakita na siya? Sapagkat para siyang apoy na nagpapadalisay ng bakal o parang sabon na nakakalinis. Lilinisin niya ang mga paring Levita, tulad ng pagpapadalisay ng pilak at ginto, upang maging malinis ang kanilang buhay at maging karapat-dapat silang maghandog sa Panginoon. 
 
 
 
@@ -106,7 +108,9 @@ Sa ganoon, muling malulugod ang Panginoon sa mga handog ng mga taga-Juda at taga
 
 
 
-Sinabi ng Panginoong Makapangyarihan sa mga Israelita, "Darating ako upang hatulan kayo. Sasaksi agad ako laban sa mga mangkukulam, sa mga nangangalunya, sa mga sinungaling na saksi, sa mga nandaraya sa sahod ng kanilang mga manggagawa, sa mga nanggigipit sa mga biyuda at mga ulila, at sa mga hindi makatarungan sa mga dayuhan. Gagawin ko ito sa inyo na mga walang takot sa akin." ## Ang Pagbibigay ng Ikapu 
+Sinabi ng Panginoong Makapangyarihan sa mga Israelita, "Darating ako upang hatulan kayo. Sasaksi agad ako laban sa mga mangkukulam, sa mga nangangalunya, sa mga sinungaling na saksi, sa mga nandaraya sa sahod ng kanilang mga manggagawa, sa mga nanggigipit sa mga biyuda at mga ulila, at sa mga hindi makatarungan sa mga dayuhan. Gagawin ko ito sa inyo na mga walang takot sa akin." 
+
+## Ang Pagbibigay ng Ikapu 
 
 
 

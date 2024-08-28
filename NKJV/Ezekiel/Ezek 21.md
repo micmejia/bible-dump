@@ -88,7 +88,9 @@ And it will be to them like a false divination in the eyes of those who have swo
 thus says the Lord God: "Remove the turban, and take off the crown; Nothing shall remain the same. Exalt the humble, and humble the exalted. 
 
 ###### 27 
-Overthrown, overthrown, I will make it overthrown! It shall be no longer, Until He comes whose right it is, And I will give it to Him." ' ## A Sword Against the Ammonites 
+Overthrown, overthrown, I will make it overthrown! It shall be no longer, Until He comes whose right it is, And I will give it to Him." ' 
+
+## A Sword Against the Ammonites 
 
 ###### 28 
 "And you, son of man, prophesy and say, 'Thus says the Lord God concerning the Ammonites and concerning their reproach,' and say: 'A sword, a sword is drawn, Polished for slaughter, For consuming, for flashing-- 

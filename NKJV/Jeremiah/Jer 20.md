@@ -25,7 +25,9 @@ For thus says the Lord: 'Behold, I will make you a terror to yourself and to all
 Moreover I will deliver all the wealth of this city, all its produce, and all its precious things; all the treasures of the kings of Judah I will give into the hand of their enemies, who will plunder them, seize them, and carry them to Babylon. 
 
 ###### 6 
-And you, Pashhur, and all who dwell in your house, shall go into captivity. You shall go to Babylon, and there you shall die, and be buried there, you and all your friends, to whom you have prophesied lies.' " ## Jeremiah's Unpopular Ministry 
+And you, Pashhur, and all who dwell in your house, shall go into captivity. You shall go to Babylon, and there you shall die, and be buried there, you and all your friends, to whom you have prophesied lies.' " 
+
+## Jeremiah's Unpopular Ministry 
 
 ###### 7 
 O Lord, You induced me, and I was persuaded; You are stronger than I, and have prevailed. I am in derision daily; Everyone mocks me. 

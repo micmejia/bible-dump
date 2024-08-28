@@ -28,7 +28,9 @@ the land of the Gebalites, and all Lebanon, toward the sunrise, from Baal Gad be
 all the inhabitants of the mountains from Lebanon as far as the Brook Misrephoth, _and_ all the Sidonians--them I will drive out from before the children of Israel; only divide it by lot to Israel as an inheritance, as I have commanded you. 
 
 ###### 7 
-Now therefore, divide this land as an inheritance to the nine tribes and half the tribe of Manasseh." ## The Land Divided East of the Jordan 
+Now therefore, divide this land as an inheritance to the nine tribes and half the tribe of Manasseh." 
+
+## The Land Divided East of the Jordan 
 
 ###### 8 
 With the other half-tribe the Reubenites and the Gadites received their inheritance, which Moses had given them, beyond the Jordan eastward, as Moses the servant of the Lord had given them: 

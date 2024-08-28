@@ -237,7 +237,9 @@ Sapagkat ang mga ginto at mga pilak ay akin.
 
 
 
-Magiging mas maganda ang bagong templo kaysa sa dati. At bibigyan ko ang lugar na ito ng kapayapaan at mabuting kalagayan sa buhay. Ako, ang Panginoong Dios, ang nagsasabi nito." ## Ang Pangako ng Dios na Pagpapala 
+Magiging mas maganda ang bagong templo kaysa sa dati. At bibigyan ko ang lugar na ito ng kapayapaan at mabuting kalagayan sa buhay. Ako, ang Panginoong Dios, ang nagsasabi nito." 
+
+## Ang Pangako ng Dios na Pagpapala 
 
 
 
@@ -567,7 +569,9 @@ Ika-24 na araw ngayon ng ikasiyam na buwan, at ngayong araw na ito natapos ang p
 
 
 
-Kahit wala nang natirang trigo, at wala nang bunga ang mga ubas at ang mga kahoy ng igos, pomegranata, at olibo, pagpapalain naman kayo ng Panginoon simula sa araw na ito." ## Ang Pangako ng Dios kay Zerubabel 
+Kahit wala nang natirang trigo, at wala nang bunga ang mga ubas at ang mga kahoy ng igos, pomegranata, at olibo, pagpapalain naman kayo ng Panginoon simula sa araw na ito." 
+
+## Ang Pangako ng Dios kay Zerubabel 
 
 
 

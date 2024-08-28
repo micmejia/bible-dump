@@ -36,7 +36,9 @@ And you shall put pure frankincense on _each_ row, that it may be on the bread f
 Every Sabbath he shall set it in order before the Lord continually, _being taken_ from the children of Israel by an everlasting covenant. 
 
 ###### 9 
-And it shall be for Aaron and his sons, and they shall eat it in a holy place; for it _is_ most holy to him from the offerings of the Lord made by fire, by a perpetual statute." ## The Penalty for Blasphemy 
+And it shall be for Aaron and his sons, and they shall eat it in a holy place; for it _is_ most holy to him from the offerings of the Lord made by fire, by a perpetual statute." 
+
+## The Penalty for Blasphemy 
 
 ###### 10 
 Now the son of an Israelite woman, whose father _was_ an Egyptian, went out among the children of Israel; and this Israelite _woman's_ son and a man of Israel fought each other in the camp. 

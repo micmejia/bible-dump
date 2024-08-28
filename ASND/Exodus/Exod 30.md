@@ -535,7 +535,9 @@ Hindi magbabayad ng sobra ang mga mayayaman, at hindi magbabayad ng kulang ang m
 
 
 
-Gamitin mo ang pera para sa mga pangangailangan sa Toldang Tipanan. Bayad ito ng mga Israelita para sa kanilang buhay, at sa pamamagitan nitoʼy aalalahanin ko sila." ## Ang Plangganang Hugasan 
+Gamitin mo ang pera para sa mga pangangailangan sa Toldang Tipanan. Bayad ito ng mga Israelita para sa kanilang buhay, at sa pamamagitan nitoʼy aalalahanin ko sila." 
+
+## Ang Plangganang Hugasan 
 
 
 
@@ -634,7 +636,9 @@ Sinabi ng Panginoon kay Moises,
 
 
 
-Ito ang gagamitin ni Aaron at ng mga anak niya sa paghuhugas ng mga kamay at paa nila, 20-21bago sila pumasok sa Toldang Tipanan, at bago sila lumapit sa altar para mag-alay sa akin ng mga handog sa pamamagitan ng apoy. Kailangan nilang hugasan ang mga kamay at paa nila para hindi sila mamatay. Dapat sundin ni Aaron at ng mga angkan niya ang mga tuntuning ito hanggang sa susunod pang mga henerasyon." ## Ang Langis na Pamahid 
+Ito ang gagamitin ni Aaron at ng mga anak niya sa paghuhugas ng mga kamay at paa nila, 20-21bago sila pumasok sa Toldang Tipanan, at bago sila lumapit sa altar para mag-alay sa akin ng mga handog sa pamamagitan ng apoy. Kailangan nilang hugasan ang mga kamay at paa nila para hindi sila mamatay. Dapat sundin ni Aaron at ng mga angkan niya ang mga tuntuning ito hanggang sa susunod pang mga henerasyon." 
+
+## Ang Langis na Pamahid 
 
 
 
@@ -931,7 +935,9 @@ Huwag nʼyo itong ipapahid sa ordinaryong mga tao, at huwag nʼyo rin itong gawi
 
 
 
-Ang sinumang gagawa ng langis na ito o gagamit nito sa sinumang hindi pari ay huwag na ninyong ituring na kababayan." ## Ang Insenso 
+Ang sinumang gagawa ng langis na ito o gagamit nito sa sinumang hindi pari ay huwag na ninyong ituring na kababayan." 
+
+## Ang Insenso 
 
 
 

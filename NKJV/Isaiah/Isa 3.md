@@ -43,7 +43,9 @@ The look on their countenance witnesses against them, And they declare their sin
 Woe to the wicked! _It shall be_ ill _with him,_ For the reward of his hands shall be given him. 
 
 ###### 12 
-_As for_ My people, children _are_ their oppressors, And women rule over them. O My people! Those who lead you cause _you_ to err, And destroy the way of your paths." ## Oppression and Luxury Condemned 
+_As for_ My people, children _are_ their oppressors, And women rule over them. O My people! Those who lead you cause _you_ to err, And destroy the way of your paths." 
+
+## Oppression and Luxury Condemned 
 
 ###### 13 
 The Lord stands up to plead, And stands to judge the people. 

@@ -46,7 +46,9 @@ Then Jehu came out to the servants of his master, and _one_ said to him, "_Is_ a
 And they said, "A lie! Tell us now." So he said, "Thus and thus he spoke to me, saying, 'Thus says the Lord: "I have anointed you king over Israel." ' " 
 
 ###### 13 
-Then each man hastened to take his garment and put _it_ under him on the top of the steps; and they blew trumpets, saying, "Jehu is king!" ## Joram of Israel Killed 
+Then each man hastened to take his garment and put _it_ under him on the top of the steps; and they blew trumpets, saying, "Jehu is king!" 
+
+## Joram of Israel Killed 
 
 ###### 14 
 So Jehu the son of Jehoshaphat, the son of Nimshi, conspired against Joram. (Now Joram had been defending Ramoth Gilead, he and all Israel, against Hazael king of Syria. 
@@ -85,7 +87,9 @@ Now Jehu drew his bow with full strength and shot Jehoram between his arms; and 
 Then _Jehu_ said to Bidkar his captain, "Pick _him_ up, _and_ throw him into the tract of the field of Naboth the Jezreelite; for remember, when you and I were riding together behind Ahab his father, that the Lord laid this burden upon him: 
 
 ###### 26 
-'Surely I saw yesterday the blood of Naboth and the blood of his sons,' says the Lord, 'and I will repay you in this plot,' says the Lord. Now therefore, take _and_ throw him on the plot _of ground,_ according to the word of the Lord." ## Ahaziah of Judah Killed 
+'Surely I saw yesterday the blood of Naboth and the blood of his sons,' says the Lord, 'and I will repay you in this plot,' says the Lord. Now therefore, take _and_ throw him on the plot _of ground,_ according to the word of the Lord." 
+
+## Ahaziah of Judah Killed 
 
 ###### 27 
 But when Ahaziah king of Judah saw _this,_ he fled by the road to Beth Haggan. So Jehu pursued him, and said, "Shoot him also in the chariot." _And they shot him_ at the Ascent of Gur, which is by Ibleam. Then he fled to Megiddo, and died there. 

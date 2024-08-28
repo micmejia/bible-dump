@@ -61,7 +61,9 @@ So, as much as is in me, I am ready to preach the gospel to you who are in Rome 
 For I am not ashamed of the gospel of Christ, for it is the power of God to salvation for everyone who believes, for the Jew first and also for the Greek. 
 
 ###### 17 
-For in it the righteousness of God is revealed from faith to faith; as it is written, "The just shall live by faith." ## God's Wrath on Unrighteousness 
+For in it the righteousness of God is revealed from faith to faith; as it is written, "The just shall live by faith." 
+
+## God's Wrath on Unrighteousness 
 
 ###### 18 
 For the wrath of God is revealed from heaven against all ungodliness and unrighteousness of men, who suppress the truth in unrighteousness, 

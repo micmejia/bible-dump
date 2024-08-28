@@ -58,7 +58,9 @@ Now you shall speak to him and put the words in his mouth. And I will be with yo
 So he shall be your spokesman to the people. And he himself shall be as a mouth for you, and you shall be to him as God. 
 
 ###### 17 
-And you shall take this rod in your hand, with which you shall do the signs." ## Moses Goes to Egypt 
+And you shall take this rod in your hand, with which you shall do the signs." 
+
+## Moses Goes to Egypt 
 
 ###### 18 
 So Moses went and returned to Jethro his father-in-law, and said to him, "Please let me go and return to my brethren who _are_ in Egypt, and see whether they are still alive." And Jethro said to Moses, "Go in peace." 

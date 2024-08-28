@@ -55,7 +55,9 @@ Then Jesus said to them plainly, "Lazarus is dead.
 And I am glad for your sakes that I was not there, that you may believe. Nevertheless let us go to him." 
 
 ###### 16 
-Then Thomas, who is called the Twin, said to his fellow disciples, "Let us also go, that we may die with Him." ## I Am the Resurrection and the Life 
+Then Thomas, who is called the Twin, said to his fellow disciples, "Let us also go, that we may die with Him." 
+
+## I Am the Resurrection and the Life 
 
 ###### 17 
 So when Jesus came, He found that he had already been in the tomb four days. 
@@ -88,7 +90,9 @@ Jesus said to her, "I am the resurrection and the life. He who believes in Me, t
 And whoever lives and believes in Me shall never die. Do you believe this?" 
 
 ###### 27 
-She said to Him, "Yes, Lord, I believe that You are the Christ, the Son of God, who is to come into the world." ## Jesus and Death, the Last Enemy 
+She said to Him, "Yes, Lord, I believe that You are the Christ, the Son of God, who is to come into the world." 
+
+## Jesus and Death, the Last Enemy 
 
 ###### 28 
 And when she had said these things, she went her way and secretly called Mary her sister, saying, "The Teacher has come and is calling for you." 
@@ -118,7 +122,9 @@ Jesus wept.
 Then the Jews said, "See how He loved him!" 
 
 ###### 37 
-And some of them said, "Could not this Man, who opened the eyes of the blind, also have kept this man from dying?" ## Lazarus Raised from the Dead 
+And some of them said, "Could not this Man, who opened the eyes of the blind, also have kept this man from dying?" 
+
+## Lazarus Raised from the Dead 
 
 ###### 38 
 Then Jesus, again groaning in Himself, came to the tomb. It was a cave, and a stone lay against it. 
@@ -139,7 +145,9 @@ And I know that You always hear Me, but because of the people who are standing b
 Now when He had said these things, He cried with a loud voice, "Lazarus, come forth!" 
 
 ###### 44 
-And he who had died came out bound hand and foot with graveclothes, and his face was wrapped with a cloth. Jesus said to them, "Loose him, and let him go." ## The Plot to Kill Jesus 
+And he who had died came out bound hand and foot with graveclothes, and his face was wrapped with a cloth. Jesus said to them, "Loose him, and let him go." 
+
+## The Plot to Kill Jesus 
 
 ###### 45 
 Then many of the Jews who had come to Mary, and had seen the things Jesus did, believed in Him. 

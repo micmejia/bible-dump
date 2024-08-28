@@ -28,7 +28,9 @@ Now Abraham was one hundred years old when his son Isaac was born to him.
 And Sarah said, "God has made me laugh, _and_ all who hear will laugh with me." 
 
 ###### 7 
-She also said, "Who would have said to Abraham that Sarah would nurse children? For I have borne _him_ a son in his old age." ## Hagar and Ishmael Depart 
+She also said, "Who would have said to Abraham that Sarah would nurse children? For I have borne _him_ a son in his old age." 
+
+## Hagar and Ishmael Depart 
 
 ###### 8 
 So the child grew and was weaned. And Abraham made a great feast on the same day that Isaac was weaned. 

@@ -47,7 +47,9 @@ In that day you shall not be shamed for any of your deeds In which you transgres
 I will leave in your midst A meek and humble people, And they shall trust in the name of the Lord. 
 
 ###### 13 
-The remnant of Israel shall do no unrighteousness And speak no lies, Nor shall a deceitful tongue be found in their mouth; For they shall feed their flocks and lie down, And no one shall make them afraid." ## Joy in God's Faithfulness 
+The remnant of Israel shall do no unrighteousness And speak no lies, Nor shall a deceitful tongue be found in their mouth; For they shall feed their flocks and lie down, And no one shall make them afraid." 
+
+## Joy in God's Faithfulness 
 
 ###### 14 
 Sing, O daughter of Zion! Shout, O Israel! Be glad and rejoice with all your heart, O daughter of Jerusalem! 

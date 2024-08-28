@@ -508,7 +508,9 @@ Ang lahat ng Israelita ang magdadala ng mga kaloob na ito para magamit ng pinuno
 
 
 
-Tungkulin naman ng pinuno ng Israel ang pagbibigay ng mga handog na sinusunog, handog ng pagpaparangal sa akin, handog na inumin, handog sa paglilinis, at handog para sa mabuting relasyon sa panahon ng pista katulad ng Pista ng Pagsisimula ng Buwan, mga Araw ng Pamamahinga, at iba pang mga pista na ipinagdiriwang ng mga Israelita. Iaalay ang mga handog na ito upang mapatawad ang mga kasalanan ng mga mamamayan ng Israel." ## Ang mga Pista 
+Tungkulin naman ng pinuno ng Israel ang pagbibigay ng mga handog na sinusunog, handog ng pagpaparangal sa akin, handog na inumin, handog sa paglilinis, at handog para sa mabuting relasyon sa panahon ng pista katulad ng Pista ng Pagsisimula ng Buwan, mga Araw ng Pamamahinga, at iba pang mga pista na ipinagdiriwang ng mga Israelita. Iaalay ang mga handog na ito upang mapatawad ang mga kasalanan ng mga mamamayan ng Israel." 
+
+## Ang mga Pista 
 
 
 

@@ -766,7 +766,9 @@ Dahil sa kanila, ang lahat ng bihag sa Babilonia na mga taga-Juda ay susumpa ng 
 
 
 
-Mangyayari ito sa kanila dahil gumawa sila ng mga kasuklam-suklam na bagay sa Israel. Nangalunya sila sa asawa ng kapwa nila at nagsalita ng kasinungalingan sa pangalan ko na hindi ko iniutos na gawin nila. Nalalaman ko ang mga ginawa nila at makapagpapatunay ako laban sa kanila. Ako, ang Panginoon, ang nagsasabi nito." ## Ang Mensahe para kay Shemaya 24-25Ang Panginoong Makapangyarihan, ang Dios ng Israel ay nagbigay sa akin ng mensahe para kay Shemaya na taga-Nehelam. "Ito ang sinabi niya: Shemaya, sa pamamagitan ng pangalan mo lang ay nagpadala ka ng sulat kay Zefanias na anak ni Maaseya na pari, at pinadalhan mo rin ng kopya ang iba pang mga pari, at ang lahat ng taga-Jerusalem. Ayon sa sulat mo kay Zefanias, sinabi mo, 
+Mangyayari ito sa kanila dahil gumawa sila ng mga kasuklam-suklam na bagay sa Israel. Nangalunya sila sa asawa ng kapwa nila at nagsalita ng kasinungalingan sa pangalan ko na hindi ko iniutos na gawin nila. Nalalaman ko ang mga ginawa nila at makapagpapatunay ako laban sa kanila. Ako, ang Panginoon, ang nagsasabi nito." 
+
+## Ang Mensahe para kay Shemaya 24-25Ang Panginoong Makapangyarihan, ang Dios ng Israel ay nagbigay sa akin ng mensahe para kay Shemaya na taga-Nehelam. "Ito ang sinabi niya: Shemaya, sa pamamagitan ng pangalan mo lang ay nagpadala ka ng sulat kay Zefanias na anak ni Maaseya na pari, at pinadalhan mo rin ng kopya ang iba pang mga pari, at ang lahat ng taga-Jerusalem. Ayon sa sulat mo kay Zefanias, sinabi mo, 
 
 
 

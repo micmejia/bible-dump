@@ -40,7 +40,9 @@ Then the multitudes who went before and those who followed cried out, saying: "H
 And when He had come into Jerusalem, all the city was moved, saying, "Who is this?" 
 
 ###### 11 
-So the multitudes said, "This is Jesus, the prophet from Nazareth of Galilee." ## Jesus Cleanses the Temple 
+So the multitudes said, "This is Jesus, the prophet from Nazareth of Galilee." 
+
+## Jesus Cleanses the Temple 
 
 ###### 12 
 Then Jesus went into the temple of God and drove out all those who bought and sold in the temple, and overturned the tables of the money changers and the seats of those who sold doves. 
@@ -77,7 +79,9 @@ And when the disciples saw it, they marveled, saying, "How did the fig tree with
 So Jesus answered and said to them, "Assuredly, I say to you, if you have faith and do not doubt, you will not only do what was done to the fig tree, but also if you say to this mountain, 'Be removed and be cast into the sea,' it will be done. 
 
 ###### 22 
-And whatever things you ask in prayer, believing, you will receive." ## Jesus' Authority Questioned 
+And whatever things you ask in prayer, believing, you will receive." 
+
+## Jesus' Authority Questioned 
 
 ###### 23 
 Now when He came into the temple, the chief priests and the elders of the people confronted Him as He was teaching, and said, "By what authority are You doing these things? And who gave You this authority?" 

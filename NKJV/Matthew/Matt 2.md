@@ -54,7 +54,9 @@ Now when they had departed, behold, an angel of the Lord appeared to Joseph in a
 When he arose, he took the young Child and His mother by night and departed for Egypt, 
 
 ###### 15 
-and was there until the death of Herod, that it might be fulfilled which was spoken by the Lord through the prophet, saying, "Out of Egypt I called My Son." ## Massacre of the Innocents 
+and was there until the death of Herod, that it might be fulfilled which was spoken by the Lord through the prophet, saying, "Out of Egypt I called My Son." 
+
+## Massacre of the Innocents 
 
 ###### 16 
 Then Herod, when he saw that he was deceived by the wise men, was exceedingly angry; and he sent forth and put to death all the male children who were in Bethlehem and in all its districts, from two years old and under, according to the time which he had determined from the wise men. 
@@ -63,7 +65,9 @@ Then Herod, when he saw that he was deceived by the wise men, was exceedingly an
 Then was fulfilled what was spoken by Jeremiah the prophet, saying: 
 
 ###### 18 
-"A voice was heard in Ramah, Lamentation, weeping, and great mourning, Rachel weeping for her children, Refusing to be comforted, Because they are no more." ## The Home in Nazareth 
+"A voice was heard in Ramah, Lamentation, weeping, and great mourning, Rachel weeping for her children, Refusing to be comforted, Because they are no more." 
+
+## The Home in Nazareth 
 
 ###### 19 
 Now when Herod was dead, behold, an angel of the Lord appeared in a dream to Joseph in Egypt, 

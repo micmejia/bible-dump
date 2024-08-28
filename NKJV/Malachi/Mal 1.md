@@ -23,7 +23,9 @@ But Esau I have hated, And laid waste his mountains and his heritage For the jac
 Even though Edom has said, "We have been impoverished, But we will return and build the desolate places," Thus says the Lord of hosts: "They may build, but I will throw down; They shall be called the Territory of Wickedness, And the people against whom the Lord will have indignation forever. 
 
 ###### 5 
-Your eyes shall see, And you shall say, 'The Lord is magnified beyond the border of Israel.' ## Polluted Offerings 
+Your eyes shall see, And you shall say, 'The Lord is magnified beyond the border of Israel.' 
+
+## Polluted Offerings 
 
 ###### 6 
 "A son honors his father, And a servant his master. If then I am the Father, Where is My honor? And if I am a Master, Where is My reverence? Says the Lord of hosts To you priests who despise My name. Yet you say, 'In what way have we despised Your name?' 

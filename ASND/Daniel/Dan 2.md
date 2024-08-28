@@ -700,7 +700,9 @@ Ipinapaliwanag niya ang mahihiwagang bagay na mahirap intindihin. Nasa kanya ang
 
 
 
-O Dios ng aking mga ninuno, pinupuri ko kayo at pinapasalamatan. Kayo ang nagbigay sa akin ng karunungan at kakayahan. At ibinigay nʼyo sa amin ang aming kahilingan sa inyo na ipahayag sa amin ang panaginip ng hari." ## Ipinaliwanag ni Daniel ang Panaginip ng Hari 
+O Dios ng aking mga ninuno, pinupuri ko kayo at pinapasalamatan. Kayo ang nagbigay sa akin ng karunungan at kakayahan. At ibinigay nʼyo sa amin ang aming kahilingan sa inyo na ipahayag sa amin ang panaginip ng hari." 
+
+## Ipinaliwanag ni Daniel ang Panaginip ng Hari 
 
 
 

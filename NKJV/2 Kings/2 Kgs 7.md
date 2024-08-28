@@ -13,7 +13,9 @@ next: ['2 Kgs 8']
 Then Elisha said, "Hear the word of the Lord. Thus says the Lord: 'Tomorrow about this time a seah of fine flour _shall be sold_ for a shekel, and two seahs of barley for a shekel, at the gate of Samaria.' " 
 
 ###### 2 
-So an officer on whose hand the king leaned answered the man of God and said, "Look, _if_ the Lord would make windows in heaven, could this thing be?" And he said, "In fact, you shall see _it_ with your eyes, but you shall not eat of it." ## The Syrians Flee 
+So an officer on whose hand the king leaned answered the man of God and said, "Look, _if_ the Lord would make windows in heaven, could this thing be?" And he said, "In fact, you shall see _it_ with your eyes, but you shall not eat of it." 
+
+## The Syrians Flee 
 
 ###### 3 
 Now there were four leprous men at the entrance of the gate; and they said to one another, "Why are we sitting here until we die? 

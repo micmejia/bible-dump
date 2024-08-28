@@ -49,7 +49,9 @@ So he said to him, 'Friend, how did you come in here without a wedding garment?'
 Then the king said to the servants, 'Bind him hand and foot, take him away, and cast him into outer darkness; there will be weeping and gnashing of teeth.' 
 
 ###### 14 
-"For many are called, but few are chosen." ## The Pharisees: Is It Lawful to Pay Taxes to Caesar? 
+"For many are called, but few are chosen." 
+
+## The Pharisees: Is It Lawful to Pay Taxes to Caesar? 
 
 ###### 15 
 Then the Pharisees went and plotted how they might entangle Him in His talk. 
@@ -131,7 +133,9 @@ This is the first and great commandment.
 And the second is like it: 'You shall love your neighbor as yourself.' 
 
 ###### 40 
-On these two commandments hang all the Law and the Prophets." ## Jesus: How Can David Call His Descendant Lord? 
+On these two commandments hang all the Law and the Prophets." 
+
+## Jesus: How Can David Call His Descendant Lord? 
 
 ###### 41 
 While the Pharisees were gathered together, Jesus asked them, 

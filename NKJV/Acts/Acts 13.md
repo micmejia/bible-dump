@@ -134,7 +134,9 @@ and by Him everyone who believes is justified from all things from which you cou
 Beware therefore, lest what has been spoken in the prophets come upon you: 
 
 ###### 41 
-'Behold, you despisers, Marvel and perish! For I work a work in your days, A work which you will by no means believe, Though one were to declare it to you.' " ## Blessing and Conflict at Antioch 
+'Behold, you despisers, Marvel and perish! For I work a work in your days, A work which you will by no means believe, Though one were to declare it to you.' " 
+
+## Blessing and Conflict at Antioch 
 
 ###### 42 
 So when the Jews went out of the synagogue, the Gentiles begged that these words might be preached to them the next Sabbath. 

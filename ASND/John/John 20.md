@@ -706,7 +706,9 @@ Pagkasabi niya nito, hiningahan niya sila at sinabi, "Tanggapin nʼyo ang Banal 
 
 
 
-Kung patatawarin nʼyo ang kasalanan ng isang tao, pinatawad na siya ng Dios. At kung hindi nʼyo patatawarin ang kanyang kasalanan, hindi rin siya pinatawad ng Dios." ## Ang Pagdududa ni Tomas 
+Kung patatawarin nʼyo ang kasalanan ng isang tao, pinatawad na siya ng Dios. At kung hindi nʼyo patatawarin ang kanyang kasalanan, hindi rin siya pinatawad ng Dios." 
+
+## Ang Pagdududa ni Tomas 
 
 
 
@@ -904,7 +906,9 @@ Sinabi ni Tomas sa kanya, "Panginoon ko at Dios ko!"
 
 
 
-Sinabi ni Jesus sa kanya, "Naniniwala ka na ba dahil nakita mo ako? Mapalad ang mga naniniwala kahit hindi nila ako nakita." ## Ang Layunin ng Aklat na Ito 
+Sinabi ni Jesus sa kanya, "Naniniwala ka na ba dahil nakita mo ako? Mapalad ang mga naniniwala kahit hindi nila ako nakita." 
+
+## Ang Layunin ng Aklat na Ito 
 
 
 

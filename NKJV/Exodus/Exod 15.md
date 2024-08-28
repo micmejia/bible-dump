@@ -72,7 +72,9 @@ For the horses of Pharaoh went with his chariots and his horsemen into the sea, 
 Then Miriam the prophetess, the sister of Aaron, took the timbrel in her hand; and all the women went out after her with timbrels and with dances. 
 
 ###### 21 
-And Miriam answered them: "Sing to the Lord, For He has triumphed gloriously! The horse and its rider He has thrown into the sea!" ## Bitter Waters Made Sweet 
+And Miriam answered them: "Sing to the Lord, For He has triumphed gloriously! The horse and its rider He has thrown into the sea!" 
+
+## Bitter Waters Made Sweet 
 
 ###### 22 
 So Moses brought Israel from the Red Sea; then they went out into the Wilderness of Shur. And they went three days in the wilderness and found no water. 

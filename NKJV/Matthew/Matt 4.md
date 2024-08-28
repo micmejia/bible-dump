@@ -60,7 +60,9 @@ that it might be fulfilled which was spoken by Isaiah the prophet, saying:
 The people who sat in darkness have seen a great light, And upon those who sat in the region and shadow of death Light has dawned." 
 
 ###### 17 
-From that time Jesus began to preach and to say, "Repent, for the kingdom of heaven is at hand." ## Four Fishermen Called as Disciples 
+From that time Jesus began to preach and to say, "Repent, for the kingdom of heaven is at hand." 
+
+## Four Fishermen Called as Disciples 
 
 ###### 18 
 And Jesus, walking by the Sea of Galilee, saw two brothers, Simon called Peter, and Andrew his brother, casting a net into the sea; for they were fishermen. 

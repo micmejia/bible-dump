@@ -271,7 +271,9 @@ Kaya sumagot sila, "Hindi namin alam."
 
 
 
-Sinabi ni Jesus sa kanila, "Kung ganoon, hindi ko rin sasabihin sa inyo kung saan nagmula ang awtoridad ko na gumawa ng mga bagay na ito." ## Ang Talinghaga tungkol sa Masasamang Magsasaka 
+Sinabi ni Jesus sa kanila, "Kung ganoon, hindi ko rin sasabihin sa inyo kung saan nagmula ang awtoridad ko na gumawa ng mga bagay na ito." 
+
+## Ang Talinghaga tungkol sa Masasamang Magsasaka 
 
 
 
@@ -601,7 +603,9 @@ Tiningnan sila ni Jesus at tinanong, "Ano ba ang ibig sabihin ng talatang ito sa
 
 
 
-Ang sinumang mahulog sa batong ito ay magkakabali-bali, ngunit ang mahulugan nito ay madudurog." ## Ang Tanong tungkol sa Pagbabayad ng Buwis 
+Ang sinumang mahulog sa batong ito ay magkakabali-bali, ngunit ang mahulugan nito ay madudurog." 
+
+## Ang Tanong tungkol sa Pagbabayad ng Buwis 
 
 
 
@@ -1397,7 +1401,9 @@ hanggang sa mapasuko ko sa iyo ang iyong mga kaaway.'
 
 
 
-Ngayon, kung tinawag siya ni David na Panginoon, paano masasabing lahi lang siya ni David?" ## Babala Laban sa mga Tagapagturo ng Kautusan 
+Ngayon, kung tinawag siya ni David na Panginoon, paano masasabing lahi lang siya ni David?" 
+
+## Babala Laban sa mga Tagapagturo ng Kautusan 
 
 
 

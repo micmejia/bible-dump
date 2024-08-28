@@ -271,7 +271,9 @@ Ang Dios pa kaya ang hindi magbigay ng katarungan sa mga pinili niya na tumatawa
 
 
 
-Tinitiyak ko sa inyo na bibigyan niya agad sila ng katarungan. Ngunit kung ako na Anak ng Tao ay bumalik na rito sa mundo, may makikita kaya akong mga taong sumasampalataya sa akin?" ## Ang Kwento tungkol sa Pariseo at sa Maniningil ng Buwis 
+Tinitiyak ko sa inyo na bibigyan niya agad sila ng katarungan. Ngunit kung ako na Anak ng Tao ay bumalik na rito sa mundo, may makikita kaya akong mga taong sumasampalataya sa akin?" 
+
+## Ang Kwento tungkol sa Pariseo at sa Maniningil ng Buwis 
 
 
 
@@ -469,7 +471,9 @@ Ang maniningil naman ng buwis ay nakatayo sa malayo, at hindi man lang makatinga
 
 
 
-Sinasabi ko sa inyo na ang maniningil ng buwis na iyon ay umuwing itinuring nang matuwid ng Dios, ngunit ang Pariseo ay hindi. Sapagkat ang nagpapakataas ng kanyang sarili ay ibababa, at ang nagpapakababa ay itataas." ## Pinagpala ni Jesus ang Maliliit na Bata 
+Sinasabi ko sa inyo na ang maniningil ng buwis na iyon ay umuwing itinuring nang matuwid ng Dios, ngunit ang Pariseo ay hindi. Sapagkat ang nagpapakataas ng kanyang sarili ay ibababa, at ang nagpapakababa ay itataas." 
+
+## Pinagpala ni Jesus ang Maliliit na Bata 
 
 
 
@@ -568,7 +572,9 @@ Pero tinawag ni Jesus ang mga bata, at sinabihan niya ang mga tagasunod niya, "H
 
 
 
-Sinasabi ko sa inyo ang totoo, ang sinumang hindi tumatanggap sa paghahari ng Dios na gaya ng pagtanggap ng isang maliit na bata ay hindi mapapabilang sa kaharian ng Dios." ## Ang Lalaking Mayaman 
+Sinasabi ko sa inyo ang totoo, ang sinumang hindi tumatanggap sa paghahari ng Dios na gaya ng pagtanggap ng isang maliit na bata ay hindi mapapabilang sa kaharian ng Dios." 
+
+## Ang Lalaking Mayaman 
 
 
 
@@ -997,7 +1003,9 @@ Sumagot si Jesus, "Sinasabi ko sa inyo ang totoo, ang sinumang nag-iwan ng bahay
 
 
 
-ay tatanggap sa panahong ito ng mas marami pa kaysa sa mga iniwan niya, at tatanggap din ng buhay na walang hanggan sa darating na panahon." ## Ang Ikatlong Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
+ay tatanggap sa panahong ito ng mas marami pa kaysa sa mga iniwan niya, at tatanggap din ng buhay na walang hanggan sa darating na panahon." 
+
+## Ang Ikatlong Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
 
 
 

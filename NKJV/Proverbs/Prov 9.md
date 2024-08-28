@@ -43,7 +43,9 @@ Give _instruction_ to a wise _man,_ and he will be still wiser; Teach a just _ma
 For by me your days will be multiplied, And years of life will be added to you. 
 
 ###### 12 
-If you are wise, you are wise for yourself, And _if_ you scoff, you will bear _it_ alone." ## The Way of Folly 
+If you are wise, you are wise for yourself, And _if_ you scoff, you will bear _it_ alone." 
+
+## The Way of Folly 
 
 ###### 13 
 A foolish woman is clamorous; _She is_ simple, and knows nothing. 

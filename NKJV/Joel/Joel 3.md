@@ -57,7 +57,9 @@ The sun and moon will grow dark, And the stars will diminish their brightness.
 The Lord also will roar from Zion, And utter His voice from Jerusalem; The heavens and earth will shake; But the Lord will be a shelter for His people, And the strength of the children of Israel. 
 
 ###### 17 
-"So you shall know that I am the Lord your God, Dwelling in Zion My holy mountain. Then Jerusalem shall be holy, And no aliens shall ever pass through her again." ## God Blesses His People 
+"So you shall know that I am the Lord your God, Dwelling in Zion My holy mountain. Then Jerusalem shall be holy, And no aliens shall ever pass through her again." 
+
+## God Blesses His People 
 
 ###### 18 
 And it will come to pass in that day That the mountains shall drip with new wine, The hills shall flow with milk, And all the brooks of Judah shall be flooded with water; A fountain shall flow from the house of the Lord And water the Valley of Acacias. 

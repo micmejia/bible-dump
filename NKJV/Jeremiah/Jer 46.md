@@ -43,7 +43,9 @@ For this is the day of the Lord God of hosts, A day of vengeance, That He may av
 "Go up to Gilead and take balm, O virgin, the daughter of Egypt; In vain you will use many medicines; You shall not be cured. 
 
 ###### 12 
-The nations have heard of your shame, And your cry has filled the land; For the mighty man has stumbled against the mighty; They both have fallen together." ## Babylonia Will Strike Egypt 
+The nations have heard of your shame, And your cry has filled the land; For the mighty man has stumbled against the mighty; They both have fallen together." 
+
+## Babylonia Will Strike Egypt 
 
 ###### 13 
 The word that the Lord spoke to Jeremiah the prophet, how Nebuchadnezzar king of Babylon would come and strike the land of Egypt. 

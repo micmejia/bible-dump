@@ -339,7 +339,9 @@ Ang lahat ng banal na regalo na dinadala ng mga Israelita sa mga pari ay magigin
 
 
 
-Magiging pag-aari ng mga pari ang mga banal na handog na ito." ## Ang Parusa sa Babaeng Nanlalalaki 
+Magiging pag-aari ng mga pari ang mga banal na handog na ito." 
+
+## Ang Parusa sa Babaeng Nanlalalaki 
 
 
 

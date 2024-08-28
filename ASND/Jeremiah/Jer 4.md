@@ -603,7 +603,9 @@ Pinaligiran nila ang Jerusalem na parang mga taong nagbabantay ng bukid, dahil a
 
 
 
-Ang pag-uugali at masasama nʼyong gawa ang nagdala ng parusang ito sa inyo. Ito ang kaparusahan ninyo. Masakit ito! At tatagos ito sa inyong puso." ## Umiyak si Jeremias para sa Kanyang mga Kababayan 
+Ang pag-uugali at masasama nʼyong gawa ang nagdala ng parusang ito sa inyo. Ito ang kaparusahan ninyo. Masakit ito! At tatagos ito sa inyong puso." 
+
+## Umiyak si Jeremias para sa Kanyang mga Kababayan 
 
 
 
@@ -735,7 +737,9 @@ Hanggang kailan ko kaya makikita ang watawat ng digmaan at ang tunog ng trumpeta
 
 
 
-Sinabi ng Panginoon, "Hangal ang mga mamamayan ko; hindi nila ako nakikilala. Silaʼy mga mangmang na kabataan at hindi nakakaunawa. Sanay silang gumawa ng masama pero hindi marunong gumawa ng mabuti." ## Ang Pangitain ni Jeremias tungkol sa Darating na Kapahamakan 
+Sinabi ng Panginoon, "Hangal ang mga mamamayan ko; hindi nila ako nakikilala. Silaʼy mga mangmang na kabataan at hindi nakakaunawa. Sanay silang gumawa ng masama pero hindi marunong gumawa ng mabuti." 
+
+## Ang Pangitain ni Jeremias tungkol sa Darating na Kapahamakan 
 
 
 

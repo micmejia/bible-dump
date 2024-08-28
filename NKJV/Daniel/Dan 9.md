@@ -64,7 +64,9 @@ Now therefore, our God, hear the prayer of Your servant, and his supplications, 
 O my God, incline Your ear and hear; open Your eyes and see our desolations, and the city which is called by Your name; for we do not present our supplications before You because of our righteous deeds, but because of Your great mercies. 
 
 ###### 19 
-O Lord, hear! O Lord, forgive! O Lord, listen and act! Do not delay for Your own sake, my God, for Your city and Your people are called by Your name." ## The Seventy-Weeks Prophecy 
+O Lord, hear! O Lord, forgive! O Lord, listen and act! Do not delay for Your own sake, my God, for Your city and Your people are called by Your name." 
+
+## The Seventy-Weeks Prophecy 
 
 ###### 20 
 Now while I was speaking, praying, and confessing my sin and the sin of my people Israel, and presenting my supplication before the Lord my God for the holy mountain of my God, 

@@ -37,7 +37,9 @@ And to her it was granted to be arrayed in fine linen, clean and bright, for the
 Then he said to me, "Write: 'Blessed are those who are called to the marriage supper of the Lamb!' " And he said to me, "These are the true sayings of God." 
 
 ###### 10 
-And I fell at his feet to worship him. But he said to me, "See that you do not do that! I am your fellow servant, and of your brethren who have the testimony of Jesus. Worship God! For the testimony of Jesus is the spirit of prophecy." ## Christ on a White Horse 
+And I fell at his feet to worship him. But he said to me, "See that you do not do that! I am your fellow servant, and of your brethren who have the testimony of Jesus. Worship God! For the testimony of Jesus is the spirit of prophecy." 
+
+## Christ on a White Horse 
 
 ###### 11 
 Now I saw heaven opened, and behold, a white horse. And He who sat on him was called Faithful and True, and in righteousness He judges and makes war. 

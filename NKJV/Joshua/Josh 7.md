@@ -34,7 +34,9 @@ And Joshua said, "Alas, Lord God, why have You brought this people over the Jord
 O Lord, what shall I say when Israel turns its back before its enemies? 
 
 ###### 9 
-For the Canaanites and all the inhabitants of the land will hear _it,_ and surround us, and cut off our name from the earth. Then what will You do for Your great name?" ## The Sin of Achan 
+For the Canaanites and all the inhabitants of the land will hear _it,_ and surround us, and cut off our name from the earth. Then what will You do for Your great name?" 
+
+## The Sin of Achan 
 
 ###### 10 
 So the Lord said to Joshua: "Get up! Why do you lie thus on your face? 

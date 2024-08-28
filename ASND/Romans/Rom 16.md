@@ -798,7 +798,9 @@ Kinukumusta rin kayo ni Gaius. Akong si Pablo ay nakikituloy dito sa bahay niya,
 
 
 
-Pagpalain kayong lahat ng ating Panginoong Jesu-Cristo. Amen.] ## Papuri sa Dios 
+Pagpalain kayong lahat ng ating Panginoong Jesu-Cristo. Amen.] 
+
+## Papuri sa Dios 
 
 
 

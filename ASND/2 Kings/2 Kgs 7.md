@@ -73,7 +73,9 @@ Sinabi ni Eliseo, "Pakinggan mo ang mensahe ng Panginoon: Bukas, sa ganito ring 
 
 
 
-Sinabi ng opisyal na katiwala ng hari, "Kahit na magpaulan pa ang Panginoon hindi magiging ganoon kadami ang ani." Sumagot si Eliseo, "Makikita mo na mangyayari iyon, pero hindi ka makakakain ng kahit ano." ## Huminto ang mga Arameo sa Paglusob 
+Sinabi ng opisyal na katiwala ng hari, "Kahit na magpaulan pa ang Panginoon hindi magiging ganoon kadami ang ani." Sumagot si Eliseo, "Makikita mo na mangyayari iyon, pero hindi ka makakakain ng kahit ano." 
+
+## Huminto ang mga Arameo sa Paglusob 
 
 
 

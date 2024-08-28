@@ -172,7 +172,9 @@ At ngayon sinasabi ninyo sa akin, 'Ama ko, kayo po ay kasama ko mula noong bata 
 
 
 
-Palagi na lang ba kayong galit sa akin? Hanggang kailan pa po ba kayo magagalit sa akin?' Ito ang sinasabi ninyo, pero ginagawa naman ninyo ang lahat ng masama na magagawa ninyo." ## Ginaya ng Juda ang Israel 
+Palagi na lang ba kayong galit sa akin? Hanggang kailan pa po ba kayo magagalit sa akin?' Ito ang sinasabi ninyo, pero ginagawa naman ninyo ang lahat ng masama na magagawa ninyo." 
+
+## Ginaya ng Juda ang Israel 
 
 
 

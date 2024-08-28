@@ -46,7 +46,9 @@ And he shall offer the second _as_ a burnt offering according to the prescribed 
 Then he shall bring it to the priest, and the priest shall take his handful of it as a memorial portion, and burn _it_ on the altar according to the offerings made by fire to the Lord. It _is_ a sin offering. 
 
 ###### 13 
-The priest shall make atonement for him, for his sin that he has committed in any of these matters; and it shall be forgiven him. _The rest_ shall be the priest's as a grain offering.' " ## Offerings with Restitution 
+The priest shall make atonement for him, for his sin that he has committed in any of these matters; and it shall be forgiven him. _The rest_ shall be the priest's as a grain offering.' " 
+
+## Offerings with Restitution 
 
 ###### 14 
 Then the Lord spoke to Moses, saying: 

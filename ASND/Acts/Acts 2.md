@@ -436,7 +436,9 @@ Namangha talaga ang lahat ng tao roon. At dahil hindi nila maunawaan kung ano an
 
 
 
-Pero tinuya ng iba ang mga mananampalataya. Sinabi nila, "Lasing lang ang mga iyan!" ## Nangaral si Pedro 
+Pero tinuya ng iba ang mga mananampalataya. Sinabi nila, "Lasing lang ang mga iyan!" 
+
+## Nangaral si Pedro 
 
 
 

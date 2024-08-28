@@ -51,7 +51,9 @@ Then He also said to him who invited Him, "When you give a dinner or a supper, d
 But when you give a feast, invite the poor, the maimed, the lame, the blind. 
 
 ###### 14 
-And you will be blessed, because they cannot repay you; for you shall be repaid at the resurrection of the just." ## The Parable of the Great Supper 
+And you will be blessed, because they cannot repay you; for you shall be repaid at the resurrection of the just." 
+
+## The Parable of the Great Supper 
 
 ###### 15 
 Now when one of those who sat at the table with Him heard these things, he said to Him, "Blessed is he who shall eat bread in the kingdom of God!" 
@@ -81,7 +83,9 @@ And the servant said, 'Master, it is done as you commanded, and still there is r
 Then the master said to the servant, 'Go out into the highways and hedges, and compel them to come in, that my house may be filled. 
 
 ###### 24 
-For I say to you that none of those men who were invited shall taste my supper.' " ## Leaving All to Follow Christ 
+For I say to you that none of those men who were invited shall taste my supper.' " 
+
+## Leaving All to Follow Christ 
 
 ###### 25 
 Now great multitudes went with Him. And He turned and said to them, 

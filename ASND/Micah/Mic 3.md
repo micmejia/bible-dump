@@ -40,7 +40,9 @@ next: ['Mic 4']
 
 
 
-Sinabi ni Micas: Makinig kayo, mga pinuno ng Israel at Juda! Hindi baʼt kayo ang dapat magpatupad ng katarungan? ###### 2-3 Pero ayaw ninyo ang mabuti at gusto ninyo ang masama. Ginigipit ninyo ang aking mga kababayan, na parang binabalatan ninyo sila at inaalisan ng laman ang kanilang mga buto, pagkatapos ay tinatadtad ang mga buto at hinihiwa ang mga laman at saka niluluto at kinakain. 
+Sinabi ni Micas: Makinig kayo, mga pinuno ng Israel at Juda! Hindi baʼt kayo ang dapat magpatupad ng katarungan? 
+
+###### 2-3 Pero ayaw ninyo ang mabuti at gusto ninyo ang masama. Ginigipit ninyo ang aking mga kababayan, na parang binabalatan ninyo sila at inaalisan ng laman ang kanilang mga buto, pagkatapos ay tinatadtad ang mga buto at hinihiwa ang mga laman at saka niluluto at kinakain. 
 
 
 

@@ -271,7 +271,9 @@ Pagkatapos, ipinatawag ni Moises si Josue, at sa harap ng lahat ng Israelita ay 
 
 
 
-Pangungunahan ka ng Panginoon at sasamahan ka niya; hindi ka niya iiwan o pababayaan man. Kaya huwag kang matakot ni panghinaan ng loob." ## Ang Pagbasa ng Kautusan 
+Pangungunahan ka ng Panginoon at sasamahan ka niya; hindi ka niya iiwan o pababayaan man. Kaya huwag kang matakot ni panghinaan ng loob." 
+
+## Ang Pagbasa ng Kautusan 
 
 
 
@@ -436,7 +438,9 @@ Tipunin ang mga tao – mga lalaki, babae, bata at mga dayuhang naninirahan sa b
 
 
 
-Gawin ninyo ito para ang inyong mga anak na hindi pa nakakaalam ng mga utos na ito ay makarinig din nito at matutong gumalang sa Panginoon na inyong Dios habang nabubuhay kayo sa lupaing aangkinin ninyo sa kabila ng Jordan." ## Itinakda ang Pagrerebelde ng mga Israelita 
+Gawin ninyo ito para ang inyong mga anak na hindi pa nakakaalam ng mga utos na ito ay makarinig din nito at matutong gumalang sa Panginoon na inyong Dios habang nabubuhay kayo sa lupaing aangkinin ninyo sa kabila ng Jordan." 
+
+## Itinakda ang Pagrerebelde ng mga Israelita 
 
 
 
@@ -964,7 +968,9 @@ Tipunin ninyo sa harapan ko ang lahat ng tagapamahala ng inyong angkan at ang la
 
 
 
-Sapagkat nalalaman ko na kung patay na ako, siguradong gagawa kayo ng kasamaan at itatakwil ninyo ang lahat ng iniuutos ko sa inyo. Sa bandang huli, darating sa inyo ang lahat ng kapahamakan dahil gagawa kayo ng masama sa paningin ng Panginoon at gagalitin ninyo siya sa pamamagitan ng mga gagawin ninyo." ## Ang Awit ni Moises 
+Sapagkat nalalaman ko na kung patay na ako, siguradong gagawa kayo ng kasamaan at itatakwil ninyo ang lahat ng iniuutos ko sa inyo. Sa bandang huli, darating sa inyo ang lahat ng kapahamakan dahil gagawa kayo ng masama sa paningin ng Panginoon at gagalitin ninyo siya sa pamamagitan ng mga gagawin ninyo." 
+
+## Ang Awit ni Moises 
 
 
 

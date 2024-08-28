@@ -40,7 +40,9 @@ next: ['Isa 5']
 
 
 
-Sa mga araw na iyon, pitong babae ang mag-aagawan sa isang lalaki at sasabihin nila, "Kami na ang bahala sa pagkain at damit namin, pakasalan mo lang kami para hindi kami kahiya-hiya dahil wala kaming asawa." ## Muling Pagpapalain ang Jerusalem 
+Sa mga araw na iyon, pitong babae ang mag-aagawan sa isang lalaki at sasabihin nila, "Kami na ang bahala sa pagkain at damit namin, pakasalan mo lang kami para hindi kami kahiya-hiya dahil wala kaming asawa." 
+
+## Muling Pagpapalain ang Jerusalem 
 
 
 

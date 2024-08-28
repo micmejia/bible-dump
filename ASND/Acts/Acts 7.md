@@ -1723,7 +1723,9 @@ Walang propeta sa kanilang kapanahunan na hindi nila inusig. Ang mga nagpahayag 
 
 
 
-Tumanggap kayo ng Kautusan na ibinigay ng Dios sa pamamagitan ng mga anghel, ngunit hindi ninyo sinunod." ## Ang Pagbato kay Esteban 
+Tumanggap kayo ng Kautusan na ibinigay ng Dios sa pamamagitan ng mga anghel, ngunit hindi ninyo sinunod." 
+
+## Ang Pagbato kay Esteban 
 
 
 

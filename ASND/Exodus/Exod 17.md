@@ -238,7 +238,9 @@ Hihintayin kita roon sa may bato sa Horeb. Kapag naroon ka na, paluin mo ang bat
 
 
 
-Tinawag ni Moises ang lugar na Masa at Meriba, dahil nakipagtalo sa kanya ang mga Israelita at sinubukan nila ang Panginoon sa pamamagitan ng pagsasabi, "Sinasamahan ba tayo ng Panginoon o hindi?" ## Natalo ang mga Amalekita 
+Tinawag ni Moises ang lugar na Masa at Meriba, dahil nakipagtalo sa kanya ang mga Israelita at sinubukan nila ang Panginoon sa pamamagitan ng pagsasabi, "Sinasamahan ba tayo ng Panginoon o hindi?" 
+
+## Natalo ang mga Amalekita 
 
 
 

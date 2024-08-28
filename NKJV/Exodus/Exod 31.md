@@ -40,7 +40,9 @@ the altar of burnt offering with all its utensils, and the laver and its base--
 the garments of ministry, the holy garments for Aaron the priest and the garments of his sons, to minister as priests, 
 
 ###### 11 
-and the anointing oil and sweet incense for the holy _place._ According to all that I have commanded you they shall do." ## The Sabbath Law 
+and the anointing oil and sweet incense for the holy _place._ According to all that I have commanded you they shall do." 
+
+## The Sabbath Law 
 
 ###### 12 
 And the Lord spoke to Moses, saying, 

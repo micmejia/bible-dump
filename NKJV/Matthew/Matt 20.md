@@ -55,7 +55,9 @@ Take what is yours and go your way. I wish to give to this last man the same as 
 Is it not lawful for me to do what I wish with my own things? Or is your eye evil because I am good?' 
 
 ###### 16 
-So the last will be first, and the first last. For many are called, but few chosen." ## Jesus a Third Time Predicts His Death and Resurrection 
+So the last will be first, and the first last. For many are called, but few chosen." 
+
+## Jesus a Third Time Predicts His Death and Resurrection 
 
 ###### 17 
 Now Jesus, going up to Jerusalem, took the twelve disciples aside on the road and said to them, 
@@ -64,7 +66,9 @@ Now Jesus, going up to Jerusalem, took the twelve disciples aside on the road an
 "Behold, we are going up to Jerusalem, and the Son of Man will be betrayed to the chief priests and to the scribes; and they will condemn Him to death, 
 
 ###### 19 
-and deliver Him to the Gentiles to mock and to scourge and to crucify. And the third day He will rise again." ## Greatness Is Serving 
+and deliver Him to the Gentiles to mock and to scourge and to crucify. And the third day He will rise again." 
+
+## Greatness Is Serving 
 
 ###### 20 
 Then the mother of Zebedee's sons came to Him with her sons, kneeling down and asking something from Him. 
@@ -91,7 +95,9 @@ Yet it shall not be so among you; but whoever desires to become great among you,
 And whoever desires to be first among you, let him be your slave-- 
 
 ###### 28 
-just as the Son of Man did not come to be served, but to serve, and to give His life a ransom for many." ## Two Blind Men Receive Their Sight 
+just as the Son of Man did not come to be served, but to serve, and to give His life a ransom for many." 
+
+## Two Blind Men Receive Their Sight 
 
 ###### 29 
 Now as they went out of Jericho, a great multitude followed Him. 

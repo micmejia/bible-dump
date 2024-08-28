@@ -32,7 +32,9 @@ and has made us kings and priests to His God and Father, to Him be glory and dom
 Behold, He is coming with clouds, and every eye will see Him, even they who pierced Him. And all the tribes of the earth will mourn because of Him. Even so, Amen. 
 
 ###### 8 
-"I am the Alpha and the Omega, the Beginning and the End," says the Lord, "who is and who was and who is to come, the Almighty." ## Vision of the Son of Man 
+"I am the Alpha and the Omega, the Beginning and the End," says the Lord, "who is and who was and who is to come, the Almighty." 
+
+## Vision of the Son of Man 
 
 ###### 9 
 I, John, both your brother and companion in the tribulation and kingdom and patience of Jesus Christ, was on the island that is called Patmos for the word of God and for the testimony of Jesus Christ. 

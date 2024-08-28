@@ -78,7 +78,9 @@ And He changes the times and the seasons; He removes kings and raises up kings; 
 He reveals deep and secret things; He knows what is in the darkness, And light dwells with Him. 
 
 ###### 23 
-"I thank You and praise You, O God of my fathers; You have given me wisdom and might, And have now made known to me what we asked of You, For You have made known to us the king's demand." ## Daniel Explains the Dream 
+"I thank You and praise You, O God of my fathers; You have given me wisdom and might, And have now made known to me what we asked of You, For You have made known to us the king's demand." 
+
+## Daniel Explains the Dream 
 
 ###### 24 
 Therefore Daniel went to Arioch, whom the king had appointed to destroy the wise men of Babylon. He went and said thus to him: "Do not destroy the wise men of Babylon; take me before the king, and I will tell the king the interpretation." 
@@ -144,7 +146,9 @@ As you saw iron mixed with ceramic clay, they will mingle with the seed of men; 
 And in the days of these kings the God of heaven will set up a kingdom which shall never be destroyed; and the kingdom shall not be left to other people; it shall break in pieces and consume all these kingdoms, and it shall stand forever. 
 
 ###### 45 
-Inasmuch as you saw that the stone was cut out of the mountain without hands, and that it broke in pieces the iron, the bronze, the clay, the silver, and the gold--the great God has made known to the king what will come to pass after this. The dream is certain, and its interpretation is sure." ## Daniel and His Friends Promoted 
+Inasmuch as you saw that the stone was cut out of the mountain without hands, and that it broke in pieces the iron, the bronze, the clay, the silver, and the gold--the great God has made known to the king what will come to pass after this. The dream is certain, and its interpretation is sure." 
+
+## Daniel and His Friends Promoted 
 
 ###### 46 
 Then King Nebuchadnezzar fell on his face, prostrate before Daniel, and commanded that they should present an offering and incense to him. 

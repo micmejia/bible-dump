@@ -39,7 +39,9 @@ next: ['Mark 2']
 
 
 
-Maririnig ang kanyang sigaw sa ilang, na nagsasabi, 'Ihanda ninyo ang daan para sa Panginoon, tuwirin ninyo ang mga landas na kanyang dadaanan.' " ###### 4-5 At natupad ito noong dumating si Juan na tagapagbautismo roon sa ilang. Napakaraming tao ang pumunta sa kanya galing sa Jerusalem at sa buong lalawigan ng Judea. Nangaral si Juan sa mga tao, "Magsisi kayo at talikdan ang inyong mga kasalanan; magpabautismo kayo para sa kapatawaran ng inyong mga kasalanan." Ipinahayag nila ang kanilang mga kasalanan at binautismuhan sila ni Juan sa Ilog ng Jordan. 
+Maririnig ang kanyang sigaw sa ilang, na nagsasabi, 'Ihanda ninyo ang daan para sa Panginoon, tuwirin ninyo ang mga landas na kanyang dadaanan.' " 
+
+###### 4-5 At natupad ito noong dumating si Juan na tagapagbautismo roon sa ilang. Napakaraming tao ang pumunta sa kanya galing sa Jerusalem at sa buong lalawigan ng Judea. Nangaral si Juan sa mga tao, "Magsisi kayo at talikdan ang inyong mga kasalanan; magpabautismo kayo para sa kapatawaran ng inyong mga kasalanan." Ipinahayag nila ang kanilang mga kasalanan at binautismuhan sila ni Juan sa Ilog ng Jordan. 
 
 
 
@@ -138,7 +140,9 @@ Ito ang ipinapahayag niya, "May isang darating na kasunod ko, mas makapangyariha
 
 
 
-Binabautismuhan ko kayo sa tubig, ngunit babautismuhan niya kayo sa Banal na Espiritu." ## Ang Pagbautismo at Pagtukso kay Jesus 
+Binabautismuhan ko kayo sa tubig, ngunit babautismuhan niya kayo sa Banal na Espiritu." 
+
+## Ang Pagbautismo at Pagtukso kay Jesus 
 
 
 

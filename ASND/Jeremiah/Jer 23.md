@@ -205,7 +205,9 @@ Ito ang pangalang itatawag sa kanya, 'Ang Panginoon ang Ating Katuwiran.' At sa 
 
 
 
-Sa halip, sasabihin nilang, 'Sumusumpa ako sa pangalan ng buhay na Panginoon na nagpalaya sa mga lahi ng Israel sa mga bansa sa hilaga at sa lahat ng bansa kung saan sila pinangalat. At maninirahan na sila sa kanilang sariling lupain.' " ## Ang Parusa sa mga Bulaang Propeta 
+Sa halip, sasabihin nilang, 'Sumusumpa ako sa pangalan ng buhay na Panginoon na nagpalaya sa mga lahi ng Israel sa mga bansa sa hilaga at sa lahat ng bansa kung saan sila pinangalat. At maninirahan na sila sa kanilang sariling lupain.' " 
+
+## Ang Parusa sa mga Bulaang Propeta 
 
 
 

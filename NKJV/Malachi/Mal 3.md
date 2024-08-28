@@ -28,7 +28,9 @@ And I will come near you for judgment; I will be a swift witness Against sorcere
 "For I am the Lord, I do not change; Therefore you are not consumed, O sons of Jacob. 
 
 ###### 7 
-Yet from the days of your fathers You have gone away from My ordinances And have not kept them. Return to Me, and I will return to you," Says the Lord of hosts. "But you said, 'In what way shall we return?' ## Do Not Rob God 
+Yet from the days of your fathers You have gone away from My ordinances And have not kept them. Return to Me, and I will return to you," Says the Lord of hosts. "But you said, 'In what way shall we return?' 
+
+## Do Not Rob God 
 
 ###### 8 
 "Will a man rob God? Yet you have robbed Me! But you say, 'In what way have we robbed You?' In tithes and offerings. 
@@ -54,7 +56,9 @@ Bring all the tithes into the storehouse, That there may be food in My house, An
 You have said, 'It is useless to serve God; What profit is it that we have kept His ordinance, And that we have walked as mourners Before the Lord of hosts? 
 
 ###### 15 
-So now we call the proud blessed, For those who do wickedness are raised up; They even tempt God and go free.' " ## A Book of Remembrance 
+So now we call the proud blessed, For those who do wickedness are raised up; They even tempt God and go free.' " 
+
+## A Book of Remembrance 
 
 ###### 16 
 Then those who feared the Lord spoke to one another, And the Lord listened and heard them; So a book of remembrance was written before Him For those who fear the Lord And who meditate on His name. 

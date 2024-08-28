@@ -48,7 +48,9 @@ And the smoke of their torment ascends forever and ever; and they have no rest d
 Here is the patience of the saints; here are those who keep the commandments of God and the faith of Jesus. 
 
 ###### 13 
-Then I heard a voice from heaven saying to me, "Write: 'Blessed are the dead who die in the Lord from now on.' " "Yes," says the Spirit, "that they may rest from their labors, and their works follow them." ## Reaping the Earth's Harvest 
+Then I heard a voice from heaven saying to me, "Write: 'Blessed are the dead who die in the Lord from now on.' " "Yes," says the Spirit, "that they may rest from their labors, and their works follow them." 
+
+## Reaping the Earth's Harvest 
 
 ###### 14 
 Then I looked, and behold, a white cloud, and on the cloud sat One like the Son of Man, having on His head a golden crown, and in His hand a sharp sickle. 

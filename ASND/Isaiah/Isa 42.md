@@ -304,7 +304,9 @@ Ako ang Panginoon! Iyan ang aking pangalan! Hindi ko ibibigay kaninuman o sa mga
 
 
 
-Ang mga propesiya koʼy natupad at sasabihin ko ngayon ang mga bagong bagay bago pa ito mangyari." ## Awit ng Papuri sa Panginoon 
+Ang mga propesiya koʼy natupad at sasabihin ko ngayon ang mga bagong bagay bago pa ito mangyari." 
+
+## Awit ng Papuri sa Panginoon 
 
 
 
@@ -568,7 +570,9 @@ Aakayin ko ang mga mamamayan kong bulag sa katotohanan, sa daan na hindi pa nila
 
 
 
-Pero ang mga nagtitiwala sa mga dios-diosan, at ang mga itinuturing na dios ang kanilang mga rebulto ay tatakas dahil sa malaking kahihiyan." ## Ang Israel ay Parang Bingi at Bulag 
+Pero ang mga nagtitiwala sa mga dios-diosan, at ang mga itinuturing na dios ang kanilang mga rebulto ay tatakas dahil sa malaking kahihiyan." 
+
+## Ang Israel ay Parang Bingi at Bulag 
 
 
 

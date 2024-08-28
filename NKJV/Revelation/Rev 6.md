@@ -29,7 +29,9 @@ Another horse, fiery red, went out. And it was granted to the one who sat on it 
 When He opened the third seal, I heard the third living creature say, "Come and see." So I looked, and behold, a black horse, and he who sat on it had a pair of scales in his hand. 
 
 ###### 6 
-And I heard a voice in the midst of the four living creatures saying, "A quart of wheat for a denarius, and three quarts of barley for a denarius; and do not harm the oil and the wine." ## Fourth Seal: Widespread Death on Earth 
+And I heard a voice in the midst of the four living creatures saying, "A quart of wheat for a denarius, and three quarts of barley for a denarius; and do not harm the oil and the wine." 
+
+## Fourth Seal: Widespread Death on Earth 
 
 ###### 7 
 When He opened the fourth seal, I heard the voice of the fourth living creature saying, "Come and see." 

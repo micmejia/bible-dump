@@ -181,7 +181,9 @@ Because the plunderer comes against her, against Babylon, And her mighty men are
 "And I will make drunk Her princes and wise men, Her governors, her deputies, and her mighty men. And they shall sleep a perpetual sleep And not awake," says the King, Whose name is the Lord of hosts. 
 
 ###### 58 
-Thus says the Lord of hosts: "The broad walls of Babylon shall be utterly broken, And her high gates shall be burned with fire; The people will labor in vain, And the nations, because of the fire; And they shall be weary." ## Jeremiah's Command to Seraiah 
+Thus says the Lord of hosts: "The broad walls of Babylon shall be utterly broken, And her high gates shall be burned with fire; The people will labor in vain, And the nations, because of the fire; And they shall be weary." 
+
+## Jeremiah's Command to Seraiah 
 
 ###### 59 
 The word which Jeremiah the prophet commanded Seraiah the son of Neriah, the son of Mahseiah, when he went with Zedekiah the king of Judah to Babylon in the fourth year of his reign. And Seraiah was the quartermaster. 

@@ -238,7 +238,9 @@ Pero hindi ninyo sinunod ang aking mga pamamaraan. Ang mga turo ninyo ang nagtul
 
 
 
-Kaya ipinahamak at ipinahiya ko kayo sa lahat ng tao dahil hindi ninyo sinunod ang aking mga pamamaraan, at may kinikilingan kayo sa inyong pagtuturo." ## Hindi Naging Tapat ang mga Israelita 
+Kaya ipinahamak at ipinahiya ko kayo sa lahat ng tao dahil hindi ninyo sinunod ang aking mga pamamaraan, at may kinikilingan kayo sa inyong pagtuturo." 
+
+## Hindi Naging Tapat ang mga Israelita 
 
 
 

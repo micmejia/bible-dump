@@ -535,7 +535,9 @@ Hindi baʼt may karapatan akong gawin ang gusto ko sa pera ko? O naiinggit lang 
 
 
 
-Pagkatapos, sinabi ni Jesus, "Ganyan din ang mangyayari sa huling araw. May mga hamak ngayon na magiging dakila, at may mga dakila ngayon na magiging hamak." ## Ang Ikatlong Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
+Pagkatapos, sinabi ni Jesus, "Ganyan din ang mangyayari sa huling araw. May mga hamak ngayon na magiging dakila, at may mga dakila ngayon na magiging hamak." 
+
+## Ang Ikatlong Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
 
 
 
@@ -634,7 +636,9 @@ Habang naglalakad sina Jesus papuntang Jerusalem, inihiwalay niya ang 12 tagasun
 
 
 
-at ibibigay sa mga hindi Judio para insultuhin, hagupitin at ipako sa krus. Ngunit mabubuhay akong muli sa ikatlong araw." ## Ang Kahilingan ng Ina nina Santiago at Juan 
+at ibibigay sa mga hindi Judio para insultuhin, hagupitin at ipako sa krus. Ngunit mabubuhay akong muli sa ikatlong araw." 
+
+## Ang Kahilingan ng Ina nina Santiago at Juan 
 
 
 
@@ -931,7 +935,9 @@ At ang sinuman sa inyo na gustong maging pinuno ay dapat maging alipin ninyo.
 
 
 
-Maging ako na Anak ng Tao ay naparito sa mundo, hindi upang paglingkuran kundi upang maglingkod at magbigay ng aking buhay para maligtas ang maraming tao." ## Pinagaling ni Jesus ang Dalawang Bulag 
+Maging ako na Anak ng Tao ay naparito sa mundo, hindi upang paglingkuran kundi upang maglingkod at magbigay ng aking buhay para maligtas ang maraming tao." 
+
+## Pinagaling ni Jesus ang Dalawang Bulag 
 
 
 

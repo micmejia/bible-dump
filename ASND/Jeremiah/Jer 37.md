@@ -273,7 +273,9 @@ Ito pa ang sinabi ng Panginoon, "Huwag ninyong dayain ang inyong sarili sa pag-a
 
 
 
-Kahit na matalo nʼyo pa ang buong hukbo ng Babilonia na sumasalakay sa inyo, at ang matitira sa kanila ay ang mga sugatan sa kanilang kampo, sasalakay pa rin sila sa inyo at susunugin nila ang lungsod na ito." ## Ikinulong si Jeremias 
+Kahit na matalo nʼyo pa ang buong hukbo ng Babilonia na sumasalakay sa inyo, at ang matitira sa kanila ay ang mga sugatan sa kanilang kampo, sasalakay pa rin sila sa inyo at susunugin nila ang lungsod na ito." 
+
+## Ikinulong si Jeremias 
 
 
 

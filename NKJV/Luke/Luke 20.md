@@ -31,7 +31,9 @@ But if we say, 'From men,' all the people will stone us, for they are persuaded 
 So they answered that they did not know where it was from. 
 
 ###### 8 
-And Jesus said to them, "Neither will I tell you by what authority I do these things." ## The Parable of the Wicked Vinedressers 
+And Jesus said to them, "Neither will I tell you by what authority I do these things." 
+
+## The Parable of the Wicked Vinedressers 
 
 ###### 9 
 Then He began to tell the people this parable: "A certain man planted a vineyard, leased it to vinedressers, and went into a far country for a long time. 
@@ -145,7 +147,9 @@ Now David himself said in the Book of Psalms: 'The Lord said to my Lord, "Sit at
 Till I make Your enemies Your footstool." ' 
 
 ###### 44 
-Therefore David calls Him 'Lord'; how is He then his Son?" ## Beware of the Scribes 
+Therefore David calls Him 'Lord'; how is He then his Son?" 
+
+## Beware of the Scribes 
 
 ###### 45 
 Then, in the hearing of all the people, He said to His disciples, 

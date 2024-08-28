@@ -16,7 +16,9 @@ Hear this word which I take up against you, a lamentation, O house of Israel:
 The virgin of Israel has fallen; She will rise no more. She lies forsaken on her land; There is no one to raise her up. 
 
 ###### 3 
-For thus says the Lord God: "The city that goes out by a thousand Shall have a hundred left, And that which goes out by a hundred Shall have ten left to the house of Israel." ## A Call to Repentance 
+For thus says the Lord God: "The city that goes out by a thousand Shall have a hundred left, And that which goes out by a hundred Shall have ten left to the house of Israel." 
+
+## A Call to Repentance 
 
 ###### 4 
 For thus says the Lord to the house of Israel: "Seek Me and live; 

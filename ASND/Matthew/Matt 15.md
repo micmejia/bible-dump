@@ -304,7 +304,9 @@ Mga pakitang-tao! Tamang-tama ang sinabi ng Dios tungkol sa inyo sa pamamagitan 
 
 
 
-Walang kabuluhan ang pagsamba nila sa akin, sapagkat ang mga itinuturo nila ay mga utos lang ng tao.' " ## Ang Nagpaparumi sa Tao 
+Walang kabuluhan ang pagsamba nila sa akin, sapagkat ang mga itinuturo nila ay mga utos lang ng tao.' " 
+
+## Ang Nagpaparumi sa Tao 
 
 
 
@@ -667,7 +669,9 @@ Sapagkat sa puso ng tao nagmumula ang masasamang pag-iisip na nagtutulak sa kany
 
 
 
-Ang mga bagay na ito ang nagpaparumi sa isang tao. Ngunit ang kumain nang hindi naghuhugas ng kamay ay hindi nakapagpaparumi sa tao." ## Ang Pananampalataya ng Babaeng Hindi Judio 
+Ang mga bagay na ito ang nagpaparumi sa isang tao. Ngunit ang kumain nang hindi naghuhugas ng kamay ay hindi nakapagpaparumi sa tao." 
+
+## Ang Pananampalataya ng Babaeng Hindi Judio 
 
 
 

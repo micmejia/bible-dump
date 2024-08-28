@@ -370,7 +370,9 @@ Sa pagkakataong iyon, bumunot ng espada si Simon Pedro at tinaga ang alipin ng p
 
 
 
-Pero sinaway ni Jesus si Pedro, "Ibalik mo ang espada mo sa lalagyan nito. Sa palagay mo baʼy hindi ko titiisin ang paghihirap na ibinigay sa akin ng Ama?" ## Dinala si Jesus kay Anas 
+Pero sinaway ni Jesus si Pedro, "Ibalik mo ang espada mo sa lalagyan nito. Sa palagay mo baʼy hindi ko titiisin ang paghihirap na ibinigay sa akin ng Ama?" 
+
+## Dinala si Jesus kay Anas 
 
 
 
@@ -1269,7 +1271,9 @@ Sinabi ni Pilato, "Kung ganoon, isa kang hari?" Sumagot si Jesus, "Tama ang sina
 
 
 
-Tinanong siya ni Pilato, "Ano ba ang katotohanan?" ## Hinatulan si Jesus ng Kamatayan Nang masabi ito ni Pilato, lumabas siya at sinabi sa mga Judio, "Wala akong makitang kasalanan sa taong ito. 
+Tinanong siya ni Pilato, "Ano ba ang katotohanan?" 
+
+## Hinatulan si Jesus ng Kamatayan Nang masabi ito ni Pilato, lumabas siya at sinabi sa mga Judio, "Wala akong makitang kasalanan sa taong ito. 
 
 
 

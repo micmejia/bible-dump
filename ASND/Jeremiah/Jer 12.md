@@ -139,7 +139,9 @@ Ngunit kilala nʼyo po ako Panginoon. Nakikita nʼyo ang mga ginagawa ko at alam
 
 
 
-Hanggang kailan po kaya ang pagkatuyo ng lupa at ang pagkalanta ng mga damo? Namamatay na po ang mga hayop at mga ibon dahil sa kasamaan ng mga taong nakatira sa lupaing ito. At sinasabi pa nila, "Walang pakialam ang Dios sa sasapitin natin." ## Ang Sagot ng Panginoon 
+Hanggang kailan po kaya ang pagkatuyo ng lupa at ang pagkalanta ng mga damo? Namamatay na po ang mga hayop at mga ibon dahil sa kasamaan ng mga taong nakatira sa lupaing ito. At sinasabi pa nila, "Walang pakialam ang Dios sa sasapitin natin." 
+
+## Ang Sagot ng Panginoon 
 
 
 

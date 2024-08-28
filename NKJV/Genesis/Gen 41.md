@@ -115,7 +115,9 @@ Let Pharaoh do _this,_ and let him appoint officers over the land, to collect on
 And let them gather all the food of those good years that are coming, and store up grain under the authority of Pharaoh, and let them keep food in the cities. 
 
 ###### 36 
-Then that food shall be as a reserve for the land for the seven years of famine which shall be in the land of Egypt, that the land may not perish during the famine." ## Joseph's Rise to Power 
+Then that food shall be as a reserve for the land for the seven years of famine which shall be in the land of Egypt, that the land may not perish during the famine." 
+
+## Joseph's Rise to Power 
 
 ###### 37 
 So the advice was good in the eyes of Pharaoh and in the eyes of all his servants. 
